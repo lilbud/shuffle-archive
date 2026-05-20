@@ -18,11 +18,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1972-0122.jpg.webp)
 
-**1977:** Springsteen guests with Pegasus at The Jail in Hillsdale, New Jersey for “[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)” and “Rosalita (Come Out Tonight).”<br>
+**1977:** Springsteen guests with Pegasus at The Jail in Hillsdale, New Jersey for “[Carol](../2022-02-17_cover-me-carol/post.md)” and “Rosalita (Come Out Tonight).”<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1977-122.jpg.webp)
 
-**1994:** Bruce wins the Best Original Song Golden Globe for “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/).”<br>
+**1994:** Bruce wins the Best Original Song Golden Globe for “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Wins Best Original Song - Golden Globes 1994](https://www.youtube.com/watch?v=En4D3L5EGZc)
 
@@ -34,17 +34,17 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 [Watch Video Highlight](https://videopress.com/embed/7yl9qLlX)
 
-**1998**: Bruce, Danny, Jim Hanson, Marty Rifkin, and Gary Mallaber perform “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)” for a Rolling Stone 30th anniversary special. It won’t be aired until May, though.<br>
+**1998**: Bruce, Danny, Jim Hanson, Marty Rifkin, and Gary Mallaber perform “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” and “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)” for a Rolling Stone 30th anniversary special. It won’t be aired until May, though.<br>
 
 [Watch on Youtube: Bruce Springsteen Rolling Stone State of the Union](https://www.youtube.com/watch?v=XT0OxAS5wg0)
 
-**2010**: Bruce performs “[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)” at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.<br>
+**2010**: Bruce performs “[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)” at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.<br>
 
 [Watch on Youtube: We Shall Overcome Bruce Springsteen Hope For Haiti January 22 2010](https://www.youtube.com/watch?v=HtC_NIBXrH4)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2010-01-22.png.webp)
 
-**2014:** Bruce releases his official video for “[Just Like Fire Would](https://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/).”<br>
+**2014:** Bruce releases his official video for “[Just Like Fire Would](../2020-05-24_cover-me-just-like-fire-would/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Just Like Fire Would (Official Video)](https://www.youtube.com/watch?v=hJ4a_tgJp4I)
 
@@ -54,7 +54,7 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Asbury_Park_Press_2016_01_29_Page_J3.jpg.webp)
 
-**2017:** Bruce and the E Street Band kick off their Australian Summer tour in Perth. This is the first show after Donald Trump’s inauguration, and Bruce makes reference to it right off the bat, both at an afternoon press conference and at the top of the show. This first show of 2017 feels like a continuation of the 2016 “autobiography tour,” but this will prove to be the last such set list. An encore highlight: an ultra-rare acoustic “[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/).”<br>
+**2017:** Bruce and the E Street Band kick off their Australian Summer tour in Perth. This is the first show after Donald Trump’s inauguration, and Bruce makes reference to it right off the bat, both at an afternoon press conference and at the top of the show. This first show of 2017 feels like a continuation of the 2016 “autobiography tour,” but this will prove to be the last such set list. An encore highlight: an ultra-rare acoustic “[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Perth media conference 22 January 2017](https://www.youtube.com/watch?v=_hXG_TjbgpE)
 

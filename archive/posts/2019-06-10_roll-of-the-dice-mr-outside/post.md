@@ -14,7 +14,7 @@ Undaunted, Scott carefully edited the song to remove the blemishes, paring away 
 
 Exactly *why* Bruce and Toby went to the trouble, though, is a mystery.
 
-Musically, "Mr. Outside" is just one of a trilogy of never-finished songs that share the same melody, and the only one that ever saw any kind of official release. (See "[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)" and "[You Gotta Be Kind](https://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/)" for Mr. Outside's siblings.) It probably works best for "Mr. Outside" though: the devil-may-care melody perfectly underscores Bruce's lyrics.
+Musically, "Mr. Outside" is just one of a trilogy of never-finished songs that share the same melody, and the only one that ever saw any kind of official release. (See "[Whitetown](../2018-04-19_roll-of-the-dice-whitetown/post.md)" and "[You Gotta Be Kind](../2018-02-23_roll-of-the-dice-you-gotta-be-kind/post.md)" for Mr. Outside's siblings.) It probably works best for "Mr. Outside" though: the devil-may-care melody perfectly underscores Bruce's lyrics.
 
 About those lyrics: it seems as if Bruce was reaching for a "Nowhere Man." Written and recorded in 1979, Bruce's titular character seems to foretell the stereotype that would come to define the coming decade:
 
@@ -39,7 +39,7 @@ Nothing really happens in "Mr. Outside." Essentially, the song is just a charact
 > *Them pretty things, babe, just look dumb*
 > *When you gotta take 'em when they come*
 
-None of the lyrics are particularly artful or insightful, and other than the early hints of songs yet to come ("[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" and "[Take ‘Em When They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)"), there's not a lot of interest here.
+None of the lyrics are particularly artful or insightful, and other than the early hints of songs yet to come ("[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and "[Take ‘Em When They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)"), there's not a lot of interest here.
 
 Since it technically counts as an official release, I'm tempted to rank it dead last in Bruce's catalog. But that hardly seems fair for a song that seems like it was released more for historical purposes than for artistic reasons.
 

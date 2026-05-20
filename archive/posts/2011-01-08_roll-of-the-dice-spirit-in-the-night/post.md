@@ -6,7 +6,7 @@ Cahill was so wild, in fact, that Bruce thought Lozito had to be a bit off herse
 
 One night that summer, Bruce, Wild Billy, Crazy Diane, Davy Hazlett (a temporary Steel Mill member who Bruce called "Hazy" (according to Hazlett)) and other friends and hangers-on escaped the summer heat at a nearby lake and while Wild Billy took a nocturnal swim, Bruce and Crazy Diane hooked up. Before long, Diane broke up with Wild Billy and took up with Bruce.
 
-A year or so later, when Bruce completed his first album, Clive Davis (President of Columbia Records) felt the album didn't have any songs with commercial potential and asked Bruce to write another track or two. Bruce went home and wrote "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" and "Spirit in the Night," the latter of which memorialized that first spark between Bruce and his girlfriend.
+A year or so later, when Bruce completed his first album, Clive Davis (President of Columbia Records) felt the album didn't have any songs with commercial potential and asked Bruce to write another track or two. Bruce went home and wrote "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "Spirit in the Night," the latter of which memorialized that first spark between Bruce and his girlfriend.
 
 So the story goes. At least, according to Lozito in her interviews about it. To my knowledge, Bruce has never commented.
 
@@ -128,7 +128,7 @@ And at this point, Bruce introduces a technique he'll return to again and again 
 
 And Bruce once told Ed Sciaky that "for some reason I always imagined Joe Cocker doing ‘Spirit in the Night.' When I wrote the song I had his kind of voice in mind, which is something I rarely do."
 
-Whatever the recipe, "Spirit in the Night" stands out from the rest of *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Sure, "Blinded by the Light" has a similar lighter feel to "Spirit" compared to the rest of the somber album, but "Blinded" shares the rhyming dictionary overuse that characterizes much of Bruce's early work. By contrast, "Spirit" is more restrained, letting the imagery paint the scene and allowing Clarence to carry the listener through it.
+Whatever the recipe, "Spirit in the Night" stands out from the rest of *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*Sure, "Blinded by the Light" has a similar lighter feel to "Spirit" compared to the rest of the somber album, but "Blinded" shares the rhyming dictionary overuse that characterizes much of Bruce's early work. By contrast, "Spirit" is more restrained, letting the imagery paint the scene and allowing Clarence to carry the listener through it.
 
 It also provides the first glimpse at what would eventually evolve into the E Street sound. At 572 performances to date, it comes in a very close second to "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" as the most frequently played *Greetings* song–and if you don't count *Springsteen on Broadway* performances of "Growin' Up," "Spirit" runs away with the title altogether.
 
@@ -152,7 +152,7 @@ From the Darkness Tour…
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Spirit in the Night (Live In Barcelona)](https://www.youtube.com/watch?v=gGMSXEQdGL0)
 
-…to the modern-day [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)and *High Hopes* era, where "Spirit in the Night" became a full-on production number with an introduction that sometimes eclipsed the song itself.
+…to the modern-day [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)and *High Hopes* era, where "Spirit in the Night" became a full-on production number with an introduction that sometimes eclipsed the song itself.
 
 [Watch on Youtube: Spirit in the night - pro shot dallas - Bruce springsteen](https://www.youtube.com/watch?v=B1Mq-QT5jwI)
 

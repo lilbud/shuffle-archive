@@ -26,22 +26,20 @@ Bruce is especially fond of Christmas classics from the golden age of rock and r
 It isn't Christmas without carols, and even Springsteen has been known to enjoy a holiday chestnut from time to time.
 
 - "[Joy to the World](https://estreetshuffle.com/index.php/2019/12/24/matr-sting-bruce-springsteen-and-friends-joy-to-the-world/)" is the oldest song in our holiday jukebox–it dates back more then three centuries. Check out the earliest known recording (from 1926!) and watch Bruce sing it with Sting, James Taylor, Ronnie Spector, Darlene Love, and other luminaries at Sting and Trudie Styler's Rainforest Fund benefit in 2016.
-- You *think* it's a Christmas carol, but "[Do You Hear What I Hear](https://estreetshuffle.com/index.php/2020/12/24/matr-jennifer-nettles-sting-darlene-love-ronnie-spector-bruce-springsteen-and-more-do-you-hear-what-i-hear/)" is actually a cold war protest song about nuclear annihilation. (You're welcome.) Listeners glommed on to the Christian imagery, however, and it became a favorite (if misunderstood) holiday standard. Watch Bruce perform with that same 2016 all-star line-up.
+- You *think* it's a Christmas carol, but "[Do You Hear What I Hear](../2020-12-24_matr-jennifer-nettles-sting-darlene-love-ronnie-spector-bruce-springsteen-and-more-do-you-hear-what-i-hear/post.md)" is actually a cold war protest song about nuclear annihilation. (You're welcome.) Listeners glommed on to the Christian imagery, however, and it became a favorite (if misunderstood) holiday standard. Watch Bruce perform with that same 2016 all-star line-up.
 
 ### **Springsteen Singles**
 
 No Springsteen holiday collection could be complete without Bruce's own two immensely popular holiday covers.
 
 - "[Merry Christmas, Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)" dates back to 1947, but it was Otis Redding's 1968 version that influenced Bruce's 1986 B-side. It's popped up in Springsteen's set lists with regularity ever since 1980, and there are many wonderful filmed performances to enjoy if you click the link above.
-- And of course: Bruce's original and perennial Christmas cover, "[Santa Claus Is Comin' to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" The backstory is tragic, but the track is timeless. So is Bruce's version, which pops up on your FM dial with regularity each and every December. Watch some of Bruce's best seasonal (and off-seasonal) performances here.
+- And of course: Bruce's original and perennial Christmas cover, "[Santa Claus Is Comin' to Town.](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" The backstory is tragic, but the track is timeless. So is Bruce's version, which pops up on your FM dial with regularity each and every December. Watch some of Bruce's best seasonal (and off-seasonal) performances here.
 
 ### **Christmas Comedy**
 
 And then there are a couple of holiday songs that haven't exactly earned classic status, but they'll at least make you crack a smile.
 
 - "[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)" is the lone Springsteen original on our holiday list. This ribald 1996 holiday fable has a lot to say, even though Bruce says it with tongue firmly in cheek. It's well worth checking out, but I wouldn't recommend listening at work or with kids around.
-- And lastly, "[It's Gonna Be a Bruce Springsteen Christmas.](https://estreetshuffle.com/index.php/2019/12/17/spare-parts-its-gonna-be-a-bruce-springsteen-christmas/)" Bruce doesn't actually sing this one, but Xander Green channels him pretty well in a performance that makes me laugh when I re-watch it every year at this time.
+- And lastly, "[It's Gonna Be a Bruce Springsteen Christmas.](../2019-12-17_spare-parts-its-gonna-be-a-bruce-springsteen-christmas/post.md)" Bruce doesn't actually sing this one, but Xander Green channels him pretty well in a performance that makes me laugh when I re-watch it every year at this time.
 
 I hope you enjoyed this brief guided tour through Bruce's best holiday-themed performances. Have a great holiday season, and let's hope we all get a little closer to peace on earth soon.
-
- 

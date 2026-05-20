@@ -125,11 +125,11 @@ In 2011, the son from "My Hometown" would be about the same age as his father wa
 
 Unlike his father, though, he's not resigned–he's angry, and he's not going to surrender his town without a fight. There *was* something he could do.
 
-[But that's an essay for another day.](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)
+[But that's an essay for another day.](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)
 
 ---
 
-"My Hometown" was the seventh and final Top 10 single generated from *Born in the U.S.A.*, and while it only peaked at #6 on the Hot 100 chart, it reached the very top of Billboard's Adult Contemporary chart, the one and only time Bruce ever accomplished that feat. (It's quite possible, however, that the chart success of "My Hometown" was bolstered by its improbable B-side, Bruce's 1975 live cover of "[Santa Claus Is Coming to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)")
+"My Hometown" was the seventh and final Top 10 single generated from *Born in the U.S.A.*, and while it only peaked at #6 on the Hot 100 chart, it reached the very top of Billboard's Adult Contemporary chart, the one and only time Bruce ever accomplished that feat. (It's quite possible, however, that the chart success of "My Hometown" was bolstered by its improbable B-side, Bruce's 1975 live cover of "[Santa Claus Is Coming to Town.](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)")
 
 The studio version of "My Hometown" never received an official music video, but Bruce did release a live performance to bolster the song's airplay and sales.
 
@@ -153,7 +153,7 @@ Autobiographical in content but universal in theme, "My Hometown" has proved its
 
 (Okay maybe that one wasn't so effortless.)
 
-It's been covered by luminaries like [U2](https://estreetshuffle.com/index.php/2018/04/17/cover-me-u2-my-hometown/), [Neil Young](https://estreetshuffle.com/index.php/2019/09/24/cover-me-neil-young-my-hometown/), and Emmylou Harris. In concert, fellow icons like Eddie Vedder and Tracey Chapman turned "My Hometown" into a duet.
+It's been covered by luminaries like [U2](../2018-04-17_cover-me-u2-my-hometown/post.md), [Neil Young](../2019-09-24_cover-me-neil-young-my-hometown/post.md), and Emmylou Harris. In concert, fellow icons like Eddie Vedder and Tracey Chapman turned "My Hometown" into a duet.
 
 [Watch on Youtube: Tracy Chapman and Bruce Springsteen - My Hometown (Live 2004)](https://www.youtube.com/watch?v=aPQTrv2B1sw)
 

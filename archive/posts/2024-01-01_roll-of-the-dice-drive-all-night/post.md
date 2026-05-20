@@ -23,7 +23,7 @@ It sneaks up on you–the song begins with Garry Tallent's slow, methodical bass
 > *When I lost you honey, sometimes I think I lost my guts too*<br>
 > *And I wish God would send me a word, send me something I'm afraid to lose*<br>
 
-Lyrically, we're in "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" territory (that later song is essentially "Drive All Night" as performed by the Righteous Brothers) — Bruce done screwed up, and he can't fix it.
+Lyrically, we're in "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" territory (that later song is essentially "Drive All Night" as performed by the Righteous Brothers) — Bruce done screwed up, and he can't fix it.
 
 Right at the one-minute mark, the song lifts off from the earth, as Bruce's vocals become higher-pitched and more strident:
 
@@ -86,7 +86,7 @@ He'll drive all night.
 
 "Drive All Night" is easily in my top ten all-time favorite Springsteen songs. That list changes frequently, but I don't think DAN ever left it. In concert, it's performed only rarely (outside of the River full-album shows) and it only grows in power over time.
 
-Interestingly, for long-time fans, "Drive All Night" began in concert: the first time Bruce sang the lyrics was in an introduction to "[Backstreets](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)" on New Years' Eve in 1977. That show is available on YouTube, but it omits the one-time-only introduction. Check it out below to hear the first-ever proto-"Drive All Night."
+Interestingly, for long-time fans, "Drive All Night" began in concert: the first time Bruce sang the lyrics was in an introduction to "[Backstreets](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" on New Years' Eve in 1977. That show is available on YouTube, but it omits the one-time-only introduction. Check it out below to hear the first-ever proto-"Drive All Night."
 
 [https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3)
 
@@ -114,7 +114,7 @@ Here's an almost final version–"jeweler's eye" is still in there, but otherwis
 
 If you're lucky enough to catch "Drive All Night" live in concert, it's bound to be the highlight of the night. The song breathes and builds and bursts with emotion, especially on the recent River tour.
 
-I chased this song for years and finally landed it in [St. Louis in 2008](https://estreetshuffle.com/index.php/2018/08/23/where-the-band-was-st-louis-august-23-2008/)–and then somehow managed to be present at four more shows (out of a total of only 11) where it was played between then and 2014. I've now heard it live a total of fourteen times, and it never loses its power of transport.
+I chased this song for years and finally landed it in [St. Louis in 2008](../2018-08-23_where-the-band-was-st-louis-august-23-2008/post.md)–and then somehow managed to be present at four more shows (out of a total of only 11) where it was played between then and 2014. I've now heard it live a total of fourteen times, and it never loses its power of transport.
 
 Here are two of my favorite live performances:
 

@@ -16,7 +16,7 @@ Bruce not only co-produced Bonds' album (with Steve Van Zandt), he also contribu
 
 And maybe, just maybe… Bruce contributed even more than that.
 
-Legend has it that Bruce originally contributed his vocals to his songs as well, but with Bruce approaching his peak of popularity, Columbia Records refused permission to release them. Bruce's vocals had to be removed, most notably from "[Angelyne](https://estreetshuffle.com/index.php/2019/02/04/cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/)," which was originally a Springsteen/Bonds duet.
+Legend has it that Bruce originally contributed his vocals to his songs as well, but with Bruce approaching his peak of popularity, Columbia Records refused permission to release them. Bruce's vocals had to be removed, most notably from "[Angelyne](../2019-02-04_cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/post.md)," which was originally a Springsteen/Bonds duet.
 
 But Springsteen fans swear that not every trace of Bruce's vocals was successfully removed. Despite no credit on the album other than "producer," astute listeners might find Bruce lurking in the background on select tracks. Is he on "Soul Deep?" I have my opinion, but take a listen and decide for yourself:
 

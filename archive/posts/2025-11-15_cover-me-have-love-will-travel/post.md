@@ -1,4 +1,4 @@
-"Have Love, Will Travel" started out as a 1959 "[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)" sound-alike, probably because both songs were written and recorded by Richard Berry.
+"Have Love, Will Travel" started out as a 1959 "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)" sound-alike, probably because both songs were written and recorded by Richard Berry.
 
 [Watch on Youtube: Richard Berry and The Paroahs - Have Love, Will Travel](https://www.youtube.com/watch?v=biwW1Zx2KDU)
 

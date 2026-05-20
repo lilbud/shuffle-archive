@@ -30,7 +30,7 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 [Watch on Youtube: Curtis Mayfield All-Star Jam](https://www.youtube.com/watch?v=AjM2KHrNUxk)
 
-**1995:** Bruce performs "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" and wins Grammys for Best Rock Song, Best Male Rock Vocal Performance, Song of the Year, and Best Song Written Specifically for a Motion Picture or for Television. The only nomination for which he doesn't take home the award is for Record of the Year. Check out the footage of the awards, post-ceremony interviews and more below.<br>
+**1995:** Bruce performs "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" and wins Grammys for Best Rock Song, Best Male Rock Vocal Performance, Song of the Year, and Best Song Written Specifically for a Motion Picture or for Television. The only nomination for which he doesn't take home the award is for Record of the Year. Check out the footage of the awards, post-ceremony interviews and more below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/HclHJdZx)
 
@@ -52,7 +52,7 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2003-03-01.jpg.webp)
 
-**2014:** Bruce plays the first of two shows in Auckland, New Zealand. He opens with an acoustic cover of Lorde's "[Royals](https://estreetshuffle.com/index.php/2020/04/25/cover-me-royals/)," tour debuts "[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)," and plays the full *Born in the U.S.A.* album. This show has an opening act: Jimmy Barnes, who recorded Steve Van Zandt's "Ride the Night Away" on his 1985 album, *For the Working Class Man*. Steve makes a guest appearance during Jimmy's set to join him for that song.<br>
+**2014:** Bruce plays the first of two shows in Auckland, New Zealand. He opens with an acoustic cover of Lorde's "[Royals](../2020-04-25_cover-me-royals/post.md)," tour debuts "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)," and plays the full *Born in the U.S.A.* album. This show has an opening act: Jimmy Barnes, who recorded Steve Van Zandt's "Ride the Night Away" on his 1985 album, *For the Working Class Man*. Steve makes a guest appearance during Jimmy's set to join him for that song.<br>
 
 [Watch on Youtube: Ride The Night Away - Jimmy Barnes and Little Steven - Mt Smart Stadium, Auckland 1-3-2014](https://www.youtube.com/watch?v=n7PagtsHHbs)
 
@@ -66,6 +66,6 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 **2018:** Patti Scialfa returns to *Springsteen on Broadway* after recuperating from a back injury, as the show continues its epic run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** Bruce and President Obama debut Episode 3 of their podcast, *Renegades: Born in the U.S.A.* This episode is entitled "Amazing Grace: American Music," and it features a duet of sorts on "[Further On Up the Road](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)."<br>
+**2021:** Bruce and President Obama debut Episode 3 of their podcast, *Renegades: Born in the U.S.A.* This episode is entitled "Amazing Grace: American Music," and it features a duet of sorts on "[Further On Up the Road](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)."<br>
 
 [Spotify Embed: American Music](https://open.spotify.com/embed/episode/1l5qlEK00ELt4dbD5Q6xlR?si=197d075203904acf&utm_source=oembed)

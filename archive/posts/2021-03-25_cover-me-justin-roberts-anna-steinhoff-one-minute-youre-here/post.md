@@ -1,6 +1,6 @@
 If you don't know who [Justin Roberts](https://www.justinrobertsmusic.com/) is, you probably don't have kids at home.
 
-If you do know who Justin Roberts is, you're probably wondering what a four-time Grammy nominee for Best Musical Album for Children is doing covering an existential song like Bruce Springsteen's "[One Minute You're Here](https://estreetshuffle.com/index.php/2021/05/30/roll-of-the-dice-one-minute-youre-here/)."
+If you do know who Justin Roberts is, you're probably wondering what a four-time Grammy nominee for Best Musical Album for Children is doing covering an existential song like Bruce Springsteen's "[One Minute You're Here](../2021-05-30_roll-of-the-dice-one-minute-youre-here/post.md)."
 
 But if you've ever listened closely to Justin's music, you know this Chicago-based singer-songwriter has a knack for writing poignant yet comforting songs that honor kids' ability to deal with issues like death or divorce.
 

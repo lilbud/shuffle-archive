@@ -26,13 +26,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/Star_Phoenix_2009_02_05_22-scaled.jpg.webp)
 
-**2016:** The River Tour (2016 version) stops at TD Garden in Boston, where "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)" makes its tour debut and Peter Wolf joins for the closing "[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)."<br>
+**2016:** The River Tour (2016 version) stops at TD Garden in Boston, where "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)" makes its tour debut and Peter Wolf joins for the closing "[Shout](../2019-09-12_cover-me-shout/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - 2016 - Boston - Roulette - HQ Audio](https://www.youtube.com/watch?v=_a90c44zGXY)
 
 [Watch on Youtube: Bruce Springsteen w/ Peter Wolf & the E Street Band - Shout - Boston - 2.4.16](https://www.youtube.com/watch?v=iWiE_zd0Ve0)
 
-**2017:** On Night Two in Melbourne, Bruce continues to make subtle political statements by opening with "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)." Surprisingly (given how many times he's played it) and comically, Bruce completely spaces on how to start "[Waitin' on a Sunny Day.](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)" He and Steve spend about two minutes repeatedly trying to figure it out before the crowd finally takes matters into their own hands. Also making their tour debut tonight: "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)," "This Hard Land," "and [Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)."<br>
+**2017:** On Night Two in Melbourne, Bruce continues to make subtle political statements by opening with "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)." Surprisingly (given how many times he's played it) and comically, Bruce completely spaces on how to start "[Waitin' on a Sunny Day.](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" He and Steve spend about two minutes repeatedly trying to figure it out before the crowd finally takes matters into their own hands. Also making their tour debut tonight: "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)," "This Hard Land," "and [Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen, ESB, American Land, Melbourne, AAMI Park, 4 February 2017](https://www.youtube.com/watch?v=3cU0klJsEOc)
 

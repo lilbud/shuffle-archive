@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Centre_Daily_Times_Sat__May_9__2009_-scaled.jpg.webp)
 
-**2013:** The second Wrecking Ball show in Turku features the live premiere of “[Wages of Sin](https://estreetshuffle.com/index.php/2020/02/07/roll-of-the-dice-wages-of-sin/),” the tour debut of “I’ll Work For Your Love,” and a rare “Ain’t Good Enough for You.” (photo credit: Jan Alin)<br>
+**2013:** The second Wrecking Ball show in Turku features the live premiere of “[Wages of Sin](../2020-02-07_roll-of-the-dice-wages-of-sin/post.md),” the tour debut of “I’ll Work For Your Love,” and a rare “Ain’t Good Enough for You.” (photo credit: Jan Alin)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/05/jan.jpg.webp)
 

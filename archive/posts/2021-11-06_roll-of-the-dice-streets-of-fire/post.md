@@ -24,7 +24,7 @@ You just need to be alone.
 
 And if you let it wash over you while you are alone, you will find yourself transported to the dark, to the wet, to the wind. To the maelstrom.
 
-Because at heart, "Streets of Fire" isn't a song at all. It's an ephemera, a bolt of lightning bottled in the earliest days of the[*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) sessions.
+Because at heart, "Streets of Fire" isn't a song at all. It's an ephemera, a bolt of lightning bottled in the earliest days of the[*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) sessions.
 
 So don't listen to the words. They don't matter.
 

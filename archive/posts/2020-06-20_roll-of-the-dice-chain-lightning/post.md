@@ -1,4 +1,4 @@
-If "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)" and "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)" had a love child, it would have been "Chain Lightning."
+If "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" and "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" had a love child, it would have been "Chain Lightning."
 
 [Watch on Youtube: Chain Lightning (Studio Outtake - 1980)](https://www.youtube.com/watch?v=xbuW4XrNVFU)
 

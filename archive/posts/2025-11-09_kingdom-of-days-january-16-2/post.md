@@ -8,7 +8,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/6A3wRNSs)
 
-**1991**: At the sixth Rock and Roll Hall of Fame induction ceremony, Bruce performs “[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)” with Jackson Browne, Don Henley, and Chaka Khan before joining the all-star closing jam on “[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)” and “[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/).”<br>
+**1991**: At the sixth Rock and Roll Hall of Fame induction ceremony, Bruce performs “[People Get Ready](../2019-01-06_matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/post.md)” with Jackson Browne, Don Henley, and Chaka Khan before joining the all-star closing jam on “[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)” and “[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen, Chaka Khan & John Fogerty - "Mustang Sally" | 1991 Induction](https://www.youtube.com/watch?v=m_-3SwTM4ls)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2001-01-16.png.webp)
 
-**2010:** A Light of Day guest appearance, with Bruce joining Willie Nile for “[Heaven Help the Lonely](https://estreetshuffle.com/index.php/2018/12/29/matr-willie-nile-and-bruce-springsteen-heaven-help-the-lonely/),” Jesse Malin for “[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/),” and Joe Grushecky and the Houserockers for a full set.<br>
+**2010:** A Light of Day guest appearance, with Bruce joining Willie Nile for “[Heaven Help the Lonely](../2018-12-29_matr-willie-nile-and-bruce-springsteen-heaven-help-the-lonely/post.md),” Jesse Malin for “[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md),” and Joe Grushecky and the Houserockers for a full set.<br>
 
 [Watch on Youtube: Heaven Help the Lonely - Springsteen & Joe Grushecky with Willie Nile - Jan 16 2010](https://www.youtube.com/watch?v=oVy_pqK4Rqc)
 
@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/2010-01-16.jpg.webp)
 
-**2016:** The River (2016) tour kicks off in Pittsburgh, featuring the entire double-album played start to finish, the live premiere of “[Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/),” and a tribute to the recently departed David Bowie, “[Rebel Rebel.](https://estreetshuffle.com/index.php/2021/11/21/cover-me-rebel-rebel/)”<br>
+**2016:** The River (2016) tour kicks off in Pittsburgh, featuring the entire double-album played start to finish, the live premiere of “[Meet Me in the City](../2020-08-23_roll-of-the-dice-meet-me-in-the-city/post.md),” and a tribute to the recently departed David Bowie, “[Rebel Rebel.](../2021-11-21_cover-me-rebel-rebel/post.md)”<br>
 
 [Watch on Youtube: Bruce Springsteen: David Bowie Tribute (Pittsburgh)](https://www.youtube.com/watch?v=CgmhF0XV8uA)
 
@@ -56,4 +56,4 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce rehearses backgrounds with Soozie Tyrell and The E Street Choir at The Vogel in Red Bank, New Jersey, in preparation for their upcoming world tour. First hand reports from fans (including this blogger) listening at the stage door confirming rare piano run-throughs of songs like “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” and “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”<br>
+**2023:** Bruce rehearses backgrounds with Soozie Tyrell and The E Street Choir at The Vogel in Red Bank, New Jersey, in preparation for their upcoming world tour. First hand reports from fans (including this blogger) listening at the stage door confirming rare piano run-throughs of songs like “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” and “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).”<br>

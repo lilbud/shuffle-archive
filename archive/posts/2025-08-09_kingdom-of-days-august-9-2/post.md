@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1972-0809.jpg.webp)
 
-**1973:** Bruce works on "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)" and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" at 914 Sound Studios in Blauvelt, New York.<br>
+**1973:** Bruce works on "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" at 914 Sound Studios in Blauvelt, New York.<br>
 
 **1974:** Bruce cancels an outdoor gig at the Tanglewood Music Festival in Lenox, Massachusetts to make room for ongoing *Born to Run* recording sessions.<br>
 
@@ -40,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1981-08-09.png.webp)
 
-**1984:** At Night Four of Ten at the Meadowlands during the Born in the U.S.A. Tour, J. T. Bowen guest-stars for a one-time-only (until 2011) cover of "[A Woman's Got the Power](https://estreetshuffle.com/index.php/2018/03/01/cover-me-a-womans-got-the-power/)," played for Bruce's mom, who is in the audience along with his father.<br>
+**1984:** At Night Four of Ten at the Meadowlands during the Born in the U.S.A. Tour, J. T. Bowen guest-stars for a one-time-only (until 2011) cover of "[A Woman's Got the Power](../2018-03-01_cover-me-a-womans-got-the-power/post.md)," played for Bruce's mom, who is in the audience along with his father.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/t5cDigsh)
 
@@ -62,7 +62,7 @@
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1991:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)is certified platinum by the Recording Industry Association of America, eighteen years after its initial release.<br>
+**1991:** [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)is certified platinum by the Recording Industry Association of America, eighteen years after its initial release.<br>
 
 [Watch on Youtube: Greetings from Asbury Park, N.J.](https://www.youtube.com/playlist?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
 
@@ -72,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1996-0809.jpg.webp)
 
-**1999:** Night Thirteen of fifteen at the Meadowlands sees the Reunion Tour premiere and one-off performance of "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)," not heard from in 23 years. During "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," Bruce opens the show with "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" (the second and last time to date that song has ever opened a show) and invites lifelong friend (and recent conga convert) Steve Eitelberg to join him on stage, making good on an alcohol-fueled promise. (Check out the story below.)<br>
+**1999:** Night Thirteen of fifteen at the Meadowlands sees the Reunion Tour premiere and one-off performance of "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," not heard from in 23 years. During "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," Bruce opens the show with "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" (the second and last time to date that song has ever opened a show) and invites lifelong friend (and recent conga convert) Steve Eitelberg to join him on stage, making good on an alcohol-fueled promise. (Check out the story below.)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/R5VjRrxz)
 

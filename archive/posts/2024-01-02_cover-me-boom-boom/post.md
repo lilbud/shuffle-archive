@@ -1,4 +1,4 @@
-When it comes to art imitating life, there may be no better metatextual example in the Springsteen canon than Bruce's decision to replace his sweet, romantic, original "[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" with a smoldering cover of John Lee Hooker's "Boom Boom" midway through the Tunnel of Love Express Tour.
+When it comes to art imitating life, there may be no better metatextual example in the Springsteen canon than Bruce's decision to replace his sweet, romantic, original "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" with a smoldering cover of John Lee Hooker's "Boom Boom" midway through the Tunnel of Love Express Tour.
 
 [Watch on Youtube: John Lee Hooker - Boom Boom [HQ]](https://www.youtube.com/watch?v=X70VMrH3yBg)
 

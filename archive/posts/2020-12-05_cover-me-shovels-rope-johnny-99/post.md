@@ -10,7 +10,7 @@ Imagine my surprise when I searched for their music and found this little gem, r
 
 We know from the opening bars that this is going to be an unusual cover–it's piano-heavy, and both the vocals and instrumentals by husband-and-wife Michael Trent and Carrie Ann Hearst sound like they had pre-funked with Tanqueray and wine.
 
-I've never been comfortable with the rockabilly arrangement that Bruce has favored for "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)" in recent years. I think I know what he was reaching for, but in concert he tends to overshoot the antihero's bravado and end up almost in celebration territory.
+I've never been comfortable with the rockabilly arrangement that Bruce has favored for "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" in recent years. I think I know what he was reaching for, but in concert he tends to overshoot the antihero's bravado and end up almost in celebration territory.
 
 Shovels & Rope get it. They understand that Jonny's defiance is a false, manic front, and their take captures the sense of gradually unraveling desperation that Bruce's concert arrangement misses.
 

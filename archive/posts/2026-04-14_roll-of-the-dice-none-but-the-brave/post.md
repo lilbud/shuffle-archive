@@ -115,7 +115,7 @@ But on the 2003 version, he sings:
 
 Now *that* is a significant edit. In the earlier version, the singer is looking for a spark, a hint, the essence of a friendship, a love, a connection he once had but lost. He's trying to recapture a *feeling*.
 
-In the later version, he's trying to summon a *person.* In fact, that line evokes a scene from "[You're Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)," another song of aching loss which Bruce had written and recorded probably not that long before he recorded his new vocal for "None But the Brave."
+In the later version, he's trying to summon a *person.* In fact, that line evokes a scene from "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)," another song of aching loss which Bruce had written and recorded probably not that long before he recorded his new vocal for "None But the Brave."
 
 > *Your house is waiting for you to walk in.*<br>
 

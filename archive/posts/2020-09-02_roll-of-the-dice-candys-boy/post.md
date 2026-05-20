@@ -2,7 +2,7 @@
 
 Candy was *definitely* a hooker, and it absolutely matters.
 
-But it matters more in "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)" than in its ancestral outtake, so we'll save that particular debate for a later *Roll of the Dice* date.
+But it matters more in "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)" than in its ancestral outtake, so we'll save that particular debate for a later *Roll of the Dice* date.
 
 Because "Candy's Boy" and "Candy's Room" are so similar in theme and content, we'll save the deep lyrical analysis until then as well. But there's still much to admire and appreciate about "Candy's Boy," especially its richness as a lyrical source for some of Bruce's much-loved songs.
 
@@ -17,7 +17,7 @@ Even in this early prototype, we can hear in almost-finished form the first vers
 > *Strange men from the city call Candy's number and bring Candy toys*
 > *But when I come knocking she smiles pretty, because she knows tonight I'm gonna be Candy's boy*
 
-But after that famous first verse, we leave the familiar behind to take a ride down Route 9 to a cheap motel, out by a location that would eventually serve as a set for "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)."
+But after that famous first verse, we leave the familiar behind to take a ride down Route 9 to a cheap motel, out by a location that would eventually serve as a set for "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)."
 
 > *Now in the olden days when the Mongolian gangs rode on Route 9*
 > *We go running scared in the shivering rain, settle down south through the pines*
@@ -58,7 +58,7 @@ Because Bruce devised a way for the bridge to do the heavy storytelling lifting,
 
 Gone is the reference to Candy's lies or any sense of betrayal. The bad boys are now merely "rough," more existential menaces than true-life ones. The narrator is more hopeful and less passive, but he's just as naive as in the earlier version.
 
-Bruce must have known he was on to something in that first couplet–while it wouldn't survive in the final version of "Candy's Room," he would adapt it for "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" and liberate it almost verbatim for an early version of "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)."
+Bruce must have known he was on to something in that first couplet–while it wouldn't survive in the final version of "Candy's Room," he would adapt it for "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" and liberate it almost verbatim for an early version of "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)."
 
 [Watch Video Highlight](https://videopress.com/embed/LmknH3DW?hd=1&cover=1)
 
@@ -70,7 +70,7 @@ And yet, "Candy's Room" has always sounded like a composite to me, long before I
 
 So don't ask me which is the stronger song–at least not yet. We'll pick up this thread further on down the road.
 
-***To be continued in "[The Fast Song](https://estreetshuffle.com/index.php/2021/01/30/roll-of-the-dice-the-fast-song/)"***<br>
+***To be continued in "[The Fast Song](../2021-01-30_roll-of-the-dice-the-fast-song/post.md)"***<br>
 
 **Bonus:** There are several studio outtakes of "Candy's Boy" floating around out there, all variations recorded in June 1977. Here's one of them, almost a full minute longer than the released version on *The Promise.*<br>
 

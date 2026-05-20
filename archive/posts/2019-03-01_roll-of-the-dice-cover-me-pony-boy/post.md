@@ -2,7 +2,7 @@ A long time ago, in a tiny apartment far, far away, I spent a long evening pacin
 
 In my arms was my inconsolable newborn daughter, and I tried everything in my new-dad bag of tricks to quiet or distract her.
 
-Nothing worked until Elvis Costello's "[Alison](https://estreetshuffle.com/index.php/2020/11/08/matr-elvis-costello-and-bruce-springsteen-alison/)" came up on my CD player's shuffle. I don't know why that particular song calmed her down at that moment; I only know that it did. So I did what any new parent quickly learns to do in that situation: I put it on repeat and played it over and over. And over.
+Nothing worked until Elvis Costello's "[Alison](../2020-11-08_matr-elvis-costello-and-bruce-springsteen-alison/post.md)" came up on my CD player's shuffle. I don't know why that particular song calmed her down at that moment; I only know that it did. So I did what any new parent quickly learns to do in that situation: I put it on repeat and played it over and over. And over.
 
 By the third time through, I was singing along. The fourth time through, I'd changed the name of the girl in the song from Allison to Abigail, my daughter's name.
 

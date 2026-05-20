@@ -1,10 +1,10 @@
 It's Double-Shot Tuesday on the Shuffle! Today, we bring you not one but *two* terrific covers of "I'm on Fire" courtesy of the fine folks at Scary Pockets.
 
-Wait, wait! Don't leave! I know we've spotlit a ton of "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" covers already, and truth be told the list of remaining ones could keep a blog going all by themselves.
+Wait, wait! Don't leave! I know we've spotlit a ton of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" covers already, and truth be told the list of remaining ones could keep a blog going all by themselves.
 
 But that just means the bar is high for what makes the cut to include, and both of these are well worth checking out.
 
-We've featured the work of Scary Pockets before–they're a Los Angeles-based covers band that funkifies classic songs with a rotating cast of guest vocalists. About a year ago, we took a look at their [irresistible take](https://estreetshuffle.com/index.php/2019/12/01/cover-me-scary-pockets-and-darren-criss-dancing-in-the-dark/) on "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" with Darrin Criss.
+We've featured the work of Scary Pockets before–they're a Los Angeles-based covers band that funkifies classic songs with a rotating cast of guest vocalists. About a year ago, we took a look at their [irresistible take](../2019-12-01_cover-me-scary-pockets-and-darren-criss-dancing-in-the-dark/post.md) on "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" with Darrin Criss.
 
 Today, they've recruited [Rett Madison](https://www.rettmadison.com/), a new singer-songwriter on the music scene who's already generating quite a bit of mainstream buzz in advance of her debut album. Together, Madison and Scary Pockets deliver a powerfully funky cover of "I'm on Fire" that'll have you dancing by the one-minute mark.
 
@@ -12,7 +12,7 @@ Today, they've recruited [Rett Madison](https://www.rettmadison.com/), a new sin
 
 But wait, there's more!
 
-Scary Pockets also has a sub-brand called Stories, featuring acoustic but no less inventive renditions of well-known songs. A few months back, we checked out[their version](https://estreetshuffle.com/index.php/2020/07/17/cover-me-stories-featuring-garrison-starr/) of Bruce's "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" featuring Garrison Starr.
+Scary Pockets also has a sub-brand called Stories, featuring acoustic but no less inventive renditions of well-known songs. A few months back, we checked out[their version](../2020-07-17_cover-me-stories-featuring-garrison-starr/post.md) of Bruce's "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" featuring Garrison Starr.
 
 That wasn't the only time they acoustically tackled one of Bruce's songs, though. Here's prolific singer-songwriter [George Krikes](https://www.georgekrikes.net/) (with three albums and five EPs under his belt between his band and solo efforts) and his moody, melodic cover of "I'm on Fire."
 

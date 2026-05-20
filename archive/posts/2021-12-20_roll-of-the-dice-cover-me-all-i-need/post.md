@@ -8,7 +8,7 @@ Bruce seemed eager enough to bring "All I Need" to life that he arranged it on t
 
 [Watch on Youtube: Bruce Springsteen All I Need](https://www.youtube.com/watch?v=BMaC0idOuQY)
 
-(If the melody sounds more than a bit familiar, that's probably because Bruce borrowed heavily from his arrangement of Ike and Tina Turner's "[It's Gonna Work Out Fine](https://estreetshuffle.com/index.php/2021/01/02/cover-me-its-gonna-work-out-fine/)" that he and the band played frequently during the Born to Run Tour.)
+(If the melody sounds more than a bit familiar, that's probably because Bruce borrowed heavily from his arrangement of Ike and Tina Turner's "[It's Gonna Work Out Fine](../2021-01-02_cover-me-its-gonna-work-out-fine/post.md)" that he and the band played frequently during the Born to Run Tour.)
 
 It's astonishing to listen to this first run-through and marvel at just how much potential "All I Need" had to be a hit if only Bruce had written it prior to the release of *The River* instead of just after. With a classic R&B backing track, passionate (albeit bluffed) vocals, and an arrangement right smack in the E Street sweet spot, "All I Need" *needed* to be finished and released.
 
@@ -20,13 +20,13 @@ But a recording doesn't guarantee a release, as Springsteen fans well know. Bruc
 
 So Bruce took "All I Need" and six other original songs in the same vein and donated them to Gary U.S. Bonds for Bonds' next album, *On the Line*.
 
-Bruce and Steve Van Zandt had produced Bonds' "comeback" album, *Dedication*, in 1981, and they reprised their co-producer roles for *On the Line* as well. Between the two albums, Bruce donated an amazingly generous *ten* songs to Bonds, a number of which could have been hits for Bruce (including, of course, "[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)" which Bonds scored with in 1981).
+Bruce and Steve Van Zandt had produced Bonds' "comeback" album, *Dedication*, in 1981, and they reprised their co-producer roles for *On the Line* as well. Between the two albums, Bruce donated an amazingly generous *ten* songs to Bonds, a number of which could have been hits for Bruce (including, of course, "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)" which Bonds scored with in 1981).
 
 But of all the songs Bruce gave away for *On the Line* that cried out for an official Springsteen release, "All I Need" ranks near the top. Such a recording almost certainly exists, and it very probably uses the exact same E Street Band backing track that Bonds recorded his vocals over. Let's take a listen:
 
 [Watch Video Highlight](https://videopress.com/embed/HbdN8Y0e)
 
-Bruce still sticks pretty close to that "It's Gonna Work Out Fine" melody, but it's lusher now, more romantic and soulful, with a coda at least inspired by if not lifted from "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)."
+Bruce still sticks pretty close to that "It's Gonna Work Out Fine" melody, but it's lusher now, more romantic and soulful, with a coda at least inspired by if not lifted from "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)."
 
 The lyrics speak for themselves–not much is required in the way of analysis. This is a pure R&B pop song., with Bruce's narrator finding all the validation he needs in the love of his girl.
 

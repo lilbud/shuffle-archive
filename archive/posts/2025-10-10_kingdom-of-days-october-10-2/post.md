@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1980-10-10.jpg.webp)
 
-**1983:** Bruce completes "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" during a mixing and overdub session at The Hit Factory in New York City.<br>
+**1983:** Bruce completes "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" during a mixing and overdub session at The Hit Factory in New York City.<br>
 
 [Watch on Youtube: Bobby Jean](https://www.youtube.com/watch?v=iGR_Rk74tOk)
 
@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/rollingstone.jpg.webp)
 
-**2006:** Bruce's Italian tour comes to a close in Rome, where he and the Sessions Band tour premiere "[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29845/bruce-springsteen-palalottomatica-rome-it-10-10-2006.html).<br>
+**2006:** Bruce's Italian tour comes to a close in Rome, where he and the Sessions Band tour premiere "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29845/bruce-springsteen-palalottomatica-rome-it-10-10-2006.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - Long Black Veil - Live from Rome (10/10/2006)](https://www.youtube.com/watch?v=zfy9Q9vWsvU)
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Long Black Veil (Live at Palalottomatica, Rome, Italy - 10/10/2006)](https://www.youtube.com/watch?v=Bt7QcIUERsc)
 
-**2007:** The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band tour premiere "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)," "[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)," "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and the live debut of "[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)" at their Magic show at the Continental Airlines Arena.<br>
+**2007:** The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band tour premiere "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)," "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)," "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and the live debut of "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" at their Magic show at the Continental Airlines Arena.<br>
 
 [Watch on Youtube: Bruce Springsteen And The E Street Band - Radio Nowhere - 10/10/07 - Izod Center (PROSHOT)](https://www.youtube.com/watch?v=ZgVyP3aoOGw)
 

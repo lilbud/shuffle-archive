@@ -6,9 +6,9 @@ Author's note: This is going to be an unusual post: one where Ken and I agree co
 
 Ken has already made my central point about "Cynthia:" that it's a more enlightened version of Roy Orbison's "Oh, Pretty Woman." But I think there's more to be said about just how Springsteen accomplishes this. So this will be a companion post rather than a counterpoint, a close reading to sit alongside Ken's more comprehensive overview.***
 
-***There's a video of a *Late Show* interview from 2016, in which Stephen Colbert challenges Bruce Springsteen to name his top 5 Bruce songs. Springsteen gets through the first four pretty easily –"Born to Run," "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)," "Thunder Road," and "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)"–and then stalls out. The audience tries to help as Bruce dramatically ponders his choices. Then a woman's voice rises above the rest, shouting loud enough to get Bruce's attention. "Cynthia! CYNTHIAAA!"<br>
+***There's a video of a *Late Show* interview from 2016, in which Stephen Colbert challenges Bruce Springsteen to name his top 5 Bruce songs. Springsteen gets through the first four pretty easily –"Born to Run," "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)," "Thunder Road," and "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)"–and then stalls out. The audience tries to help as Bruce dramatically ponders his choices. Then a woman's voice rises above the rest, shouting loud enough to get Bruce's attention. "Cynthia! CYNTHIAAA!"<br>
 
-Bruce, unsurprisingly, goes with "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" instead.
+Bruce, unsurprisingly, goes with "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" instead.
 
 [Watch on Youtube: Bruce Springsteen Picks His Top 5 Favorite Springsteen Songs](https://www.youtube.com/watch?v=W8CsEqYCg68)
 
@@ -16,7 +16,7 @@ But my heart goes out to that mystery fan, using her moment in the Colbert audie
 
 [Watch on Youtube: Cynthia (Studio Outtake - 1983)](https://www.youtube.com/watch?v=wzCpphwK8vk)
 
-And that's because "Cynthia," a goofy outtake that skirts the boundary between Roy Orbison pastiche and outright Roy Orbison parody, is also one of Springsteen's most explicitly feminist songs. Ken, who notes the Orbison influence in [his original *Roll of the Dice* entry](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/), writes that "Cynthia" is "a deeper, more mature (albeit marginally) song than '[Oh, Pretty Woman](https://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/).'" I would go further. I think "Cynthia" is a deliberate point-by-point feminist re-write of "Oh, Pretty Woman," in which Bruce takes everything that's wrong (from a feminist standpoint) with the original song, and *fixes it*. (A bit like Kelly Clarkson and John Legend rewriting "Baby it's Cold Outside," but more tongue-in-cheek, and also better.)
+And that's because "Cynthia," a goofy outtake that skirts the boundary between Roy Orbison pastiche and outright Roy Orbison parody, is also one of Springsteen's most explicitly feminist songs. Ken, who notes the Orbison influence in [his original *Roll of the Dice* entry](../2019-09-06_roll-of-the-dice-cynthia/post.md), writes that "Cynthia" is "a deeper, more mature (albeit marginally) song than '[Oh, Pretty Woman](../2019-08-25_matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/post.md).'" I would go further. I think "Cynthia" is a deliberate point-by-point feminist re-write of "Oh, Pretty Woman," in which Bruce takes everything that's wrong (from a feminist standpoint) with the original song, and *fixes it*. (A bit like Kelly Clarkson and John Legend rewriting "Baby it's Cold Outside," but more tongue-in-cheek, and also better.)
 
 Let's start by taking a look at the lyrics of "Oh Pretty Woman," the most famous song ever written about catcalling women on the street.
 

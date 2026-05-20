@@ -20,7 +20,7 @@ While the music and the arrangement might have been very different, when the tra
 
 In fact, Bruce's song sounds very much like a direct sequel. Clark's original centered around a girl with some serious FOMO; Bruce's more mature track revisits the same character long after those party lights have faded.
 
-Take a listen to Bruce's own version of "[Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/)" and hear for yourself.
+Take a listen to Bruce's own version of "[Party Lights](../2019-11-14_roll-of-the-dice-party-lights/post.md)" and hear for yourself.
 
 **Party Lights**<br>
 **First performed:** December 2, 1975 (Boston, MA)<br>

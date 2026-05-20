@@ -76,7 +76,7 @@ Bruce has played "My Beautiful Reward" 127 times to date, but surprisingly only 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4fhpheyJKeI)
 
-A return engagement is a long shot at this point. "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" seems to have taken its place, a more fitting send-off at this late stage of Bruce's career. Still, one never knows–as long as Bruce keeps writing and releasing new music, the search continues.
+A return engagement is a long shot at this point. "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" seems to have taken its place, a more fitting send-off at this late stage of Bruce's career. Still, one never knows–as long as Bruce keeps writing and releasing new music, the search continues.
 
 **My Beautiful Reward**<br>
 **Recorded** Late 1991<br>

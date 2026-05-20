@@ -12,17 +12,17 @@
 
 [Watch on Youtube: Bruce Springsteen, "Darkness on the Edge of Town" (early demo, June 1977)](https://www.youtube.com/watch?v=nVDmZnZqF3c)
 
-**1978:** Finishing the soundcheck for their evening show early, the band spends their free time at The Red Garter, a local strip club in Indianapolis, where Clarence befriends three strippers and invites them to the show. They take him up on his offer, surprising the band by walking out on stage during the encores and stripping during "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)."<br>
+**1978:** Finishing the soundcheck for their evening show early, the band spends their free time at The Red Garter, a local strip club in Indianapolis, where Clarence befriends three strippers and invites them to the show. They take him up on his offer, surprising the band by walking out on stage during the encores and stripping during "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-06-06.jpg.webp)
 
 **1982:** Bruce joins Cats on a Smooth Surface during their gig at The Stone Pony in Asbury Park.<br>
 
-**1983:** Bruce and the E Street Band record the base track for "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)" at The Hit Factory in New York City.<br>
+**1983:** Bruce and the E Street Band record the base track for "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)" at The Hit Factory in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen - "None But the Brave" original outtake](https://www.youtube.com/watch?v=syZB1xaNo0s)
 
-**1984:** Bruce shoots a video for "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" with director Jeff Stein. It does not go well. Watch the abandoned video along with Bruce's rehearsal footage below.<br>
+**1984:** Bruce shoots a video for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" with director Jeff Stein. It does not go well. Watch the abandoned video along with Bruce's rehearsal footage below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/eRUVm7qp)
 
@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1984-06-06.jpg.webp)
 
-**2005:** At his solo acoustic show in Rome, Bruce tour premieres "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)."<br>
+**2005:** At his solo acoustic show in Rome, Bruce tour premieres "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm on Fire (live in Rome 2005)](https://www.youtube.com/watch?v=W2WAlyG4YCk)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Rome 06/06/2005](https://www.youtube.com/playlist?list=PLJTyL9twk3zDWMIwV0bAuTa5JwEY-txNz)
 
-**2006:** At the Sleep Train Pavilion in Concord, California, Joan Baez joins Bruce and the Sessions Band for "[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)."<br>
+**2006:** At the Sleep Train Pavilion in Concord, California, Joan Baez joins Bruce and the Sessions Band for "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Bring 'Em Home (Live Tour Video)](https://www.youtube.com/watch?v=Mv4vW1FGnCQ)
 

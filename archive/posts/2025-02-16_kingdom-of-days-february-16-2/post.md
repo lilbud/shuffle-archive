@@ -30,7 +30,7 @@
 
 **1985:** Bruce scores his first Number One album in the U.K. with *Born in the U.S.A*.<br>
 
-**1991:** Bruce joins Bruce Willis, Stephen Stills, and John McEnroe(!) on "[C.C. Rider](https://estreetshuffle.com/index.php/2021/08/29/cover-me-c-c-rider/)" at the Tent on the Beach in Malibu.<br>
+**1991:** Bruce joins Bruce Willis, Stephen Stills, and John McEnroe(!) on "[C.C. Rider](../2021-08-29_cover-me-c-c-rider/post.md)" at the Tent on the Beach in Malibu.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1991-02-16.png.webp)
 
@@ -38,11 +38,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/yIuPpfhF)
 
-**2012:** In Paris, Bruce is interviewed about his new *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)* album by journalist Antoine de Caunes.<br>
+**2012:** In Paris, Bruce is interviewed about his new *[Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md)* album by journalist Antoine de Caunes.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/BlkrjD6J)
 
-**2014:** Night Two in Melbourne on the High Hopes Tour features a full album performance of *Born to Run* and tour debuts of "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)," "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)," "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," [Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)," and "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)." Curiously, no official recording is available of this show.<br>
+**2014:** Night Two in Melbourne on the High Hopes Tour features a full album performance of *Born to Run* and tour debuts of "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)," "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)," "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," [Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)," and "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)." Curiously, no official recording is available of this show.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucky Town - Roulette -- Melbourne 16 February 2014](https://www.youtube.com/watch?v=CmsEn31SK_E)
 
@@ -62,11 +62,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2016-02-16.png.webp)
 
-**2017:** Night Two in Brisbane features the Australian premiere of "[Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)," rare outings for "[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)," "[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)," and "Follow that Dream," and a guest audience member for "[Growin' Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" Also tour premiering tonight: "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)."<br>
+**2017:** Night Two in Brisbane features the Australian premiere of "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)," rare outings for "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)," "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)," and "Follow that Dream," and a guest audience member for "[Growin' Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" Also tour premiering tonight: "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Y4yBWysX)
 
-**2023:** COVID-19 continues its tour across the E Street Band, moving on from Nils (who returns to the stage) and taking temporary residence in Jake. E Street Horns saxophonist Ed Manion steps up for double-duty, and the band soldiers on in Austin. "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" makes its tour premiere tonight. "[Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)," an early highlight, is dropped from the set and won't appear again.<br>
+**2023:** COVID-19 continues its tour across the E Street Band, moving on from Nils (who returns to the stage) and taking temporary residence in Jake. E Street Horns saxophonist Ed Manion steps up for double-duty, and the band soldiers on in Austin. "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" makes its tour premiere tonight. "[Don't Play That Song](../2023-02-12_cover-me-dont-play-that-song-you-lied/post.md)," an early highlight, is dropped from the set and won't appear again.<br>
 
 [Watch on Youtube: George Strait Introduces Bruce Springsteen and The E Street Band + "No Surrender" - Austin, Texas](https://www.youtube.com/watch?v=PtGtO9xQ6cM)
 

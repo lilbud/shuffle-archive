@@ -15,7 +15,7 @@ with:
 
 > *Well now you say you've found another man who does things to you that I can't*
 
-Did "Baby Don't Go" ultimately lead Bruce to "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)?" I can't say with conviction, but there are certainly some similarities, and Bruce's first take of "Fade Away" came shortly after his last recorded attempt at "Baby Don't Go" (this time with a more up-tempo accompaniment).
+Did "Baby Don't Go" ultimately lead Bruce to "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)?" I can't say with conviction, but there are certainly some similarities, and Bruce's first take of "Fade Away" came shortly after his last recorded attempt at "Baby Don't Go" (this time with a more up-tempo accompaniment).
 
 [Watch on Youtube: Bruce Springsteen Baby Don't Go #2](https://www.youtube.com/watch?v=wTYAWYDttvI)
 

@@ -2,7 +2,7 @@
 
 The way the story goes, Tyrone Davis was dressed to kill that night.
 
-With his elbows on the stage, he couldn't help but catch the eye of his idol, Bobby "Blue" Bland (whose "[Turn On Your Love Light](https://estreetshuffle.com/index.php/2024/06/16/cover-me-turn-on-your-love-light/)" we listened to a couple of weeks ago). However, Davis couldn't have predicted what happened next: Bland leaned down and offered him the microphone.
+With his elbows on the stage, he couldn't help but catch the eye of his idol, Bobby "Blue" Bland (whose "[Turn On Your Love Light](../2024-06-16_cover-me-turn-on-your-love-light/post.md)" we listened to a couple of weeks ago). However, Davis couldn't have predicted what happened next: Bland leaned down and offered him the microphone.
 
 Davis took the mic, and as he took the stage, Bland looked straight at him and said, "Be you. Don't be me."
 

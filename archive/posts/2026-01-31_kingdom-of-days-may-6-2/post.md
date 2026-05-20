@@ -64,7 +64,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2010-05-06.jpg.webp)
 
-**2014:** At the Cynthia Woods Mitchell Pavilion in Houston, one of the smaller venues on the High Hopes Tour, Bruce plans to open the show with “This Is Your Sword.” Luckily, Tom Morello has a better idea: as they walk on stage, Tom suggests to Bruce that he open with “[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)” instead, setting the tone for a high-energy show that features a guest spot by Joe Ely and the tour debut of “All or Nothin’ at All” and “One Step Up.”<br>
+**2014:** At the Cynthia Woods Mitchell Pavilion in Houston, one of the smaller venues on the High Hopes Tour, Bruce plans to open the show with “This Is Your Sword.” Luckily, Tom Morello has a better idea: as they walk on stage, Tom suggests to Bruce that he open with “[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)” instead, setting the tone for a high-energy show that features a guest spot by Joe Ely and the tour debut of “All or Nothin’ at All” and “One Step Up.”<br>
 
 [Watch on Youtube: Bruce Springsteen - One Step Up](https://www.youtube.com/watch?v=neVEk4pdmkY)
 

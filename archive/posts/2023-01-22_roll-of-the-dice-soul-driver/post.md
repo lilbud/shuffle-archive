@@ -4,13 +4,13 @@ Or perhaps not.
 
 Despite a few standout tracks, there's a reason *Human Touch* is a little light in the stars department.
 
-It's not the songs, though. Even the [weakest track](https://estreetshuffle.com/index.php/2020/04/15/roll-of-the-dice-real-man/) on the album has redeeming virtues, and two in particular (the [title track](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/) and "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)") rank among the best in Springsteen's catalog.
+It's not the songs, though. Even the [weakest track](../2020-04-15_roll-of-the-dice-real-man/post.md) on the album has redeeming virtues, and two in particular (the [title track](../2019-08-09_roll-of-the-dice-human-touch/post.md) and "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)") rank among the best in Springsteen's catalog.
 
 The problems lie in the arrangements and production, which render even gorgeous songs like "Real World" so clunky and dated that they sounded passé on the day they were released.
 
 The sad thing is: it didn't have to be that way.
 
-Take, for example, "Soul Driver." One of the earliest songs written and recorded for *Human Touch*, it seems to have started as a Springsteen-Bittan collaboration like "Real World" and "[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)." Unlike the other two songs, however, Bruce decided to write his own music for it. He debuted the finished song at his acoustic Christic Institute concerts in November 1990, almost a year-and-a-half before it saw official release.
+Take, for example, "Soul Driver." One of the earliest songs written and recorded for *Human Touch*, it seems to have started as a Springsteen-Bittan collaboration like "Real World" and "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)." Unlike the other two songs, however, Bruce decided to write his own music for it. He debuted the finished song at his acoustic Christic Institute concerts in November 1990, almost a year-and-a-half before it saw official release.
 
 [Watch on Youtube: Soul Driver (Live at The Shrine, Los Angeles, CA - 11/16/90 - Official Audio)](https://www.youtube.com/watch?v=Igvu_8v0agw)
 
@@ -26,7 +26,7 @@ As originally presented to the public, "Soul Driver" was an intimate, moody, dev
 > *I'll be your gypsy joker, your shotgun rider*<br>
 > *Baby let me be your soul driver*<br>
 
-As in much of his best work, Bruce's narrator doesn't pretend to know the future, and he carries no false confidence. He simply pledges to be a true companion, riding shotgun with his lover (we'll let the titular metaphor contradiction pass without comment) through the Great Flood, the Egyptian plagues, and whatever life throws their way. In essence, "Soul Driver" is a wisened "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" by a wizened songwriter.
+As in much of his best work, Bruce's narrator doesn't pretend to know the future, and he carries no false confidence. He simply pledges to be a true companion, riding shotgun with his lover (we'll let the titular metaphor contradiction pass without comment) through the Great Flood, the Egyptian plagues, and whatever life throws their way. In essence, "Soul Driver" is a wisened "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" by a wizened songwriter.
 
 As always, the heart of the song lies in the bridge:
 

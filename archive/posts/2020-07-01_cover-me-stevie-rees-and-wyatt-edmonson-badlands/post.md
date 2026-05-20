@@ -2,7 +2,7 @@ I normally work on a pretty long lead time, but every once in a while I discover
 
 This is one of those times.
 
-Stevie Rees labels his sound as "swampland country," and that's a pretty great way to describe his cover of "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)" with fellow singer-songwriter Wyatt Edmonson.
+Stevie Rees labels his sound as "swampland country," and that's a pretty great way to describe his cover of "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" with fellow singer-songwriter Wyatt Edmonson.
 
 "Badlands" is the epitome of rock anthems. To re-arrange it as Cajun country is daring enough, but then performing it acoustically? That takes guts. And carrying the melody with a fiddle and mandolin–well, that's just nuts.
 

@@ -8,11 +8,11 @@
 
 **1975:** Bruce and the E Street Band play their second of two shows at the Houston Music Hall, where they play "A Love So Fine" for the very last time (at least until it's resurrected as "So Young and in Love" in the post-Reunion era).<br>
 
-**1977:** Bruce and the E Street Band record "[Ain't Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)" at The Record Plant in New York City. It will remain in the vault for 33 years until Bruce unearths, completes, and releases it on *The Promise.*<br>
+**1977:** Bruce and the E Street Band record "[Ain't Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)" at The Record Plant in New York City. It will remain in the vault for 33 years until Bruce unearths, completes, and releases it on *The Promise.*<br>
 
 [Watch on Youtube: Bruce Springsteen - Ain't Good Enough for You (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=kPg6ZZC3AcY)
 
-**1981:** It's the end of the River Tour with this final show at Cincinnati's Riverfront Coliseum, and it's Steve Van Zandt's last show as a member of the E Street Band for 18 years. Also saying their goodbyes for a while: "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" (next seen 15 years later) and "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)" (resurfacing 18 years later).<br>
+**1981:** It's the end of the River Tour with this final show at Cincinnati's Riverfront Coliseum, and it's Steve Van Zandt's last show as a member of the E Street Band for 18 years. Also saying their goodbyes for a while: "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" (next seen 15 years later) and "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" (resurfacing 18 years later).<br>
 
 [Watch on Youtube: Bruce Springsteen - "Rosalita" - Cincinatti, 1981-09-14](https://www.youtube.com/watch?v=YhD26kZGafI)
 
@@ -36,17 +36,17 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1985-0914.jpg.webp)
 
-**1989:** Bruce records "[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)" at One on One Recording in Los Angeles.<br>
+**1989:** Bruce records "[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md)" at One on One Recording in Los Angeles.<br>
 
 [Watch on Youtube: Viva Las Vegas (from 'The Last Temptation of Elvis')](https://www.youtube.com/watch?v=quWs4rY-ekc)
 
-**1995:** Bruce makes a guest appearance with Joe Ely at The Viper Room in West Hollywood, where the two play "[All Just to Get to You](https://estreetshuffle.com/index.php/2022/02/23/matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/)."<br>
+**1995:** Bruce makes a guest appearance with Joe Ely at The Viper Room in West Hollywood, where the two play "[All Just to Get to You](../2022-02-23_matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/post.md)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1995-0914.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1995-09-14.jpg.webp)
 
-**2003:** At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT/LT era, tour premiering "[Brilliant Disguise,](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)," the latter of which is its first E Street Band performance. The trend will continue throughout the rest of the tour, perhaps not coincidentally while *The Essential Bruce Springsteen* compilation is in production.<br>
+**2003:** At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT/LT era, tour premiering "[Brilliant Disguise,](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)," the latter of which is its first E Street Band performance. The trend will continue throughout the rest of the tour, perhaps not coincidentally while *The Essential Bruce Springsteen* compilation is in production.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QUWjxN0h)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2010-09-14.jpg.webp)
 
-**2012:** Bruce and the E Street Band play a Wrecking Ball show at Nationals Park in Washington, DC, where "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" makes its tour debut and Ali Weinberg (Max's daughter) plays the accordion for "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)."<br>
+**2012:** Bruce and the E Street Band play a Wrecking Ball show at Nationals Park in Washington, DC, where "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" makes its tour debut and Ali Weinberg (Max's daughter) plays the accordion for "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Washington DC - 14/09/2012 HD: Wrecking Ball](https://www.youtube.com/watch?v=AW2L4kQ9R7Y)
 

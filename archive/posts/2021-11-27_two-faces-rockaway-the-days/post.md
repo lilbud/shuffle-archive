@@ -2,9 +2,9 @@ Editor's Note
 
 ***Editor's Note:*** *By popular demand, guest blogger Katy Crane returns today with a new **Two Faces** entry.*<br>
 
-> *And I do mean popular: Katy's [debut counterpoint](https://estreetshuffle.com/index.php/2021/11/04/two-faces-western-stars/) to my "[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)" Roll of the Dice essay already ranks #3 among this site's most-viewed posts of the year!*<br>
+> *And I do mean popular: Katy's [debut counterpoint](../2021-11-04_two-faces-western-stars/post.md) to my "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)" Roll of the Dice essay already ranks #3 among this site's most-viewed posts of the year!*<br>
 
-> *Today, she takes us deep into a much more obscure song: Bruce's 1984 outtake, "[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/)." And once again, Katy's take is a very different one from mine. Let's hear what she has to say…*<br>
+> *Today, she takes us deep into a much more obscure song: Bruce's 1984 outtake, "[Rockaway the Days](../2021-03-15_roll-of-the-dice-rockaway-the-days/post.md)." And once again, Katy's take is a very different one from mine. Let's hear what she has to say…*<br>
 
 The 1984 outtake "Rockaway the Days" opens with a poignant little guitar riff, cheerful and reassuring and wistful all at once. Then we hear Springsteen's voice, telling a grim story with the sing-song cadences of a lullaby:
 
@@ -15,7 +15,7 @@ The 1984 outtake "Rockaway the Days" opens with a poignant little guitar riff, c
 
 At times, "Rockaway the Days" can feel like two songs. The verses are flat and detached, more a list of events than a story arc, while the riff and the chorus wash us in empathy and melancholy. The two parts of the song never quite fuse together, and while that may explain why "Rockaway the Days" is an outtake, it also gives it a fascinating strangeness and a central mystery. Who is telling this story, and where does the fault line between the chorus and the verses come from?
 
-Ken has already explored the links between this song and the earlier outtake "[Losin' Kind](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/)," and I can't improve on that analysis. But there are a few more connections I hear as well. (And as you'll notice if you've read Ken's piece, he and I have very different takes on what exactly is happening in the chorus.) So if you'll join me, we'll take a second look at "Rockaway the Days," a complex, ambitious song that bridges the gap between the isolation of *Nebraska* and the desperate search for connection of *Born in the U.S.A*.
+Ken has already explored the links between this song and the earlier outtake "[Losin' Kind](../2021-01-15_roll-of-the-dice-losin-kind/post.md)," and I can't improve on that analysis. But there are a few more connections I hear as well. (And as you'll notice if you've read Ken's piece, he and I have very different takes on what exactly is happening in the chorus.) So if you'll join me, we'll take a second look at "Rockaway the Days," a complex, ambitious song that bridges the gap between the isolation of *Nebraska* and the desperate search for connection of *Born in the U.S.A*.
 
 "Rockaway the Days" is one of Springsteen's rare third-person stories, and the opening drops us abruptly into the middle of a man's life. There's no introduction, no backstory, no insight into Billy's mind, just a concise summary of his problem. Billy has an addiction to fighting, and prison has done nothing to cure it.
 
@@ -33,7 +33,7 @@ Springsteen ends the verse with a casual, soothing "All right," as if he's check
 
 We're no longer in the past; whatever's happening in the chorus is happening right now. We're no longer listening to a detached third-person narrative; there's a real, vulnerable person here now, speaking to us directly, asking for comfort.
 
-And by "comfort," of course, I mean sex. This is a song like "Because the Night" and "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" and "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)," in which a character overwhelmed by the misery of the world turns to sex as a refuge, a way to get through a long, depressing night. Ken hears the singer of "Rockaway the Days" as a maternal figure, and while I disagree, I think he's pinpointed something central about how this chorus feels. Springsteen's voice is gentle, the cadence repetitive and soothing. This is a lullaby of a kind, but a dark one, a lullaby for adults.
+And by "comfort," of course, I mean sex. This is a song like "Because the Night" and "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" and "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," in which a character overwhelmed by the misery of the world turns to sex as a refuge, a way to get through a long, depressing night. Ken hears the singer of "Rockaway the Days" as a maternal figure, and while I disagree, I think he's pinpointed something central about how this chorus feels. Springsteen's voice is gentle, the cadence repetitive and soothing. This is a lullaby of a kind, but a dark one, a lullaby for adults.
 
 The singer takes up Billy's story again, running quickly through the big events of his life, his courtship and marriage. (In what may be Springsteen's laziest rhyme ever, he names Billy's wife "Mary Dove" so that her name will rhyme with "love." Oof.)
 
@@ -47,7 +47,7 @@ Another chorus, another appeal for human warmth and protection, and then we're i
 > *At a roadside bar Billy argued with a young man*<br>
 > *And he settled that argument with a razor in his hand*<br>
 
-Billy flees, but unlike his counterparts in "Highway Patrolman" and "Losin' Kind" and "[Highway 29,](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)" he doesn't immediately hit the highway. He doesn't have a car, for one thing, and he's spent the last few years trying to fit into a community. He turns for refuge not to the open road but to people: his wife, his mother, a neighbor. But it's too late; all his chances have run out. This time, when he asks to be taken in, no one is going to say yes.
+Billy flees, but unlike his counterparts in "Highway Patrolman" and "Losin' Kind" and "[Highway 29,](../2018-03-23_roll-of-the-dice-highway-29/post.md)" he doesn't immediately hit the highway. He doesn't have a car, for one thing, and he's spent the last few years trying to fit into a community. He turns for refuge not to the open road but to people: his wife, his mother, a neighbor. But it's too late; all his chances have run out. This time, when he asks to be taken in, no one is going to say yes.
 
 Billy goes first to Mary, and her reaction tells us something of what life with him must have been like.
 
@@ -72,7 +72,7 @@ Then something unexpected happens: the song keeps going. For the first time, tha
 > *Rich man want the power and the seat on the top*<br>
 > *Poor man want the money that the rich man got*<br>
 
-Sound familiar? Six years before, in "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," Springsteen sang confidently,
+Sound familiar? Six years before, in "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," Springsteen sang confidently,
 
 > *Poor man wanna be rich, rich man wanna be king*<br>
 > *And a king ain't satisfied till he rules everything*<br>
@@ -80,7 +80,7 @@ Sound familiar? Six years before, in "[Badlands](https://estreetshuffle.com/inde
 
 [Watch on Youtube: Badlands](https://www.youtube.com/watch?v=SDlSCeQXbPo)
 
-And there's no better encapsulation of the change from [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)to *Born in the U.S.A.* than these two mirror-image verses. In "Badlands," the singer concluded his neat summary of the class struggle by swaggering out into the night to take his place in it, to find out what he had and try to get more. Six years later, his impulse is exactly the opposite: to draw inward, to retreat into the safety of closed doors and the comfort of another person.
+And there's no better encapsulation of the change from [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)to *Born in the U.S.A.* than these two mirror-image verses. In "Badlands," the singer concluded his neat summary of the class struggle by swaggering out into the night to take his place in it, to find out what he had and try to get more. Six years later, his impulse is exactly the opposite: to draw inward, to retreat into the safety of closed doors and the comfort of another person.
 
 What other person? We're about to find out.
 
@@ -95,7 +95,7 @@ Either one is possible, but I'm inclined to think it's the second. I think Sprin
 
 This also explains the flatness of the narration, the sense of being shut out of Billy's thoughts and emotions. The singer doesn't know Billy; he knows only the bare events of his life. And yet Billy's story has brushed up against his own, and he's affected by it, haunted by it.
 
-Compare this to "[Wreck on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)," another story with a car crash, a dead young man, and a narrator who has crossed paths with someone else's tragedy. That song ends with the singer lying awake at night watching his girlfriend sleep, keeping vigil over the things he loves so they don't slip away. "Rockaway the Days" is "Wreck on the Highway" updated for the *Born in the U.S.A.* era, a time when that kind of human connection is harder to come by.
+Compare this to "[Wreck on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," another story with a car crash, a dead young man, and a narrator who has crossed paths with someone else's tragedy. That song ends with the singer lying awake at night watching his girlfriend sleep, keeping vigil over the things he loves so they don't slip away. "Rockaway the Days" is "Wreck on the Highway" updated for the *Born in the U.S.A.* era, a time when that kind of human connection is harder to come by.
 
 [Watch on Youtube: Wreck on the Highway](https://www.youtube.com/watch?v=D-MthLm7_m0)
 

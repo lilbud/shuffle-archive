@@ -28,7 +28,7 @@ The tribute album was released in 1998, and Bruce's "We Shall Overcome" leads of
 
 In the aftermath of September 11, Bruce's version of "We Shall Overcome" made frequent appearance on TV news and documentary specials, and along with "My City of Ruins" helped shore up strength and resilience among frightened citizens.
 
-Eight years after that original home recording session, Bruce revisited "We Shall Overcome" and the five other songs recorded back in 1997, and he supplemented them with nine new recordings using the same musicians. A third and final recording session in early 2006 completed the collection that would yield [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)and inspire one of Bruce's shortest, under-attended and joyous tours ever.
+Eight years after that original home recording session, Bruce revisited "We Shall Overcome" and the five other songs recorded back in 1997, and he supplemented them with nine new recordings using the same musicians. A third and final recording session in early 2006 completed the collection that would yield [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md)and inspire one of Bruce's shortest, under-attended and joyous tours ever.
 
 Here's the album version of "We Shall Overcome." If you listen with sharp ears, you'll hear the differences in the mix from the original version.
 
@@ -48,7 +48,7 @@ But there were two other performances that stand out for me, both long after the
 
 [Watch on Youtube: July 22- 2012 Bruce Springsteen NORWAY Memorial Concert For Victims on Utøya and Oslo](https://www.youtube.com/watch?v=LTrgNSlCkKY)
 
-The other was remarkable for both the location–Cape Town, South Africa, where the song carried special resonance–and the date: January 28, 2014, mere hours after the passing of Pete Seeger. [I was lucky enough to be present for it](https://estreetshuffle.com/index.php/2018/01/28/where-the-band-was-cape-town-january-28-2014/), and it remains to this day one of the most powerful concert moments I've ever experienced.
+The other was remarkable for both the location–Cape Town, South Africa, where the song carried special resonance–and the date: January 28, 2014, mere hours after the passing of Pete Seeger. [I was lucky enough to be present for it](../2018-01-28_where-the-band-was-cape-town-january-28-2014/post.md), and it remains to this day one of the most powerful concert moments I've ever experienced.
 
 [Watch on Youtube: Bruce Springsteen - We Shall Overcome - Cape Town - Bellville - 2014-01-26](https://www.youtube.com/watch?v=PE2lhLHeDBw)
 

@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1966-0729.gif)
 
-**1971:** The Bruce Springsteen Band plays two shows at D’Scene in South Amboy, New Jersey. The setlist includes “[Natural Magic,](https://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/)” “[Goin’ Back to Georgia](https://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/),” “[Dance Dance Dance](https://estreetshuffle.com/index.php/2018/06/22/roll-of-the-dice-dance-dance-dance/),” and more.<br>
+**1971:** The Bruce Springsteen Band plays two shows at D’Scene in South Amboy, New Jersey. The setlist includes “[Natural Magic,](../2020-05-19_roll-of-the-dice-natural-magic/post.md)” “[Goin’ Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md),” “[Dance Dance Dance](../2018-06-22_roll-of-the-dice-dance-dance-dance/post.md),” and more.<br>
 
 [Watch on Youtube: The Bruce Springsteen Band - MY BABY'S NATURAL MAGIC 1971 (audio)](https://www.youtube.com/watch?v=Ok630L5Z9D8)
 
@@ -22,7 +22,7 @@
 
 **1976:** Mike Appel countersues Bruce for breach of contract, escalating their legal battle.<br>
 
-**1978:** At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour show with his debut of “[Oh Boy](https://estreetshuffle.com/index.php/2018/05/17/cover-me-oh-boy/)” and adds a second cover debut later in the show: Chuck Berry’s “[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/).”<br>
+**1978:** At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour show with his debut of “[Oh Boy](../2018-05-17_cover-me-oh-boy/post.md)” and adds a second cover debut later in the show: Chuck Berry’s “[Around and Around](../2020-02-26_cover-me-around-and-around/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - AROUND AND AROUND 1978 (audio)](https://www.youtube.com/watch?v=LOhgVbjnd84)
 
@@ -34,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-0729.jpg.webp)
 
-**1981:** Southside Johnny guest-stars on “[I Don’t Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)” when Bruce and the E Street Band bring the River Tour to Richfield for the first of two nights.<br>
+**1981:** Southside Johnny guest-stars on “[I Don’t Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)” when Bruce and the E Street Band bring the River Tour to Richfield for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NOq3rVa8)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1987-07-29.png.webp)
 
-**1999:** At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in the Meadowlands, Bruce opens with the first “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” in 18 years and tour debuts (officially) a corny and charming “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)” for Patti’s birthday. Bobby Bandiera makes an encore guest appearance on “[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)”<br>
+**1999:** At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in the Meadowlands, Bruce opens with the first “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)” in 18 years and tour debuts (officially) a corny and charming “[Give the Girl a Kiss](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)” for Patti’s birthday. Bobby Bandiera makes an encore guest appearance on “[Hungry Heart.](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DMYBEQCE)
 

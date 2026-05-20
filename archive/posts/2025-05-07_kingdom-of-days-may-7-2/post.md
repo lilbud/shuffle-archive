@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1976-05-07.jpg.webp)
 
-**1980:** At a mixing station for *The River* at Clover Studios in Los Angeles, Bruce and team complete the mix for "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)."<br>
+**1980:** At a mixing station for *The River* at Clover Studios in Los Angeles, Bruce and team complete the mix for "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)."<br>
 
 [Watch on Youtube: I Wanna Marry You](https://www.youtube.com/watch?v=6ZYsaQyOHD0)
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 1981-05-07 - Stockholm, Sweden](https://www.youtube.com/watch?v=WskRlbSBWuU)
 
-**1982:** Bruce and the E Street Band work on "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)" at the Power Station in New York City.<br>
+**1982:** Bruce and the E Street Band work on "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)" at the Power Station in New York City.<br>
 
 **1984:** Bruce and the E Street Band rehearse for the Born in the U.S.A. Tour at what was once Big Man's West.<br>
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Saturday Night Live Promo 1992](https://www.youtube.com/watch?v=Eh6vxRrjnv4)
 
-**1993:** Bruce's mini-tour of Spain continues with a show in Gijon, featuring the tour premiere of "[Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)" (with its final verse in Spanish).<br>
+**1993:** Bruce's mini-tour of Spain continues with a show in Gijon, featuring the tour premiere of "[Across the Borderline](../2022-03-26_matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/post.md)" (with its final verse in Spanish).<br>
 
 [Watch on Youtube: 57 Channels (and nothing on) Bruce Springsteen live in Gijon, May 93](https://www.youtube.com/watch?v=p3uQfHSFNzw)
 
@@ -40,7 +40,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3](https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3)
 
-**1997:** On Night Two in Vienna during Bruce's first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)."<br>
+**1997:** On Night Two in Vienna during Bruce's first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/vUOwcBfv)
 
@@ -54,11 +54,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/NWEGes7W)
 
-**2006:** The Seeger Sessions Tour picks up steam in Manchester with the live premiere of "[How Can I Keep From Singing](https://estreetshuffle.com/index.php/2019/11/21/cover-me-how-can-i-keep-from-singing/)" and the tour debut of the "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)/[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)" mash-up.<br>
+**2006:** The Seeger Sessions Tour picks up steam in Manchester with the live premiere of "[How Can I Keep From Singing](../2019-11-21_cover-me-how-can-i-keep-from-singing/post.md)" and the tour debut of the "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)/[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)" mash-up.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iHzc5aGI)
 
-**2008:** Bruce and the E Street Band (with guests The Mighty Max Horns) play a benefit show at and for the Count Basie Theater in Red Bank, New Jersey. For the very first time, Bruce plays an album in sequence–two, in fact: *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* and *Born to Run*.<br>
+**2008:** Bruce and the E Street Band (with guests The Mighty Max Horns) play a benefit show at and for the Count Basie Theater in Red Bank, New Jersey. For the very first time, Bruce plays an album in sequence–two, in fact: *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)* and *Born to Run*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Zz6MlGoC)
 
@@ -68,7 +68,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-05-07b.jpg.webp)
 
-**2009:** Bruce plays the tour premiere of "[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)" at the Air Canada Center in Toronto on the Working on a Dream Tour.<br>
+**2009:** Bruce plays the tour premiere of "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)" at the Air Canada Center in Toronto on the Working on a Dream Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/BEpViGto)
 
@@ -78,7 +78,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2009-05-07.jpg.webp)
 
-**2013:** At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" for the first time on the tour and open the encores with a rare "[Queen of the Supermarket](https://estreetshuffle.com/index.php/2018/10/04/roll-of-the-dice-queen-of-the-supermarket/)."<br>
+**2013:** At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" for the first time on the tour and open the encores with a rare "[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - My Lucky Day](https://www.youtube.com/watch?v=QuKwfdLA4gQ)
 
@@ -90,7 +90,7 @@
 
 [Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - Pink Cadillac](https://www.youtube.com/watch?v=gXElNNsFvPM)
 
-**2014:** Bruce and Patti fly to Los Angeles for the USC Shoah Foundation's Ambassadors for Humanity gala, where Bruce performs "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."<br>
+**2014:** Bruce and Patti fly to Los Angeles for the USC Shoah Foundation's Ambassadors for Humanity gala, where Bruce performs "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - "The Promised Land" Live At USC Shoah Foundation Gala 5/7/2014](https://www.youtube.com/watch?v=sRHdTW95P_A)
 

@@ -4,7 +4,7 @@
 
 Bruce Springsteen and Joe Strummer had more than a bit of mutual admiration between them, each citing the other as an influence.
 
-It's a wonder then that Bruce hasn't covered Strummer and The Clash more often. There are exceptions, like "[London Calling](https://estreetshuffle.com/index.php/2018/04/09/matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/)" and "[Coma Girl,](https://estreetshuffle.com/index.php/2019/03/13/cover-me-coma-girl/)" but rarely does Bruce give one of Joe's songs multiple outings in concert.
+It's a wonder then that Bruce hasn't covered Strummer and The Clash more often. There are exceptions, like "[London Calling](../2018-04-09_matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/post.md)" and "[Coma Girl,](../2019-03-13_cover-me-coma-girl/post.md)" but rarely does Bruce give one of Joe's songs multiple outings in concert.
 
 That changed in Pittsburgh on the High Hopes Tour, when temporary E Streeter Tom Morello joined Bruce on vocals to open with a cover of a song Morello was more than a bit familiar with.
 

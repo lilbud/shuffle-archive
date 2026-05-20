@@ -4,9 +4,9 @@ It's no secret that Sam Moore is one of Bruce's longest and strongest influences
 
 [Watch Video Highlight](https://videopress.com/embed/ucFmhKLJ)
 
-What's surprising, though, is how long it took for Bruce and Sam to share a stage together, especially after Sam appeared on three of Bruce's studio tracks ("[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)," "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)," and "Soul Driver") in the early nineties.
+What's surprising, though, is how long it took for Bruce and Sam to share a stage together, especially after Sam appeared on three of Bruce's studio tracks ("[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)," "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)," and "Soul Driver") in the early nineties.
 
-Sam made a brief guest appearance on "[Soul Man](https://estreetshuffle.com/index.php/2018/07/25/meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/)" during the Reunion Tour, but it took a few more years before the two legendary bandleaders had a chance to truly team up in style.
+Sam made a brief guest appearance on "[Soul Man](../2018-07-25_meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/post.md)" during the Reunion Tour, but it took a few more years before the two legendary bandleaders had a chance to truly team up in style.
 
 By December 2003, Bruce Springsteen's holiday shows had become a firmly entrenched tradition. Now in their third year (they took a year off in 2002 due to the demands of the Rising Tour), the annual stand of benefit concerts had grown in length, cast, and anything-can-happen power.
 
@@ -14,7 +14,7 @@ More often than not, anything did. On the evening of December 7th, Bruce took th
 
 But there were a few new faces this year as well: Jesse Malin made his performing debut with Bruce at these shows, and Jon Bon Jovi made a surprise guest appearance.
 
-But for my money, the highlight of the show was Bruce's extended mini-set with Sam Moore. Bruce and Sam reprised their "Soul Man" performance from the Reunion Tour, but only after first performing three of Sam and Dave's greatest hits: "[Hold On, I'm Comin'](https://estreetshuffle.com/index.php/2019/04/24/matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/)," "[When Something is Wrong With My Baby](https://estreetshuffle.com/index.php/2021/05/26/matr-bruce-springsteen-and-sam-moore-when-something-is-wrong-with-my-baby/)," and "I Thank You."
+But for my money, the highlight of the show was Bruce's extended mini-set with Sam Moore. Bruce and Sam reprised their "Soul Man" performance from the Reunion Tour, but only after first performing three of Sam and Dave's greatest hits: "[Hold On, I'm Comin'](../2019-04-24_matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/post.md)," "[When Something is Wrong With My Baby](../2021-05-26_matr-bruce-springsteen-and-sam-moore-when-something-is-wrong-with-my-baby/post.md)," and "I Thank You."
 
 The last of those, "I Thank You" was also Sam and Dave's final single for storied Stax Records. It scored them another Top Ten hit, peaking at #9 on the Hot 100 and #4 on the R&B charts.
 

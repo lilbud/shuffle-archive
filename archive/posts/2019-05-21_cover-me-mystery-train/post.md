@@ -2,11 +2,11 @@ Ah, "Mystery Train." It's so easy to find snippets of it in Bruce's performances
 
 [Watch Video Highlight](https://videopress.com/embed/Ml73wUVB)
 
-...to "[Johnny Bye Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)..."
+...to "[Johnny Bye Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)..."
 
 [Watch on Youtube: Bruce Springsteen - Johnny Bye Bye (with story of almost meeting Elvis)](https://www.youtube.com/watch?v=FT3c2lc4Gvk)
 
-...to "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)."
+...to "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."
 
 [Watch on Youtube: Bruce Springsteen with The SSB -Cadillac Ranch/Mistery Train](https://www.youtube.com/watch?v=mYeiOaOluqU)
 

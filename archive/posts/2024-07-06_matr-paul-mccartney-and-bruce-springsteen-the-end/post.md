@@ -33,7 +33,7 @@ For a kid who grew up idolizing The Beatles, the chance to support McCartney on 
 
 A decade later, however, Springsteen had the chance to do it again. Twice.
 
-Bruce had already been on stage for a couple of songs (including his own "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)") earlier in the set at McCartney's 80th birthday show at MetLife Stadium in 2022. He came back out for the final encore, joining McCartney, Anderson and Ray for the show-closing "The End."
+Bruce had already been on stage for a couple of songs (including his own "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)") earlier in the set at McCartney's 80th birthday show at MetLife Stadium in 2022. He came back out for the final encore, joining McCartney, Anderson and Ray for the show-closing "The End."
 
 With only four guitarists at the fore for an extra-long jam, Bruce had even more at-bats than he did at The Grammys, and the hometown crowd went wild for it.
 

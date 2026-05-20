@@ -62,21 +62,21 @@ Wondering how that show came to happen? Watch the interview below.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1988-0621.jpg.webp)
 
-**1992:** At Night Two in Milan, “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide “Badlands” tradition forevermore. (*Of course*, that starts in Milan!) “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/),” “[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” and “Born to Run” make their tour debuts as well, and a soundcheck of “[Club Soul City](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)” is surreptitiously recorded.<br>
+**1992:** At Night Two in Milan, “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide “Badlands” tradition forevermore. (*Of course*, that starts in Milan!) “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” and “Born to Run” make their tour debuts as well, and a soundcheck of “[Club Soul City](../2019-05-07_cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/post.md)” is surreptitiously recorded.<br>
 
 [CSC Milano 1992 by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&show_artwork=true&maxheight=1000&maxwidth=758)
 
-**2003:** Nils celebrates his birthday on-stage with the E Street Band in Gothenburg, where the crowd serenades him with a Swedish birthday song at the end of “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/).”<br>
+**2003:** Nils celebrates his birthday on-stage with the E Street Band in Gothenburg, where the crowd serenades him with a Swedish birthday song at the end of “[Mary’s Place](../2022-03-25_roll-of-the-dice-marys-place/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2aeAI8cl)
 
 [Watch on Youtube: Bruce Springsteen. Ullevi, Göteborg. 21st Of June 2003. Full concert (Audio Only)](https://www.youtube.com/watch?v=BjhQHD8t1gk)
 
-**2004:** Promoting her new album, *23rd Street Lullaby*, Patti Scialfa plays a mini-concert on *The Early Show*, including the title track, “[You Can’t Go Back](https://estreetshuffle.com/index.php/2021/10/16/matr-patti-scialfa-and-bruce-springsteen-you-cant-go-back/),” and “[Rose](https://estreetshuffle.com/index.php/2018/03/21/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-rose/).”<br>
+**2004:** Promoting her new album, *23rd Street Lullaby*, Patti Scialfa plays a mini-concert on *The Early Show*, including the title track, “[You Can’t Go Back](../2021-10-16_matr-patti-scialfa-and-bruce-springsteen-you-cant-go-back/post.md),” and “[Rose](../2018-03-21_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-rose/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jnPT7zjR)
 
-**2008:** Bruce and the E Street Band bring the Magic Tour to Hamburg, where they play “[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)” for the first time in 28 years.<br>
+**2008:** Bruce and the E Street Band bring the Magic Tour to Hamburg, where they play “[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)” for the first time in 28 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Held Up Without A Gun - Hamburg 2008](https://www.youtube.com/watch?v=YCnclWpvx84)
 
@@ -86,7 +86,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Vi3j3Gl74Yw)
 
-**2011:** At the memorial service for the late Clarence Clemons in Palm Beach, Bruce delivers Clarence’s eulogy and performs a sad, acoustic “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” in tribute to the Big Man. Bruce and Jackson Browne close the ceremony with a duet of “You’re a Friend of Mine.”<br>
+**2011:** At the memorial service for the late Clarence Clemons in Palm Beach, Bruce delivers Clarence’s eulogy and performs a sad, acoustic “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” in tribute to the Big Man. Bruce and Jackson Browne close the ceremony with a duet of “You’re a Friend of Mine.”<br>
 
 [Watch on Youtube: Memorial held for Clarence Clemons](https://www.youtube.com/watch?v=lr6bSgqsCec)
 
@@ -104,6 +104,6 @@ Wondering how that show came to happen? Watch the interview below.
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce and the E Street Band open their show in Dusseldorf with the tour premiere of “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/).”<br>
+**2023:** Bruce and the E Street Band open their show in Dusseldorf with the tour premiere of “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md).”<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN- „The Ties That Bind](https://www.youtube.com/watch?v=7WzDdeJixmU)

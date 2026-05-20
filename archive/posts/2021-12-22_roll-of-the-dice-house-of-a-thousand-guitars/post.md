@@ -13,7 +13,7 @@ It's the literal centerpiece of the album it epitomizes.
 
 And we should have seen it coming.
 
-He may have finished it in 2019, but Bruce started writing "House of a Thousand Guitars" at least a decade prior. The phrase "a thousand guitars" appears in "[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)" on his 2007 *Magic* album, and it means there what it means here. And as for the house metaphor, he embraced that nightly on the Working on a Dream Tour in 2009.
+He may have finished it in 2019, but Bruce started writing "House of a Thousand Guitars" at least a decade prior. The phrase "a thousand guitars" appears in "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)" on his 2007 *Magic* album, and it means there what it means here. And as for the house metaphor, he embraced that nightly on the Working on a Dream Tour in 2009.
 
 [Watch Video Highlight](https://videopress.com/embed/SYlzK66k)
 

@@ -12,7 +12,7 @@ And there's no better showcase in Bruce's entire catalog for the virtuosity of t
 
 Bruce recorded "Kitty's Back" with the E Street Band in 1973, but he'd been working toward it for at least three years. As far back as his Steel Mill stint, we can hear elements of what would become "Kitty's Back" turn up in Bruce's long, improvisational showpieces.
 
-Take "[Garden State Parkway Blues](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)," for example, a thirty-minute(!) epic jam that first surfaced in 1969. I highly recommend checking out [my original essay](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/) on it, because "Garden State Parkway Blues" contains the DNA for several later Springsteen songs. But I'll save you time for now and guide you to the appropriate markers–skip to 4:57, 8:50, 11:44, and 21:46 to hear unmistakable echoes of "Kitty's Back."
+Take "[Garden State Parkway Blues](../2018-11-30_roll-of-the-dice-garden-state-parkway-blues/post.md)," for example, a thirty-minute(!) epic jam that first surfaced in 1969. I highly recommend checking out [my original essay](../2018-11-30_roll-of-the-dice-garden-state-parkway-blues/post.md) on it, because "Garden State Parkway Blues" contains the DNA for several later Springsteen songs. But I'll save you time for now and guide you to the appropriate markers–skip to 4:57, 8:50, 11:44, and 21:46 to hear unmistakable echoes of "Kitty's Back."
 
 [Watch Video Highlight](https://videopress.com/embed/K8rRLDke)
 
@@ -93,7 +93,7 @@ I'll leave you with one of my favorite performances of "Kitty's Back," and possi
 
 Did they play a song from *The Rising*, an album that Bruce was still actively promoting? Nope. Did they play a holiday classic for the season? Yes, eventually, but only later in the show.
 
-The song they came to play that night was the song that truly showcases the amazing array of talent in the E Street Band and probably did more to spike ticket sales than "Born to Run" or "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" would have: a joyous, ten-minute rendition of "Kitty's Back."
+The song they came to play that night was the song that truly showcases the amazing array of talent in the E Street Band and probably did more to spike ticket sales than "Born to Run" or "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" would have: a joyous, ten-minute rendition of "Kitty's Back."
 
 [Watch on Youtube: Bruce Springsteen- Kitty's back- Late night with Conan O'Brien-12/12/2002](https://www.youtube.com/watch?v=ZS93U0TJd-c)
 

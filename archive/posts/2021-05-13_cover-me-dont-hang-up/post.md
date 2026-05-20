@@ -18,7 +18,7 @@ With no time to work up a full-band arrangement, Bruce took the stage with his a
 
 [Watch on Youtube: "Don't Hang Up" (Melbourne, 02/02/17)](https://www.youtube.com/watch?v=zSiZMyUlw8Y)
 
-And lest anyone think Bruce was more concerned with protocol than the urgent matter beneath it, Bruce immediately segued from "Don't Hang Up" into "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)," introducing the latter as "an immigrant song."
+And lest anyone think Bruce was more concerned with protocol than the urgent matter beneath it, Bruce immediately segued from "Don't Hang Up" into "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)," introducing the latter as "an immigrant song."
 
 Even though it was barely a week into the Trump Administration, it wasn't the first time Bruce had spoken out in resistance, and it would be far from the last.
 

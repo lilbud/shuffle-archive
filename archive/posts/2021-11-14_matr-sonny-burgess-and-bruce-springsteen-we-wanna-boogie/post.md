@@ -10,7 +10,7 @@ Set to a boogie-woogie beat with an audacious trumpet solo and a Killer-rivaling
 
 Shortly after the terror attacks of 2001, Burgess played "We Wanna Boogie" at the Alliance of Neighbors benefit concert for local 9/11 victims, televised on local cable channel CN8.
 
-It was Burgess' set, but he had a special guest on stage: Bruce Springsteen, with whom he'd just performed "[Tiger Rose](https://estreetshuffle.com/index.php/2019/01/26/rotd-matr-cm-tiger-rose/)," a Springsteen original that Burgess covered on his 1996 album. They'd done it the previous night as well, but this time Sonny asked Bruce to stay on stage for "We Wanna Boogie." Bruce obliged but kept to the background except for two prominent guitar solos. (I suspect Sonny's invitation was unplanned.)
+It was Burgess' set, but he had a special guest on stage: Bruce Springsteen, with whom he'd just performed "[Tiger Rose](../2019-01-26_rotd-matr-cm-tiger-rose/post.md)," a Springsteen original that Burgess covered on his 1996 album. They'd done it the previous night as well, but this time Sonny asked Bruce to stay on stage for "We Wanna Boogie." Bruce obliged but kept to the background except for two prominent guitar solos. (I suspect Sonny's invitation was unplanned.)
 
 [Watch Video Highlight](https://videopress.com/embed/hJQojRNB)
 

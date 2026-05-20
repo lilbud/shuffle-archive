@@ -6,7 +6,7 @@ That's intentional. At a 2012 press conference in Paris, Bruce acknowledged his 
 
 > *There are '30s horns in "Jack of All Trades." That's the way I used the music: the idea was that the music was going to contextualize historically that this has happened before. It happened in the 1970s, it happened in the '30s, it happened in the 1800s. It's cyclical. Over and over and over and over again. So I try to pick up some of the continuity and the historical resonance through the music.*<br>
 
-"Jack of All Trades" is one of the most carefully constructed songs on *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*, arranged for a full string section and tuba(!) section. (When's the last time you heard a tuba, sousaphone, and *two* euphoniums on a rock record?)
+"Jack of All Trades" is one of the most carefully constructed songs on *[Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md)*, arranged for a full string section and tuba(!) section. (When's the last time you heard a tuba, sousaphone, and *two* euphoniums on a rock record?)
 
 The horns and strings give "Jack of All Trades" a vintage feel, but Bruce and Ron Aniello layer swoops, loops, and synths underneath to give the song an unplaceable time-out-of-time feel. The monotonous melody moves at a pace so plodding that it almost sounds at times like the record is artificially slowed–a songwriting device that Bruce uses to convey the notion that his characters are moving slowly and in place. They're going nowhere.
 

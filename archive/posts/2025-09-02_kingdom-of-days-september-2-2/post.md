@@ -14,7 +14,7 @@
 
 [Watch on Youtube: From Small Things (Big Things One Day Come) (Studio Outtake - 1979)](https://www.youtube.com/watch?v=N8qL5_iWWag)
 
-**1981:** Bruce and the E Street Band bring the original River Tour to the San Diego Sports Arena, where the boys play "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" for the last time for 21 years.<br>
+**1981:** Bruce and the E Street Band bring the original River Tour to the San Diego Sports Arena, where the boys play "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" for the last time for 21 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/X9DB6SRG)
 
@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1984-09-02.jpg.webp)
 
-**1988:** The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N'Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of "[Get Up, Stand Up,](https://estreetshuffle.com/index.php/2020/11/13/matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/)" and Bruce closes the show with an abbreviated fifteen-song "greatest hits" set capped off by an all-artist "[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)" and "Get Up, Stand Up" reprise.<br>
+**1988:** The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N'Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of "[Get Up, Stand Up,](../2020-11-13_matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/post.md)" and Bruce closes the show with an abbreviated fifteen-song "greatest hits" set capped off by an all-artist "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" and "Get Up, Stand Up" reprise.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3)
 
@@ -66,7 +66,7 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry'
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1995-09-02b.jpg.webp)
 
-**2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "[Green Onions](https://estreetshuffle.com/index.php/2019/05/17/cover-me-green-onions/)" during sign collection, as well as "[Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)," "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," and Philly special "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)."<br>
+**2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "[Green Onions](../2019-05-17_cover-me-green-onions/post.md)" during sign collection, as well as "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)," "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," and Philly special "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VD2CbhUu)
 

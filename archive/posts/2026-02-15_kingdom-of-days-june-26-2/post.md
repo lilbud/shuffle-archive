@@ -60,7 +60,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2000-06-26.jpg.webp)
 
-**2013:** Bruce and the E Street Band play a stellar Wrecking Ball show in Gijon, Spain, featuring the tour premiere of "Travelin' Band" and a rare performance of "Ain't Good Enough for You." For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/06/26/where-the-band-was-gijon-june-26-2013/) for this show.<br>
+**2013:** Bruce and the E Street Band play a stellar Wrecking Ball show in Gijon, Spain, featuring the tour premiere of "Travelin' Band" and a rare performance of "Ain't Good Enough for You." For more highlights from this show, see my [*Where the Band Was* report](../2018-06-26_where-the-band-was-gijon-june-26-2013/post.md) for this show.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m82qt7tsC_U)
 

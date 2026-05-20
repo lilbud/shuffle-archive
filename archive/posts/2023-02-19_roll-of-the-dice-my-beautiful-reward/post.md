@@ -1,6 +1,6 @@
-In the opening notes of his 1987 *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*album, Bruce Springsteen introduces us to a thinly veiled narrator who has it all.
+In the opening notes of his 1987 *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*album, Bruce Springsteen introduces us to a thinly veiled narrator who has it all.
 
-Well, almost all. He's missing just one thing. In "[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)," he sings of his fame, success, and worldly wealth–all of which mean nothing to him without the one thing he lacks: love.
+Well, almost all. He's missing just one thing. In "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)," he sings of his fame, success, and worldly wealth–all of which mean nothing to him without the one thing he lacks: love.
 
 [Watch on Youtube: Ain't Got You](https://www.youtube.com/watch?v=5iO8d8m0esY)
 
@@ -12,7 +12,7 @@ If *Tunnel of Love* is about the decisions we're faced with and the choices we m
 
 [Watch on Youtube: My Beautiful Reward](https://www.youtube.com/watch?v=TSq34PgSl-Q)
 
-However: this is a Springsteen song, and in Springsteen songs happiness may be *after* but it is rarely *ever*. Bruce's narrator in "My Beautiful Reward" had the riches, the [mansion on the hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/), and even the girl, but it still wasn't enough.
+However: this is a Springsteen song, and in Springsteen songs happiness may be *after* but it is rarely *ever*. Bruce's narrator in "My Beautiful Reward" had the riches, the [mansion on the hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md), and even the girl, but it still wasn't enough.
 
 What do you do when life hands you everything you've ever wanted on a silver platter, and you're *still* not satisfied? You keep seeking.
 
@@ -41,7 +41,7 @@ Both songs segue into their bridges at this point. In "Ain't Got You," our narra
 > *Then I came crashing down like a drunk on a barroom floor*<br>
 > *Searching for my beautiful reward*<br>
 
-Our narrator had his lover's affections for a time, but he lost them–and it's implied by the metaphor (one that Bruce re-uses in "[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)") that it's the result of his own actions and temptations. When fame and wealth don't bring satisfaction, it makes sense to assume love will. So when it doesn't, what do you do?
+Our narrator had his lover's affections for a time, but he lost them–and it's implied by the metaphor (one that Bruce re-uses in "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)") that it's the result of his own actions and temptations. When fame and wealth don't bring satisfaction, it makes sense to assume love will. So when it doesn't, what do you do?
 
 You keep searching.
 
@@ -76,7 +76,7 @@ Bruce has played "My Beautiful Reward" 127 times to date, but surprisingly only 
 
 [Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - My Beautiful Reward (solo acoustic)](https://www.youtube.com/watch?v=4fhpheyJKeI)
 
-A return engagement is a long shot at this point. "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" seems to have taken its place, a more fitting send-off at this late stage of Bruce's career. Still, one never knows–as long as Bruce keeps writing and releasing new music, the search continues.
+A return engagement is a long shot at this point. "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" seems to have taken its place, a more fitting send-off at this late stage of Bruce's career. Still, one never knows–as long as Bruce keeps writing and releasing new music, the search continues.
 
 **My Beautiful Reward**<br>
 **Recorded** Late 1991<br>

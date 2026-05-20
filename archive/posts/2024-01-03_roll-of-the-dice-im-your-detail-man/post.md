@@ -14,7 +14,7 @@ By way of introduction, Stamos wrote:
 
 We can forgive Stamos his fanboy excitement–who among us wouldn't have that reaction playing with some of rock's most legendary icons?
 
-The set list that night was comprised of Fogerty hits like "[Born on the Bayou](https://estreetshuffle.com/index.php/2021/04/19/matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/)" and "Proud Mary," combined with early rock and blues classics like "[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)."
+The set list that night was comprised of Fogerty hits like "[Born on the Bayou](../2021-04-19_matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/post.md)" and "Proud Mary," combined with early rock and blues classics like "[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)."
 
 But it was one song in particular that made even the most knowledgeable Springsteen scholars (and at least one obsessive blogger) snap to attention: a song no one had ever heard before, for which no one could trace the lineage, and for which no reference to its lyrics could be found anywhere on the Internet.
 
@@ -22,7 +22,7 @@ The song is called–we *think*–"I'm Your Detail Man," and based on the conten
 
 [Watch on Youtube: Bruce Springsteen - I'm Your Detail Man (Unreleased) - Live](https://www.youtube.com/watch?v=FyGhPxx1hdo)
 
-"I'm Your Detail Man" is a straight-up party rocker laced with double entendre from start to finish, a boast and a pledge from an attentive lover to his girl. (Given its provenance, I suspect Bruce wrote it around the same time as "[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/).")
+"I'm Your Detail Man" is a straight-up party rocker laced with double entendre from start to finish, a boast and a pledge from an attentive lover to his girl. (Given its provenance, I suspect Bruce wrote it around the same time as "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md).")
 
 > *Well baby, I'm a hundred percent guaranteed*<br>
 > *Honey, I'm a finisher that you need*<br>
@@ -59,7 +59,7 @@ The song is called–we *think*–"I'm Your Detail Man," and based on the conten
 
 The lyrics are very much in keeping with the playful trifles Bruce tossed off during the early to mid-nineties, and the only thing that gives me even the slightest hesitation in unequivocally declaring it an original song is that the jam band seems a bit too familiar with the song for it to be something Bruce pulled out of his hat at the party. Still, there's no telling whether and for how long they'd rehearsed, and neither Stamos nor Bruce has ever said anything further about it.
 
-Historical significance aside, the coolest thing about that video is just how great a time Bruce is having rocking out, just months before releasing *[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*and embarking on a somber acoustic tour that would last until mid-1997.
+Historical significance aside, the coolest thing about that video is just how great a time Bruce is having rocking out, just months before releasing *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)*and embarking on a somber acoustic tour that would last until mid-1997.
 
 Anyone who feared Bruce's rock and roll days were behind him wasn't at John Fogerty's birthday party that night.
 

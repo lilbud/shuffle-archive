@@ -14,7 +14,7 @@
 
 **1974:** Bruce and his band open for Buzzy Linhart at The Joint in the Woods in Parsippany, New Jersey.<br>
 
-**1976:** Bruce and the band play a sold-out show at Penn State University, where Bruce gets drawn into a scuffle between security and his road manager. Listen to a gorgeous rendition of "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)" below.<br>
+**1976:** Bruce and the band play a sold-out show at Penn State University, where Bruce gets drawn into a scuffle between security and his road manager. Listen to a gorgeous rendition of "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)" below.<br>
 
 [Watch on Youtube: Bruce Springsteen Frankie 1976](https://www.youtube.com/watch?v=UGq8YkOyuMs)
 
@@ -28,19 +28,19 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1979-0413.jpg.webp)
 
-**1984:** At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The Red Bank Rockers midway through their encore of "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" and stays for "Rockin' All Over the World." Listen to the moment the crowd realizes who's there.<br>
+**1984:** At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The Red Bank Rockers midway through their encore of "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and stays for "Rockin' All Over the World." Listen to the moment the crowd realizes who's there.<br>
 
 [Watch on Youtube: Clarence Clemons and Bruce Springsteen - Philadelphia - 1984-04-13](https://www.youtube.com/watch?v=XlPAOjsEc9c)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1984-04-13.jpg.webp)
 
-**1985:** The third of five nights at Tokyo's Yoyogi National Gymnasium, where Bruce plays "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" for the last time on the tour. Other than the two Christic shows in 1990, the song won't be heard again for more than a decade.<br>
+**1985:** The third of five nights at Tokyo's Yoyogi National Gymnasium, where Bruce plays "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" for the last time on the tour. Other than the two Christic shows in 1990, the song won't be heard again for more than a decade.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jH8MQOe7)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg.webp)
 
-Also today: *American Top 40* guest host Chuck Britton introduces Bruce's current hit "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" with a story about his fascination with Elvis Presley.
+Also today: *American Top 40* guest host Chuck Britton introduces Bruce's current hit "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" with a story about his fascination with Elvis Presley.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3)
 
@@ -72,17 +72,17 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 
-**2006:** At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of "[How Can a Poor Man Stand Such Times and Live?](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)" will be released on the *American Land Edition* of *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*.<br>
+**2006:** At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of "[How Can a Poor Man Stand Such Times and Live?](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" will be released on the *American Land Edition* of *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)*.<br>
 
 [Watch on Youtube: How Can a Poor Man Stand Such Times and Live](https://www.youtube.com/watch?v=ibbOhr8t5pQ)
 
-**2008:** At the Magic Tour stop at the American Airlines Center in Dallas, "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" makes its tour premiere, and Jon Bon Jovi makes a guest appearance for "Glory Days."<br>
+**2008:** At the Magic Tour stop at the American Airlines Center in Dallas, "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)" makes its tour premiere, and Jon Bon Jovi makes a guest appearance for "Glory Days."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3](https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-13.jpg.webp)
 
-**2012:** The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to "[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)" and plays "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" in honor of Max's birthday in the encores. Tour premiering tonight: "[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)," "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)," and "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)."<br>
+**2012:** The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to "[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)" and plays "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" in honor of Max's birthday in the encores. Tour premiering tonight: "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)," "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)," and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Mountain of Love - Live from Buffalo (04/13/2012)](https://www.youtube.com/watch?v=WxyT7i0L4MQ)
 

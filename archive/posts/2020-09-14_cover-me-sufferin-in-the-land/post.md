@@ -2,7 +2,7 @@
 
 [Watch on Youtube: Jimmy Cliff - Sufferin' in the Land](https://www.youtube.com/watch?v=mZaCrgKNKoM)
 
-Then again, the same could be said of "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)" and "[Many Rivers to Cross](https://estreetshuffle.com/index.php/2018/07/28/cover-me-many-rivers-to-cross/)," both released as singles by Cliff to little notice until Bruce added them to his set lists.
+Then again, the same could be said of "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" and "[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)," both released as singles by Cliff to little notice until Bruce added them to his set lists.
 
 Bruce has long been a huge Jimmy Cliff fan, and over the years he's performed many of Cliff's songs, sometimes with the artist himself.
 

@@ -6,11 +6,11 @@ The tone was set early on for me before the show even started: I got to the stad
 
 But at Hershey, the crowd wasn't trusting anyone, and certainly not me: anytime anyone tried to visit someone, the crowd linked arms and refused to let them pass. I explained my situation, but the crowd refused to let me pass, threatening me with physical force. I was too surprised and saddened to be angry–because it seemed like they were acting from lessons learned the hard way rather than spite. So I gave up, hung out at the back, and tried to enjoy the show. But the drunk quotient was higher than usual, the boor community was overly vocal during the slow songs, and I ended up leaving early during the encore–I just couldn't get into the show that night.
 
-Too bad, because the show was not without its moments: from an opening cover of The Clash's "[Clampdown](https://estreetshuffle.com/index.php/2021/09/10/cover-me-clampdown/)..."
+Too bad, because the show was not without its moments: from an opening cover of The Clash's "[Clampdown](../2021-09-10_cover-me-clampdown/post.md)..."
 
 [Watch on Youtube: Bruce Springsteen Clamp Down Hershey 5/14](https://www.youtube.com/watch?v=wSz_-QpfbBY)
 
-to a couple of classic River outtakes ("[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" and "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)")...
+to a couple of classic River outtakes ("[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" and "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)")...
 
 [Watch on Youtube: Bruce Springsteen Be True . Hershey 5/14](https://www.youtube.com/watch?v=ZWwZoz9pRWE)
 
@@ -20,11 +20,11 @@ to a couple of classic River outtakes ("[Be True](https://estreetshuffle.com/ind
 
 [Watch on Youtube: Bruce Springsteen Lost In The Flood Live at Hershey Park Stadium, PA 5-14-14 (Part 3)](https://www.youtube.com/watch?v=BrEJmWww6yw)
 
-...an delicate encore opener of "[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)..."
+...an delicate encore opener of "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)..."
 
 [Watch on Youtube: Bruce Springsteen Surprise, Surprise Live at Hershey, PA 5-14-14 (Part 6)](https://www.youtube.com/watch?v=Pg_HcKbWbd4)
 
-...and an absolutely stunning acoustic piano performance of "[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)." Sour crowd taste aside (who carries on a conversation during a moment like this? Many people around me, that's who), that particular "For You" performance will rank among the top song performances I've ever seen for a long, long time to come.
+...and an absolutely stunning acoustic piano performance of "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)." Sour crowd taste aside (who carries on a conversation during a moment like this? Many people around me, that's who), that particular "For You" performance will rank among the top song performances I've ever seen for a long, long time to come.
 
 [Watch on Youtube: Bruce Springsteen "For You" Hershey Park](https://www.youtube.com/watch?v=xZuMWcKdRT0)
 

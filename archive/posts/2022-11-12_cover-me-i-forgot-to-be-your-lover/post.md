@@ -10,7 +10,7 @@ In this case, though, the original is unforgettable.
 
 "I Forgot to Be Your Lover" gave Bell his first Top Ten R&B hit in 1968, seven years into his recording career. It would be even longer before he had another, although his 1969 non-charting "Born Under a Bad Sign" (co-written with fellow Stax legend Booker T. Jones) would go on to become a blues classic.
 
-Bell and Booker T. were the songwriting team behind "I Forgot To Be Your Lover," too. Its doleful backing track (featuring an uncredited Jones on electric guitar) pairs perfectly with Bell's rueful vocals. It's his finest performance on record, in my opinion, and if you listen closely you can hear the seeds of "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" in both content and delivery.
+Bell and Booker T. were the songwriting team behind "I Forgot To Be Your Lover," too. Its doleful backing track (featuring an uncredited Jones on electric guitar) pairs perfectly with Bell's rueful vocals. It's his finest performance on record, in my opinion, and if you listen closely you can hear the seeds of "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" in both content and delivery.
 
 And therein lies the rub: some songs are so definitive that it's almost impossible to make them your own–at least not without taking them in a very different direction. That's exactly what Lee "Scratch" Perry did when he covered "I Forgot to Be Your Lover" in a reggae arrangement in 1971...
 

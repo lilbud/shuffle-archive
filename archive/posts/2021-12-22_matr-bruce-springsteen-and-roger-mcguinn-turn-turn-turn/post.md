@@ -24,7 +24,7 @@ Among the backing musicians on that Limeliters track was a 20-year-old guitar pl
 
 A year later, McGuinn teamed up with fellow folk musicians Gene Clark and David Crosby and formed a group called The Jet Set. The trio added Michael Clarke and Chris Hillman to their line-up later in the year, and by Thanksgiving, they'd renamed themselves The Byrds.
 
-The Byrds scored their two biggest hits during their first year together. Their first and biggest came right out of the gate: a cover of Bob Dylan's "[Mr. Tambourine Man](https://estreetshuffle.com/index.php/2019/12/28/matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/)" released in April 1965 that went to #1 in both the U.S. and U.K.
+The Byrds scored their two biggest hits during their first year together. Their first and biggest came right out of the gate: a cover of Bob Dylan's "[Mr. Tambourine Man](../2019-12-28_matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/post.md)" released in April 1965 that went to #1 in both the U.S. and U.K.
 
 As the band was touring that summer, McGuinn's future wife Dolores asked Jim to play Seeger's song (which by that point was a folk standard) on the tour bus. McGuinn obliged, but by that point in his career his instincts were more rock than folk, and the resulting hybrid arrangement immediately struck the band as a potential hit.
 

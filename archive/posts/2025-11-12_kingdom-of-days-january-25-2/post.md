@@ -14,11 +14,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Richmond_Times_Dispatch_1974_01_26_7.jpg.webp)
 
-**1990:** At Soundworks West in Los Angeles, Bruce records “[Sad Eyes](https://estreetshuffle.com/index.php/2019/10/08/roll-of-the-dice-sad-eyes/)” with Randy Jackson, David Sancious, Jeff Porcaro, and Michael Fisher. It’ll stay in the vault for eight years before debuting on *Tracks*.<br>
+**1990:** At Soundworks West in Los Angeles, Bruce records “[Sad Eyes](../2019-10-08_roll-of-the-dice-sad-eyes/post.md)” with Randy Jackson, David Sancious, Jeff Porcaro, and Michael Fisher. It’ll stay in the vault for eight years before debuting on *Tracks*.<br>
 
 [Watch on Youtube: Sad Eyes (Studio Outtake - 1990)](https://www.youtube.com/watch?v=jssnRkHODE0)
 
-**1996:** Bruce plays the Music Hall in Austin, Texas, with Joe Ely joining for a final encore of “[Blowin’ Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/).” After the show, Bruce and Joe catch Willie Nelson’s show nearby.<br>
+**1996:** Bruce plays the Music Hall in Austin, Texas, with Joe Ely joining for a final encore of “[Blowin’ Down This Road](../2020-05-27_matr-bruce-springsteen-and-friends-blowin-down-this-road/post.md).” After the show, Bruce and Joe catch Willie Nelson’s show nearby.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AQrtYsl5)
 
@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1996-01-25.png.webp)
 
-**2009:** The video for “[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)” is filmed at the New Brunswick Boxing Gym.<br>
+**2009:** The video for “[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)” is filmed at the New Brunswick Boxing Gym.<br>
 
 [Watch on Youtube: Bruce Springsteen and The Wrestler](https://www.youtube.com/watch?v=KOfk8C-0tjo)
 

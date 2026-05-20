@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-09-06b.jpg.webp)
 
-**1988:** Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” and “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).” Meanwhile, Bruce's *Chimes of Freedom* EP is released to support the tour.<br>
+**1988:** Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” and “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).” Meanwhile, Bruce's *Chimes of Freedom* EP is released to support the tour.<br>
 
 [Watch on Youtube: Chimes of Freedom (Live at Stockholms Olympiastadion, Stockholm, SE - July 1988)](https://www.youtube.com/watch?v=WhvpFX63JGw)
 
@@ -40,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1988-09-06.jpg.webp)
 
-**2003:** Bruce and the E Street Band play their first ever show at Boston’s Fenway Park, opening with the E Street Band premiere of “[Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)” and featuring a rare “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” and a show-closing “[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)” with Peter Wolf.<br>
+**2003:** Bruce and the E Street Band play their first ever show at Boston’s Fenway Park, opening with the E Street Band premiere of “[Diddy Wah Diddy](../2021-06-11_cover-me-diddy-wah-diddy/post.md)” and featuring a rare “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)” and a show-closing “[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)” with Peter Wolf.<br>
 
 [Watch on Youtube: Bruce Springsteen & the e street Band,diddy wa diddy](https://www.youtube.com/watch?v=_jfOIVK70kc)
 

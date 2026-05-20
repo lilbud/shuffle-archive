@@ -4,7 +4,7 @@ He wasn't kidding.
 
 By late 1976, Bruce's legal disputes with Mike Appel had forced him into seemingly endless touring, barred from recording new material in the studio. He almost certainly did need the work, so when Steve saw an opportunity to throw a bone Bruce's way while producing Southside Johnny's second album, Bruce no doubt leapt at the opportunity.
 
-Bruce ended up with co-author credit on three songs on *This Time It's For Real*, all with Steven. "Love on the Wrong Side of Town" is the most well-known of the three; "[When You Dance](https://estreetshuffle.com/index.php/2018/08/12/roll-of-the-dice-when-you-dance/)" was actually a retooled early Bruce Springsteen Band song.
+Bruce ended up with co-author credit on three songs on *This Time It's For Real*, all with Steven. "Love on the Wrong Side of Town" is the most well-known of the three; "[When You Dance](../2018-08-12_roll-of-the-dice-when-you-dance/post.md)" was actually a retooled early Bruce Springsteen Band song.
 
 But "Little Girl So Fine" may be the most interesting one. To say the track wears its influences on its sleeve would be to understate–its influences are practically wearing the shirt.
 

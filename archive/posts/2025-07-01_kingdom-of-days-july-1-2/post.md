@@ -2,7 +2,7 @@
 
 **1972:** Bruce makes a guest appearance with Norman Seldin and the Joyful Noyze, of which Clarence Clemons is a member. This is only the third time Bruce has ever performed with Clarence.<br>
 
-**1973:** Bruce, David Sancious, Richard Blackwell, and Suki Lahav layer overdubs onto "[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)" at 914 Sound Studios in Blauvelt, completing the song. It will remain unreleased for another 25 years.<br>
+**1973:** Bruce, David Sancious, Richard Blackwell, and Suki Lahav layer overdubs onto "[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md)" at 914 Sound Studios in Blauvelt, completing the song. It will remain unreleased for another 25 years.<br>
 
 [Watch on Youtube: Santa Ana (Studio Outtake - 1973)](https://www.youtube.com/watch?v=M0V18vfvQh8)
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band "Because The Night", Berkeley, CA 7/1/1978](https://www.youtube.com/watch?v=vaF4di5aPHc)
 
-**1984:** It's Night Two on the Born in the U.S.A. Tour in St. Paul, and Bruce is still a bit rusty, forgetting the lyrics to both "Jungleland" and "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)." The latter is understandable, as it's the very first E Street Band performance of the song, along with the live premiere of "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)," "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)," and "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)."<br>
+**1984:** It's Night Two on the Born in the U.S.A. Tour in St. Paul, and Bruce is still a bit rusty, forgetting the lyrics to both "Jungleland" and "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)." The latter is understandable, as it's the very first E Street Band performance of the song, along with the live premiere of "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)," "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)," and "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lPrBqD0H)
 
@@ -28,11 +28,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-01b.jpg.webp)
 
-**1989:** Bruce hops on stage with La Bamba at The Stone Pony in Asbury Park to perform "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)."<br>
+**1989:** Bruce hops on stage with La Bamba at The Stone Pony in Asbury Park to perform "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)."<br>
 
 [Watch on Youtube: La Bamba and Bruce Springsteen - "Long Tall Sally" - July 1 1989](https://www.youtube.com/watch?v=4bQCj1S5ino)
 
-**2000:** The Reunion Tour comes to a deeply satisfying close at the legendary tenth night at Madison Square Garden. Bruce plays "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" for the first time in 22 years and closes the show with a re-written "[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)" summarizing Bruce's feelings about the occasion. According to the *Asbury Park Press*, Bruce also debuts a new song at this show, "Ugo Hearts," but strangely it will not appear on any of the bootleg recordings. This show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18239/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-1-2000-Madison-Square-Garden-New-York-NY.html)), and much of it is featured in *Live in New York City* on both audio and video formats.<br>
+**2000:** The Reunion Tour comes to a deeply satisfying close at the legendary tenth night at Madison Square Garden. Bruce plays "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" for the first time in 22 years and closes the show with a re-written "[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)" summarizing Bruce's feelings about the occasion. According to the *Asbury Park Press*, Bruce also debuts a new song at this show, "Ugo Hearts," but strangely it will not appear on any of the bootleg recordings. This show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18239/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-1-2000-Madison-Square-Garden-New-York-NY.html)), and much of it is featured in *Live in New York City* on both audio and video formats.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Tenth Avenue Freeze-Out (Live in New York City)](https://www.youtube.com/watch?v=r1twvwbB_cU)
 
@@ -48,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/2000-07-01.jpg.webp)
 
-**2015:** Bruce joins Brian Wilson at the PNC Banks Arts Center in Holmdel, New Jersey, for "Barbara Ann" and "[Surfin' U.S.A.](https://estreetshuffle.com/index.php/2019/06/03/matr-brian-wilson-and-bruce-springsteen-surfin-u-s-a/)"<br>
+**2015:** Bruce joins Brian Wilson at the PNC Banks Arts Center in Holmdel, New Jersey, for "Barbara Ann" and "[Surfin' U.S.A.](../2019-06-03_matr-brian-wilson-and-bruce-springsteen-surfin-u-s-a/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen surprise visit with Brian Wilson in NJ](https://www.youtube.com/watch?v=rL6wd3OgUrY)
 

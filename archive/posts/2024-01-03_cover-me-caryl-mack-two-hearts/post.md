@@ -1,4 +1,4 @@
-"[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" didn't really do anything for me in its original arrangement.
+"[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" didn't really do anything for me in its original arrangement.
 
 I recognized the beauty of Bruce's lyrics right away, and I wanted to like the song, but the album track barrels along so quickly that it left me out of breath when all I wanted to do was just *feel*.
 

@@ -8,11 +8,11 @@ But come on: how is it possible that "Jersey Girl" isn't a Bruce Springsteen son
 
 Its lyrics absolutely reek of Bruce:
 
-✔ [Name-checks a numbered New York City avenue](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
-✔ [Narrator who takes a trip across the river for a meeting](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)
-✔ [Romantic Jersey Shore setting](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
+✔ [Name-checks a numbered New York City avenue](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)
+✔ [Narrator who takes a trip across the river for a meeting](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)
+✔ [Romantic Jersey Shore setting](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)
 
-Heck, if it wasn't for the fact that *Heartattack and Vine* beat *The River* to record stores by two months, I'd swear there are "[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)" and "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)" references as well.
+Heck, if it wasn't for the fact that *Heartattack and Vine* beat *The River* to record stores by two months, I'd swear there are "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" and "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" references as well.
 
 Okay, fine, I accept Waits' authorship. Bruce wouldn't have written that line about "the whores on 8th Avenue" anyway. But there's a part of me that believes there's some vast rock-and-roll conspiracy hiding the real truth.
 
@@ -35,13 +35,13 @@ Fans familiar with Waits' version probably noticed that Bruce cleaned up the lyr
 
 That verse perfectly matches the tone and heart of Waits' original–in large part because Waits' songwriting on "Jersey Girl" so closely resembles Bruce's own style.
 
-In any event, while it wasn't the first time Bruce wrote new lyrics for a song while covering it (he'd done it just a few months earlier with "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)"), and while it certainly wouldn't be the last, it may very well be the most natural graft he's ever made.
+In any event, while it wasn't the first time Bruce wrote new lyrics for a song while covering it (he'd done it just a few months earlier with "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)"), and while it certainly wouldn't be the last, it may very well be the most natural graft he's ever made.
 
-(None of us would realize it for more than three decades, but as it turns out, Bruce had those lyrics in his pocket already–he'd written them for "[Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/)," recorded during the River sessions but locked away in the vault until it was released with *The Ties That Bind* box set in 2015.)
+(None of us would realize it for more than three decades, but as it turns out, Bruce had those lyrics in his pocket already–he'd written them for "[Party Lights](../2019-11-14_roll-of-the-dice-party-lights/post.md)," recorded during the River sessions but locked away in the vault until it was released with *The Ties That Bind* box set in 2015.)
 
 [Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)
 
-Exactly one week later, at the final show of that opening Meadowlands stand and after another practice performance on the 5th, Bruce recorded his performance of "Jersey Girl" for posterity. That rendition is the one we're all most familiar with–it was released as the B-side to the single for "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" in 1984 and included on *Live 1975-85* two years after that.
+Exactly one week later, at the final show of that opening Meadowlands stand and after another practice performance on the 5th, Bruce recorded his performance of "Jersey Girl" for posterity. That rendition is the one we're all most familiar with–it was released as the B-side to the single for "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" in 1984 and included on *Live 1975-85* two years after that.
 
 It's a magnificent performance–one of Bruce's very best and certainly one of his most passionate.
 

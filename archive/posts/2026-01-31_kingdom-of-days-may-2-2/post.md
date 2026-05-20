@@ -64,7 +64,7 @@ Bruce plays three more songs (including “If I Was the Priest”), and then Ham
 
 [Watch on Youtube: Manchester 02/05/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zC6W2Gl4LhnzU4DZNDHIeMk)
 
-**2002:** Bruce joins Soozie Tyrell at Scullville Studios in Egg Harbor, New Jersey, where he contributes guitar and backing vocals to Soozie’s “[W](https://estreetshuffle.com/index.php/2021/09/30/matr-soozie-tyrell-and-bruce-springsteen-white-lines/)h[ite Lines](https://estreetshuffle.com/index.php/2021/09/30/matr-soozie-tyrell-and-bruce-springsteen-white-lines/)” and “Ste. Genevieve” respectively.<br>
+**2002:** Bruce joins Soozie Tyrell at Scullville Studios in Egg Harbor, New Jersey, where he contributes guitar and backing vocals to Soozie’s “[W](../2021-09-30_matr-soozie-tyrell-and-bruce-springsteen-white-lines/post.md)h[ite Lines](../2021-09-30_matr-soozie-tyrell-and-bruce-springsteen-white-lines/post.md)” and “Ste. Genevieve” respectively.<br>
 
 [Watch on Youtube: White Lines (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=dnz2SeT9IP4)
 

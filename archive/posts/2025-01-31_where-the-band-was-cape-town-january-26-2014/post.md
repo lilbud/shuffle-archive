@@ -1,4 +1,4 @@
-On the list of things I'd never have expected to be a witness to, Bruce Springsteen kicking off his first-ever show in South Africa with a rousing singalong of "[Free Nelson Mandela](https://estreetshuffle.com/index.php/2018/07/10/cover-me-free-nelson-mandela/)" would have ranked pretty high if it had even have occurred to me put it on the list.
+On the list of things I'd never have expected to be a witness to, Bruce Springsteen kicking off his first-ever show in South Africa with a rousing singalong of "[Free Nelson Mandela](../2018-07-10_cover-me-free-nelson-mandela/post.md)" would have ranked pretty high if it had even have occurred to me put it on the list.
 
 But I was there, and it was an amazing, surreal experience–my first day of my first visit to South Africa, kicking off a week of new discoveries and friends. I'll always remember the days before the South Africa shows as much as I do the evenings–there's something about new places that makes everything more vivid and detailed, and that held true for the concerts as well.
 
@@ -24,11 +24,11 @@ Night 1 featured a High Hopes Tour setlist (although I had no idea at the time w
 
 There was a reason for that: Pete Seeger died during the down day between Nights 1 and 2, and Seeger had a huge influence on Bruce. Going into the show that night, I expected a tribute song at some point.
 
-Sure enough, leading off the encore was "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)," dedicated to Seeger and to Nelson Mandela, sung in unison by the entire audience, and resonating more in South Africa than it ever did on the Seeger Sessions tour. Those minutes existed out of time and remain one of my most memorable experiences at a Springsteen show.
+Sure enough, leading off the encore was "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)," dedicated to Seeger and to Nelson Mandela, sung in unison by the entire audience, and resonating more in South Africa than it ever did on the Seeger Sessions tour. Those minutes existed out of time and remain one of my most memorable experiences at a Springsteen show.
 
 [Watch on Youtube: Bruce Springsteen - We Shall Overcome - Cape Town - Bellville - 2014-01-26](https://www.youtube.com/watch?v=PE2lhLHeDBw)
 
-But Bruce must have had Pete Seeger on his mind the whole night, because interspersed throughout the set were two other Seeger tour staples not seen since 2006: the swing arrangement of "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)," and "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)."
+But Bruce must have had Pete Seeger on his mind the whole night, because interspersed throughout the set were two other Seeger tour staples not seen since 2006: the swing arrangement of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," and "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)."
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - CAPETOWN 28.01.2014 - OPEN ALL NIGHT](https://www.youtube.com/watch?v=HknI8UFAdbE)
 
@@ -38,9 +38,9 @@ Bruce was also much looser at this show than at the opener. On Night 1, there we
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/2014_01_29-cape-town.-sa-copy.webp)
 
-Night 3 was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)" and featuring standards from that tour like "[Jack of All Trades,](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)" "[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)" "[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)," and "[Rocky Ground](https://estreetshuffle.com/index.php/2023/03/20/roll-of-the-dice-rocky-ground/)." It's almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
+Night 3 was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)" and featuring standards from that tour like "[Jack of All Trades,](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" "[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)," and "[Rocky Ground](../2023-03-20_roll-of-the-dice-rocky-ground/post.md)." It's almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
 
-But it was also a night of premieres (including the first ever performance of "[This is Your Sword,](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)" which Steve was clearly not prepared for), sign requests (including a memorable one for "[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)"), surprises (Tom Morello's brother proposed on-stage to his fiancee), and guest-stars (Mos Def joined the band during the encores for a unpredictable-yet-inevitable cover of "Sun City."
+But it was also a night of premieres (including the first ever performance of "[This is Your Sword,](../2021-02-04_roll-of-the-dice-this-is-your-sword/post.md)" which Steve was clearly not prepared for), sign requests (including a memorable one for "[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)"), surprises (Tom Morello's brother proposed on-stage to his fiancee), and guest-stars (Mos Def joined the band during the encores for a unpredictable-yet-inevitable cover of "Sun City."
 
 [Watch on Youtube: Bruce Springsteen - 2014-01-29 - Cape Town Bellville Velodrome - This Is Your Sword - World Premiere](https://www.youtube.com/watch?v=PQLUN4h3KpA)
 

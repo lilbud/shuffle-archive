@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Stolen Car](https://www.youtube.com/watch?v=f0RNWwXcQiU)
 
-**1984:** “[Dancing in the Dark,](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” the first single off *Born in the U.S.A.* is sent to radio stations. It will appear in record stores shortly and become Bruce’s greatest hit.<br>
+**1984:** “[Dancing in the Dark,](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” the first single off *Born in the U.S.A.* is sent to radio stations. It will appear in record stores shortly and become Bruce’s greatest hit.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1984-05-09.jpg.webp)
 
@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1992-05-09.jpg.webp)
 
-**1993:** Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/),” “[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/),” and “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” below.<br>
+**1993:** Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md),” “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md),” and “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)” below.<br>
 
 [Watch on Youtube: Bruce Springsteen arrives at Santiago de Compostela](https://www.youtube.com/watch?v=0OtYo4bIv60)
 
@@ -60,7 +60,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/5MQ16PaR)
 
-**2006:** Bruce and the Sessions Band play a televised show at St. Luke’s Church in London. Watch the performance in great quality below, especially Bruce’s hilarious mistake on “[Jacob’s Ladder](https://estreetshuffle.com/index.php/2019/04/18/rotd-cover-me-jacobs-ladder/)” at minute 36.<br>
+**2006:** Bruce and the Sessions Band play a televised show at St. Luke’s Church in London. Watch the performance in great quality below, especially Bruce’s hilarious mistake on “[Jacob’s Ladder](../2019-04-18_rotd-cover-me-jacobs-ladder/post.md)” at minute 36.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2j9sa8J0)
 
@@ -68,7 +68,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce and the E Street Band tour premiere “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” at their final night of three at RDS Arena in Dublin.<br>
+**2023:** Bruce and the E Street Band tour premiere “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” at their final night of three at RDS Arena in Dublin.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band:](https://www.youtube.com/watch?v=72D0bTXbNm4)
 

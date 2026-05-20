@@ -1,14 +1,14 @@
 When it comes to Springsteen covers, Manfred Mann's Earth Band occupies the throne with not one but *three* successfully charting hits–all of which scored higher than Bruce was able to do by himself.
 
-The band is best known for their lyric-mangling version of "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)," which to this day remains Bruce's only #1 hit song when Mann took it there in early 1977.
+The band is best known for their lyric-mangling version of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)," which to this day remains Bruce's only #1 hit song when Mann took it there in early 1977.
 
 [Watch on Youtube: Blinded by the Light ~ Manfred Mann's Earth Band with lyrics](https://www.youtube.com/watch?v=Rpq35wyDi7I)
 
-Three years later, [he took Bruce's deep cut "For You" to #15](https://estreetshuffle.com/index.php/2018/06/14/cover-me-manfred-manns-earth-band-for-you/) via their 1980 album, *Chance.* (By 1980, they had lots of Springsteen songs to choose from, so it's interesting that for all three covers, they drew from Bruce's very first album.)
+Three years later, [he took Bruce's deep cut "For You" to #15](../2018-06-14_cover-me-manfred-manns-earth-band-for-you/post.md) via their 1980 album, *Chance.* (By 1980, they had lots of Springsteen songs to choose from, so it's interesting that for all three covers, they drew from Bruce's very first album.)
 
 [Watch on Youtube: Manfred Mann's Earth Band - For You (Official)](https://www.youtube.com/watch?v=2sJygu903kU)
 
-But Mann actually covered another [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) track even earlier–so early, in fact, that Bruce wasn't even cool yet.
+But Mann actually covered another [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) track even earlier–so early, in fact, that Bruce wasn't even cool yet.
 
 The Earth Band released two different covers of Bruce Springsteen's "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" in back-to-back years, with two different vocalists. Both versions charted, which probably would have annoyed the original artist just a tiny bit if he hadn't already broken through on his own by the time the second one hit.
 

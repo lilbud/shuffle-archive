@@ -2,11 +2,11 @@
 >
 > Bruce Springsteen to Roger Scott: "On *The River*, I'd have a song like this and a song like that because I didn't know how to combine it. By the time I'd got to the *Born in the U.S.A.* album, I kinda combined those two things. Like ‘Darlington County…'" (*Hot Press*, November 2, 1984)
 
-Bruce might have been a bit disingenuous in that 1984 interview, because "Darlington County" dates back to the [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)sessions in 1977. Although we can't be sure the song hadn't substantially changed in the intervening years (no recording of the Darkness version has ever escaped into the wild, if one even exists), it's more likely that it took Bruce a while to grow comfortable with the idea of combining farce with fiction, telling a short story as a comedy rather than a drama.
+Bruce might have been a bit disingenuous in that 1984 interview, because "Darlington County" dates back to the [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)sessions in 1977. Although we can't be sure the song hadn't substantially changed in the intervening years (no recording of the Darkness version has ever escaped into the wild, if one even exists), it's more likely that it took Bruce a while to grow comfortable with the idea of combining farce with fiction, telling a short story as a comedy rather than a drama.
 
 "Darlington County" is quite the comedy, and its characters have quite the backstory. Wayne and Wilson are South Carolina delivery men on the run from the Highway Patrol after a roadside accident involving illegally transported live chickens while on the way to Wilson's romantic rendezvous with Bobby Jean's sister.
 
-(If you're scratching your head trying to figure out that last paragraph, you obviously haven't listened to "[Delivery Man](https://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/)," Bruce's 1983 unreleased prequel to "Darlington County." [Go do that now](https://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/), and then come back.)
+(If you're scratching your head trying to figure out that last paragraph, you obviously haven't listened to "[Delivery Man](../2019-08-28_roll-of-the-dice-delivery-man/post.md)," Bruce's 1983 unreleased prequel to "Darlington County." [Go do that now](../2019-08-28_roll-of-the-dice-delivery-man/post.md), and then come back.)
 
 "Darlington County" picks up as the two boys cross the county line, determined to find new work and romance where the law won't find them.
 
@@ -93,7 +93,7 @@ Something tells me we'll be celebrating the misadventures of Wayne and Wilson fo
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Darlington County LIVE - Atlanta, GA 2/3/23](https://www.youtube.com/watch?v=SsrrPXL25wM)
 
-**Bonus #1:** Although it's not nearly as obvious as "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," the album version of "Darlington County" is artificially sped up from the original recording. Here's the original take below; once you hear it, you'll never be able to not notice the acceleration in the original again.<br>
+**Bonus #1:** Although it's not nearly as obvious as "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," the album version of "Darlington County" is artificially sped up from the original recording. Here's the original take below; once you hear it, you'll never be able to not notice the acceleration in the original again.<br>
 
 [Watch on Youtube: Bruce Springsteen Darlington County](https://www.youtube.com/watch?v=RlE5fdrJ9ug)
 

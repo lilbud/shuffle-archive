@@ -1,6 +1,6 @@
 The first thing to know about "Be True" is that it began as a completely different song that shares almost exactly the same lyrics.
 
-I covered the backstory for "[Mary Lou](https://estreetshuffle.com/index.php/2019/04/03/roll-of-the-dice-mary-lou/)" (older sister to "Be True") at length a couple of years ago; there are so many surviving early acoustic demos and band rehearsal drafts that it makes for a highly illuminating look at how Bruce develops a song. I highly recommend reading (or re-reading) it before going any further if you want to fully appreciate the origin of its younger sibling.
+I covered the backstory for "[Mary Lou](../2019-04-03_roll-of-the-dice-mary-lou/post.md)" (older sister to "Be True") at length a couple of years ago; there are so many surviving early acoustic demos and band rehearsal drafts that it makes for a highly illuminating look at how Bruce develops a song. I highly recommend reading (or re-reading) it before going any further if you want to fully appreciate the origin of its younger sibling.
 
 The next thing to know about "Be True" is that there are two different officially released studio versions, something many fans don't realize. Compare the more well-known version from *Tracks* below…
 
@@ -20,13 +20,13 @@ I'll leave it to you to decide which version's better. (I have a slight preferen
 
 The third thing to know about "Be True" is that it's not a love song. Or at least, not in the romantic sense that its title and set list placement on the Tunnel of Love Tour might lead you to think it is.
 
-"Be True" is a *self*-love song, very much in the sense that "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" is. In fact, I suspect that the inclusion of "Two Hearts" on *The River* is the reason for the omission of "Be True," which for a while in the summer of '79 was thought to be a lock.
+"Be True" is a *self*-love song, very much in the sense that "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" is. In fact, I suspect that the inclusion of "Two Hearts" on *The River* is the reason for the omission of "Be True," which for a while in the summer of '79 was thought to be a lock.
 
 The last line of of "Be True" is "be true to me, and I'll be true to you," but what Bruce's character is really saying is: *Be your authentic self with me*, and I'll be mine with you. Bruce acknowledged this in a 1999 interview with Mark Hagen in *Mojo.*
 
 > *"He's trying to say, ‘Hey don't sell yourself cheap.' It's saying: be true to yourself in some fashion. He's talking to a woman he's interested in, but actually that's a device to address just how do you find yourself through the falseness of some of those things and not sell yourself short and try to get the most out of yourself.*
 
-So with that lens in mind, let's move on to my long-promised lyrical analysis and "Mary Lou" comparison. (I didn't realize at the time that it would take nineteen months for the dice to turn up the concluding chapter of the "Mary Lou"/"[Little White Lies](https://estreetshuffle.com/index.php/2018/03/20/roll-of-the-dice-little-white-lies/)"/"Be True" trilogy. Sorry about that.)
+So with that lens in mind, let's move on to my long-promised lyrical analysis and "Mary Lou" comparison. (I didn't realize at the time that it would take nineteen months for the dice to turn up the concluding chapter of the "Mary Lou"/"[Little White Lies](../2018-03-20_roll-of-the-dice-little-white-lies/post.md)"/"Be True" trilogy. Sorry about that.)
 
 Both songs share the same gimmick: the use of Hollywood vocabulary and iconography as a metaphor for living a romanticized life rather than a real one. The battle between romanticism and realism is a pervasive theme throughout Bruce's early work, but perhaps nowhere more overtly than here.
 
@@ -86,9 +86,9 @@ Its bright and shiny wrapping serves another purpose, too: it makes "Be True" a 
 
 [Watch on Youtube: Bruce Springsteen - Be True](https://www.youtube.com/watch?v=aOZ_6M8YcQs)
 
-"Be True" immediately followed the "Tunnel of Love" opener from the very first show of the tour, until Bruce inserted "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" in between them a few months later (adding a twisted but at the time hidden irony).
+"Be True" immediately followed the "Tunnel of Love" opener from the very first show of the tour, until Bruce inserted "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" in between them a few months later (adding a twisted but at the time hidden irony).
 
-That's pretty prime set list real estate for an outtake, but it's not as if the song was completely unknown. Bruce had actually released "Be True" as the B-side to *four* separate singles: "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)," in the U.S., "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" in the U.K., "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" in Spain, and "I Wanna Marry You" in Japan. If you were a serious Springsteen fan during the River era, you were likely to have picked up the single.
+That's pretty prime set list real estate for an outtake, but it's not as if the song was completely unknown. Bruce had actually released "Be True" as the B-side to *four* separate singles: "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)," in the U.S., "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" in the U.K., "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" in Spain, and "I Wanna Marry You" in Japan. If you were a serious Springsteen fan during the River era, you were likely to have picked up the single.
 
 Bruce even played it live once–and only once–by request on the Born in the U.S.A. Tour. Here's Bruce very first live performance of "Be True."
 

@@ -1,4 +1,4 @@
-**1973**: Bruce’s recording career is born with the release of his first album, [*Greetings from Asbury Park, N.J*.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.<br>
+**1973**: Bruce’s recording career is born with the release of his first album, [*Greetings from Asbury Park, N.J*.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.<br>
 
 [Watch on Youtube: Greetings from Asbury Park, N.J.](https://www.youtube.com/playlist?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
 
@@ -24,7 +24,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 **1975**: Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunners to Southside Johnny and the Asbury Jukes.<br>
 
-**1982**: Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of “[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)” and “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/).”<br>
+**1982**: Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of “[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)” and “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md).”<br>
 
 ![1994-0105-a](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1994-0105-a-1.jpg.webp)
 

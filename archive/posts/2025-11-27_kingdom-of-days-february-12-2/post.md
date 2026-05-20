@@ -40,11 +40,11 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 [Watch Video Highlight](https://videopress.com/embed/pbK3YKjI)
 
-**1999:** Bruce records audio and video for “[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/)” for a Johnny Cash tribute special. It will be broadcast in April.<br>
+**1999:** Bruce records audio and video for “[Give My Love to Rose](../2020-10-29_cover-me-give-my-love-to-rose/post.md)” for a Johnny Cash tribute special. It will be broadcast in April.<br>
 
 [Watch on Youtube: Give my love to rose - bruce springsteen](https://www.youtube.com/watch?v=rF2ikBJbV5U)
 
-**2012:** Bruce and the E Street Band open the Grammy Awards with the live debut of “[We Take Care of Our Own.](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)” At the end of the show, Bruce joins an epic jam with Paul McCartney, Dave Grohl, and Joe Walsh on “[The End.](https://estreetshuffle.com/index.php/2024/07/06/matr-paul-mccartney-and-bruce-springsteen-the-end/)” Watch both performances and behind-the-scenes footage below.<br>
+**2012:** Bruce and the E Street Band open the Grammy Awards with the live debut of “[We Take Care of Our Own.](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” At the end of the show, Bruce joins an epic jam with Paul McCartney, Dave Grohl, and Joe Walsh on “[The End.](../2024-07-06_matr-paul-mccartney-and-bruce-springsteen-the-end/post.md)” Watch both performances and behind-the-scenes footage below.<br>
 
 [Watch on Youtube: Bruce Springsteen, Paul McCartney behind the scenes at 2012 Grammys](https://www.youtube.com/watch?v=LVaV9d7U4YE)
 
@@ -52,7 +52,7 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 [Watch Video Highlight](https://videopress.com/embed/0ABz94N6)
 
-**2014:** Night Two in Adelaide is a scorcher… literally. It was a hot day, and it prompts Bruce to open with a cover of “[Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/).” This show also features the first and only (to date) performance of “[Hunter of Invisible Game](https://estreetshuffle.com/index.php/2022/01/18/roll-of-the-dice-hunter-of-invisible-game/).”<br>
+**2014:** Night Two in Adelaide is a scorcher… literally. It was a hot day, and it prompts Bruce to open with a cover of “[Heat Wave](../2020-02-18_matr-bruce-springsteen-and-martha-reeves-heat-wave/post.md).” This show also features the first and only (to date) performance of “[Hunter of Invisible Game](../2022-01-18_roll-of-the-dice-hunter-of-invisible-game/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - " (Love Is Like A) Heat Wave" (Adelaide 02/12/14)](https://www.youtube.com/watch?v=KBwXxxRBnJ0)
 
@@ -62,7 +62,7 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 [Watch on Youtube: Bruce Springsteen - Backstreets (with Sad Eyes) - Adelaide 2 12 February 2014](https://www.youtube.com/watch?v=6_x8_lldjF0)
 
-**2016:** At the Wells Fargo Center in Philadelphia, Bruce gives Philly their customary special perks, adding tour premieres of “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)” and “Jungleland” to the post-album set. For more highlights and memories, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/02/12/where-the-band-was-philadelphia-february-12-2016/).<br>
+**2016:** At the Wells Fargo Center in Philadelphia, Bruce gives Philly their customary special perks, adding tour premieres of “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)” and “Jungleland” to the post-album set. For more highlights and memories, see my [*Where the Band Was* report](../2018-02-12_where-the-band-was-philadelphia-february-12-2016/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - 2016 - Philadelphia - Jungleland - HQ Audio](https://www.youtube.com/watch?v=SnUHCsqDi6I)
 

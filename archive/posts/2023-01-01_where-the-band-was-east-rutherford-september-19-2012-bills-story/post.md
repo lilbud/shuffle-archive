@@ -12,31 +12,31 @@ Weedy was bit tardy arriving, and I left my sister and other friends (including 
 
 We ventured in and made no real effort to get up close, which left us plenty of room to groove to yet another high-energy offering from the seemingly indefatigable Bossman and mates. While the setlist echoed to some degree the one played a few nights earlier in DC, there were some interesting twists, largely due to the appearance of Patti, who had not played a show in months. To wit:
 
-“[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)" opened the show. Typically a late set piece that has evolved into something of a show stopper, Bruce just had to play it, so he did it first.
+“[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" opened the show. Typically a late set piece that has evolved into something of a show stopper, Bruce just had to play it, so he did it first.
 
 [Watch on Youtube: Bruce Springsteen - Shackled and Drawn, MetLife Stadium September 19 2012](https://www.youtube.com/watch?v=g8ZHOZDKlRQ)
 
-"[Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/)" replaced it later in the set, where Bruce likes to duet a bit with Patti. "Easy Money" hadn't been played since she poofed from the tour. I prefer "Easy Money" overall, so bonus my way.
+"[Easy Money](../2021-06-10_roll-of-the-dice-easy-money/post.md)" replaced it later in the set, where Bruce likes to duet a bit with Patti. "Easy Money" hadn't been played since she poofed from the tour. I prefer "Easy Money" overall, so bonus my way.
 
 [Watch on Youtube: Bruce Springsteen - Easy Money](https://www.youtube.com/watch?v=us5zEGOQXIs)
 
-"[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)" was revived in an affecting version with nice guitar work that gave Patti some vocal spotlights.
+"[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" was revived in an affecting version with nice guitar work that gave Patti some vocal spotlights.
 
 https://youtu.be/M28EVxPs5wQ
 
-"[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)" was played for I believe the first time since the warm up gig at the Apollo Theater back in March… though I always find Patti's vocals lacking in this one. Bruce set up the tune with a summer childhood memory and brought his usual intensity, but Patti's yodeling seemed extraneous.
+"[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" was played for I believe the first time since the warm up gig at the Apollo Theater back in March… though I always find Patti's vocals lacking in this one. Bruce set up the tune with a summer childhood memory and brought his usual intensity, but Patti's yodeling seemed extraneous.
 
 [Watch on Youtube: Bruce Springsteen - Mansion on the Hill, MetLife Stadium September 19 2012](https://www.youtube.com/watch?v=f4pSkj6ZsXs)
 
-Otherwise, my holy grail of the '78 version of "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)" has become something of a regular these days – all good there, with bookend guitar raves – and while I have considered "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" more of a rarity in its appearances, it got its 2nd straight showing, having been played in DC as well – and in typical majestic fashion, with that brilliant ending coda.
+Otherwise, my holy grail of the '78 version of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" has become something of a regular these days – all good there, with bookend guitar raves – and while I have considered "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" more of a rarity in its appearances, it got its 2nd straight showing, having been played in DC as well – and in typical majestic fashion, with that brilliant ending coda.
 
 [Watch on Youtube: Bruce Springsteen - Racing in Streets -Met Life Stadium - 9/19/12](https://www.youtube.com/watch?v=nq8dRzSUJiM)
 
-Mad Dog Vinni Lopez made an appearance to play his shambolic drums on "T[he E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)."
+Mad Dog Vinni Lopez made an appearance to play his shambolic drums on "T[he E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - E Street Shuffle W/ Drummer Vini Lopez 9/19/12 MetLife New Jersey Full HD Show](https://www.youtube.com/watch?v=kdypt1cQNI0)
 
-and Steven Van Zandt had a nice twang to his guitar filling out "[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)."
+and Steven Van Zandt had a nice twang to his guitar filling out "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)."
 
 It was during the encores – where DeRose in particular was pumped for "Rosalita" – that the Growlers provided me the fodder to let the spirit of Bruce even more completely take hold of me.
 

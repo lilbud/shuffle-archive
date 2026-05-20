@@ -14,10 +14,10 @@
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1998:** Bruce holds his annual Christmas party at McLoone’s Rum Runner in Sea Bright, where he joins Bobby Bandiera’s band for “[Santa Claus is Comin’ to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)”<br>
+**1998:** Bruce holds his annual Christmas party at McLoone’s Rum Runner in Sea Bright, where he joins Bobby Bandiera’s band for “[Santa Claus is Comin’ to Town.](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)”<br>
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2020:** Bruce performs a gorgeous acoustic version of “[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)” (its first live performance, albeit virtual) as part of the *Stand With Teachers* virtual fundraising event.<br>
+**2020:** Bruce performs a gorgeous acoustic version of “[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)” (its first live performance, albeit virtual) as part of the *Stand With Teachers* virtual fundraising event.<br>
 
 [Watch on Youtube: Bruce Springsteen - Letter to You - Springsteen Residence, Colts Neck, NJ (12/21/2020)](https://www.youtube.com/watch?v=tlHBa5IpCmw)

@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Times_1974_11_24_115-scaled.jpg.webp)
 
-**1977:** At the Record Plant in New York City, Bruce records "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)." He won't release it for another 33 years.<br>
+**1977:** At the Record Plant in New York City, Bruce records "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md)." He won't release it for another 33 years.<br>
 
 [Watch on Youtube: The Brokenhearted](https://www.youtube.com/watch?v=YvilYiGDmoM)
 
@@ -20,11 +20,11 @@
 
 **1983:** Bruce holds a recording session for *Born in the U.S.A. at* The Hit Factory in New York City.<br>
 
-**1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" gets its last outing for fifteen years.<br>
+**1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" gets its last outing for fifteen years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/7IdXR5EB)
 
-**1986:** Bruce debuts the video for his new single, "[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)," from his *Live 1975-85* box set.<br>
+**1986:** Bruce debuts the video for his new single, "[War](../2019-05-27_cover-me-war/post.md)," from his *Live 1975-85* box set.<br>
 
 [Watch on Youtube: Bruce Springsteen - War](https://www.youtube.com/watch?v=mn91L9goKfQ)
 

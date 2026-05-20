@@ -1,6 +1,6 @@
-Last month, we took a look at Bruce's unreleased *Nebraska-*era home demo, "[Vietnam](https://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/)."
+Last month, we took a look at Bruce's unreleased *Nebraska-*era home demo, "[Vietnam](../2019-08-31_roll-of-the-dice-vietnam/post.md)."
 
-"Vietnam" was the grandfather of both "Born in the U.S.A." and "[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)," but by the end of that essay, it was pretty clear which path Bruce was going to follow first.
+"Vietnam" was the grandfather of both "Born in the U.S.A." and "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)," but by the end of that essay, it was pretty clear which path Bruce was going to follow first.
 
 "Born in the U.S.A." would become one of Bruce's best-known songs, and even the songwriter ranks it near the very top of his catalog. But it's also one of Bruce's most misunderstood songs–or perhaps more accurately, one of his most malleable songs.
 
@@ -149,7 +149,7 @@ The President of the United States seems to have been in their company. Although
 
 [Watch on Youtube: Ronald Reagan - Bruce Springsteen (19.09.1984)](https://www.youtube.com/watch?v=z8BRWNaOdlc)
 
-In fairness, though, at times it seemed like Bruce was determined to feed the controversy. In January 1985, producer Arthur Baker (who had previously tried his hand at "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" and "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)") produced a trio of remixes of Bruce's anthem.
+In fairness, though, at times it seemed like Bruce was determined to feed the controversy. In January 1985, producer Arthur Baker (who had previously tried his hand at "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" and "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)") produced a trio of remixes of Bruce's anthem.
 
 These remixes draw a lot of scorn, but if you listen carefully, they're actually pretty good–especially the "Freedom Mix" below. Yes, it's mostly a curiosity today, but had the final minute of Bruce's studio version sounded as harrowing and haunted as the final minutes of Baker's remix, a lot fewer people would have misunderstood the song.
 
@@ -179,7 +179,7 @@ Bruce even kept "Born in the U.S.A." in the set during his 1992-1993 World Tour,
 
 [Watch on Youtube: Born in the U.S.A. - Bruce Springsteen (live at the Stadio Marc'Antonio Bentegodi, Verona 1993)](https://www.youtube.com/watch?v=jxKCltMv2zE)
 
-On his solo acoustic tour in support of [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/), Bruce stripped "Born in the U.S.A." back to its bluesy Bridge arrangement, but it wasn't until the Reunion Tour that he finally landed on an arrangement that unmistakably communicated the song's message. Bruce's nightly twelve-string performance is still remembered as a highlight of that tour.
+On his solo acoustic tour in support of [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md), Bruce stripped "Born in the U.S.A." back to its bluesy Bridge arrangement, but it wasn't until the Reunion Tour that he finally landed on an arrangement that unmistakably communicated the song's message. Bruce's nightly twelve-string performance is still remembered as a highlight of that tour.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Born In the U.S.A. (Live in New York City)](https://www.youtube.com/watch?v=5MtAxD9TE88)
 

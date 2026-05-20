@@ -12,7 +12,7 @@ But "A Good Man Is Hard to Find (Pittsburgh)"–let's just call it "Good Man" fo
 
 That statement likely crystalized O'Connor's frequent theme in Bruce's mind, and that notion–that there's a meanness in this world that bores a hole in everyone like the Misfit does with the grandmother (apologies if that's a spoiler)–wends its way throughout Bruce's songwriting writing during the *Nebraska* period from which "Good Man" hails.
 
-Bruce's songs from that period typically focus on the tormented souls who wield that meanness (see "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" and "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)"), but in "Good Man" he has us consider the ones on the receiving end, in this case the widow of a soldier felled in Vietnam.
+Bruce's songs from that period typically focus on the tormented souls who wield that meanness (see "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)" and "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)"), but in "Good Man" he has us consider the ones on the receiving end, in this case the widow of a soldier felled in Vietnam.
 
 But "Good Man" stands out for more than its unusual point-of-view character. For one thing, it's performed in a gentle full-band arrangement (including, curiously, an uncredited player on the bongos–perhaps Clarence, who is otherwise unrepresented on this track), a rarity for *Nebraska-*esque subject matter. For another, it features a lovely vocal from Bruce, with some atypical trills and flourishes.
 
@@ -65,7 +65,7 @@ For the past two verses, we've been dwelling in the past. Now, Bruce brings us b
 > *Just somebody to hold her as the night gets on*<br>
 > *When a good man is so hard to find*<br>
 
-The first line of that verse recalls Bruce's earlier song "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)," which also features a disillusioned character. Our focal character harbors no illusions of ever finding another love who can measure up to her lost one. And it wouldn't matter anyway–she doesn't want to risk that kind of loss again. Companionship is enough for her now. As with the radio earlier in the song, she's just looking for someone to fill the emptiness.
+The first line of that verse recalls Bruce's earlier song "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," which also features a disillusioned character. Our focal character harbors no illusions of ever finding another love who can measure up to her lost one. And it wouldn't matter anyway–she doesn't want to risk that kind of loss again. Companionship is enough for her now. As with the radio earlier in the song, she's just looking for someone to fill the emptiness.
 
 The last verse is as depressing as any final verse Bruce has ever written. Our hero climbs into bed at the end of a meaningless day, with only another empty one to look forward to. Why bother dreaming when she now understands how easily dreams can be swept away?
 
@@ -87,7 +87,7 @@ The first was in memory of a fallen local police officer during his 2005 solo sh
 
 [Watch on Youtube: Bruce Springsteen - A GOOD MAN IS HARD TO FIND 2005 (audio)](https://www.youtube.com/watch?v=AjEjoHqz4LA)
 
-Bruce's second and last performance to date was probably inspired more by its location than by current events. At his 2010 appearance in Pittsburgh with Joe Grushecky to celebrate the 15th anniversary of *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*, Bruce opened the show with three acoustic songs, the first of which was "A Good Man Is Hard to Find (Pittsburgh)."
+Bruce's second and last performance to date was probably inspired more by its location than by current events. At his 2010 appearance in Pittsburgh with Joe Grushecky to celebrate the 15th anniversary of *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*, Bruce opened the show with three acoustic songs, the first of which was "A Good Man Is Hard to Find (Pittsburgh)."
 
 [Watch on Youtube: A Good Man is Hard to Find - Bruce Springsteen (4-11-2010 Soldiers & Sailors Memorial Hall & Museum)](https://www.youtube.com/watch?v=LeKiXZCt8Z4)
 

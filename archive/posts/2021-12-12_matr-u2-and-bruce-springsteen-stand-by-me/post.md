@@ -38,7 +38,7 @@ On September 25, 1987, The Joshua Tree Tour made a stop at Philadelphia's JFK St
 
 As for the headliners, well, Bono was a bit worse for the wear at the time–he'd fallen from the stage five days earlier and dislocated his arm. He performed that night with his arm in a sling, and while it didn't dampen his on-stage charisma one bit, it meant he was guitar-challenged for a while.
 
-Good Samaritan that he is, Bruce agreed to play Bono's guitar during the encore since its owner couldn't. He took the stage to thunderous applause (this was Philadelphia, after all) and proceeded to do a loose, fun cover of "Stand By Me" with a little bit of improvised back-and-forth with Bono at the end (including a few lines from "[Drive All Night,](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" which Bono rolled with unhesitatingly).
+Good Samaritan that he is, Bruce agreed to play Bono's guitar during the encore since its owner couldn't. He took the stage to thunderous applause (this was Philadelphia, after all) and proceeded to do a loose, fun cover of "Stand By Me" with a little bit of improvised back-and-forth with Bono at the end (including a few lines from "[Drive All Night,](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" which Bono rolled with unhesitatingly).
 
 It was the first time Bruce and Bono had ever shared a stage together, and amazingly the moment was caught on film by director Phil Joanou, who was filming the show for U2's *Rattle and Hum* rockumentary. Even more amazingly, the footage was cut from the final film–but it managed to leak out into the hands of collectors, anyway.
 

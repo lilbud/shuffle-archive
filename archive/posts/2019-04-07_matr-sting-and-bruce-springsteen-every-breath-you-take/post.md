@@ -4,7 +4,7 @@ But that tour was notable for more than its closure of a chapter of E Street his
 
 Although the six-week tour featured a top-notch array of headlining talent that included Peter Gabriel, Tracey Chapman, and Youssou N'Dour, it was Sting who Bruce grew close with over the course of the tour.
 
-Their on-stage chemistry and obvious love for each other's music was evident from the start, and it didn't take long for Bruce to invite Sting to join him during his set for a duet on "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)." Two weeks, later, Sting returned the compliment by inviting Bruce to join him for his set-closing "Every Breath You Take," and their reciprocal guest appearances instantly became a nightly highlight.
+Their on-stage chemistry and obvious love for each other's music was evident from the start, and it didn't take long for Bruce to invite Sting to join him during his set for a duet on "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)." Two weeks, later, Sting returned the compliment by inviting Bruce to join him for his set-closing "Every Breath You Take," and their reciprocal guest appearances instantly became a nightly highlight.
 
 By that time, of course, "Every Breath You Take" was already a classic. Even though the song was only five years old in 1988, it wasn't just a number one song the year it came out, it was *the* number one song for the entire year, riding the top of the charts in the U.S. for a full eight weeks. Heck, it was the fifth-highest selling single for the entire *decade*.
 

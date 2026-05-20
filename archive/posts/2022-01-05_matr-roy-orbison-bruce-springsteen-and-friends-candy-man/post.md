@@ -2,7 +2,7 @@ It may not have enjoyed quite the success that its A-side did, but Roy Orbison's
 
 [Watch on Youtube: Candy Man](https://www.youtube.com/watch?v=VWoA74YyDWY)
 
-"Candy Man" was tucked onto the flipside of Roy's smash single, "[Crying](https://estreetshuffle.com/index.php/2022/05/06/cover-me-crying/)," but audiences found their way to it regardless.
+"Candy Man" was tucked onto the flipside of Roy's smash single, "[Crying](../2022-05-06_cover-me-crying/post.md)," but audiences found their way to it regardless.
 
 The song was co-written by Beverly Ross, who'd had a previous candy-themed hit with "Lollipop" for The Chordettes, which may or may not have been about oral sex depending on who you ask.
 

@@ -1,4 +1,4 @@
-“[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)” is way up there among my favorite 21st-century Springsteen songs. Since it debuted as the second single from *Working on a Dream* a full decade ago, it’s been a perennial on my setlist wish list.
+“[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)” is way up there among my favorite 21st-century Springsteen songs. Since it debuted as the second single from *Working on a Dream* a full decade ago, it’s been a perennial on my setlist wish list.
 
 But as much as I love the song, I’ve always felt that the tenderness of the lyrics was completely overpowered by force of the full-band arrangement.
 

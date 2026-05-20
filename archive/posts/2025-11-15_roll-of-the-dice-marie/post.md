@@ -12,7 +12,7 @@ I haven't even been able to figure out her name. But I wouldn't be surprised to 
 
 "Marie" was one of the songs Bruce wrote in early 1972 upon returning to New Jersey, unable to make a living in California, and it was one of the songs he recorded that April as publishing demos at Laurel Canyon.
 
-Like the obviously autobiographical "[Family Song](https://estreetshuffle.com/index.php/2020/02/23/roll-of-the-dice-family-song/)," also written and recorded during that period, Bruce's "Marie" character study seems awfully similar to his descriptions of his ex-girlfriend.
+Like the obviously autobiographical "[Family Song](../2020-02-23_roll-of-the-dice-family-song/post.md)," also written and recorded during that period, Bruce's "Marie" character study seems awfully similar to his descriptions of his ex-girlfriend.
 
 His lyrics are unusually harsh, his narrator clearly portrayed as a victim–raped, skinned, cut and carved.
 

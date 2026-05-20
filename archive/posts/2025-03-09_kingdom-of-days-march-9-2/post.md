@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1973-03-09.png.webp)
 
-**1974:** In the afternoon, Bruce stops by KLOL-FM for the second day in a row, this time with the band. They play an extended on-air set that includes "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)," a local radio favorite.<br>
+**1974:** In the afternoon, Bruce stops by KLOL-FM for the second day in a row, this time with the band. They play an extended on-air set that includes "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)," a local radio favorite.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The lost radio show, remastered"](https://www.youtube.com/playlist?list=PLmxwNSnqgfeeaSVGDu7VP_yaRzcaz7s2P)
 
@@ -16,7 +16,7 @@ That night, the boys play two shows at Liberty Hall.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1975-03-09.jpg.webp)
 
-**1985:** On this week's edition of *American Top 40*, host Casey Kasem regales listeners with tales of Bruce's Monopoly prowess while introducing his latest chart-climber, "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."<br>
+**1985:** On this week's edition of *American Top 40*, host Casey Kasem regales listeners with tales of Bruce's Monopoly prowess while introducing his latest chart-climber, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3)
 
@@ -24,7 +24,7 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch Video Highlight](https://videopress.com/embed/JEl15R0m)
 
-**1992:** MTV debuts Bruce's new video for "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)" at 9pm Eastern Time, and then plays it every hour on the hour through 4pm the following day.<br>
+**1992:** MTV debuts Bruce's new video for "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" at 9pm Eastern Time, and then plays it every hour on the hour through 4pm the following day.<br>
 
 [Watch on Youtube: Bruce Springsteen - Human Touch (Official HD Video)](https://www.youtube.com/watch?v=85cNRQo1m3A)
 
@@ -70,7 +70,7 @@ That night, the boys play two shows at Liberty Hall.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2012-03-09b.jpg.webp)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" and "[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)"<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in place of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" and "[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)"<br>
 
 **2022:** Bruce reminisces about his legendary Apollo Theater show on its tenth anniversary, with E Street Radio host Jim Rotolo.<br>
 

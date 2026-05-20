@@ -1,4 +1,4 @@
-Here's our second pre-ESB song this week. Unlike "[Funk Song](https://estreetshuffle.com/index.php/2018/05/02/roll-of-the-dice-funk-song/)," however, "I Just Can't Change" has lyrics and is a fully realized song. Bruce wrote it in 1971, and he performed it live with the Bruce Springsteen Band through 1972, although only one specific performance is documented and recorded.
+Here's our second pre-ESB song this week. Unlike "[Funk Song](../2018-05-02_roll-of-the-dice-funk-song/post.md)," however, "I Just Can't Change" has lyrics and is a fully realized song. Bruce wrote it in 1971, and he performed it live with the Bruce Springsteen Band through 1972, although only one specific performance is documented and recorded.
 
 Although the song itself wouldn't survive 1972, its melody was resurrected in 1975. See if you recognize it.
 
@@ -29,7 +29,7 @@ You could take it as a "take me as I am" song, I suppose, or a resistance to bei
 > *And she says, "how you been, babe, are you busy and are you alone"*
 > *And I tell her, "Well if you've got the money then something can be arranged, child"*
 
-So maybe that's why Bruce orphaned the song–it certainly didn't have a sympathetic protagonist. Or maybe he just decided he could put its melody to better use, because it re-appeared in 1975 grafted to the lyrics of "[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)," for a gorgeous arrangement that Bruce played frequently on the Born to Run tour (and which [Bette Midler covered](https://estreetshuffle.com/index.php/2018/01/28/cover-me-bette-midler-the-e-street-shuffle/)on vinyl and film).
+So maybe that's why Bruce orphaned the song–it certainly didn't have a sympathetic protagonist. Or maybe he just decided he could put its melody to better use, because it re-appeared in 1975 grafted to the lyrics of "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)," for a gorgeous arrangement that Bruce played frequently on the Born to Run tour (and which [Bette Midler covered](../2018-01-28_cover-me-bette-midler-the-e-street-shuffle/post.md)on vinyl and film).
 
 In any event, enjoy this curious historical artifact, because this is one song we're unlikely to hear played live again.
 

@@ -10,7 +10,7 @@ Hands down: "Shackled and Drawn."
 
 "Shackled and Drawn" has been my favorite *Wrecking Ball* track from my very first listen, and it was a reliable nightly highlight for almost all of the eighteen shows I was fortunate enough to catch on the Wrecking Ball and High Hopes tours.
 
-But when Bruce [opened with it in Vancouver](https://estreetshuffle.com/index.php/2018/11/26/where-the-band-was-vancouver-november-26-2012/) towards the end of the final North American leg… well, that was easily the best show opener I've ever seen in my seventy shows over the years.
+But when Bruce [opened with it in Vancouver](../2018-11-26_where-the-band-was-vancouver-november-26-2012/post.md) towards the end of the final North American leg… well, that was easily the best show opener I've ever seen in my seventy shows over the years.
 
 I mean, come on: is there any more fitting way to kick off a Springsteen show than a work chant in the dark? Work songs are meant to coordinate labor for maximum power, and isn't that what a concert is at its best? Check it out:
 
@@ -24,7 +24,7 @@ And at the end of the song, when the E Street Band is arrayed across the stage i
 
 It was such a perfect opener that for the life of me, I can't figure out why he didn't open with it every night.
 
-He didn't, of course, but that doesn't diminish my admiration for "Shackled and Drawn." More than any song on [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), "Shackled and Drawn" epitomizes the spirit of the album, celebrating the working man, castigating those who would exploit his labors, but never, ever tipping over the line into sarcasm or cynicism.
+He didn't, of course, but that doesn't diminish my admiration for "Shackled and Drawn." More than any song on [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md), "Shackled and Drawn" epitomizes the spirit of the album, celebrating the working man, castigating those who would exploit his labors, but never, ever tipping over the line into sarcasm or cynicism.
 
 "Shackled and Drawn" easily ranks among Bruce's top five 21st century songs and top ten ever.
 

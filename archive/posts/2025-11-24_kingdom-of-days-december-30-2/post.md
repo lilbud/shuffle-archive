@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1973-1230.jpg.webp)
 
-**1975:** Bruce and most of the band drop by WMMR-FM in Philadelphia for a stint as guest DJs with Ed Sciaky. That evening, the boys play a gig at the Tower Theater, where they tour premiere “[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/).” Steve is gone by that point, though–he takes ill early in the set and has to skip the remainder.<br>
+**1975:** Bruce and most of the band drop by WMMR-FM in Philadelphia for a stint as guest DJs with Ed Sciaky. That evening, the boys play a gig at the Tower Theater, where they tour premiere “[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md).” Steve is gone by that point, though–he takes ill early in the set and has to skip the remainder.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1975-12-30 Tower Theater, Upper Darby, PA](https://www.youtube.com/watch?v=YBV95EFNLSo)
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: News coverage - birth of Jessica Springsteen](https://www.youtube.com/watch?v=tc9IFFMNskY)
 
-**1993:** The soundtrack for the film *Philadelphia* is released, featuring a song Bruce wrote for the movie, “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/).” It will soon win him an Oscar.<br>
+**1993:** The soundtrack for the film *Philadelphia* is released, featuring a song Bruce wrote for the movie, “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md).” It will soon win him an Oscar.<br>
 
 [Watch on Youtube: Bruce Springsteen - Streets of Philadelphia (Official Video)](https://www.youtube.com/watch?v=4z2DtNW79sQ)
 

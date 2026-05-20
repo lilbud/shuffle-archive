@@ -1,6 +1,6 @@
 The third time was the charm.
 
-Bruce's set lists have featured covers of John Fogerty's songs for decades. "[Run Through the Jungle](https://estreetshuffle.com/index.php/2018/04/05/cover-me-run-through-the-jungle/)," "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)," "Proud Mary," and "Travelin' Band" have made dozens of appearances on the E Street stage, but one of Fogerty's five #2 singles with Creedence Clearwater Revival (none of their songs ever made it to #1) was maddeningly elusive.
+Bruce's set lists have featured covers of John Fogerty's songs for decades. "[Run Through the Jungle](../2018-04-05_cover-me-run-through-the-jungle/post.md)," "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)," "Proud Mary," and "Travelin' Band" have made dozens of appearances on the E Street stage, but one of Fogerty's five #2 singles with Creedence Clearwater Revival (none of their songs ever made it to #1) was maddeningly elusive.
 
 When CCR released "Green River" as the title track to their 1969 album, they captured imaginations with their bayou-flavored rocker, which peaked just shy of the top slot for a week that summer.
 

@@ -8,7 +8,7 @@ Musically, it's built around a great guitar riff, riding a chugging chassis that
 
 The problem with "Leavin' Train" is that its songwriter *isn't* any other artist, and there's nothing in this song that Bruce hasn't done better elsewhere in his catalog.
 
-Want a hard-drivin' train song with a killer guitar solo? Look to ["Burnin' Train.](https://estreetshuffle.com/index.php/2022/01/14/roll-of-the-dice-burnin-train/)" (The apostrophe is apparently a required ingredient in this micro-genre.)
+Want a hard-drivin' train song with a killer guitar solo? Look to ["Burnin' Train.](../2022-01-14_roll-of-the-dice-burnin-train/post.md)" (The apostrophe is apparently a required ingredient in this micro-genre.)
 
 [Watch on Youtube: Bruce Springsteen - Burnin' Train (Official Audio)](https://www.youtube.com/watch?v=tTwpR6SCyRw)
 

@@ -2,7 +2,7 @@ No doubt about it: my favorite part of writing this blog is when readers send me
 
 I don't always write a blog post about them, because the list of covers on my to-blog list is so long already (and always growing), but I do enjoy watching them.
 
-Every once in a while, though, a reader sends me a cover that's so good and so different that it just stops me in my tracks. That's what happened when Nico Mirandola dropped me a line and invited me to check out his band Free Redemption, and their cover of "[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)."
+Every once in a while, though, a reader sends me a cover that's so good and so different that it just stops me in my tracks. That's what happened when Nico Mirandola dropped me a line and invited me to check out his band Free Redemption, and their cover of "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)."
 
 Since I'm one of the more than four billion people under a stay-at-home order at the moment, I was glad for a momentary diversion, so I watched it right away. I'm glad I did, and if you take a few minutes to watch it with me, I think you will be, too.
 

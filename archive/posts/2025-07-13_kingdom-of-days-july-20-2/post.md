@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-20.png.webp)
 
-**2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres “[All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)” and “[Nothing Man,](https://estreetshuffle.com/index.php/2020/08/29/roll-of-the-dice-nothing-man/)” both on electric piano.<br>
+**2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres “[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)” and “[Nothing Man,](../2020-08-29_roll-of-the-dice-nothing-man/post.md)” both on electric piano.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wpRIRm41)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-20.png.webp)
 
-**2008:** Bruce and the E Street Band play their last European Magic show, at Camp Nou in Barcelona, tour premiering “[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)” (the first time that song has ever been played in Europe).<br>
+**2008:** Bruce and the E Street Band play their last European Magic show, at Camp Nou in Barcelona, tour premiering “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)” (the first time that song has ever been played in Europe).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Barcelona 20th July 2008 Tougher Than The Rest](https://www.youtube.com/watch?v=SzMNhfqCOJ8)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: U2 - Moment of Surrender (New Meadowlands Stadium July 20, 2011) - For Clarence](https://www.youtube.com/watch?v=dtmUsQjADjc)
 
-**2013:** Bruce tour debuts “[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” (as the fourth song in a *Nebraska* mini-set) and “[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)” when the Wrecking Ball Tour stops at King’s Hall in Belfast. Early fans get an extra treat: short but remarkable pre-show featuring a rare outing for “[Maria’s Bed](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/).”<br>
+**2013:** Bruce tour debuts “[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)” (as the fourth song in a *Nebraska* mini-set) and “[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)” when the Wrecking Ball Tour stops at King’s Hall in Belfast. Early fans get an extra treat: short but remarkable pre-show featuring a rare outing for “[Maria’s Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - Surprise, Surprise (pre-show)](https://www.youtube.com/watch?v=ZG9JFy-hfXA)
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - Nebraska](https://www.youtube.com/watch?v=N8_Te_3hzjc)
 
-**2016:** The revived River Tour moves on to Horsens, Denmark, where Bruce opens with a tour premiere of “[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)” in memory of songwriter Alan Vega, who died four days prior. Other tour premieres include “[You Never Can Tell](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/),” “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)” and “Follow That Dream.” This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14127/Bruce-Springsteen-mp3-flac-download-7-20-2016-CASA-Arena-Horsens-Horsens-DK.html).<br>
+**2016:** The revived River Tour moves on to Horsens, Denmark, where Bruce opens with a tour premiere of “[Dream Baby Dream](../2020-04-02_cover-me-dream-baby-dream/post.md)” in memory of songwriter Alan Vega, who died four days prior. Other tour premieres include “[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md),” “[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)” and “Follow That Dream.” This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14127/Bruce-Springsteen-mp3-flac-download-7-20-2016-CASA-Arena-Horsens-Horsens-DK.html).<br>
 
 [Watch on Youtube: Dream Baby Dream in Horsens by Bruce Springsteen on July 20th 2016](https://www.youtube.com/watch?v=M7VBOp1OrEM)
 

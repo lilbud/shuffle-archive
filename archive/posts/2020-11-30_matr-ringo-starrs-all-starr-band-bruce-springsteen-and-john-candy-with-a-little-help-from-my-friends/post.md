@@ -1,6 +1,6 @@
-Back in April, I shared Bruce's 1989 guest appearance with Ringo Starr's All Star Band at the Garden State Arts Center, where Bruce joined the band for "[Photograph](https://estreetshuffle.com/index.php/2018/04/29/matr-bruce-springsteen-and-ringo-starr-and-his-all-starr-band-photograph/)."
+Back in April, I shared Bruce's 1989 guest appearance with Ringo Starr's All Star Band at the Garden State Arts Center, where Bruce joined the band for "[Photograph](../2018-04-29_matr-bruce-springsteen-and-ringo-starr-and-his-all-starr-band-photograph/post.md)."
 
-Bruce was actually on stage for four songs that night, and "Photograph" was followed by a final encore of "[With a Little Help From My Friends](https://estreetshuffle.com/index.php/2018/06/03/matr-ringo-starrs-all-starr-band-bruce-springsteen-and-john-candy-with-a-little-help-from-my-friends/)." Bruce is on guitar only on this one, no vocals, but his contribution is easy to pick out.
+Bruce was actually on stage for four songs that night, and "Photograph" was followed by a final encore of "[With a Little Help From My Friends](../2018-06-03_matr-ringo-starrs-all-starr-band-bruce-springsteen-and-john-candy-with-a-little-help-from-my-friends/post.md)." Bruce is on guitar only on this one, no vocals, but his contribution is easy to pick out.
 
 [Watch on Youtube: Ringo Starr's All Starr Band and Bruce Springsteen - "With a Little Help From My Friends"](https://www.youtube.com/watch?v=vqMxTWqVoYM)
 

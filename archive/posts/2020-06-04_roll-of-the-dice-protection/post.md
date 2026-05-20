@@ -2,7 +2,7 @@ No, not *that* "Protection." We'll discuss the song Bruce donated to Donna Summe
 
 Today's "Protection" is a much earlier song by the same name that Bruce recorded at home in early 1979. This song has never seen the light of day in any finished form, although some of its DNA did surface in an official release years later. But I'm getting ahead of myself.
 
-In early 1979, fresh off the Darkness Tour, Bruce started tinkering with some new songs on his acoustic guitar from his home in Holmdel, New Jersey, recording them on cassette as he worked on them. Some of these songs would make it on his next album, like "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)"; others, like "[Dollhouse](https://estreetshuffle.com/index.php/2020/08/15/roll-of-the-dice-dollhouse/)," would have to wait until *Tracks* or even later; and some were simply abandoned when Bruce lost interest or pursued a different musical direction.
+In early 1979, fresh off the Darkness Tour, Bruce started tinkering with some new songs on his acoustic guitar from his home in Holmdel, New Jersey, recording them on cassette as he worked on them. Some of these songs would make it on his next album, like "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)"; others, like "[Dollhouse](../2020-08-15_roll-of-the-dice-dollhouse/post.md)," would have to wait until *Tracks* or even later; and some were simply abandoned when Bruce lost interest or pursued a different musical direction.
 
 "Protection" is an interesting case, though: we know that Bruce was clearly committed to it for a while, because there are no less than six work-in-progress home demos of the song that have escaped into the wild.
 
@@ -14,7 +14,7 @@ But as the recordings progress, the song takes shape, and by take #5 below (I kn
 
 [Watch on Youtube: Bruce Springsteen Protection #4](https://www.youtube.com/watch?v=HzKt0tGpep0)
 
-"Protection" wouldn't have been the deepest song in Bruce's catalog had he chosen to release it on *The River*, but it certainly would have been one of the sweeter and poppier ones. It would have fit nicely with songs like "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" and "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)."
+"Protection" wouldn't have been the deepest song in Bruce's catalog had he chosen to release it on *The River*, but it certainly would have been one of the sweeter and poppier ones. It would have fit nicely with songs like "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" and "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)."
 
 In fact, it may be the lyrical similarity to "Two Hearts" that doomed "Protection"–it doesn't require a stretch of the imagination to wonder whether the narrators of both songs are addressing the same girl.
 

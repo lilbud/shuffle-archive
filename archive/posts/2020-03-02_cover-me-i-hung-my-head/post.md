@@ -10,7 +10,7 @@ Instead, Bruce worked up a rocking arrangement (complete with a couple of bliste
 
 Bruce turned in a fantastic performance that night, too great for it to remain a one-off.
 
-Three years later, when Sting was one of the Kennedy Center honorees, Bruce repaid his friend's favor (Sting had saluted Bruce with [his cover of "The Rising"](https://estreetshuffle.com/index.php/2018/10/26/cover-me-sting-the-rising/) just two years earlier) with a reprise of his 2011 performance.
+Three years later, when Sting was one of the Kennedy Center honorees, Bruce repaid his friend's favor (Sting had saluted Bruce with [his cover of "The Rising"](../2018-10-26_cover-me-sting-the-rising/post.md) just two years earlier) with a reprise of his 2011 performance.
 
 [Watch on Youtube: Bruce Springsteen - I Hung My Head (Sting Tribute) - 2014 Kennedy Center Honors](https://www.youtube.com/watch?v=Fh7VLaCAmPQ)
 

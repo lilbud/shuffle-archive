@@ -6,7 +6,7 @@
 
 **1975:** Bruce records vocal overdubs for "Jungleland" at the Record Plant in New York City.<br>
 
-**1978:** Bruce and the E Street Band continue their Texas swing, as the Darkness Tour arrives for a night in San Antonio (Bruce's one and only performance in that city). By request, Bruce tour premieres "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)."<br>
+**1978:** Bruce and the E Street Band continue their Texas swing, as the Darkness Tour arrives for a night in San Antonio (Bruce's one and only performance in that city). By request, Bruce tour premieres "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lOl367T5)
 
@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1978-0714.jpg.webp)
 
-**1985:** Nils Lofgren records his vocal and guitar overdubs for "[Janey, Don't You Lose Heart.](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" It will become his first appearance on an official Springsteen studio release.<br>
+**1985:** Nils Lofgren records his vocal and guitar overdubs for "[Janey, Don't You Lose Heart.](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" It will become his first appearance on an official Springsteen studio release.<br>
 
 [Watch on Youtube: Janey Don't You Lose Heart (Single B-Side - 1985)](https://www.youtube.com/watch?v=kKIPdOVWTjU)
 
@@ -38,13 +38,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/yHujCIf5)
 
-**2005:** Bruce kicks off the encores at his solo acoustic show in Toronto with the tour premiere of "[Darlington County.](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)"<br>
+**2005:** Bruce kicks off the encores at his solo acoustic show in Toronto with the tour premiere of "[Darlington County.](../2020-09-10_roll-of-the-dice-darlington-county/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen Darlington County Solo Acoustic Live From Toronto 14/07/2005](https://www.youtube.com/watch?v=Tq-Zp9idlVE)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-14-scaled.jpg.webp)
 
-**2009:** "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)" makes a welcome return after a six-year absence at Bruce's Working on a Dream show in Glasgow's Hampden Park.<br>
+**2009:** "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" makes a welcome return after a six-year absence at Bruce's Working on a Dream show in Glasgow's Hampden Park.<br>
 
 [Watch on Youtube: Pink Cadillac: Bruce Springsteen, Glasgow, 14th July 2009](https://www.youtube.com/watch?v=Hf0lDibY8I8)
 
@@ -60,15 +60,15 @@ It starts with a surprise guest appearance by Bruce during John Fogerty's set:
 
 [Watch on Youtube: BRUCE SPRINGSTEEN LIVE | THUNDER ROAD | Hard Rock Calling Festival 2012](https://www.youtube.com/watch?v=pvfFuASYgfM)
 
-Guest appearances by Tom Morello and John Fogerty quickly follow, along with the tour premiere of the very rare "[Take 'Em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)."
+Guest appearances by Tom Morello and John Fogerty quickly follow, along with the tour premiere of the very rare "[Take 'Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - Take Em As They Come - Hyde Park - Hard Rock Calling, London England 7/14/2012](https://www.youtube.com/watch?v=KQLmV1fCxt8)
 
-But it's the encore surprise that garners worldwide headlines, when Bruce invites Sir Paul McCartney to join him on stage for "[I Saw Her Standing There](https://estreetshuffle.com/index.php/2018/09/11/matr-bruce-springsteen-george-harrison-ringo-starr-mick-jagger-and-billy-joel-i-saw-her-standing-there/)" and "Twist and Shout."
+But it's the encore surprise that garners worldwide headlines, when Bruce invites Sir Paul McCartney to join him on stage for "[I Saw Her Standing There](../2018-09-11_matr-bruce-springsteen-george-harrison-ringo-starr-mick-jagger-and-billy-joel-i-saw-her-standing-there/post.md)" and "Twist and Shout."
 
 [Watch on Youtube: Paul McCartney & Bruce Springsteen "I Saw Her Standing There" & "Twist And Shout" Live HD Rare](https://www.youtube.com/watch?v=SzhXSSRPvxQ)
 
-Unfortunately, and mystifyingly, the festival staff pull the plug on Bruce, Paul, and the band when they sail past their 10:30pm curfew. Unable to close the show in his customary fashion, Bruce merely sings a brief "[Goodnight Irene](https://estreetshuffle.com/index.php/2019/08/01/matr-pete-seeger-and-bruce-springsteen-goodnight-irene/)" and exits. (The broadcast clip above ends before the power cut, but you can watch the unedited footage below to see how it played out.)
+Unfortunately, and mystifyingly, the festival staff pull the plug on Bruce, Paul, and the band when they sail past their 10:30pm curfew. Unable to close the show in his customary fashion, Bruce merely sings a brief "[Goodnight Irene](../2019-08-01_matr-pete-seeger-and-bruce-springsteen-goodnight-irene/post.md)" and exits. (The broadcast clip above ends before the power cut, but you can watch the unedited footage below to see how it played out.)
 
 [Watch on Youtube: Paul McCartney & Bruce Springsteen Hard Rock Calling Hyde Park 2012 Complete!](https://www.youtube.com/watch?v=dJ0SQ6NX13U)
 

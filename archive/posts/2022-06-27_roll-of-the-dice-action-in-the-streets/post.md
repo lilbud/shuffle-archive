@@ -35,7 +35,7 @@ No, "Action in the Streets" was all about the music. Bruce loved its brassy, Mia
 
 I mean he *loved* it–so much so that he kept writing songs on top of it. Listen to E Street Band shows throughout the 1970s and you'll hear it in "A Night Like This" and "A Love So Fine." You'll hear it on the vintage studio track "So Young and in Love" (which Bruce recorded in the '70s but didn't perform live until the post-Reunion era). And of course, we hear it in "Action in the Streets."
 
-Eventually, he gave up on lyrics altogether and just turned it into a Big Man showcase called "[Paradise by the ‘C'.](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)"
+Eventually, he gave up on lyrics altogether and just turned it into a Big Man showcase called "[Paradise by the ‘C'.](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)"
 
 In the modern era, "Action in the Streets" is all but forgotten, unplayed on tour since 1977 and overshadowed on disc and stage by its cousin, "So Young and in Love."
 

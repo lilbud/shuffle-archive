@@ -1,10 +1,10 @@
 It's shocking that it took Bruce until 1995 to cover what is arguably The Rolling Stones' greatest song (*Rolling Stone* and *Ultimate Classic Rock* certainly think so, at least); it's even more surprising that he hasn't covered it since.
 
-Or properly, for that matter, since his one and only stab at it (other than quoting it nightly in "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" on the Tunnel of Love Express Tour) was with Joe Grushecky on backing vocals and guitar only.
+Or properly, for that matter, since his one and only stab at it (other than quoting it nightly in "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" on the Tunnel of Love Express Tour) was with Joe Grushecky on backing vocals and guitar only.
 
-In the autumn of 1995, Bruce became an honorary (and temporary) Houserocker, joining the band for their "October Assault" in support of Joe's Bruce-produced [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) album (which, IMHO, every Springsteen fan should own).
+In the autumn of 1995, Bruce became an honorary (and temporary) Houserocker, joining the band for their "October Assault" in support of Joe's Bruce-produced [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) album (which, IMHO, every Springsteen fan should own).
 
-When the band played their final of three shows at Nick's Fat City in Pittsburgh on the evening of October 21st, "Gimme Shelter" was a setlist bonus. Fortunately, the performance was captured for posterity and issued on the CD single for Joe's "[Labor of Love](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/)." While you can clearly here Bruce on backing vocals and guitar throughout, it's a performance worth listening to even if Bruce hadn't been there. The Houserockers more than do justice to the original.
+When the band played their final of three shows at Nick's Fat City in Pittsburgh on the evening of October 21st, "Gimme Shelter" was a setlist bonus. Fortunately, the performance was captured for posterity and issued on the CD single for Joe's "[Labor of Love](../2022-05-08_matr-joe-grushecky-and-bruce-springsteen-labor-of-love/post.md)." While you can clearly here Bruce on backing vocals and guitar throughout, it's a performance worth listening to even if Bruce hadn't been there. The Houserockers more than do justice to the original.
 
 [Watch on Youtube: Gimme shelter - Joe Grushecky with Bruce Springsteen](https://www.youtube.com/watch?v=5WmQuWwpyf8)
 

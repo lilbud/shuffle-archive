@@ -6,7 +6,7 @@ C'mon folks, it's 2019–can we all stop pussyfooting around now and just state 
 
 Seriously, one of the more entertaining aspects of being a Springsteen scholar has to be the knots that authors, critics, reviewers, and commentators tie themselves in to ensure that they don't accidentally overstep the bounds of discretion.
 
-Even Brian Hiatt, in his new *Stories Behind the Songs* book, goes to great lengths to avoid describing what the song is about, although his hilarious quote of why Bruce withdrew his blessing for [Bette Midler's cover](https://estreetshuffle.com/index.php/2018/11/26/cover-me-bette-midler-pink-cadillac/) ("I mean, it's just in your face!") has to be my favorite line in the book.
+Even Brian Hiatt, in his new *Stories Behind the Songs* book, goes to great lengths to avoid describing what the song is about, although his hilarious quote of why Bruce withdrew his blessing for [Bette Midler's cover](../2018-11-26_cover-me-bette-midler-pink-cadillac/post.md) ("I mean, it's just in your face!") has to be my favorite line in the book.
 
 So let's end that here and now.
 
@@ -68,7 +68,7 @@ There's also another section toward the end of the song where Bruce makes it cle
 
 Obviously, "Pink Cadillac" never made it onto *Nebraska* despite its inclusion in the original sessions. And even though it was one of the few *Nebraska* holdouts to successfully translate to a full-band arrangement, it didn't make *Born in the U.S.A.* either.
 
-Still, Bruce couldn't keep "Pink Cadillac" in the garage. Despite it not making his destined-to-be-a-blockbuster album, Bruce actually released "Pink Cadillac" a full month before the album as the B-side to the single for "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" (making "Pink Cadillac" one of two vagina songs to get radio airplay in 1984–Sheena Easton's "Sugar Walls" was the other).
+Still, Bruce couldn't keep "Pink Cadillac" in the garage. Despite it not making his destined-to-be-a-blockbuster album, Bruce actually released "Pink Cadillac" a full month before the album as the B-side to the single for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" (making "Pink Cadillac" one of two vagina songs to get radio airplay in 1984–Sheena Easton's "Sugar Walls" was the other).
 
 [Watch on Youtube: Pink Cadillac (Single B-Side - 1984)](https://www.youtube.com/watch?v=Wk5cIUI6Zac)
 
@@ -141,7 +141,7 @@ But it's the song's final verse that's my favorite. It's a serious contender for
 
 And here we leave it, with one of the slyest references to doing it doggy style in popular music.
 
-"Pink Cadillac" is arguably the raunchiest song in Bruce's catalog ("[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)" might give it a run for its money, though), and Bruce seems to instinctively know that the secret to putting the song over is to cut the raunch with shtick. When he resurrected the song with the E Street Band in 2003 after an 18-year absence, he started out tentatively, almost nervously. But around the four-minute mark below, you can almost see him remember "oh yeah… the shtick," and he immediately loosens up.
+"Pink Cadillac" is arguably the raunchiest song in Bruce's catalog ("[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)" might give it a run for its money, though), and Bruce seems to instinctively know that the secret to putting the song over is to cut the raunch with shtick. When he resurrected the song with the E Street Band in 2003 after an 18-year absence, he started out tentatively, almost nervously. But around the four-minute mark below, you can almost see him remember "oh yeah… the shtick," and he immediately loosens up.
 
 [Watch on Youtube: Bruce Springsteen - Pink Cadillac](https://www.youtube.com/watch?v=qD5Vythvxig)
 

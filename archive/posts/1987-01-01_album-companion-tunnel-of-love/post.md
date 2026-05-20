@@ -20,19 +20,19 @@ Over the weeks and months that followed, Bruce recorded song after song, all in 
 
 At first, the songs featured optimism, or at least acceptance.
 
-- "[All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)" — the classic romance film homage about a working-class Ron who goes all in for his upper-class Cary
+- "[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)" — the classic romance film homage about a working-class Ron who goes all in for his upper-class Cary
 - "[Valentine's Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)" — the tale of a man who finally finds the strength and motivation to overcome his fear of commitment
-- "[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)" — a Billy Boy Arnold tribute by a self-mocking songwriter who realizes he's committed to the wrong person
+- "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)" — a Billy Boy Arnold tribute by a self-mocking songwriter who realizes he's committed to the wrong person
 
 As the sessions stretched on toward April, however, Bruce's songs took on more shading. His characters appeared caught in some form of purgatory, forced to make the same choices each day while they become increasingly infected by self-doubt and temptation.
 
 - "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)" — the *Night of the Hunter* tribute featuring a husband who chooses each day to resist temptation, knowing that he'll eventually decide otherwise
-- "[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)" — the Lou Christie tribute (if you haven't realized by now, *Tunnel of Love* is also very much a tribute/homage album) about a man who wrestles with his inner demons daily
+- "[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)" — the Lou Christie tribute (if you haven't realized by now, *Tunnel of Love* is also very much a tribute/homage album) about a man who wrestles with his inner demons daily
 - "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" — one of Bruce's masterpieces, about the secrets we keep from each other and the choices we make to see past our insecurities
 
 And then there are the songs that take us to the other side of a relationship:
 
-- "[When You're Alone](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/)" — What do you do when your ex realizes they made a mistake in leaving you?
+- "[When You're Alone](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md)" — What do you do when your ex realizes they made a mistake in leaving you?
 - "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)," which salutes one of the hardest choices we ever face: to once again risk heartbreak in search of love
 
 By the time these songs were in the can, Bruce and his first wife Julianne Phillips had separated, and he had long since taken up with his bandmate, Patti Scialfa. He had two more songs left in him, though, and in his early weeks of separation from Juli, he recorded two of the album's finest tracks:

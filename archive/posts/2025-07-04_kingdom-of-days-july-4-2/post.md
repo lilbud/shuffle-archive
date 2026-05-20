@@ -24,7 +24,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1983-07-04.jpg.webp)
 
-**1985:** At a rare July 4th concert, Bruce opens his second of three nights at London's Wembley Stadium with an acoustic "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)," and Little Steven once again joins the band during the encore.<br>
+**1985:** At a rare July 4th concert, Bruce opens his second of three nights at London's Wembley Stadium with an acoustic "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)," and Little Steven once again joins the band during the encore.<br>
 
 [Watch on Youtube: Bruce Springsteen - news coverage from 1985 Wembley concerts](https://www.youtube.com/watch?v=VT8tSFZ8QWs)
 
@@ -44,7 +44,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 [Watch Video Highlight](https://videopress.com/embed/QSb0VzF1)
 
-**2008:** Bruce and the E Street Band play their first of two nights at Ullevi in Gothenburg on the Magic Tour. Bruce acknowledges the date by opening the show with the tour premiere of "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"<br>
+**2008:** Bruce and the E Street Band play their first of two nights at Ullevi in Gothenburg on the Magic Tour. Bruce acknowledges the date by opening the show with the tour premiere of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/dkSKEfXZ)
 
@@ -52,7 +52,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 [Watch on Youtube: Gothenburg 04/07/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zBF2CkbbRvghJhqt8OJ1AhD)
 
-**2012:** Bruce plays an Independence Day-themed set at Bercy in Paris, featuring the tour premieres of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" and "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)," along with "[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)" and "[American Land.](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html).<br>
+**2012:** Bruce plays an Independence Day-themed set at Bercy in Paris, featuring the tour premieres of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" and "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)," along with "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" and "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)" This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - 4th of July, Asbury Park (Sandy) - 04-07-12 Paris](https://www.youtube.com/watch?v=c_vd5ZTMpNw)
 

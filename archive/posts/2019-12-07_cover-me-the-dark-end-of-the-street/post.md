@@ -8,7 +8,7 @@ One of my favorite examples is the fan who requested James Carr's "The Dark End 
 
 Carr's original 1966 recording was a hit, peaking at #10 on Billboard's Black Singles chart, and #77 on the Pop chart.
 
-But it was Clarence Carter's 1969 version that lodged itself in Bruce's memory, primarily because of Carter's spoken introduction (far longer than the song itself) that any fan who's seen Bruce perform "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" live will immediately recognize as an inspiration.
+But it was Clarence Carter's 1969 version that lodged itself in Bruce's memory, primarily because of Carter's spoken introduction (far longer than the song itself) that any fan who's seen Bruce perform "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" live will immediately recognize as an inspiration.
 
 [Watch on Youtube: Clarence Carter - Making Love (At The Dark End of The Street)](https://www.youtube.com/watch?v=weMtz14uvAw)
 

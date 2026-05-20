@@ -8,7 +8,7 @@ Not bad for a song built around a single chord.
 
 It's also just a great, bluesy rock and roll song, made for jamming–which is exactly what happened when Bruce and Graham Parker joined Southside Johnny on stage at the Stone Pony in 2001 to celebrate the 25th anniversary (a few days early) of Southside's milestone live radio simulcast.
 
-Southside, Bruce and Parker grooved on "Chain of Fools" for nine minutes (with a generous helping of John Fogerty's "[Born on the Bayou](https://estreetshuffle.com/index.php/2021/04/19/matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/)" in the middle), and while Bruce stays in a supporting role throughout the "Chain of Fools" part, we can clearly hear his prominent guitar solo and backing vocals.
+Southside, Bruce and Parker grooved on "Chain of Fools" for nine minutes (with a generous helping of John Fogerty's "[Born on the Bayou](../2021-04-19_matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/post.md)" in the middle), and while Bruce stays in a supporting role throughout the "Chain of Fools" part, we can clearly hear his prominent guitar solo and backing vocals.
 
 [Watch on Youtube: CHAIN OF FOOLS - BORN ON THE BAYOU](https://www.youtube.com/watch?v=pe1Cnl_yH1Q)
 

@@ -24,7 +24,7 @@ Cooder kept only three of Reed's verses, re-ordering them so that the song now s
 
 …before circling back to the top, and then skipping to the fifth verse.
 
-It's Cooder's cover rather than Reed's original that most likely inspired Bruce to include the song at the center of his nightly Seeger Sessions Tour in 2006 and as a bonus track on the *American Land* edition of his [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) album.
+It's Cooder's cover rather than Reed's original that most likely inspired Bruce to include the song at the center of his nightly Seeger Sessions Tour in 2006 and as a bonus track on the *American Land* edition of his [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) album.
 
 We know this, because Bruce arranged his version similarly to Cooder's (although Bruce's is more brassy and biting), and he retained the same opening verse–the only original verse to appear in his "cover."
 
@@ -55,7 +55,7 @@ Over the days that followed, residents of New Orleans found themselves isolated,
 > *Gonna be a judgment that's a fact, a righteous train rollin' down this track*<br>
 > *Tell me how can a poor man stand such times and live*<br>
 
-Bruce reaches back to another Depression-era song in his last verse: Woody Guthrie's "[I Ain't Got No Home in This World Anymore](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)," which chronicles the plight of refugees from a different American natural disaster–the Dust Bowl of the 1930s.
+Bruce reaches back to another Depression-era song in his last verse: Woody Guthrie's "[I Ain't Got No Home in This World Anymore](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)," which chronicles the plight of refugees from a different American natural disaster–the Dust Bowl of the 1930s.
 
 Bruce started performing his new edition of "How Can a Poor Man Stand Such Times and Live?" from his early Seeger Sessions rehearsal shows in Asbury Park, well aware that his tour would kick off properly in New Orleans itself. That Jazz Fest show would go down in history as one of Bruce's most powerful performances ever, and his new song was one of the show's many highlights.
 

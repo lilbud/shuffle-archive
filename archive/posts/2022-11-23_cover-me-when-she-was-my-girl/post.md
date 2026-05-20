@@ -24,7 +24,7 @@ For a few brief moments during the introduction, it seems like Bruce and Ron Ani
 
 Like almost every track on *Only the Strong Survive*, Bruce hews extremely close to the original arrangement, clocking in at almost the exact runtime and even (thankfully) including the *bum ba bum bum bum* backing vocals that my dad used to love to sing in the car. (I'd love to know who voices them in Bruce's studio recording.)
 
-The result is a light-hearted trifle of a track, nowhere near as wrought as Bruce's anguished performance on "[I Forgot to Be Your Lover.](https://estreetshuffle.com/index.php/2022/11/12/cover-me-i-forgot-to-be-your-lover/)" I wouldn't expect to see it on fan signs or set lists, but if you need a pick-me-up on a dark winter morning, "When She Was My Girl"–in any incarnation–is bound to do the trick.
+The result is a light-hearted trifle of a track, nowhere near as wrought as Bruce's anguished performance on "[I Forgot to Be Your Lover.](../2022-11-12_cover-me-i-forgot-to-be-your-lover/post.md)" I wouldn't expect to see it on fan signs or set lists, but if you need a pick-me-up on a dark winter morning, "When She Was My Girl"–in any incarnation–is bound to do the trick.
 
 **When She Was My Girl**<br>
 **Recorded:** 2021<br>

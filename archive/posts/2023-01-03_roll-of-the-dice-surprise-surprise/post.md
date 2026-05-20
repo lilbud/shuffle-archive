@@ -8,7 +8,7 @@ Because if "Surprise, Surprise" is the only "good" song to come out of Bruce's d
 
 [Watch on Youtube: Surprise, Surprise](https://www.youtube.com/watch?v=yEIBlkh4AsM)
 
-Its glorious Byrdsian production and harmonies may somewhat redeem it, but lyrically "Surprise, Surprise" is as slight as they come. Heck, we're a quarter of the way through the song before Bruce utters his eleventh non-repeating word, although he manages to get "surprise" out sixteen times in forty-five seconds, which is approaching "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" territory.
+Its glorious Byrdsian production and harmonies may somewhat redeem it, but lyrically "Surprise, Surprise" is as slight as they come. Heck, we're a quarter of the way through the song before Bruce utters his eleventh non-repeating word, although he manages to get "surprise" out sixteen times in forty-five seconds, which is approaching "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" territory.
 
 > *Well surprise, surprise, surprise*<br>
 > *Yeah surprise, surprise, surprise*<br>

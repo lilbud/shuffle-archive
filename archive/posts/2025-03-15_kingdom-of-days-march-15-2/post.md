@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1988-03-15.png.webp)
 
-**1999:** Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street Band play a mini-set that includes Springsteen classics like "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)," a duet with Wilson Pickett (and Billy Joel on keyboard) and an all-star jam on "[Let It Be](https://estreetshuffle.com/index.php/2020/11/23/matr-paul-mccartney-billy-joel-bruce-springsteen-and-more-let-it-be/)."<br>
+**1999:** Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street Band play a mini-set that includes Springsteen classics like "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)," a duet with Wilson Pickett (and Billy Joel on keyboard) and an all-star jam on "[Let It Be](../2020-11-23_matr-paul-mccartney-billy-joel-bruce-springsteen-and-more-let-it-be/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Full HOF induction - March 15, 1999](https://www.youtube.com/watch?v=rnLjmojIp20)
 
@@ -79,7 +79,7 @@ After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour
 >
 > [A post shared by Bruce Springsteen (@springsteen)](https://www.instagram.com/p/lsXmw1tu3b/?utm_source=ig_embed&utm_campaign=loading)
 
-**2016:** Night One of an outstanding three-night stand along the River Tour (2016 Edition), the final stand Bruce will ever play at the Los Angeles Memorial Sports Arena. For more highlights from this show, see my *[Where the Band Was](https://estreetshuffle.com/index.php/2018/03/15/where-the-band-was-los-angeles-march-15-2016/)*report for this show.<br>
+**2016:** Night One of an outstanding three-night stand along the River Tour (2016 Edition), the final stand Bruce will ever play at the Los Angeles Memorial Sports Arena. For more highlights from this show, see my *[Where the Band Was](../2018-03-15_where-the-band-was-los-angeles-march-15-2016/post.md)*report for this show.<br>
 
 [Watch on Youtube: Bruce Springsteen Meet Me In The City The River Tour 2016 LA](https://www.youtube.com/watch?v=vN0nwWB8sp4)
 
@@ -89,7 +89,7 @@ After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** Spotify premieres Episode 5 of *Renegades: Born in the U.S.A.*, the new podcast from Bruce and President Barack Obama. This episode is entitled "Every Man for Himself: Money and the American Dream." In addition to their conversation, Bruce performs acoustic versions of "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" and "[Used Cars.](https://estreetshuffle.com/index.php/2019/06/13/roll-of-the-dice-used-cars/)"<br>
+**2021:** Spotify premieres Episode 5 of *Renegades: Born in the U.S.A.*, the new podcast from Bruce and President Barack Obama. This episode is entitled "Every Man for Himself: Money and the American Dream." In addition to their conversation, Bruce performs acoustic versions of "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" and "[Used Cars.](../2019-06-13_roll-of-the-dice-used-cars/post.md)"<br>
 
 [Spotify Embed: Money & the American Dream](https://open.spotify.com/embed/episode/15i7EaLqjjfVeaqMqnj43w?si=4d79a9c9986a40e7&utm_source=oembed)
 

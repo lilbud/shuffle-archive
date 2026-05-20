@@ -18,9 +18,9 @@ In fact, the key to understanding "Real World" is to understand when it was writ
 
 Roy Bittan deserves just as much credit as Bruce's wife and son for the inspiration, however.
 
-Bruce was actually suffering from writer's block at the time, and he'd laid off the E Street Band just a few weeks prior. Musically aimless and lyrically blocked ("Every time I sat down to write, I was just sort of rehashing [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/), except not as good," he told *Rolling Stone* in a 1992 interview), Springsteen recalled Bittan telling him about some tracks he'd composed.
+Bruce was actually suffering from writer's block at the time, and he'd laid off the E Street Band just a few weeks prior. Musically aimless and lyrically blocked ("Every time I sat down to write, I was just sort of rehashing [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md), except not as good," he told *Rolling Stone* in a 1992 interview), Springsteen recalled Bittan telling him about some tracks he'd composed.
 
-"So I called him and said, ‘Come on over, maybe I'll try to write to some of your tracks.' So he had the music to ‘[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/),' and I came up with the idea for that, and I went home and wrote the song."
+"So I called him and said, ‘Come on over, maybe I'll try to write to some of your tracks.' So he had the music to ‘[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md),' and I came up with the idea for that, and I went home and wrote the song."
 
 That wasn't the only song Roy gave to Bruce, though: if "Roll of the Dice" was the crack in the dam, "Real World" was the gusher. Bittan had been sitting on the track, and while we don't know what his version sounded like, it's not hard to imagine it similar to how Bruce performed it.
 
@@ -34,7 +34,7 @@ Both theories hold water when listening to the album track. It certainly sounds 
 
 [Watch on Youtube: Bruce Springsteen - Real World (Audio)](https://www.youtube.com/watch?v=BPGEfeToQYw)
 
-But we also hear the soul sound that Bruce was reaching for but never quite achieves. Sam Moore is criminally wasted here. Bruce scored a coup by enlisting Moore to provide backing vocals (he guested on "[Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)" and "[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)" as well), but what should have been an electrifying soul-shouting duel of a coda sounds almost literally phoned in, thanks to a too-distant mix.
+But we also hear the soul sound that Bruce was reaching for but never quite achieves. Sam Moore is criminally wasted here. Bruce scored a coup by enlisting Moore to provide backing vocals (he guested on "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)" and "[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)" as well), but what should have been an electrifying soul-shouting duel of a coda sounds almost literally phoned in, thanks to a too-distant mix.
 
 But enough of that. Let's pretend that version doesn't exist, okay? Let's remember it the way he debuted it in 1990 and has played it live every time post-1993: warm, tender, and alone at the piano.
 
@@ -70,7 +70,7 @@ There's nothing like expectant parenthood for releasing one's grip on the past, 
 > *I still got a little faith but what I need is some proof tonight*<br>
 > *I'm looking for it in your eyes*<br>
 
-Dice aren't the only metaphor in "Real World" that shows up in another *Human Touch-*era song. We'll see "[Over the Rise](https://estreetshuffle.com/index.php/2020/07/12/roll-of-the-dice-over-the-rise/)" again, too. But that's not the noteworthy line in this verse. That honor belongs to: *I still got a little faith but what I need is some proof tonight.*
+Dice aren't the only metaphor in "Real World" that shows up in another *Human Touch-*era song. We'll see "[Over the Rise](../2020-07-12_roll-of-the-dice-over-the-rise/post.md)" again, too. But that's not the noteworthy line in this verse. That honor belongs to: *I still got a little faith but what I need is some proof tonight.*
 
 That line is almost certainly a callback to "Thunder Road" and the bravado and fearlessness of youth. Fifteen years on, there may still be some magic left in that night, but reserves of faith aren't enough to sustain our world-weary hero.
 

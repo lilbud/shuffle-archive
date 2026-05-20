@@ -8,7 +8,7 @@ This wouldn’t be the only time Bowie would record and then shelve a Springstee
 
 [Watch on Youtube: David Bowie-It's Hard To Be A Saint In The City](https://www.youtube.com/watch?v=_pDYK4Ns-co)
 
-Bowie eventually released both songs: [his cover of “It’s Hard to be a Saint in the City”](https://estreetshuffle.com/index.php/2018/01/10/cover-me-david-bowie-its-hard-to-be-a-saint-in-the-city/) saw the light of day first, on Bowie’s *Sound + Vision* box set in 1989; “Growin’ Up” followed in 1990 when it was included as a bonus track on the re-release of *Pin Ups*.
+Bowie eventually released both songs: [his cover of “It’s Hard to be a Saint in the City”](../2018-01-10_cover-me-david-bowie-its-hard-to-be-a-saint-in-the-city/post.md) saw the light of day first, on Bowie’s *Sound + Vision* box set in 1989; “Growin’ Up” followed in 1990 when it was included as a bonus track on the re-release of *Pin Ups*.
 
 The two destined-to-be-iconic musicians didn’t even know each other at the time Bowie recorded both songs, but they would meet shortly thereafter. For the story of their first meeting, see [Kingdom of Days: November 25](https://estreetshuffle.com/index.php/2018/11/25/kingdom-of-days-november-25/).
 

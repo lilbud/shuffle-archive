@@ -18,7 +18,7 @@ So let's look at the first half at least. Special props to the folks at [Springs
 > *Oh, but that's a chance that you take*<br>
 > *Something's gotta break*<br>
 
-Based on this first verse, "Something's Gotta Break" sounds like it treads similar ground as "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" will more than a decade later. A son entreats his mother to stay strong and let him help provide for their family. The title phrase is a statement both of faith and desperation–these characters need to hold fast to the notion that something has to change someday, because their current situation seems untenable, as Bruce explains in the next verse:
+Based on this first verse, "Something's Gotta Break" sounds like it treads similar ground as "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" will more than a decade later. A son entreats his mother to stay strong and let him help provide for their family. The title phrase is a statement both of faith and desperation–these characters need to hold fast to the notion that something has to change someday, because their current situation seems untenable, as Bruce explains in the next verse:
 
 > *Hey I know you know just what's goin' on*<br>
 > *But you say that's all right, yeah, that's all right*<br>

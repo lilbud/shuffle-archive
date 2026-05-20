@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-19.png.webp)
 
-**1995:** The *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)* October Assault moves on to Philadelphia, where Bruce again joins Joe Grushecky and The Houserockers at their show at the Electric Factory. After the show, local WMMR-FM DJ Ed Sciaky (a *longtime* fan and supporter of Bruce) stops backstage to interview Joe and Bruce.<br>
+**1995:** The *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)* October Assault moves on to Philadelphia, where Bruce again joins Joe Grushecky and The Houserockers at their show at the Electric Factory. After the show, local WMMR-FM DJ Ed Sciaky (a *longtime* fan and supporter of Bruce) stops backstage to interview Joe and Bruce.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/w1GwRcTv)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2001-10-19.png.webp)
 
-**2004:** *Enjoy Every Sandwich: The Songs of Warren Zevon* is released. Bruce contributes a track to the tribute album, his live 2003 performance of "[My Ride's Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/)."<br>
+**2004:** *Enjoy Every Sandwich: The Songs of Warren Zevon* is released. Bruce contributes a track to the tribute album, his live 2003 performance of "[My Ride's Here](../2022-03-24_cover-me-my-rides-here/post.md)."<br>
 
 [Watch on Youtube: My Ride's Here](https://www.youtube.com/watch?v=m6h4ULA0Q10)
 
@@ -82,7 +82,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Madrid 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=x9bHS79zB3w)
 
-**2009:** Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–"[When You Walk in the Room](https://estreetshuffle.com/?p=21789)," played here for the first time in 33 years. The setlist also features the first full-band "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)" in 27 years and the on-stage debut of "Philly Elvis" (a.k.a Nick Ferraro) for the tour premiere of "[All Shook Up](https://estreetshuffle.com/index.php/2019/08/03/matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/)." Oh and not for nothing, the show also includes a full album performance of *Born to Run*. For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/10/19/where-the-band-was-philadelphia-october-19-2009/)<br>
+**2009:** Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–"[When You Walk in the Room](https://estreetshuffle.com/?p=21789)," played here for the first time in 33 years. The setlist also features the first full-band "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" in 27 years and the on-stage debut of "Philly Elvis" (a.k.a Nick Ferraro) for the tour premiere of "[All Shook Up](../2019-08-03_matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/post.md)." Oh and not for nothing, the show also includes a full album performance of *Born to Run*. For more highlights from this show, see my [*Where the Band Was* report.](../2018-10-19_where-the-band-was-philadelphia-october-19-2009/post.md)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RSUrvwNj)
 
@@ -92,7 +92,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2009-10-19.png.webp)
 
-**2012:** Bruce kicks off the final North American leg of the Wrecking Ball Tour with a show at Scotiabank Place in Ottawa, where "[Queen of the Supermarket](https://estreetshuffle.com/index.php/2018/10/04/roll-of-the-dice-queen-of-the-supermarket/)" receives only its second-ever performance, and its first in a solo acoustic arrangement.<br>
+**2012:** Bruce kicks off the final North American leg of the Wrecking Ball Tour with a show at Scotiabank Place in Ottawa, where "[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md)" receives only its second-ever performance, and its first in a solo acoustic arrangement.<br>
 
 [Watch on Youtube: Prove it All Night ('78 intro) - Bruce Springsteen - 20121019 Ottawa](https://www.youtube.com/watch?v=Xoh5vFLDeTE)
 
@@ -110,7 +110,7 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, and Bruce releases a new song, a cover of "[If I Had a Hammer](https://estreetshuffle.com/index.php/2019/10/07/cover-me-if-i-had-a-hammer/)," on an anniversary compilation for Appleseed Records. The song was recorded during the Seeger Sessions in 2006.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, and Bruce releases a new song, a cover of "[If I Had a Hammer](../2019-10-07_cover-me-if-i-had-a-hammer/post.md)," on an anniversary compilation for Appleseed Records. The song was recorded during the Seeger Sessions in 2006.<br>
 
 [Watch on Youtube: If I Had a Hammer (The Hammer Song)](https://www.youtube.com/watch?v=ZbrEKXppwMQ)
 

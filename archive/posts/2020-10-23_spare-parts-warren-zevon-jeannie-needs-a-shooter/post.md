@@ -6,9 +6,9 @@ If only we could authoritatively unravel Bruce's specific contributions we'd be 
 
 Let's see how we do.
 
-Bruce recorded a song called "[Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)" in early 1973, and he's only just now getting around to releasing it on *Letter to You*, 47 years later (albeit as a new 2019 recording with the E Street Band).
+Bruce recorded a song called "[Janey Needs a Shooter](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md)" in early 1973, and he's only just now getting around to releasing it on *Letter to You*, 47 years later (albeit as a new 2019 recording with the E Street Band).
 
-"Janey Needs a Shooter" is a terrific early (and now recent) E Street Band performance, and if you'd like to read my full analysis of it, check out my earlier article [here](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/).
+"Janey Needs a Shooter" is a terrific early (and now recent) E Street Band performance, and if you'd like to read my full analysis of it, check out my earlier article [here](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md).
 
 Suffice to say, it's a great song with many fans, including one Warren Zevon.
 

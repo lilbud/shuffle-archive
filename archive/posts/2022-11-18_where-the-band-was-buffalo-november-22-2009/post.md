@@ -2,11 +2,11 @@ Way, way, up near the top of my favorite shows list lies this one. Certainly one
 
 One of the rules of Springsteen tours is that the penultimate show is almost always way better than the final show of the tour. This show was the exception, and over the last nine years it's only grown in stature.
 
-Not just because of one of the earliest performances of "[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)" (two years away from official release)…
+Not just because of one of the earliest performances of "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" (two years away from official release)…
 
 [Watch on Youtube: Springsteen "Wrecking Ball" Buffalo 11-22-09](https://www.youtube.com/watch?v=xUnqR9rQGWk)
 
-…or for the first-and-only-ever performance of Bruce's very first album start-to-finish (including the first-ever E Street Band performance of "[The Angel,](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)" complete with viola), dedicated to Bruce's original manager Mike Appel…
+…or for the first-and-only-ever performance of Bruce's very first album start-to-finish (including the first-ever E Street Band performance of "[The Angel,](../2020-09-26_roll-of-the-dice-the-angel/post.md)" complete with viola), dedicated to Bruce's original manager Mike Appel…
 
 [Watch on Youtube: Bruce Springsteen - The Angel](https://www.youtube.com/watch?v=dBVO6p797Yk)
 
@@ -14,17 +14,17 @@ Not just because of one of the earliest performances of "[Wrecking Ball](https:/
 
 [Watch on Youtube: Bruce Springsteen - Restless Nights - 22-11-09](https://www.youtube.com/watch?v=P30Jj1vgRsA)
 
-…or for Bruce's own dedication of a rare "[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)" for Steve's birthday (with cake!)…
+…or for Bruce's own dedication of a rare "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" for Steve's birthday (with cake!)…
 
 [Watch on Youtube: Springsteen "Surprise Surprise" Buffalo 11-22-09](https://www.youtube.com/watch?v=KADuwwUHbtU)
 
-…or even for the spectacular sign-request block, leading off with the it's-almost-Christmas double-shot of "[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)" and "[Santa Claus is Coming to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)…"
+…or even for the spectacular sign-request block, leading off with the it's-almost-Christmas double-shot of "[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)" and "[Santa Claus is Coming to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)…"
 
 [Watch on Youtube: Springsteen "Green Onions" Buffalo 11-22-09](https://www.youtube.com/watch?v=nI4USi3emds)
 
 [Watch on Youtube: Springsteen - Merry Christmas into Santa Claus - Buffalo.mp4](https://www.youtube.com/watch?v=p1hz7meYMLk)
 
-…followed immediately by the perfectly-apt-for-a-tour-finale "[Hang Up My Rock and Roll Shoes](https://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)" and a joyously intense pairing of "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" and "[My Love Will Not Let You Down.](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)"
+…followed immediately by the perfectly-apt-for-a-tour-finale "[Hang Up My Rock and Roll Shoes](../2018-05-13_cover-me-hang-up-my-rock-and-roll-shoes/post.md)" and a joyously intense pairing of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[My Love Will Not Let You Down.](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)"
 
 [Watch on Youtube: Springsteen Rock and Roll shoes Buffalo 11/22/09](https://www.youtube.com/watch?v=um-cgOgcxfc)
 
@@ -32,7 +32,7 @@ Not just because of one of the earliest performances of "[Wrecking Ball](https:/
 
 [Watch on Youtube: Springsteen "My Love Will Not Let You Down" Buffalo 11-22-09](https://www.youtube.com/watch?v=miqTRjDzvsk)
 
-Not even for his subtle but unmistakable love letter and promise to his fans that opened the encore–an acoustic "[I'll Work for Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)."
+Not even for his subtle but unmistakable love letter and promise to his fans that opened the encore–an acoustic "[I'll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)."
 
 [Watch on Youtube: Bruce Springsteen-I'll Work For Your Love -11/22/09 Buffalo, NY](https://www.youtube.com/watch?v=6MgLp46U4oo)
 
@@ -58,7 +58,7 @@ Going into the show that night, the rumor and fear among fans was that this was 
 
 I didn't know that not only would there be at least three more tours ahead of us, but even four-hour-plus marathon shows that would make setlists like this one pale by comparison.
 
-But it didn't take long for Bruce to dispel any notion of retirement. Early in the show he promised that the E Street Band was going away "for just a little while" and the encores of "[I'll Work For Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)," "Higher and Higher" and "Rockin' All Over the World" sent a message and a promise loud and clear: there would be many, many shows to come.
+But it didn't take long for Bruce to dispel any notion of retirement. Early in the show he promised that the E Street Band was going away "for just a little while" and the encores of "[I'll Work For Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)," "Higher and Higher" and "Rockin' All Over the World" sent a message and a promise loud and clear: there would be many, many shows to come.
 
 But in a sense, it very much was the end of an era. The next time any of us saw the E Street Band again (other than a select lucky few who witnessed a private promotional concert in late 2010), it would be missing a big piece of its heart and soul.
 

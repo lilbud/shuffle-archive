@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1968-0913.jpg.webp)
 
-**1975:** Bruce and the E Street Band play their first of two shows at the Houston Music Hall, where they play "[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)" for the first time. (The video below is dubbed because the footage is silent, but it's pretty great quality for a show this old.)<br>
+**1975:** Bruce and the E Street Band play their first of two shows at the Houston Music Hall, where they play "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" for the first time. (The video below is dubbed because the footage is silent, but it's pretty great quality for a show this old.)<br>
 
 [Watch on Youtube: Bruce Springsteen 13th September 1975.avi](https://www.youtube.com/watch?v=KqXTZAvoTcY)
 
@@ -40,13 +40,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1984-09-13.jpg.webp)
 
-**1985:** At the MTV Video Music Awards, "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" wins the award for Best Male Video, and "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" wins the award for Best Stage Performance in a Video (but loses to Philip Bailey and Phil Collins' "Easy Lover" in the Best Overall Performance in a Video category). Little Steven and John Sayles are on hand to accept the award on Bruce's behalf (ironically, since Little Steven is no longer in the E Street Band).<br>
+**1985:** At the MTV Video Music Awards, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" wins the award for Best Male Video, and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" wins the award for Best Stage Performance in a Video (but loses to Philip Bailey and Phil Collins' "Easy Lover" in the Best Overall Performance in a Video category). Little Steven and John Sayles are on hand to accept the award on Bruce's behalf (ironically, since Little Steven is no longer in the E Street Band).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/12KMj7U1)
 
 [Watch Video Highlight](https://videopress.com/embed/hYRH5uew)
 
-Why isn't Bruce there to accept his award? Because he's on stage with the E Street Band at the Cotton Bowl in Dallas, where "Travelin" Band" makes its tour premiere as the show closer, and Bruce forgets the words to "[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)."
+Why isn't Bruce there to accept his award? Because he's on stage with the E Street Band at the Cotton Bowl in Dallas, where "Travelin" Band" makes its tour premiere as the show closer, and Bruce forgets the words to "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)."
 
 [Watch Video Highlight](https://videopress.com/embed/TNM9ebpw)
 
@@ -84,7 +84,7 @@ Why isn't Bruce there to accept his award? Because he's on stage with the E Stre
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1999-09-13d.jpg.webp)
 
-**2003:** The Rising Tour is in its last month, and the set lists are getting looser. Bruce opens his show at FedEx Field in Landover, Maryland, with his first ever performance of "[I Walk the Line](https://estreetshuffle.com/index.php/2020/06/16/cover-me-i-walk-the-line/)" in memory of the recently departed Johnny Cash. Bruce also tour premieres "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)" (played for the first time in 18 years) and "[Paradise](https://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)" (not played since the rehearsal shows over a year earlier).<br>
+**2003:** The Rising Tour is in its last month, and the set lists are getting looser. Bruce opens his show at FedEx Field in Landover, Maryland, with his first ever performance of "[I Walk the Line](../2020-06-16_cover-me-i-walk-the-line/post.md)" in memory of the recently departed Johnny Cash. Bruce also tour premieres "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" (played for the first time in 18 years) and "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" (not played since the rehearsal shows over a year earlier).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fh6CkRqH)
 
@@ -94,7 +94,7 @@ Why isn't Bruce there to accept his award? Because he's on stage with the E Stre
 
 **2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.<br>
 
-**2009:** Bruce and the band take the Working on a Dream Tour to Sunrise, Florida, where the encores include the surprising tour premiere of "[Then She Kissed Me.](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)" Oh, and "Hava Nagilla." (Not really, just a snippet.)<br>
+**2009:** Bruce and the band take the Working on a Dream Tour to Sunrise, Florida, where the encores include the surprising tour premiere of "[Then She Kissed Me.](../2020-12-03_cover-me-then-she-kissed-me/post.md)" Oh, and "Hava Nagilla." (Not really, just a snippet.)<br>
 
 [Watch on Youtube: Bruce Springsteen - Hava Nagila/Sherry Darlin - Ft. Lauderdale Sunrise FL 9/13/2009](https://www.youtube.com/watch?v=BmbK6etT7tU)
 
@@ -112,7 +112,7 @@ Why isn't Bruce there to accept his award? Because he's on stage with the E Stre
 
 [Watch on Youtube: Jann Wenner in Conversation with Bruce Springsteen at the 92NY](https://www.youtube.com/watch?v=iiYxFR-huF0)
 
-**2024:** More than a year after originally scheduled, Bruce and the E Street Band bring World Tour '24 to Oriole Park in Baltimore, where "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" opens the show for the first time ever.<br>
+**2024:** More than a year after originally scheduled, Bruce and the E Street Band bring World Tour '24 to Oriole Park in Baltimore, where "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" opens the show for the first time ever.<br>
 
 [Watch on Youtube: Springsteen - Hungry Heart / Sherry Darling - Baltimore - September 13, 2024](https://www.youtube.com/watch?v=lVKL4QvF20s)
 

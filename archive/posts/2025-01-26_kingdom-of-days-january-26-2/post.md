@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1974-0126.jpg.webp)
 
-**1981:** On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: "[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)" (after teaching the lyrics to the band during intermission) and "[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)."<br>
+**1981:** On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: "[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)" (after teaching the lyrics to the band during intermission) and "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1N1myPz6)
 
@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1985-01-26a.jpg.webp)
 
-**1996:** Bruce plays solo at the Bronco Bowl in Dallas, debuting "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)" for the first time on the Ghost of Tom Joad Tour.<br>
+**1996:** Bruce plays solo at the Bronco Bowl in Dallas, debuting "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" for the first time on the Ghost of Tom Joad Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NFPZTvFe)
 
@@ -34,7 +34,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3](https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3)
 
-**2014:** The *High Hopes* Tour kicks off in Cape Town South Africa, with the live debut of "[Free Nelson Mandela](https://estreetshuffle.com/index.php/2018/07/10/cover-me-free-nelson-mandela/)" and the concert premieres of "[Heaven's Wall.](https://estreetshuffle.com/index.php/2020/02/02/roll-of-the-dice-heavens-wall/)" Tom Morello joins the E Street Band for this show and will remain a touring band member throughout the entire tour. (Photo credit: Jo Lopez)<br>
+**2014:** The *High Hopes* Tour kicks off in Cape Town South Africa, with the live debut of "[Free Nelson Mandela](../2018-07-10_cover-me-free-nelson-mandela/post.md)" and the concert premieres of "[Heaven's Wall.](../2020-02-02_roll-of-the-dice-heavens-wall/post.md)" Tom Morello joins the E Street Band for this show and will remain a touring band member throughout the entire tour. (Photo credit: Jo Lopez)<br>
 
 [Watch on Youtube: Bruce Springsteen: Mandela Was The Real Boss](https://www.youtube.com/watch?v=FOCnZ6xwxTI)
 

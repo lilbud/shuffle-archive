@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/SLGR7g0C)
 
-**1984:** Bruce and the band play their second of six shows at the Philadelphia Spectrum on the Born in the U.S.A. Tour, tour premiering "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)."<br>
+**1984:** Bruce and the band play their second of six shows at the Philadelphia Spectrum on the Born in the U.S.A. Tour, tour premiering "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cs34IgKs)
 
@@ -28,7 +28,7 @@
 
 **2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.<br>
 
-**2009:** The Working on a Dream Tour starts a southern swing with a show at the Ford Amphitheater in Tampa, with two notable tour premieres: the very first E Street Band performance of "[All or Nothin' At All](https://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)" and "[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)" (last played by the E Street Band 28 years prior).<br>
+**2009:** The Working on a Dream Tour starts a southern swing with a show at the Ford Amphitheater in Tampa, with two notable tour premieres: the very first E Street Band performance of "[All or Nothin' At All](../2018-01-30_roll-of-the-dice-all-or-nothing-at-all/post.md)" and "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" (last played by the E Street Band 28 years prior).<br>
 
 [Watch on Youtube: Raise Your Hand, Bruce Springsteen, Tampa 9/12/09](https://www.youtube.com/watch?v=OpaaaA0M0j8)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-12b.jpg.webp)
 
-**2013:** The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in Santiago, Chile, Bruce's first performance in this country. The encores begin with a Spanish-language cover of "[Manifesto](https://estreetshuffle.com/index.php/2021/01/31/cover-me-manifesto/)" by activist Victor Jara, sung by Bruce in Spanish.<br>
+**2013:** The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in Santiago, Chile, Bruce's first performance in this country. The encores begin with a Spanish-language cover of "[Manifesto](../2021-01-31_cover-me-manifesto/post.md)" by activist Victor Jara, sung by Bruce in Spanish.<br>
 
 [Watch on Youtube: Manifiesto (Live in Santiago, 09/12/13)](https://www.youtube.com/watch?v=JNQm1Plu63k)
 

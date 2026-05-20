@@ -2,7 +2,7 @@
 
 **1969:** Child headlines at the eighth grade graduation concert at Blessed Sacrament Regional School in Margate, New Jersey.<br>
 
-**1972:** Recording sessions begin for Bruce's first album, *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Bruce records five solo tracks today: "[Arabian Nights,](https://estreetshuffle.com/index.php/2021/03/23/roll-of-the-dice-arabian-nights/)" "[Cowboys of the Sea](https://estreetshuffle.com/index.php/2021/09/17/roll-of-the-dice-cowboys-of-the-sea/)," "[Growin' Up,](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" "[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/)," and "[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/)." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
+**1972:** Recording sessions begin for Bruce's first album, *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*Bruce records five solo tracks today: "[Arabian Nights,](../2021-03-23_roll-of-the-dice-arabian-nights/post.md)" "[Cowboys of the Sea](../2021-09-17_roll-of-the-dice-cowboys-of-the-sea/post.md)," "[Growin' Up,](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" "[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/)," and "[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/)." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/IvoYACpv)
 
@@ -14,9 +14,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1976-0612.jpg.webp)
 
-**1977:** Bruce and the band work on "[Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)" at Atlantic Studios in New York City.<br>
+**1977:** Bruce and the band work on "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)" at Atlantic Studios in New York City.<br>
 
-**1981:** In Birmingham, Pete Townshend makes a guest appearance in the encores of the first show of the last European stand of the River Tour. In the main set, Bruce performs "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" for the last time for 24 years.<br>
+**1981:** In Birmingham, Pete Townshend makes a guest appearance in the encores of the first show of the last European stand of the River Tour. In the main set, Bruce performs "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" for the last time for 24 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Drive all night (Birmingham 1981)](https://www.youtube.com/watch?v=SWQc_xELokY)
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
-**1999:** "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)" makes its Reunion Tour premiere at the Estadio de la Comunidad in Madrid.<br>
+**1999:** "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" makes its Reunion Tour premiere at the Estadio de la Comunidad in Madrid.<br>
 
 [Watch on Youtube: bruce springsteen madrid la peineta 1999 TVE, canal plus, a](https://www.youtube.com/watch?v=95dOlNZgJoQ)
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Light of day with a snippet of 'Wipe out' of The surfaris](https://www.youtube.com/watch?v=D5qUFPcnuJU)
 
-**2005:** Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" and "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)."<br>
+**2005:** Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" and "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9YTQEWlJ)
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen - MY BEAUTIFUL REWARD 2005 live (on pump organ)](https://www.youtube.com/watch?v=obE4S0udwos)
 
-**2009:** At the final night in Sweden for the Working on a Dream Tour, Bruce tour premieres "[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)," (its first E Street outing since 1981) and "[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)."<br>
+**2009:** At the final night in Sweden for the Working on a Dream Tour, Bruce tour premieres "[The River,](../2021-03-04_roll-of-the-dice-the-river/post.md)" "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)," (its first E Street outing since 1981) and "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - The River (Live @ Stockholm Stadium 2009-06-07)](https://www.youtube.com/watch?v=MT52j7jnDcc)
 

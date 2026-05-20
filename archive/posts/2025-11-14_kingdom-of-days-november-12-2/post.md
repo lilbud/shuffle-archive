@@ -4,11 +4,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1971-11-12.jpg.webp)
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to RPI in Troy, New York. The soundcheck is captured on tape, so we have a document (albeit of poor quality) of Bruce playing a cover of "[Apache](https://estreetshuffle.com/index.php/2022/01/17/cover-me-apache/)" by The Shadows (which has never surfaced in his actual setlists).<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to RPI in Troy, New York. The soundcheck is captured on tape, so we have a document (albeit of poor quality) of Bruce playing a cover of "[Apache](../2022-01-17_cover-me-apache/post.md)" by The Shadows (which has never surfaced in his actual setlists).<br>
 
 [Watch on Youtube: Bruce Springsteen - Live in Troy, soundcheck, 1978-11-12](https://www.youtube.com/watch?v=fmX1-hZ6MbM)
 
-**1984:** On Night Two in Denver on the Born in the U.S.A. Tour, Bruce switches up the setlist and possibly confuses himself a bit in the process: "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)" (in its last tour performance) has its lyrics jumbled in the third verse.<br>
+**1984:** On Night Two in Denver on the Born in the U.S.A. Tour, Bruce switches up the setlist and possibly confuses himself a bit in the process: "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" (in its last tour performance) has its lyrics jumbled in the third verse.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1OkiKYgo)
 
@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Daily_News_2001_11_14_43-scaled.jpg.webp)
 
-**2002:** Clarence is back in action after eye surgery, and Bruce starts their Rising show in Cincinnati with a speech decrying racism (referencing recent police brutality and a subsequent boycott) before launching into "American Skin (41 Shots)," making this the first time since the tour began that "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" does not open the show. In the encores, Bruce takes a rare (at this time, at least) sign request and plays "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)."<br>
+**2002:** Clarence is back in action after eye surgery, and Bruce starts their Rising show in Cincinnati with a speech decrying racism (referencing recent police brutality and a subsequent boycott) before launching into "American Skin (41 Shots)," making this the first time since the tour began that "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" does not open the show. In the encores, Bruce takes a rare (at this time, at least) sign request and plays "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ajh8Trpa)
 
@@ -52,11 +52,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Independent_Tue__Nov_21__2006_-scaled.jpg.webp)
 
-**2007:** On Night Two at Washington DC's Verizon Center on the Magic Tour, "[Town Called Heartbreak](https://estreetshuffle.com/index.php/2020/08/09/matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/)" makes its last appearance to date.<br>
+**2007:** On Night Two at Washington DC's Verizon Center on the Magic Tour, "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)" makes its last appearance to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/c0XuEkmd)
 
-**2012:** St. Paul gets two notable tour premieres at their second of two Wrecking Ball shows: "Stolen Car" and the first-ever full-band "[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)." Don't think that the show is all serious, though: Bruce opens with "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)" (the first time that's ever happened) followed immediately by "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," setting the tone for an unusual night. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25894/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-12-2012-Xcel-Energy-Center-St-Paul-MN.html).<br>
+**2012:** St. Paul gets two notable tour premieres at their second of two Wrecking Ball shows: "Stolen Car" and the first-ever full-band "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)." Don't think that the show is all serious, though: Bruce opens with "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" (the first time that's ever happened) followed immediately by "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," setting the tone for an unusual night. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25894/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-12-2012-Xcel-Energy-Center-St-Paul-MN.html).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band ~ I'm A Rocker ~ St. Paul, MN. ~ 11.12.2012](https://www.youtube.com/watch?v=hxdhmvXgW6I)
 

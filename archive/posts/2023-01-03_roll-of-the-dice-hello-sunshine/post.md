@@ -4,11 +4,11 @@ Around a minute and 45 seconds into "Hello Sunshine," we're treated to something
 
 Those thirty wordless seconds–that's the sound of pure contentment.
 
-Have we ever heard Bruce sound so deeply satisfied before? I don't think so. One could make an argument for outtakes like "[County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)" and "[The Honeymooners,](https://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/)" I suppose, but those songs focus on a single perfect day–we instinctively know that the narrators of those songs are experiencing a brief moment of time out of time.
+Have we ever heard Bruce sound so deeply satisfied before? I don't think so. One could make an argument for outtakes like "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)" and "[The Honeymooners,](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)" I suppose, but those songs focus on a single perfect day–we instinctively know that the narrators of those songs are experiencing a brief moment of time out of time.
 
-There's also "[Happy](https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/)," of course, but that's the song of a new dad in his babymoon phase–all new parents go through that (emphasis on *through*).
+There's also "[Happy](../2019-07-28_roll-of-the-dice-happy/post.md)," of course, but that's the song of a new dad in his babymoon phase–all new parents go through that (emphasis on *through*).
 
-"[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)" may be the song that comes closest, and there's a strong thematic through line that not only connects "Kingdom of Days" to "Hello Sunshine" but also connects their respective albums.
+"[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)" may be the song that comes closest, and there's a strong thematic through line that not only connects "Kingdom of Days" to "Hello Sunshine" but also connects their respective albums.
 
 No, there's something different about the deep satisfaction expressed by the narrator of "Hello Sunshine." It feels permanent, or at least enduring and earned.
 
@@ -22,7 +22,7 @@ Let's take another listen.
 
 Rarely does Bruce employ music as a narrative device so effectively as he does in "Hello Sunshine."
 
-We don't need the video to tell us we're on an open road–we realize that from the opening bars. Matt Chamberlain (the unsung percussionist hero on "[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)" and "[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)" as well) carries us along entirely on his brushes, save for a single drumbeat that punctuates the song like the rhythmic seams along the highway.
+We don't need the video to tell us we're on an open road–we realize that from the opening bars. Matt Chamberlain (the unsung percussionist hero on "[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" and "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)" as well) carries us along entirely on his brushes, save for a single drumbeat that punctuates the song like the rhythmic seams along the highway.
 
 After a few seconds, Ron Aniello's bossa nova bass line kicks in with a simple riff that merges with Chamberlain's percussion to form a rhythm line that literally *sounds* like the open road.
 
@@ -83,7 +83,7 @@ It's only with that gorgeous wordless bridge that we finally hear an instrumenta
 
 An instrumental coda carries us off towards sunset, fading out rather than ending in order to leave us with the impression of a long road of contentment ahead for our narrator.
 
-It's a beautiful note to end the song on–and combined with the sublime "[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)" that follows it, "Hello Sunshine" closes *Western Stars* on a deeply optimistic note–a note of hope and possibility.
+It's a beautiful note to end the song on–and combined with the sublime "[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" that follows it, "Hello Sunshine" closes *Western Stars* on a deeply optimistic note–a note of hope and possibility.
 
 On this first day of a new year, may you feel that same hope and possibility–and sunshine–as well.
 

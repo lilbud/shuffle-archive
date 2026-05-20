@@ -10,7 +10,7 @@ Occasionally, though, one of the band members would stand close enough to the bo
 
 We likely wouldn't even know the title of this abandoned song had The Big Man not been standing so close to the recorder, but we can't possibly miss him or his shouted "I Don't Wanna Be!" vocals.
 
-As far as we know, "I Don't Wanna Be" never developed into a full song. It's melody, however, is *very* familiar. After at least a half dozen failed melodic attempts, Bruce grafted an evolved version of "I Don't Wanna Be" onto "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)."
+As far as we know, "I Don't Wanna Be" never developed into a full song. It's melody, however, is *very* familiar. After at least a half dozen failed melodic attempts, Bruce grafted an evolved version of "I Don't Wanna Be" onto "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)."
 
 **I Don't Wanna Be**<br>
 **Recorded:** May 1979 (rehearsal only)<br>

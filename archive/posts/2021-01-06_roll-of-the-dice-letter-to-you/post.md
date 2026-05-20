@@ -16,7 +16,7 @@ a) I'm incredibly grateful to have *any* new music from Bruce at all right now
 
 b) I'm genuinely moved by the sentiment he conveys in the song
 
-c) I really enjoy the album–it's just this one track I don't like. The lazy rhymes, the musical recycling (am I the only one who hears Max playing "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" the entire time?), the vocals strained to overwrought…
+c) I really enjoy the album–it's just this one track I don't like. The lazy rhymes, the musical recycling (am I the only one who hears Max playing "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" the entire time?), the vocals strained to overwrought…
 
 Yeah, I wasn't kind in my original essay.
 

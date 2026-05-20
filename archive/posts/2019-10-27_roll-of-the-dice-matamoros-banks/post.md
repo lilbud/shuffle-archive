@@ -8,7 +8,7 @@ Closing out Bruce's similarly under-the-radar 2005 album *Devils & Dust*, "Matam
 
 Yet despite its prominent placement and Bruce's nightly PSA-by-way-of-explanation, "Matamoros Banks" has all but disappeared from discussion while its relevancy has sadly peaked.
 
-It's unclear when Bruce wrote "Matamoros Banks," but good money would stake out a bet on *The Ghost of Tom Joad* era from the mid-nineties. Certainly, "Matamoros Banks" serves as a tragic sequel to Bruce's gorgeous, hopeful "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)" from his 1995 album.
+It's unclear when Bruce wrote "Matamoros Banks," but good money would stake out a bet on *The Ghost of Tom Joad* era from the mid-nineties. Certainly, "Matamoros Banks" serves as a tragic sequel to Bruce's gorgeous, hopeful "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)" from his 1995 album.
 
 "Across the Border" is a dream of soon-to-be-reunited love, sung by a Mexican migrant on the evening before his attempted border crossing; "Matamoros Banks" tells the story of the crossing itself, as the dream gives way to a nightmarish reality. Or perhaps more accurately, the reverse.
 

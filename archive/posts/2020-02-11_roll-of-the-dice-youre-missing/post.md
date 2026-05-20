@@ -6,9 +6,9 @@ There had been calls to arms, calls to caution, and calls to nationalism disguis
 
 And then, in the summer of 2002 came *The Rising*, Bruce Springsteen's first album of new original material in seven years. *The Rising* was and still is commonly considered a 9/11 album, but in truth most of the songs had been written, performed, and in some cases recorded long before.
 
-But towards the end of the album comes a remarkable three-song sequence that directly addresses the tragedy of the year before. The title track is the centerpiece, drawing us into a 9/11 first responder's final moments. "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" is bookended by two songs that focus on the loss felt by those left behind by the ones who rose on that day.
+But towards the end of the album comes a remarkable three-song sequence that directly addresses the tragedy of the year before. The title track is the centerpiece, drawing us into a 9/11 first responder's final moments. "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" is bookended by two songs that focus on the loss felt by those left behind by the ones who rose on that day.
 
-Of the two, "[Paradise](https://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)" is the more artistic; I shared my thoughts on it during the earliest days of my blog. But "You're Missing" is the more powerful song for its simplicity.
+Of the two, "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" is the more artistic; I shared my thoughts on it during the earliest days of my blog. But "You're Missing" is the more powerful song for its simplicity.
 
 [Watch on Youtube: You're Missing](https://www.youtube.com/watch?v=V_1escDofdQ)
 
@@ -76,7 +76,7 @@ The final couplet of the song is the one that's generated the most discussion ov
 
 "You're Missing" is a song filled with simple and literal imagery–yet Bruce closes it with religious and abstract metaphor.
 
-Because it was written in the aftermath of 9/11 (although Bruce drew liberally from his lyrically and thematically similar "[Missing](https://estreetshuffle.com/index.php/2021/01/10/roll-of-the-dice-missing/)" from 1996), literal-minded critics and fans believe the devil in the mailbox is a direct reference to the recent anthrax postal attacks; the dust on the narrator's shoes a reminder if not a remnant of the World Trade Center attacks. Others argue that the devil is symbolic, that Bruce is arguing that in the aftermath of such evil, it's easy to succumb to hate and hard to keep one's faith.
+Because it was written in the aftermath of 9/11 (although Bruce drew liberally from his lyrically and thematically similar "[Missing](../2021-01-10_roll-of-the-dice-missing/post.md)" from 1996), literal-minded critics and fans believe the devil in the mailbox is a direct reference to the recent anthrax postal attacks; the dust on the narrator's shoes a reminder if not a remnant of the World Trade Center attacks. Others argue that the devil is symbolic, that Bruce is arguing that in the aftermath of such evil, it's easy to succumb to hate and hard to keep one's faith.
 
 Who's right? If you ask me, I think it's a silly argument. Bruce is too meticulous in his songwriting to not realize that listeners would associate his metaphor with specific events–but he's also too much the poet to anchor the song to a specific time period. The answer is: Bruce write in layers, and he intentionally chose a metaphor that works on both levels. To debate and choose a side is to not recognize Bruce's artistry at work.
 
@@ -92,7 +92,7 @@ Bruce performed "You're Missing" over 100 times throughout the Rising Tour, in a
 
 So if you ask me for my favorite live performance of "You're Missing," I'll choose the one almost no one was in the room for: on October 5, 2002, Bruce quietly rehearsed in an empty studio for his *Saturday Night Live* appearance that evening.
 
-Bruce only soundchecked three songs that afternoon: "[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)," "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)," and a solo piano rendition of "You're Missing." Performed in a darkened, empty studio with no accompaniment other than Bruce's piano, nothing distracts from the pain and pathos of Bruce's lyrics.
+Bruce only soundchecked three songs that afternoon: "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)," "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," and a solo piano rendition of "You're Missing." Performed in a darkened, empty studio with no accompaniment other than Bruce's piano, nothing distracts from the pain and pathos of Bruce's lyrics.
 
 [Watch on Youtube: Bruce Springsteen rehearsal "You're Missing" in 2002](https://www.youtube.com/watch?v=o1kgnwHGXbg)
 

@@ -1,6 +1,6 @@
 At the 32nd annual Kennedy Center Honors (the highest honor the U.S. bestows on individuals who influence American arts and culture), an array of artists assembled to pay tribute to Bruce Springsteen.
 
-All of the performances were gorgeous that night (see my post on [Sting's cover of "The Rising"](https://estreetshuffle.com/index.php/2018/10/26/cover-me-sting-the-rising/) for one of my favorites), but Ben Harper's rendition of "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" may have been the most heartfelt.
+All of the performances were gorgeous that night (see my post on [Sting's cover of "The Rising"](../2018-10-26_cover-me-sting-the-rising/post.md) for one of my favorites), but Ben Harper's rendition of "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)" may have been the most heartfelt.
 
 Bruce was visibly moved throughout Harper's performance (as were the Obamas), and when Harper finishes the audience sits in rapt silence for what feels like an eternity before breaking Harper's spell with their applause.
 

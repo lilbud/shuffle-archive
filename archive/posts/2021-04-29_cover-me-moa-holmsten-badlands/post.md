@@ -6,7 +6,7 @@ Faced with writer's block coming off of her second solo album *Do You Want Me, D
 
 Moa had a few rules for selecting an artist, which she shared in a [RudolphsMusic interview](https://www.rudolfsmusic.com/moa-holmsten-interview/): "Someone that was far from my own music, someone that was pretty new to me and that had a big catalogue of songs. Voila... there is Bruce Springsteen."
 
-The first song she tackled was "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)." Pleased with that one, she and producer Tony Naima decided to cover Bruce's 1978 anthem, "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)." The result was one of the very best, most daring, and most inventive Springsteen covers ever.
+The first song she tackled was "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)." Pleased with that one, she and producer Tony Naima decided to cover Bruce's 1978 anthem, "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)." The result was one of the very best, most daring, and most inventive Springsteen covers ever.
 
 [Watch on Youtube: Badlands](https://www.youtube.com/watch?v=aAWiDQnQhm0)
 

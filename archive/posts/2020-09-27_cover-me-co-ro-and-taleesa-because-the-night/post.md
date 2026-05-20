@@ -1,6 +1,6 @@
 Earlier this year, I introduced a *Cover Me* entry with the question: *Who had the highest charting success with Bruce Springsteen and Patti Smith's "Because the Night?"*
 
-The answer was the subject of[that entry](https://estreetshuffle.com/index.php/2020/03/15/cover-me-10000-maniacs-because-the-night/): 10,000 Maniacs. But I included a parenthetical qualifier: "in the U.S., at least."
+The answer was the subject of[that entry](../2020-03-15_cover-me-10000-maniacs-because-the-night/post.md): 10,000 Maniacs. But I included a parenthetical qualifier: "in the U.S., at least."
 
 Because even though 10,000 Maniacs took the song all the way to #11 in the U.S. in 1993 (compared to Patti Smith, who only reached #13 in 1978), there's another version of "Because the Night" that became a global smash hit that very same year.
 

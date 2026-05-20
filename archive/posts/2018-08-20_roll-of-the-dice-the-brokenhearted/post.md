@@ -4,13 +4,13 @@ Over the years, interviewers have covered most of Bruce's catalog with him, so t
 
 But one listen to "The Brokenhearted" tells you pretty much everything you need to know. If Roy Orbison fronting The Drifters doesn't come immediately to mind, you weren't paying close attention.
 
-"The Brokenhearted" is a gorgeous torch song and almost certainly an homage to two of Bruce's influences: his soaring vocals are clearly mimicking Orbison's style, and the mariachi melody (complete with horns) are evocative of "[Spanish Harlem,](https://estreetshuffle.com/index.php/2018/01/23/cover-me-spanish-harlem/)"which Bruce had performed in concert a few years earlier.
+"The Brokenhearted" is a gorgeous torch song and almost certainly an homage to two of Bruce's influences: his soaring vocals are clearly mimicking Orbison's style, and the mariachi melody (complete with horns) are evocative of "[Spanish Harlem,](../2018-01-23_cover-me-spanish-harlem/post.md)"which Bruce had performed in concert a few years earlier.
 
 [Watch on Youtube: The Brokenhearted](https://www.youtube.com/watch?v=YvilYiGDmoM)
 
 So figuring out what Bruce was going for was the easy part. The hard part is untangling its convoluted history.
 
-The historical record indicates that Bruce first recorded "The Brokenhearted" on November 29, 1977 during the [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) sessions. That original recording has never surfaced.
+The historical record indicates that Bruce first recorded "The Brokenhearted" on November 29, 1977 during the [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) sessions. That original recording has never surfaced.
 
 The audio above comes from Bruce's 2010 double album, *The Promise*, which is sort of an alternate-universe *Darkness on the Edge of Town*, comprised entirely of unreleased outtakes from those sessions.
 
@@ -30,7 +30,7 @@ Ah, what I'd give to hear that original tape. But for now at least, we'll have t
 > *Now don't leave me to the brokenhearted, the brokenhearted, the brokenhearted*
 > *And tell me that you need me*
 
-Lyrically, "The Brokenhearted" is well-trod Springsteenian territory: from classics like "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)" and "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" to unreleased outtakes like "[Baby Come Back](https://estreetshuffle.com/index.php/2018/03/29/roll-of-the-dice-baby-come-back/)," this is an "I done you wrong baby, I'm down on my knees baby, please take me back baby" song–and it's clear from the first verse that this time at least, it was the protagonist's big mouth that put him in the doghouse, rather than his actions.
+Lyrically, "The Brokenhearted" is well-trod Springsteenian territory: from classics like "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)" and "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" to unreleased outtakes like "[Baby Come Back](../2018-03-29_roll-of-the-dice-baby-come-back/post.md)," this is an "I done you wrong baby, I'm down on my knees baby, please take me back baby" song–and it's clear from the first verse that this time at least, it was the protagonist's big mouth that put him in the doghouse, rather than his actions.
 
 The singer is relatively even-keeled here, using plain language unadorned of any metaphor, conveying that he doesn't yet realize how much deep water he's in. Bruce establishes a neat device, adding a stem to the chorus ("and tell me that you need me") that will grow with each chorus, signifying the singer's increasing desperation.
 

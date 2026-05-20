@@ -4,11 +4,11 @@ Its emergence and ascendance roughly paralleled the actual automotive fatality r
 
 Bruce Springsteen has made several contributions to this macabre genre, not all of which have yet seen the light of day.
 
-Fittingly, Bruce's first entry was "[Wreck on the Highway,](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)" a hat tip to what was perhaps the original car crash song, Roy Acuff's 1942 song by the same name. ("Thunder Road" gets honorable mention for its title homage to Robert Mitchum's 1957 car crash single, a choice that makes me question whether Bruce's narrator was truly pulling out of there to win, but that's a topic for a future *Roll of the Dice* article.)
+Fittingly, Bruce's first entry was "[Wreck on the Highway,](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)" a hat tip to what was perhaps the original car crash song, Roy Acuff's 1942 song by the same name. ("Thunder Road" gets honorable mention for its title homage to Robert Mitchum's 1957 car crash single, a choice that makes me question whether Bruce's narrator was truly pulling out of there to win, but that's a topic for a future *Roll of the Dice* article.)
 
 But in the *Nebraska/Born in the U.S.A.* era, Bruce seemed particularly fixated on the idea of a fatal car accident while on the run from the law–a counter-metaphor to the way he'd always used the open road to symbolize escape and potential.
 
-A couple of months ago, we took a look at Bruce's unreleased *Nebraska* outtake, "[Losin' Kind,](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/)" which itself was sort of an early attempt at "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)," so remarkably similar are the two songs. "Losin' Kind" also bears a lot of similarity to "Highway Patrolman"; Bruce's themes were so strong and fluid during that particular era that entire scenes, characters, metaphors and morals make their way across many of his songs, both released and unreleased.
+A couple of months ago, we took a look at Bruce's unreleased *Nebraska* outtake, "[Losin' Kind,](../2021-01-15_roll-of-the-dice-losin-kind/post.md)" which itself was sort of an early attempt at "[Highway 29](../2018-03-23_roll-of-the-dice-highway-29/post.md)," so remarkably similar are the two songs. "Losin' Kind" also bears a lot of similarity to "Highway Patrolman"; Bruce's themes were so strong and fluid during that particular era that entire scenes, characters, metaphors and morals make their way across many of his songs, both released and unreleased.
 
 But while "Highway Patrolman" allows Frankie to escape unscathed and "Losin' Kind" spares its narrator after a *very* close call, Bruce gives no mercy to Billy, the main character in his 1984 *Born in the U.S.A.* outtake, "Rockaway the Days."
 
@@ -39,7 +39,7 @@ But if drugs can't help him quell the best inside him, maybe love can:
 > *Billy swore to Mary he'd always love her so*<br>
 > *They were married in the valley where the river flows, alright*<br>
 
-We know this isn't going to end well, but it's worth pausing here for a moment to allow Billy his fleeting comfort while we notice Bruce recycling one of his favorite character names and metaphors: Mary and the river. [We just took a deep dive i](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)nto the significance of that particular metaphor, so I won't rehash it here. But Bruce's selection of Mary as the name of Billy's love interest is almost certainly a deliberate attempt to call our attention to the river as a wellspring of hope and dreams.
+We know this isn't going to end well, but it's worth pausing here for a moment to allow Billy his fleeting comfort while we notice Bruce recycling one of his favorite character names and metaphors: Mary and the river. [We just took a deep dive i](../2021-03-04_roll-of-the-dice-the-river/post.md)nto the significance of that particular metaphor, so I won't rehash it here. But Bruce's selection of Mary as the name of Billy's love interest is almost certainly a deliberate attempt to call our attention to the river as a wellspring of hope and dreams.
 
 Let's continue, because Bruce is about to pick up the pace of the action.
 
@@ -75,7 +75,7 @@ Before we get to the tragic aftermath, though, take notice of another deliberate
 
 After Billy's ma buries her son, Bruce reintroduces the "alright," suggesting that there's some measure of relief that comes with her tragedy. Her son's troubles and circumstances had obviously been weighing on her psyche for some time. Still, that relief comes at the price of loss and heartbreak, which is why Bruce reintroduces the chorus at this point, as Billy's mom asks for something to help ease her pain.
 
-Billy's mom is our point-of-view character for the remainder of the song; it's her voice we hear waxing philosophical in the final verse (with an opening couplet very similar to Bruce's lyrics in "[Man at the Top](https://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)" — see what I mean about how fluid Bruce's lyrics were back then?)
+Billy's mom is our point-of-view character for the remainder of the song; it's her voice we hear waxing philosophical in the final verse (with an opening couplet very similar to Bruce's lyrics in "[Man at the Top](../2019-05-10_roll-of-the-dice-man-at-the-top/post.md)" — see what I mean about how fluid Bruce's lyrics were back then?)
 
 > *Well rich man want the power and the seat on the top*<br>
 > *Poor man want the money that the rich man got*<br>
@@ -84,7 +84,7 @@ Billy's mom is our point-of-view character for the remainder of the song; it's h
 
 As we take our leave of our cast, Billy's mom offers her daughter-in-law shelter and solace. What happens from here we never learn, but we hope they're able to help each other rock away the days and nights until their mutual pain and loss subsides.
 
-**Bonus:** Bruce has never performed "Rockaway the Days" live, but he *sort of* half-played it once. At his legendary acoustic 1986 Bridge School benefit performance, Bruce played an acoustic version of "[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)" that featured a completely different melody from the officially released version on *Live 1975-85*, less angry but more infectious with an irresistible riff.<br>
+**Bonus:** Bruce has never performed "Rockaway the Days" live, but he *sort of* half-played it once. At his legendary acoustic 1986 Bridge School benefit performance, Bruce played an acoustic version of "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)" that featured a completely different melody from the officially released version on *Live 1975-85*, less angry but more infectious with an irresistible riff.<br>
 
 Bruce gave no explanation for the one-off arrangement, and he never played the song that way again. Only after Bruce's 1984 recording of "Rockaway the Days" was released on *Tracks* in 1998 would the jigsaw pieces fall into in place.
 

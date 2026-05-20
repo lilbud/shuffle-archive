@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2000-06-04.jpg.webp)
 
-**2005:** The Devils & Dust solo acoustic tour moves on to Italy, where this first show in Bologna is highlighted by the tour premiere of "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)."<br>
+**2005:** The Devils & Dust solo acoustic tour moves on to Italy, where this first show in Bologna is highlighted by the tour premiere of "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=daRsdZKxBlU)
 

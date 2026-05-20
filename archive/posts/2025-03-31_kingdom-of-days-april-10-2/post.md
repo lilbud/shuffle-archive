@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0410.jpg.webp)
 
-**1979:** Bruce and the E Street Band work on “[The Ties that Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” at the Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on “[The Ties that Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)” at the Power Station in New York City.<br>
 
 **1980:** Bruce works on mixing and overdubs for several *The River* tracks at Clover Studios in Los Angeles.<br>
 
@@ -34,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1985-0410.jpg.webp)
 
-**1996:** Bruce begins an Italian mini-tour with a solo acoustic show at the Auditorium Santa Cecilia in Rome. Before the show, Bruce meets one of his favorite composers, [Ennio Morricone](https://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/), for the first time.<br>
+**1996:** Bruce begins an Italian mini-tour with a solo acoustic show at the Auditorium Santa Cecilia in Rome. Before the show, Bruce meets one of his favorite composers, [Ennio Morricone](../2018-02-25_cover-me-once-upon-a-time-in-the-west/post.md), for the first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live Santa Cecilia 1996](https://www.youtube.com/watch?v=j2Wx5WNOidc)
 
@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9hgdYBzC)
 
-**2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including “[Racing in the Street,](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” “[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/),” and “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/).”<br>
+**2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including “[Racing in the Street,](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” “[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” “[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md),” and “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md).”<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - JOHNNY 99 - DENVER 2009](https://www.youtube.com/watch?v=FDfLsusF-S8)
 

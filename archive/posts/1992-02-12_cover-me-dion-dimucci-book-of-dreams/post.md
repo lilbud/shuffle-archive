@@ -8,7 +8,7 @@ Dion first covered Bruce in 1992 in a doo-wop version of Bruce’s 1992 standard
 
 Dion gave it his signature doo-wop treatment, and the result is so perfect that if you didn't know better, you'd think it was first written and recorded in the 1950s instead of the 1990s.
 
-Dion must have had a particular fondness for *Lucky Town*, because his second Springsteen cover came eight years later on his *Deja Nu* album, a loving rendition of “[Book of Dreams](https://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/).”
+Dion must have had a particular fondness for *Lucky Town*, because his second Springsteen cover came eight years later on his *Deja Nu* album, a loving rendition of “[Book of Dreams](../2019-06-04_roll-of-the-dice-book-of-dreams/post.md).”
 
 In a 2000 NPR interview, Dion explained why “Book of Dreams” was so special to him:
 

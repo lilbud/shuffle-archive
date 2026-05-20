@@ -2,7 +2,7 @@ Bruce Springsteen's *Western Stars* album gets a lot of deserved attention for i
 
 But as much as I love those arrangements, sometimes all it takes is a simple piano to make you fully appreciate just how gorgeous Bruce's melodies can be.
 
-Case in point: Marcel Lichter's solo piano instrumental rendition of the album's [title track](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)–perfect for a quiet weekend morning.
+Case in point: Marcel Lichter's solo piano instrumental rendition of the album's [title track](../2020-03-28_roll-of-the-dice-western-stars/post.md)–perfect for a quiet weekend morning.
 
 Enjoy.
 

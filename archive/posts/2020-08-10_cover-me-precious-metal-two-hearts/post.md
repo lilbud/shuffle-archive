@@ -1,4 +1,4 @@
-When L.A.-based Precious Metal covered Bruce Springsteen's "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" on their self-titled 1990 album, The Boss himself raved about it.
+When L.A.-based Precious Metal covered Bruce Springsteen's "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" on their self-titled 1990 album, The Boss himself raved about it.
 
 Or so we're told at least, by the band themselves.
 
@@ -16,7 +16,7 @@ When journalists ask the band about that particular album, it's usually the infa
 
 > *Mara: "ha ha! I remember that!"*
 
-> *Leslie: He told me he loved our version. Bruce halted the release of a [Bette Midler version](https://estreetshuffle.com/index.php/2018/11/26/cover-me-bette-midler-pink-cadillac/) of "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)", 'cause he hated it. Thank goodness he didn't do that to us!"*
+> *Leslie: He told me he loved our version. Bruce halted the release of a [Bette Midler version](../2018-11-26_cover-me-bette-midler-pink-cadillac/post.md) of "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)", 'cause he hated it. Thank goodness he didn't do that to us!"*
 
 Take a listen to their Springsteen-endorsed cover below–it's a hard-driving, glammed up, power pop rendition of Bruce's 1980 classic.
 

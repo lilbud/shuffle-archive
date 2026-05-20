@@ -1,10 +1,10 @@
 This.
 
-*This* is what should have been on *Born in the U.S.A.* instead of "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)."
+*This* is what should have been on *Born in the U.S.A.* instead of "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)."
 
 Even Bruce must have recognized at some point just that "Cover Me" wasn't ready for prime time, because he continued to work on the song long, long after he recorded the version that's on the album.
 
-In early June of 1983–almost a year and a half after he recorded "Cover Me," Bruce went back into the studio with the E Street Band and recorded a much, *much* stronger version of it. While the lyrics were still largely the same, Bruce stripped out the paranoid urgency, dialed up the tenderness, and set it all against one of his best mid-eighties backing tracks (a melody so good, in fact, that he'd nick it a couple of weeks later for "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)").
+In early June of 1983–almost a year and a half after he recorded "Cover Me," Bruce went back into the studio with the E Street Band and recorded a much, *much* stronger version of it. While the lyrics were still largely the same, Bruce stripped out the paranoid urgency, dialed up the tenderness, and set it all against one of his best mid-eighties backing tracks (a melody so good, in fact, that he'd nick it a couple of weeks later for "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)").
 
 The result: "Drop on Down and Cover Me," which I'd rank at or very near the top of the still-missing-in-action outtakes crying out for an official release.
 
@@ -60,7 +60,7 @@ Both narrators are looking for shelter, but the protagonist of "Cover Me" is hid
 
 Like all art, music is subjective. But "Drop on Down and Cover Me" is such a superior song to the officially released "Cover Me" that I can't help but wonder why Bruce chose to release the older version.
 
-It clearly wasn't always his intention to do so–in the summer of 1983, Bruce had an album sequence that included "Drop on Down and Cover Me" right in the middle of Side One (after "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)" and before "[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)"–what an album that would have been).
+It clearly wasn't always his intention to do so–in the summer of 1983, Bruce had an album sequence that included "Drop on Down and Cover Me" right in the middle of Side One (after "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)" and before "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)"–what an album that would have been).
 
 Unless we're lucky enough to get a sign-requested debut someday, we're not likely to ever gain any more insight; for now, we'll just chalk it up as just one more unsolved Springsteen mystery.
 

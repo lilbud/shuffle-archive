@@ -26,7 +26,7 @@ From that very first performance in Houston, Bruce prefaced his cover of "Pretty
 
 But no matter how ridiculously charming the detail–Clarence playing the saxophone while riding a bike in short pants, Bruce shaking his maracas on a street corner as the girl walks by–the entire story is just Bruce's equivalent of Paul Jones' fleeting "Ha!", and Bruce milks it for minutes in order to allow himself a few minutes of pure, unbridled, unapologetic romance with the song itself.
 
-You can't listen to Bruce Springsteen sing "Pretty Flamingo" and not instantly recall that glorious moment of instant infatuation, no matter how long ago it might have been. (His 2008 single, "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)" features essentially the same narrator from "Pretty Flamingo" forty years on.)
+You can't listen to Bruce Springsteen sing "Pretty Flamingo" and not instantly recall that glorious moment of instant infatuation, no matter how long ago it might have been. (His 2008 single, "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)" features essentially the same narrator from "Pretty Flamingo" forty years on.)
 
 As Bruce admitted during what is probably my favorite single "Pretty Flamingo" performance (from his 2014 High Hopes Tour), we've all lived that story at some point, and in that moment it's the *only* story.
 

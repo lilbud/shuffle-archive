@@ -1,4 +1,4 @@
-> "It was very personal the way I took ["[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)"]. There are certain things that are inevitable in your life. You make certain decisions … and you know the outcome is kind of bad for you, but you have to do it because you have no choice, but there's always a hope … you have to go through that, you have to accept it and you have to keep going because there is a lot of things worth living for. Maybe at first you don't see this and you don't see any other options, but if you think about it a little more deeply and try to start to believe in yourself, other people around you you will def start seeing that there are a lot of things to live for." — Arty, *Billboard*, October 10, 2017
+> "It was very personal the way I took ["[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)"]. There are certain things that are inevitable in your life. You make certain decisions … and you know the outcome is kind of bad for you, but you have to do it because you have no choice, but there's always a hope … you have to go through that, you have to accept it and you have to keep going because there is a lot of things worth living for. Maybe at first you don't see this and you don't see any other options, but if you think about it a little more deeply and try to start to believe in yourself, other people around you you will def start seeing that there are a lot of things to live for." — Arty, *Billboard*, October 10, 2017
 
 Bruce Springsteen has visited many genres over the course of his career, but electronic dance music is one that he's left untouched… until recently.
 
@@ -8,7 +8,7 @@ Arty grew up in post-Soviet Russia–not exactly a major market for Bruce. But w
 
 > *"If you look at his live shows, it's insane. There is so much energy for a concert that goes up three to four hours and there is just Bruce Springsteen singing the songs, completely controlling the crowd and they love it. There is no bigger inspiration than that."*
 
-Arty dove into Bruce's catalog and became particularly enchanted with "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)." It spoke to him, and he adapted it into a new song, "Supposed to Be."
+Arty dove into Bruce's catalog and became particularly enchanted with "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)." It spoke to him, and he adapted it into a new song, "Supposed to Be."
 
 The first thirty seconds of "Supposed to Be" are clearly lifted from "Atlantic City," but after that the song becomes Arty's own.
 

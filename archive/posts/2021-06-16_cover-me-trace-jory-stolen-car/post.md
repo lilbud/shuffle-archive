@@ -1,4 +1,4 @@
-Three years ago, singer-songwriter Trace Jory caught X Ambassadors in concert, and he was particularly enthralled by [their cover of a Bruce Springsteen song](https://estreetshuffle.com/index.php/2019/05/15/cover-me-x-ambassadors-stolen-car/) he'd never heard before.
+Three years ago, singer-songwriter Trace Jory caught X Ambassadors in concert, and he was particularly enthralled by [their cover of a Bruce Springsteen song](../2019-05-15_cover-me-x-ambassadors-stolen-car/post.md) he'd never heard before.
 
 Rather than imitate the band's cover arrangement, Jory sought out and determined to learn the original, and he posted a work in progress to his Facebook page.
 

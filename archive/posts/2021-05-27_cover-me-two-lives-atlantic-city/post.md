@@ -10,7 +10,7 @@ Find its essence, transform it via a new arrangement, and reveal something hidde
 
 Two Lives does all that while turning in a spectacular music performance and a stylish video that's sure to be a strong contender at [this year's *Cover Me* contest](https://www.noiespringsteen.com/contest/).
 
-The song is Bruce Springsteen's fatalistic "[Atlantic City,](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" and the band turns it into a song of hope and resilience against life's vicissitudes. Their version is still dark and despairing, but with a subtext of defiance rather than denial.
+The song is Bruce Springsteen's fatalistic "[Atlantic City,](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" and the band turns it into a song of hope and resilience against life's vicissitudes. Their version is still dark and despairing, but with a subtext of defiance rather than denial.
 
 [Watch on Youtube: Atlantic City - Bruce Springsteen (Two Lives Cover )](https://www.youtube.com/watch?v=OLEcbEjPADQ)
 

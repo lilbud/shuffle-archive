@@ -1,4 +1,4 @@
-Ask a fan or a critic about Bruce Springsteen's [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) album, and odds are pretty good you'll hear the term "divorce album."
+Ask a fan or a critic about Bruce Springsteen's [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) album, and odds are pretty good you'll hear the term "divorce album."
 
 At the very least, we tend to characterize the album as an anthology of love gone wrong, infected by doubt, insecurity, shame, and secrets.
 
@@ -8,11 +8,11 @@ When Bruce sat down in his home studio on January 20, 1987 to start recording so
 
 [Watch on Youtube: When You Need Me (Studio Outtake - 1987)](https://www.youtube.com/watch?v=mimaPIQVUjI)
 
-Only as the recording sessions progressed did Bruce's marital dissatisfaction work its way to the surface through songs like "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," "[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)," and "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)."
+Only as the recording sessions progressed did Bruce's marital dissatisfaction work its way to the surface through songs like "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," "[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)," and "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)."
 
 In its final form, *Tunnel of Love* is actually more balanced than most fans give it credit for: its first three tracks are true-blue love songs, as is the gorgeous, underrated "[Valentine's Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)."
 
-But whereas "[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)" had its humble-brag humor, and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" had its machismo-dipped vulnerability, "When You Need Me" had… well, it had syrup.
+But whereas "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)" had its humble-brag humor, and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" had its machismo-dipped vulnerability, "When You Need Me" had… well, it had syrup.
 
 There's not much to write home about in "When You Need Me." I'm probably going to get some comments from affronted readers who chose it as their wedding song (I apologize in advance), but if you're looking for a wedding song in Bruce Springsteen's catalog, there are better choices out there than this one.
 

@@ -4,7 +4,7 @@ Bruce and Patti made my job easy today. They discussed "Talk to Me Like the Rain
 
 Although Bruce is the one with the notoriously unreliable memory, I suspect his modest recollection is closer to the truth than his wife's on this one, because Bruce certainly doesn't play every instrument on the track–at least not if the liner notes are to be believed.
 
-Heartbreaker Mike Campbell also plays guitar on the track, as does Tim Pierce, who played rhythm guitar on "Soul Driver" and "[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)." And that's the late Jeff Porcaro of Toto (who plays on every single track on *Human Touch)* on drums *.*
+Heartbreaker Mike Campbell also plays guitar on the track, as does Tim Pierce, who played rhythm guitar on "Soul Driver" and "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)." And that's the late Jeff Porcaro of Toto (who plays on every single track on *Human Touch)* on drums *.*
 
 But Bruce certainly does carry the song on guitar and keyboards, lifting and supporting–but never outshining–Patti's soulful vocals.
 

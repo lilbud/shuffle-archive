@@ -4,7 +4,7 @@ Now where did *this* come from? And perhaps more importantly, where did it go?
 
 We know it's a Springsteen original, but listening to the clip below, it's virtually impossible to determine how much of Bruce's lyrics was scripted and how much was improvised.
 
-All I know is it's one hell of a rave-up. Combining the swing of "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)" (which it immediately followed in the set), a harmonica introduction that presages what Bruce would shortly do with "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)," a mean sax solo, and some of Bruce's earliest lyrics about fast cars and fast women, "Angel's Blues" was a show-stopper sandwiched in-between showstoppers. (A three-pack of "Kitty's Back," "Angel's Blues," and "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)"– wow.)
+All I know is it's one hell of a rave-up. Combining the swing of "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" (which it immediately followed in the set), a harmonica introduction that presages what Bruce would shortly do with "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)," a mean sax solo, and some of Bruce's earliest lyrics about fast cars and fast women, "Angel's Blues" was a show-stopper sandwiched in-between showstoppers. (A three-pack of "Kitty's Back," "Angel's Blues," and "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)"– wow.)
 
 Take a listen to Bruce's only known performance of "Angel's Blues."
 
@@ -30,7 +30,7 @@ And yet, "Angel's Blues" still features some clever lyrical touches, like the wa
 
 Bruce's narrator never takes himself too seriously–although he gets carried away with imagery and metaphor in every verse, Bruce always returns him to earth with a prosaic final line.
 
-Something else worth noting: Bruce name checks E Street for the second time in song. (The first, of course, was "[The E Street Shuffle,](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)" released a few months prior.) That's significant considering that at the time of this performance (March 10, 1974), Bruce's band had not yet adopted the name E Street and wouldn't for at least another month.
+Something else worth noting: Bruce name checks E Street for the second time in song. (The first, of course, was "[The E Street Shuffle,](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" released a few months prior.) That's significant considering that at the time of this performance (March 10, 1974), Bruce's band had not yet adopted the name E Street and wouldn't for at least another month.
 
 > *Oh she says, "I ain't got the love, I ain't got the time*<br>
 > *Ain't gonna give you no kiss, ain't gonna hand you*<br>

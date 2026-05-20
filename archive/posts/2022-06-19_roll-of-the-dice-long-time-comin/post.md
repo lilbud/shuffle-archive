@@ -4,7 +4,7 @@ Bruce Springsteen said those words while recalling "the greatest moment in my li
 
 "My father on that day was petitioning me for an ancestral role in my life after being a ghost for a long, long time," he continued.
 
-The year was 1990, and the day was one of the final ones of Bruce's pre-fatherhood life. Douglas Springsteen knew how transformative the days ahead would be and wanted to release his son from the ghosts that haunted his songwriting since "[Adam Raised a Cain.](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)"
+The year was 1990, and the day was one of the final ones of Bruce's pre-fatherhood life. Douglas Springsteen knew how transformative the days ahead would be and wanted to release his son from the ghosts that haunted his songwriting since "[Adam Raised a Cain.](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)"
 
 "He wanted me to write a new end to our relationship," Bruce explained, "and he wanted me to be ready for the new beginning I was about to experience."
 
@@ -20,7 +20,7 @@ But neither the official studio track nor any full-band performance can match th
 
 "Long Time Comin'" is the song-length epiphany of a father who realizes belatedly–but not *too*-latedly–that the greatest gifts he can bestow upon his children are his presence in their lives and the freedom to reject the traits he had no choice but to accept from his own father.
 
-As a young man on the cusp of 30, Bruce railed and raged against his father's inheritance in "Adam Raised a Cain." At 32, he tried to bridge their gulf in "[My Father's House.](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" By the age of 37, he'd begun to filter his father's influence in "[Walk Like a Man,](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" and by the time he debuted "Long Time Comin'" on his solo acoustic tour just a few days after his 47th birthday, he'd found redemption–his own, and his father's.
+As a young man on the cusp of 30, Bruce railed and raged against his father's inheritance in "Adam Raised a Cain." At 32, he tried to bridge their gulf in "[My Father's House.](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)" By the age of 37, he'd begun to filter his father's influence in "[Walk Like a Man,](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" and by the time he debuted "Long Time Comin'" on his solo acoustic tour just a few days after his 47th birthday, he'd found redemption–his own, and his father's.
 
 He hasn't released an original song about fathers and sons since.
 
@@ -137,7 +137,7 @@ It's a brilliant ending, one that resonates with audiences and generates a react
 
 [Watch on Youtube: Long Time Comin' - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=Mj4v3M4owKY)
 
-"Long Time Comin'" ends on a note of hope and optimism, love and acceptance. It's almost irresistibly tempting to imagine a common narrator threading from "Adam Raised a Cain" to "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" to "Walk Like a Man" through to "Long Time Comin."
+"Long Time Comin'" ends on a note of hope and optimism, love and acceptance. It's almost irresistibly tempting to imagine a common narrator threading from "Adam Raised a Cain" to "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)" to "Walk Like a Man" through to "Long Time Comin."
 
 Of course there *is* a common narrator–the songwriter himself, who gifts us with intimate insight into his troubled but ultimately redemptive relationship with his father and shows us that it's possible to accept the best of our parents and filter out the worst, if we're willing to do the work. It's a timely and valuable lesson on this day.
 

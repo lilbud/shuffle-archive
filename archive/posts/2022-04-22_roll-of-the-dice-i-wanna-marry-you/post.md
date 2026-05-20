@@ -44,7 +44,7 @@ Awkwardly paternal elocution aside, though, we might still think this is a sweet
 
 Wait, what now? Our narrator doesn't even *know* this woman? They haven't even spoken?
 
-In later years, Bruce would explain that "I Wanna Marry You" is a fantasy–the kind you have about that beautiful person who walks by you once and is never seen again. In that moment you imagine an entire life with them. It's a sweetly seductive notion–so much so that Bruce succumbed to it more than once, pairing "I Wanna Marry You" in concert with another original song, "[Here She Comes Walking](https://estreetshuffle.com/index.php/2020/09/24/roll-of-the-dice-here-she-comes-walkin/)."
+In later years, Bruce would explain that "I Wanna Marry You" is a fantasy–the kind you have about that beautiful person who walks by you once and is never seen again. In that moment you imagine an entire life with them. It's a sweetly seductive notion–so much so that Bruce succumbed to it more than once, pairing "I Wanna Marry You" in concert with another original song, "[Here She Comes Walking](../2020-09-24_roll-of-the-dice-here-she-comes-walkin/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Marry You (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=GRIpM_mrmX4)
 

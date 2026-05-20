@@ -1,4 +1,4 @@
-Joe Grushecky and Bruce Springsteen's songwriting partnership started with *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*, but it certainly didn't end there.
+Joe Grushecky and Bruce Springsteen's songwriting partnership started with *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*, but it certainly didn't end there.
 
 Inspired by their songwriting chemistry, Bruce and Joe continued collaborating even once *American Babylon* was in the can, writing a collection of songs in 1995, many of which are still unreleased.
 

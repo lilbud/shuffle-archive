@@ -4,7 +4,7 @@ I did *not* see that plot twist coming, and I'm betting you won't either, even w
 
 On February 22, 1970, Bruce entered a recording studio for only the second time in his life. The first time was with The Castiles, almost four years earlier. This time he was accompanied by his new band, Steel Mill, and Bruce had three songs in hand for them to record.
 
-We've listened to two of them together before: "[He's Guilty](https://estreetshuffle.com/index.php/2020/07/10/roll-of-the-dice-hes-guilty-the-judge-song/)" (the only one of the three to see an official release), and "[Goin' Back to Georgia.](https://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/)" Today, we'll complete the trilogy with a sweet, southern, love song about an itinerant traveler on his way home to reunite with his lady love.
+We've listened to two of them together before: "[He's Guilty](../2020-07-10_roll-of-the-dice-hes-guilty-the-judge-song/post.md)" (the only one of the three to see an official release), and "[Goin' Back to Georgia.](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)" Today, we'll complete the trilogy with a sweet, southern, love song about an itinerant traveler on his way home to reunite with his lady love.
 
 Let's take a listen to "The Train Song."
 
@@ -12,7 +12,7 @@ Let's take a listen to "The Train Song."
 
 See what I mean? That's one heck of a curve ball.
 
-Steel Mill's performance has been likened to the Allman Brothers, who the band was clearly influenced by at the time. But I've always thought "The Train Song" owes much to The Band's "[The Weight,](https://estreetshuffle.com/index.php/2019/03/26/cover-me-the-weight/)" which charted a remarkable four times (by four artists) in the two years prior to this recording and was almost certainly an influence as well.
+Steel Mill's performance has been likened to the Allman Brothers, who the band was clearly influenced by at the time. But I've always thought "The Train Song" owes much to The Band's "[The Weight,](../2019-03-26_cover-me-the-weight/post.md)" which charted a remarkable four times (by four artists) in the two years prior to this recording and was almost certainly an influence as well.
 
 But let's not get distracted by the instrumental performance, because we need to talk about the lyrics.
 

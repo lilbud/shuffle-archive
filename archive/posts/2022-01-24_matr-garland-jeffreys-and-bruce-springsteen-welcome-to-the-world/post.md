@@ -4,7 +4,7 @@ Nineteen years later, they reintroduced themselves to the world at the same time
 
 Garland's reception was much more muted than Bruce's, but *Don't Call Me Buckwheat* still garnered critical acclaim for Jeffreys' exploration of race relations and tension in America.
 
-None of the album's singles charted in America, but "[Hail Hail Rock 'n' Roll](https://estreetshuffle.com/index.php/2020/03/13/matr-garland-jeffreys-and-bruce-springsteen-hail-hail-rock-n-roll/)" was a minor hit in several European countries, and a follow-up single of "Welcome to the World" managed to crack the Top 100 in the Netherlands.
+None of the album's singles charted in America, but "[Hail Hail Rock 'n' Roll](../2020-03-13_matr-garland-jeffreys-and-bruce-springsteen-hail-hail-rock-n-roll/post.md)" was a minor hit in several European countries, and a follow-up single of "Welcome to the World" managed to crack the Top 100 in the Netherlands.
 
 [Watch on Youtube: Welcome To The World](https://www.youtube.com/watch?v=8KUI5JS7Ea4)
 

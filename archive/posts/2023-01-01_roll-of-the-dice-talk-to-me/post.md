@@ -20,13 +20,13 @@ No matter the shtick that accompanies it (which actually has nothing to do with 
 
 Perhaps it's because "Talk to Me" occupies such an obscure place in Bruce's catalog–and because it took such a circuitous route to get there.
 
-Like many of Bruce's classic songs, we can trace the origin of "Talk to Me" way back to a seemingly improvised vamp before breaking into "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)" on Bruce's 1976 "Lawsuit Tour." (You'll hear it around the 2:40 mark below.)
+Like many of Bruce's classic songs, we can trace the origin of "Talk to Me" way back to a seemingly improvised vamp before breaking into "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" on Bruce's 1976 "Lawsuit Tour." (You'll hear it around the 2:40 mark below.)
 
 [Watch on Youtube: Bruce Springsteen - "She's the One" - Philadelphia, 1976-10-27](https://www.youtube.com/watch?v=j145EJBFIs4)
 
 The Lawsuit Tour earned its unofficial name from the legal battle between Bruce and former manager Mike Appel that kept Bruce out of the studio for the critical years that followed the release of Bruce's breakthrough smash album, *Born to Run.* Bruce and the E Street Band had to stay on the road for almost two years in order to earn a living–hence the nickname that attached itself to the tour's final legs.
 
-Bruce finally got the legal green light to start recording again when he and Appel settled their dispute on May 28, 1977. Four days later, Bruce was back in the studio recording material for what would become [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
+Bruce finally got the legal green light to start recording again when he and Appel settled their dispute on May 28, 1977. Four days later, Bruce was back in the studio recording material for what would become [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
 
 One of the earliest songs Bruce recorded during those sessions was "Talk to Me," with takes logged as early as July. Musically, it appears that "Talk to Me" was in its final form early on–the backing track below dates back to August 1977. It's missing Bruce's vocals as well as the horns, but musically, it's clearly the song we know and love. It's worth listening to it all the way through just to appreciate how Roy's prominent presence in the mix–he really gets a chance to shine here:
 
@@ -38,9 +38,9 @@ Bruce and the E Street Band worked on the song all summer long and as late as mi
 
 That's right: Bruce sat on the song for almost a quarter of a century before releasing it on his 2010 album, *The Promise*, a collection of songs recorded during the Darkness sessions but that didn't make it to the album.
 
-One listen to the song, and it's obvious to see why "Talk to Me" didn't make the *Darkness* cut. Like "[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)," "[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)," and "[Ain't Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)," "Talk to Me" struck the wrong thematic chord. Bruce was writing and recording a number of light-hearted romantic (or anti-romantic) comedies, but ultimately he decided his next album would take a darker, more serious turn.
+One listen to the song, and it's obvious to see why "Talk to Me" didn't make the *Darkness* cut. Like "[Give the Girl a Kiss](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)," "[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)," and "[Ain't Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)," "Talk to Me" struck the wrong thematic chord. Bruce was writing and recording a number of light-hearted romantic (or anti-romantic) comedies, but ultimately he decided his next album would take a darker, more serious turn.
 
-But that only explains why "Talk to Me" didn't surface on the *Darkness* album; it doesn't explain why it didn't make *The River* (where it would have been right at home alongside songs like "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" and "I'm a Rocker") or even the *Tracks* box set.
+But that only explains why "Talk to Me" didn't surface on the *Darkness* album; it doesn't explain why it didn't make *The River* (where it would have been right at home alongside songs like "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" and "I'm a Rocker") or even the *Tracks* box set.
 
 To answer that question, we need look no further than Bruce's partner-in-crime in the Madrid clip above, Southside Johnny.
 

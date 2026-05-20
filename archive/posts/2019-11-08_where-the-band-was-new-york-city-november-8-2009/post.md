@@ -14,7 +14,7 @@ Between coming down after the phenomenal show the night before when he performed
 
 [Watch on Youtube: Springsteen - Wrecking Ball - November 8, 2009 MSG](https://www.youtube.com/watch?v=dYNs9__H_Zc)
 
-From the opening notes of "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)" through "[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)," the arena was bouncing and beaming with unbridled surreal bliss.
+From the opening notes of "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" through "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)," the arena was bouncing and beaming with unbridled surreal bliss.
 
 [Watch on Youtube: Bruce Springsteen - Ties That Bind - 2009/11/08 - Madison Square Garden NYC](https://www.youtube.com/watch?v=E8TcpS5V-cg)
 
@@ -22,7 +22,7 @@ From the opening notes of "[The Ties That Bind](https://estreetshuffle.com/index
 
 About halfway through the record, inside the Garden felt like that last scene in *Willy Wonka and the Chocolate Factory*, when Charlie, Grandpa, and Willy Wonka are in the Wonkavator on their way to blasting through the roof.
 
-At that moment, I looked around from the back of the pit at thousands of happy people dancing, took notice of the completely unguarded middle riser, and was struck by a bolt of inspiration to jump up on it if Bruce didn't pull someone up during "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)." I thought if I grabbed as many other people as I could, we'd stand a better chance of not getting pulled right off, and it'd be hilarious fun. I scanned the crowd to see who was nearby, ran up to some folks, and shrieked as loud and quickly as I could: "Do you wanna jump up there during "Dancing?!"
+At that moment, I looked around from the back of the pit at thousands of happy people dancing, took notice of the completely unguarded middle riser, and was struck by a bolt of inspiration to jump up on it if Bruce didn't pull someone up during "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)." I thought if I grabbed as many other people as I could, we'd stand a better chance of not getting pulled right off, and it'd be hilarious fun. I scanned the crowd to see who was nearby, ran up to some folks, and shrieked as loud and quickly as I could: "Do you wanna jump up there during "Dancing?!"
 
 Well, no one said no…
 

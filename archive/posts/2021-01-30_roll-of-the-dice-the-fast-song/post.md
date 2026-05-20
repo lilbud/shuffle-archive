@@ -1,8 +1,8 @@
-Even for a songwriter notorious for swapping and recycling parts between songs, "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)" has a seriously gnarly evolutionary history.
+Even for a songwriter notorious for swapping and recycling parts between songs, "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)" has a seriously gnarly evolutionary history.
 
-We traced one branch of its DNA in my recent entry on "[Candy's Boy](https://estreetshuffle.com/index.php/2020/09/02/roll-of-the-dice-candys-boy/)" (which itself shares DNA with "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)," "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)," and "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)").
+We traced one branch of its DNA in my recent entry on "[Candy's Boy](../2020-09-02_roll-of-the-dice-candys-boy/post.md)" (which itself shares DNA with "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)," "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," and "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)").
 
-Before we can tackle "Candy's Room" properly, though, we have to visit its other parent song, and for that, we have to go all the way back to "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)." Not the album track, however. The story of Candy's other parent begins on February 22, 1977 at Bruce's show at the Milwaukee Auditorium.
+Before we can tackle "Candy's Room" properly, though, we have to visit its other parent song, and for that, we have to go all the way back to "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)." Not the album track, however. The story of Candy's other parent begins on February 22, 1977 at Bruce's show at the Milwaukee Auditorium.
 
 By that time, "Backstreets" had grown into a late-set showstopper, with an ever-changing spoken-word interlude so impassioned that it would be easy to believe it was improvised or composed on the spot.
 
@@ -30,7 +30,7 @@ By early June, Bruce had lyrics for "The Fast Song" that were polished enough to
 
 [Watch on Youtube: Bruce Springsteen The Fast Song #1 Instrumental](https://www.youtube.com/watch?v=-v-vHVjwFpI)
 
-This version of "The Fast Song" springs to vibrant life from the get-go thanks to the presence of the full E Street Band. Danny Federici's glockenspiel brings the nameless love interest to life, the only brightness in this otherwise dark song. Bruce's screaming guitar solo is clearly meant as an homage to The Yardbirds' "[Heart Full of Soul,](https://estreetshuffle.com/index.php/2020/10/03/cover-me-heart-full-of-soul/)" which Bruce recalls "playing the hell out of many a night" in his early days.
+This version of "The Fast Song" springs to vibrant life from the get-go thanks to the presence of the full E Street Band. Danny Federici's glockenspiel brings the nameless love interest to life, the only brightness in this otherwise dark song. Bruce's screaming guitar solo is clearly meant as an homage to The Yardbirds' "[Heart Full of Soul,](../2020-10-03_cover-me-heart-full-of-soul/post.md)" which Bruce recalls "playing the hell out of many a night" in his early days.
 
 [Watch on Youtube: The Yardbirds - Heart Full Of Soul](https://www.youtube.com/watch?v=pM1qZBFiOLU)
 

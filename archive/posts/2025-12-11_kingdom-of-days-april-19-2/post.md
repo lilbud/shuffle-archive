@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/TVhMNdU8)
 
-**1988:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) is certified 3x multi-platinum by the Recording Industry Association of America.<br>
+**1988:** [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) is certified 3x multi-platinum by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 

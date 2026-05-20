@@ -17,7 +17,7 @@ If "Come On" is notable for anything at all, it's for the remarkable quality of 
 > *Well come on, don't let 'em catch you running 'round here*<br>
 > *Well the time has come, let's get on*<br>
 
-The song itself, however, is a fairly pedestrian call-to-action for young people, inspired by any number of contemporary protest songs–including "[Teach Your Children](https://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/)," which Bruce alludes to twice in the song. (Bruce had a penchant even then for wearing his influences on his sleeves–see "[Change It](https://estreetshuffle.com/index.php/2019/09/04/roll-of-the-dice-changing-children/)" for another example of how young Bruce paid tribute to his influences.)
+The song itself, however, is a fairly pedestrian call-to-action for young people, inspired by any number of contemporary protest songs–including "[Teach Your Children](../2018-04-14_matr-crosby-stills-nash-young-and-springsteen-teach-your-children/post.md)," which Bruce alludes to twice in the song. (Bruce had a penchant even then for wearing his influences on his sleeves–see "[Change It](../2019-09-04_roll-of-the-dice-changing-children/post.md)" for another example of how young Bruce paid tribute to his influences.)
 
 > *Yeah come on, are you ready*<br>
 > *The bells are ringing and the people are singing their song*<br>

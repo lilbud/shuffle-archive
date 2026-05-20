@@ -4,7 +4,7 @@ Ask any fan for a short-list of Bruce Springsteen's most "important" songs, and 
 
 And yet Bruce certainly seems to think it should be: "Living Proof" has had not one, not two, but *three* official releases over the years.
 
-"Living Proof" was the first song Bruce wrote for the album that became *Lucky Town.* It's the demarcation in Bruce's catalog between songs focused on his past and inner self and songs focused on his present, future, and outer life. "Living Proof" paved the way for songs like ["Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[Kingdom of Days.](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)" In short, "Living Proof" is the moment Bruce fully embraced his adulthood.
+"Living Proof" was the first song Bruce wrote for the album that became *Lucky Town.* It's the demarcation in Bruce's catalog between songs focused on his past and inner self and songs focused on his present, future, and outer life. "Living Proof" paved the way for songs like ["Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[Kingdom of Days.](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)" In short, "Living Proof" is the moment Bruce fully embraced his adulthood.
 
 It's also one of the most uplifting songs in his catalog. And what sparked it was the birth of his first child, Evan James, born in the summer of 1990. Bruce wrote and recorded "Living Proof" when Evan was just a year old and his daughter Jessica was still a few months away, finally allowing himself to examine the changes that fatherhood had wrought on him:
 > "The night my son was born, I got close to a feeling of real, pure, unconditional love with all the walls down. All of a sudden, what was happening was so immense that it just stomped all the fear away for a little while and I remember feeling overwhelmed. But I also understood why you're so frightened. When that world of love comes rushing in, a world of fear comes with it. To open yourself up to one thing, you've got to embrace the other thing as well… My music over the last five years has dealt with those almost primitive issues; it's about somebody walking through that world of fear so that he can live in the world of love." *–Bruce Springsteen to David Hepworth, Q Magazine, August 1992*<br>
@@ -35,7 +35,7 @@ The second verse is a more introspective counter-example to the first verse.
 > *You do some sad, sad things baby when it's you you're trying to lose*<br>
 > *You do some sad and hurtful things, I seen living proof*<br>
 
-If this seems a like a relapse to the more self-critical lyrics Bruce had been penning for the past five years, that's because these particular lyrics hail from that period–or at least the tail end of it. We hear very similar lyrics in "[Goin' Cali](https://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/)," which Bruce recorded at the very beginning of 1991, at least six months before "Living Proof":
+If this seems a like a relapse to the more self-critical lyrics Bruce had been penning for the past five years, that's because these particular lyrics hail from that period–or at least the tail end of it. We hear very similar lyrics in "[Goin' Cali](../2019-01-01_roll-of-the-dice-goin-cali/post.md)," which Bruce recorded at the very beginning of 1991, at least six months before "Living Proof":
 
 > *So he pulled his heart and soul down off the shelf*<br>
 > *Packed them next to the faith that he'd lost in himself*<br>
@@ -47,7 +47,7 @@ If this seems a like a relapse to the more self-critical lyrics Bruce had been p
 
 There's a theme of personal re-birth and redemption at work in "Goin' Cali" that makes for a clever parallel to the birth of his son in "Living Proof," so it makes sense that Bruce would borrow those lyrics from the former and repurpose them for the latter.
 
-More than just a theme, Bruce seemed to have been positively *fixated* on the metaphor of a snake shedding its skin during that period. He used it for "[Trouble River](https://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)" in the summer of 1990–
+More than just a theme, Bruce seemed to have been positively *fixated* on the metaphor of a snake shedding its skin during that period. He used it for "[Trouble River](../2019-03-05_roll-of-the-dice-trouble-river/post.md)" in the summer of 1990–
 
 > *Snakes crawling in the house, I'm stuck in muddy ground*<br>
 > *Tonight I'm gonna shed this skin 'cause water's rising and I'm going down to*<br>
@@ -57,7 +57,7 @@ He used it in "Goin' Cali" in January 1991:
 > *He went down to the desert city where the rattlesnakes play*<br>
 > *And left his dead skin by the roadside in the noon of day*<br>
 
-He even used it in "[Happy](https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/)" in early 1992:
+He even used it in "[Happy](../2019-07-28_roll-of-the-dice-happy/post.md)" in early 1992:
 
 > *Man, woman circle each other in a cage*<br>
 > *A cage that's been handed down the line*<br>

@@ -8,7 +8,7 @@ In fact, the entire E Street Band performs on them–Bruce and the band recorded
 
 So perhaps it's most accurate to credit it to Bruce Springsteen and the E Street Band, featuring Gary U.S. Bonds on lead vocals.
 
-No matter how you classify it, "Hold On (To What You Got)" is a terrific pop song on an album full of them. It's not much of an exaggeration to call *On the Line* a secret Springsteen album, with a half-dozen original River-era pop songs written and performed by Bruce Springsteen and the E Street Band (plus a cover of "[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)" as well). Every Springsteen fan should own it.
+No matter how you classify it, "Hold On (To What You Got)" is a terrific pop song on an album full of them. It's not much of an exaggeration to call *On the Line* a secret Springsteen album, with a half-dozen original River-era pop songs written and performed by Bruce Springsteen and the E Street Band (plus a cover of "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)" as well). Every Springsteen fan should own it.
 
 "Hold On (To What You Got)" kicks off the album in fine power pop fashion, and it screams E Street from Max's opening barrel roll through that glorious bridge to a coda we can imagine Bruce milking for minutes in concert.
 
@@ -18,7 +18,7 @@ It's such a killer backing track, in fact, that it nearly overshadows Bruce's ly
 
 One of the secrets to writing a great pop song is making it easy to understand but ambiguous enough so it can't be pinned down to a specific context, and Bruce threads that needle expertly here.
 
-Is this an on-the-rocks love song, sung by a suitor who refuses to give up fighting for his girl? Is it a cautionary tale, a "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)"-style pep talk sung from one friend to another? Or is it a "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)"-esque self-motivational anthem?
+Is this an on-the-rocks love song, sung by a suitor who refuses to give up fighting for his girl? Is it a cautionary tale, a "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)"-style pep talk sung from one friend to another? Or is it a "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)"-esque self-motivational anthem?
 
 You tell me:
 

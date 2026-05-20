@@ -26,13 +26,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2002-10-07.jpg.webp)
 
-**2005:** Bruce plays a stellar acoustic set at the Hartford Civic Center, opening with “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)” and “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)” and tour premiering “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” and “You Can Look (But You Better Not Touch).”<br>
+**2005:** Bruce plays a stellar acoustic set at the Hartford Civic Center, opening with “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)” and “[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)” and tour premiering “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” and “You Can Look (But You Better Not Touch).”<br>
 
 [Watch on Youtube: Bruce Springsteen - SOMETHING IN THE NIGHT 2005 (live)](https://www.youtube.com/watch?v=hpPVKSv2m7M)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2005-10-07.jpg.webp)
 
-**2006:** Bruce’s tour of Italy continues as the Sessions Band arrives in Perugia and tour premieres “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” at Arena Santa Giuliana.<br>
+**2006:** Bruce’s tour of Italy continues as the Sessions Band arrives in Perugia and tour premieres “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” at Arena Santa Giuliana.<br>
 
 [Watch on Youtube: Bruce Springsteen with The SSB - Further On (Up The Road)](https://www.youtube.com/watch?v=-uie0T55R3E)
 
@@ -48,12 +48,12 @@
 
 [Watch on Youtube: Bruce Springsteen reads from his autobiography at The Town Hall in New York City on October 7, 2016](https://www.youtube.com/watch?v=i1PptJNEqIY)
 
-**2017:** Bruce tweaks his *Springsteen on Broadway* running order, swapping the positions of “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” and “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/).”<br>
+**2017:** Bruce tweaks his *Springsteen on Broadway* running order, swapping the positions of “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” and “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md).”<br>
 
 **2020:** E Street Radio airs Volume 13 of Bruce’s *From My Home to Yours* radio show, entitled “My Kingdom for a Car.”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3)
 
-Later that day, Bruce records a promotional interview for [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)with Zane Lowe. The interview will be aired on Apple Music later this month.
+Later that day, Bruce records a promotional interview for [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md)with Zane Lowe. The interview will be aired on Apple Music later this month.
 
 [Watch on Youtube: Bruce Springsteen - Apple Music 'Letter To You' Interview](https://www.youtube.com/watch?v=PhkL4K7Esc0)

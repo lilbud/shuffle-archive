@@ -36,7 +36,7 @@ Almost twenty years later, it's hard to remember let alone believe that by late 
 
 *Born in the U.S.A.* was now almost a full decade in the rear-view mirror, and Bruce's latest two albums and accompanying tour failed to set the charts on fire.
 
-His life had changed, too: Bruce was now a family man, and his songwriting for the past six years had been focused on relationships–mostly happy ones. His legendary empathy and finely-drawn character studies seemed to be a thing of the past, as his writing became more personal and intimate. Fans doubted they'd ever hear lyrics in the vein of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" or "Highway Patrolman" ever again.
+His life had changed, too: Bruce was now a family man, and his songwriting for the past six years had been focused on relationships–mostly happy ones. His legendary empathy and finely-drawn character studies seemed to be a thing of the past, as his writing became more personal and intimate. Fans doubted they'd ever hear lyrics in the vein of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" or "Highway Patrolman" ever again.
 
 Then Jonathan Demme came calling.
 
@@ -111,7 +111,7 @@ Combined with gushing critical acclaim, the song's popularity powered "Streets o
 
 Well aware that his image as an All-American Male made him an especially powerful messenger for the theme of the song and movie, Bruce used his podium moments to express his compassion and encourage acceptance.
 
-Bruce wasn't finished exploring this theme. Well after he released "Streets of Philadelphia," he recorded a song with the E Street Band called "[Waiting on the End of the World](https://estreetshuffle.com/index.php/2018/06/28/roll-of-the-dice-waiting-on-the-end-of-the-world/)," which contains lyrics so similar to "Streets of Philadelphia" that it may actually be a derivative of an early version of it.
+Bruce wasn't finished exploring this theme. Well after he released "Streets of Philadelphia," he recorded a song with the E Street Band called "[Waiting on the End of the World](../2018-06-28_roll-of-the-dice-waiting-on-the-end-of-the-world/post.md)," which contains lyrics so similar to "Streets of Philadelphia" that it may actually be a derivative of an early version of it.
 
 [Watch on Youtube: Bruce Springsteen - Waiting On The End Of The World](https://www.youtube.com/watch?v=9VdUYYw6wtA)
 

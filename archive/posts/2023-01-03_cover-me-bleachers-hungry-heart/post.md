@@ -6,7 +6,7 @@ Last summer, he explained his deep affinity for his fellow New Jerseyan's music 
 
 Surprisingly, though, it's pretty rare for Bleachers to cover one of Bruce's songs in concert. Even when he played the Summer Stage at The Stone Pony last summer, the closest he got was a cover of "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," and that's not even a song Bruce wrote.
 
-But *Bruce Brunch* host Tom Cunningham scored a major get in the summer of 2017 when Antonoff joined him on his Sunday morning radio show (which really should be essential weekly listening for Springsteen fans–you can listen to the show live [here](https://1071theboss.com/special/springsteen-on-sunday/)). Jack played two songs that morning, one of which was an acoustic cover of Bruce's "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)."
+But *Bruce Brunch* host Tom Cunningham scored a major get in the summer of 2017 when Antonoff joined him on his Sunday morning radio show (which really should be essential weekly listening for Springsteen fans–you can listen to the show live [here](https://1071theboss.com/special/springsteen-on-sunday/)). Jack played two songs that morning, one of which was an acoustic cover of Bruce's "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."
 
 [Jack HH by Bleachers](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F342248932&show_artwork=true&maxheight=1000&maxwidth=758)
 

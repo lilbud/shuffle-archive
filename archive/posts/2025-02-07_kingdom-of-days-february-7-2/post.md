@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1975-0207.jpg.webp)
 
-**1977:** At the Palace Theater in Albany, it's opening night of the 1977 "Lawsuit" Tour that will keep the band busy on the road while they are legally prevented from recording. This show is available for purchase as part of Bruce's official archive series. Opening with a work-in-progress "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)" and featuring the live debut of "[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)" in the encores, this is a show worth having.<br>
+**1977:** At the Palace Theater in Albany, it's opening night of the 1977 "Lawsuit" Tour that will keep the band busy on the road while they are legally prevented from recording. This show is available for purchase as part of Bruce's official archive series. Opening with a work-in-progress "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" and featuring the live debut of "[Action in the Streets](../2022-06-27_roll-of-the-dice-action-in-the-streets/post.md)" in the encores, this is a show worth having.<br>
 
 [Watch on Youtube: Something in the Night (Live at Palace Theatre, Albany, NY - 2/7/1977)](https://www.youtube.com/watch?v=PVL8ZnzZwJE)
 
@@ -75,7 +75,7 @@
 >
 > We wear the mask!
 
-**2014:** Night Two in Perth features a great summer setlist, including the tour premieres of "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" "[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)," "[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)," "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)," "[Girls in their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)," and "[I'll Work For Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)" (the last two performed acoustically).<br>
+**2014:** Night Two in Perth features a great summer setlist, including the tour premieres of "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)," "[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md)," "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)," "[Girls in their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)," and "[I'll Work For Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)" (the last two performed acoustically).<br>
 
 [Watch on Youtube: Bruce Springsteen - Youngstown - Perth 7 February 2014 (multicam sbd)](https://www.youtube.com/watch?v=ylKW8Uf0gTw)
 
@@ -87,7 +87,7 @@
 
 [Watch on Youtube: I'll Work For Yor Love / Thunder Road - Bruce Springsteen, Perth, February 7th, 2014](https://www.youtube.com/watch?v=OPpVzWXicxQ)
 
-**2017:** Night One in Sydney on the Summer 2017 Tour, with the Australian Urban Orchestra joining for the opening "New York City Serenade." By request, Bruce plays a one-off cover of "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)."<br>
+**2017:** Night One in Sydney on the Summer 2017 Tour, with the Australian Urban Orchestra joining for the opening "New York City Serenade." By request, Bruce plays a one-off cover of "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - NYC Serenade -7/2/2017 Sydney](https://www.youtube.com/watch?v=jHaJ60IV-Ko)
 
@@ -101,9 +101,9 @@
 
 [Watch on Youtube: Bruce Springsteen 2017-02-07 Thunder Road (partial) at Qudos Bank Arena Sydney](https://www.youtube.com/watch?v=VWR3_VauQcM)
 
-**2023:** Shortly before taking the stage in Hollywood, Florida, Soozie Tyrell tests positive for COVID-19, scuttling a setlisted "Thunder Road" duet with Jon Bon Jovi (who wisely chooses to watch the show from a safe distance in his suite rather than share the stage with a COVID-exposed E Street Band) and setting off a chain reaction that will wreak havoc on the tour for weeks to come. This is also Patti Scialfa's last show of the tour (other than a cameo in Barcelona), and Bruce tour premieres "[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)" to showcase her vocal talents. Also tour premiering tonight: "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)."<br>
+**2023:** Shortly before taking the stage in Hollywood, Florida, Soozie Tyrell tests positive for COVID-19, scuttling a setlisted "Thunder Road" duet with Jon Bon Jovi (who wisely chooses to watch the show from a safe distance in his suite rather than share the stage with a COVID-exposed E Street Band) and setting off a chain reaction that will wreak havoc on the tour for weeks to come. This is also Patti Scialfa's last show of the tour (other than a cameo in Barcelona), and Bruce tour premieres "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" to showcase her vocal talents. Also tour premiering tonight: "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)."<br>
 
-During "[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)" Bruce is thrown off his game when he passes by hometown pretty girl Robyn Sherer in the pit, recognizes her, and completely loses his place in the song. Fortunately, the band has his back (or as Bruce puts it, they "cover their boss's ass!") while he recovers. Watch the moment starting at 2:10 below.
+During "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" Bruce is thrown off his game when he passes by hometown pretty girl Robyn Sherer in the pit, recognizes her, and completely loses his place in the song. Fortunately, the band has his back (or as Bruce puts it, they "cover their boss's ass!") while he recovers. Watch the moment starting at 2:10 below.
 
 [Watch on Youtube: Bruce Springsteen "Out In The Street" @ Seminole Hard Rock Casino, Hollywood FL 02/07/23](https://www.youtube.com/watch?v=EVTAadUFAos)
 

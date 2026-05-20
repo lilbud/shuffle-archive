@@ -6,21 +6,21 @@
 
 **1974:** Under record label pressure to release a new single, Bruce cancels a scheduled performance at Houston's Music Hall.<br>
 
-**1977:** Bruce and the E Street Band work on material for their upcoming album at Atlantic Studios in New York City. Listen to their early cut of "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" from this session below.<br>
+**1977:** Bruce and the E Street Band work on material for their upcoming album at Atlantic Studios in New York City. Listen to their early cut of "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" from this session below.<br>
 
 [Watch on Youtube: Bruce Springsteen Drive All Night #1 Original Version](https://www.youtube.com/watch?v=uFm3Y9-BYIs)
 
-**1978:** [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)is certified gold by the Recording Industry Association of America. That evening, Bruce and the E Street Band bring the Darkness Tour to Memorial Hall in Kansas City.<br>
+**1978:** [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)is certified gold by the Recording Industry Association of America. That evening, Bruce and the E Street Band bring the Darkness Tour to Memorial Hall in Kansas City.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MGKx3kdr)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-06-16.jpg.webp)
 
-**1983:** At The Hit Factory in New York City, Bruce records both "[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)" and "[Janey Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)."<br>
+**1983:** At The Hit Factory in New York City, Bruce records both "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)" and "[Janey Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)."<br>
 
 [Watch on Youtube: Stand On It (Single B-Side - 1985)](https://www.youtube.com/watch?v=8CxaXbCEYzE)
 
-**1988:** Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.<br>
+**1988:** Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Ec4vKeYf)
 
@@ -42,7 +42,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/8DUOtFWl)
 
-**2005:** The Devils & Dust Tour finishes its German leg with a show at Philipshalle in Dusseldorf. Bruce tour premieres "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)," "[I Wish I Were Blind,](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/)" and "[Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)."<br>
+**2005:** The Devils & Dust Tour finishes its German leg with a show at Philipshalle in Dusseldorf. Bruce tour premieres "[Highway 29](../2018-03-23_roll-of-the-dice-highway-29/post.md)," "[I Wish I Were Blind,](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md)" and "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)."<br>
 
 [Watch on Youtube: Highway 29 - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=cXMvpyM2at4)
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Bruce Springsteen - The Promised Land - Düsseldorf 2005-06-16 CLOSEUP](https://www.youtube.com/watch?v=QJhsH1TlB8Y)
 
-**2006:** Bruce and the Sessions Band tour premiere "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and a solo acoustic "Into the Fire" at their show in Cuyahoga Falls, Ohio.<br>
+**2006:** Bruce and the Sessions Band tour premiere "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and a solo acoustic "Into the Fire" at their show in Cuyahoga Falls, Ohio.<br>
 
 [Watch on Youtube: Bruse Springsteen - We Shall Over Come](https://www.youtube.com/watch?v=rbxru9dl0sc)
 
@@ -82,7 +82,7 @@
 
 [Watch on Youtube: Bruce Springsteen and Killers on Today Show 6-16-2021](https://www.youtube.com/watch?v=REXG6XCXDPA)
 
-**2022:** Bruce makes a surprise appearance at Paul McCartney's show at MetLife Stadium in East Rutherford, dueting with McCartney on "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)" and "[I Wanna Be Your Man](https://estreetshuffle.com/index.php/2023/07/15/matr-paul-mccartney-and-bruce-springsteen-i-wanna-be-your-man/)." He returns during the encore to play guitar on "[The End](https://estreetshuffle.com/index.php/2024/07/06/matr-paul-mccartney-and-bruce-springsteen-the-end/)."<br>
+**2022:** Bruce makes a surprise appearance at Paul McCartney's show at MetLife Stadium in East Rutherford, dueting with McCartney on "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" and "[I Wanna Be Your Man](../2023-07-15_matr-paul-mccartney-and-bruce-springsteen-i-wanna-be-your-man/post.md)." He returns during the encore to play guitar on "[The End](../2024-07-06_matr-paul-mccartney-and-bruce-springsteen-the-end/post.md)."<br>
 
 [Watch on Youtube: "Glory Days & I Wanna Be Your Man" Paul McCartney & Bruce Springsteen@New York 6/16/22](https://www.youtube.com/watch?v=F5lZnNsNPIA)
 

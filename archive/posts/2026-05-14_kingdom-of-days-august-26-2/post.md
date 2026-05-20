@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the E Street Band wrap a week-long residency at Oliver's in Boston.<br>
 
-**1977:** Bruce and the band work on "[Talk t](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)o[Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)" during a recording session in New York City.<br>
+**1977:** Bruce and the band work on "[Talk t](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)o[Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" during a recording session in New York City.<br>
 
 **1978:** The Darkness Tour descends on Rhode Island, for a show at the Providence Civic Center.<br>
 

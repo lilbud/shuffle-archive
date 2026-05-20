@@ -10,7 +10,7 @@ Bruce's studio version features a 2010 vocal grafted onto a 1977 backing track t
 
 Bruce could have edited and interwoven new vocals to replace the unfinished lines (as he did with other tracks on *The Promise*), but instead he chose to re-record the vocal track from scratch.
 
-That was a wise choice–despite his ability to mimic his earlier singing styles, there's no mistaking Bruce's 2010 voice for his 1977 one. (Compare the outtake above with the official version at the top of the article and hear for yourself.) "[The Brokenhearted,](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)" for example, would have been a stronger track had Bruce taken the full vocal replacement approach rather than a surgical one.
+That was a wise choice–despite his ability to mimic his earlier singing styles, there's no mistaking Bruce's 2010 voice for his 1977 one. (Compare the outtake above with the official version at the top of the article and hear for yourself.) "[The Brokenhearted,](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md)" for example, would have been a stronger track had Bruce taken the full vocal replacement approach rather than a surgical one.
 
 In any event, the original track runs for more than five minutes, and even edited for release on *The Promise*, the official version meanders for more than four minutes.
 
@@ -34,7 +34,7 @@ In the summer of 1977, Bruce decided he'd write a song for Elvis–literally. I'
 
 Whether by forethought or afterthought however, Bruce reportedly sent his demo to Elvis for consideration. We don't know exactly when that would have been, but since we know the outtake above was recorded in mid-June of '77, it's likely that if Elvis ever received it, it wasn't before early July, at which point he had only weeks to live.
 
-With Elvis unable to record it and Bruce disinterested in including it on *Darkness on the Edge of Town*, Bruce gave the song to [Robert Gordon, who recorded it with Link Wray](https://estreetshuffle.com/index.php/2018/01/31/cover-me-robert-gordon-and-link-wray-fire/) and released it in 1978. Gordon's cover got some airplay but never cracked the Top 100.
+With Elvis unable to record it and Bruce disinterested in including it on *Darkness on the Edge of Town*, Bruce gave the song to [Robert Gordon, who recorded it with Link Wray](../2018-01-31_cover-me-robert-gordon-and-link-wray-fire/post.md) and released it in 1978. Gordon's cover got some airplay but never cracked the Top 100.
 
 The next year, however, The Pointer Sisters took a crack at it and took "Fire" all the way to #2.
 
@@ -94,7 +94,7 @@ Even when forced to play his own straight man in a restrained 1986 acoustic vers
 
 [Watch on Youtube: Bruce Springsteen - Fire (rare)](https://www.youtube.com/watch?v=d5PoIrcyd34)
 
-On rare occasions, though, Bruce lets the song's content rise to the surface. At the very last show of the Devils & Dust Tour, Bruce played "Fire" in an unusual arrangement–solo harmonica and bullet mic–normally reserved for more serious subject matter like "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" and "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)."
+On rare occasions, though, Bruce lets the song's content rise to the surface. At the very last show of the Devils & Dust Tour, Bruce played "Fire" in an unusual arrangement–solo harmonica and bullet mic–normally reserved for more serious subject matter like "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" and "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)."
 
 In this Nebraska-esque arrangement, "Fire" comes across more sinister than silly, and the result is more than a little chilling.
 

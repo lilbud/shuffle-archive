@@ -22,7 +22,7 @@ Joe: Oh, I'm glad you liked it!
 
 **I'm a big fan. So I'm curious: where does *American Babylon* rank in *your* perception of your catalog?**<br>
 
-It's near the top. I mean, there was [*Have a Good Time But Get Out Alive*](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/), the 40th anniversary edition that we're promoting now. That was the record that... my life began to change with *Love's So Tough*, but it *really* hit a different level with *Have a Good Time But Get Out Alive.*
+It's near the top. I mean, there was [*Have a Good Time But Get Out Alive*](../2020-05-22_have-a-good-time-but-get-out-alive/post.md), the 40th anniversary edition that we're promoting now. That was the record that... my life began to change with *Love's So Tough*, but it *really* hit a different level with *Have a Good Time But Get Out Alive.*
 
 [Watch on Youtube: Have a Good Time but... Get out Alive](https://www.youtube.com/playlist?list=OLAK5uy_m8XucNiryNwVfJUu1EI206RMqA_KaLTK8)
 
@@ -52,9 +52,9 @@ That's the first time I met Bruce. And I guess he just took a liking to that rec
 
 Well, the first one, I went out to Los Angeles. He invited me to Los Angeles, and we did "Chain Smokin'" and...
 
-**"[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)," right?**<br>
+**"[Never Be Enough Time](../2018-04-03_meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/post.md)," right?**<br>
 
-Yeah. "Never Be Enough Time," and I played him a bunch of other songs, but they weren't very good. I mean, like I said: I was almost flatlined. I had "[Chain Smokin',](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" but the rest of the songs were very forgettable.
+Yeah. "Never Be Enough Time," and I played him a bunch of other songs, but they weren't very good. I mean, like I said: I was almost flatlined. I had "[Chain Smokin',](../2021-05-25_matr-joe-grushecky-and-bruce-springsteen-chain-smokin/post.md)" but the rest of the songs were very forgettable.
 
 So when the sessions were coming to an end he said, "You know, you gotta write some better songs. The songs aren't very good." And he was right. They *weren't* very good songs. He said, "You write so much better than this. These aren't up to any kind of standard." They were pretty lousy.
 
@@ -84,7 +84,7 @@ Yeah! [laughs] Anyways, he says, "If you go to work with Bruce Springsteen again
 
 But for some reason, he had it in for Bruce Springsteen. He did *not* like Bruce Springsteen, and he didn't want me to work with Bruce Springsteen. For whatever reason, I never found out.
 
-So the following weekend comes, and it's Sunday night, and my wife comes and hands me the phone and says it's Bruce. Bruce goes and starts playing "[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)" on the phone. And I said, "Oh man, that's *great*!" He said "we got to record this!" I said, "Oh, that's fabulous! When?" He says, "Tuesday."
+So the following weekend comes, and it's Sunday night, and my wife comes and hands me the phone and says it's Bruce. Bruce goes and starts playing "[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)" on the phone. And I said, "Oh man, that's *great*!" He said "we got to record this!" I said, "Oh, that's fabulous! When?" He says, "Tuesday."
 
 So now I go into work on Monday. Monday night, I call in sick. Now I'm being a little bit sneaky instead of being honest, because who's going to pass up the chance to do that? Lee Ann and I flew up to New York, and somebody picked us up and took us to Bruce's in Jersey.
 
@@ -100,7 +100,7 @@ Yeah. [laughs] So I called, and she said "Joey," (she always called me Joey) "Jo
 
 So I called, and Dick got on the phone and he says, "Where are you?" And I said, "Well, you know, I'm sick." He says, "So why didn't you answer the phone?" I said, "Well I was in the bathroom! I'm sick." He said, "You're not with Bruce Springsteen are you?" And Bruce is two feet away. I said, "No, I'm not at Bruce Springsteen's. I'm home in Pittsburgh." And then he made me come in with a doctor's excuse, so I had to go to my buddy who was a doctor and tell him the whole story and get a doctor's excuse. I ended up taking off three days of work just because I was pissed off then, instead of just doing what I had to do.
 
-**That's really funny. This is the kind of thing that makes me think of the butterfly effect, you know? Little things that have these big ripples. This guy, if you had listened to him, not only would your career have gone a different way.... If you look at Bruce's career during the back half of the nineties, it's pretty obvious that the work he did with you kind of led him down that *[Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)* path, because you can see a lot of parallels between "[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)" and "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)." And then I remember reading that when he came off of that tour, he reconnected with you and you guys did "[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)" and "Another Thin Line."**<br>
+**That's really funny. This is the kind of thing that makes me think of the butterfly effect, you know? Little things that have these big ripples. This guy, if you had listened to him, not only would your career have gone a different way.... If you look at Bruce's career during the back half of the nineties, it's pretty obvious that the work he did with you kind of led him down that *[Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)* path, because you can see a lot of parallels between "[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)" and "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)." And then I remember reading that when he came off of that tour, he reconnected with you and you guys did "[Code of Silence](../2018-08-27_codeofsilence/post.md)" and "Another Thin Line."**<br>
 
 Yep.
 
@@ -122,7 +122,7 @@ Sure.
 
 Well, probably because of the job I was working in. The kids stole my car the other day. They did! They stole my car, they broke my car, the kids I was working with. I mean right off the bat that's a true statement. And I just felt, my god, what's the country coming to?" We had the Rodney King thing going on at that time, and we had just fought the Iraq war (the first one). It just seemed like everything was crazy, and I myself was intimately involved with in some cases horrific stories about maltreatment of children. I had a lot of kids who were just physically, mentally, sexually abused.
 
-I actually wrote "No Strings Attached" and "[American Babylon](https://estreetshuffle.com/index.php/2020/12/11/matr-joe-grushecky-and-bruce-springsteen-american-babylon/)" on the same night. I came home, and I had a lot of slow songs. I thought, I gotta get some rock and roll stuff here. I was really excited by "American Babylon." I thought I was on to something.
+I actually wrote "No Strings Attached" and "[American Babylon](../2020-12-11_matr-joe-grushecky-and-bruce-springsteen-american-babylon/post.md)" on the same night. I came home, and I had a lot of slow songs. I thought, I gotta get some rock and roll stuff here. I was really excited by "American Babylon." I thought I was on to something.
 
 Before the final recording sessions in L.A., we recorded "American Babylon" here in Pittsburgh as a demo. Bruce heard it and said, "man, that's the title." I didn't have a title up until then, and I was fishing for one.
 
@@ -132,7 +132,7 @@ No, because I was so excited when I wrote it! I went down to the studio with Ric
 
 [Watch on Youtube: American Babylon](https://www.youtube.com/watch?v=it0MaZc8ewg)
 
-**It's funny you say that. I'm flashing back to [our *Have a Good Time* conversation](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/) and how when you put those bonus tracks out there was that demo of "Don't Let Them Push You Around" that was wildly different from the final version.**<br>
+**It's funny you say that. I'm flashing back to [our *Have a Good Time* conversation](../2020-05-22_have-a-good-time-but-get-out-alive/post.md) and how when you put those bonus tracks out there was that demo of "Don't Let Them Push You Around" that was wildly different from the final version.**<br>
 
 [Watch on Youtube: Dont Let Them Push You Around (Demo)](https://www.youtube.com/watch?v=39gDr_UAxSU)
 
@@ -142,7 +142,7 @@ No, pretty much not. We were very efficient in that record. That's the only song
 
 With the stuff I did for MCA when I was on Cleveland International, they would actually give me a budget to go do demos, so I would go fish around in the studio. Sometimes I would write stuff right in the studio. It was a whole different approach, but the *American Babylon* record was pretty much planned out before we went. I mean, with regard to what songs we were going to do. I didn't have a lot of... I wasn't on a hot streak then. I didn't have a lot of songs that I could just throw out there and see what was going to stick.
 
-**Well, I know the order of recording. I know you started with "[Chain Smokin'](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" and "Never Be Enough Time"–which by the way, I think are two of your best songs.**<br>
+**Well, I know the order of recording. I know you started with "[Chain Smokin'](../2021-05-25_matr-joe-grushecky-and-bruce-springsteen-chain-smokin/post.md)" and "Never Be Enough Time"–which by the way, I think are two of your best songs.**<br>
 
 I'm really happy with both of those.
 
@@ -198,17 +198,17 @@ No... I don't know if I have a... Do you have the sequence?
 
 **I do. But I thought those two–**<br>
 
-We did "Homestead" in November at The Hit Factory, but the next songs we did after that were "Talk Show" and "[Comin' Down Maria.](https://estreetshuffle.com/index.php/2021/09/05/matr-joe-grushecky-bruce-springsteen-and-patti-scialfa-comin-down-maria/)" We did "[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/)," too, but I ended up re-recording that one with the band.
+We did "Homestead" in November at The Hit Factory, but the next songs we did after that were "Talk Show" and "[Comin' Down Maria.](../2021-09-05_matr-joe-grushecky-bruce-springsteen-and-patti-scialfa-comin-down-maria/post.md)" We did "[Only Lovers Left Alive](../2021-06-27_matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/post.md)," too, but I ended up re-recording that one with the band.
 
-**Okay... That's not what I saw reflected in Brucebase, so this is new info. Brucebase has "Talk Show" and "Comin' Down Maria" pinned to October '94, almost a year later, with no mention of "Only Lovers Left Alive." The chronology I have—and please correct me if I'm wrong—is October/November '93, you guys did "Chain Smokin'" and "Never Be Enough Time," and there was a February session in '94 which I thought was "Homestead," "Dark and Bloody Ground," and "[Labor of Love](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/)."**<br>
+**Okay... That's not what I saw reflected in Brucebase, so this is new info. Brucebase has "Talk Show" and "Comin' Down Maria" pinned to October '94, almost a year later, with no mention of "Only Lovers Left Alive." The chronology I have—and please correct me if I'm wrong—is October/November '93, you guys did "Chain Smokin'" and "Never Be Enough Time," and there was a February session in '94 which I thought was "Homestead," "Dark and Bloody Ground," and "[Labor of Love](../2022-05-08_matr-joe-grushecky-and-bruce-springsteen-labor-of-love/post.md)."**<br>
 
-No. "Comin' Down Maria" and "Talk Show" were the next two we did. The Pirates had an All-Star game here in Pittsburgh–I took my son to the Home Run Derby, and the next day I flew to New Jersey when we worked on those two songs. We also did "[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/)," which Bruce helped arrange and played a long guitar solo on, but ultimately I thought that should be a band song. When I recorded it later with the band, Bruce opted to sit that one out. I have an outtake of it somewhere, though.
+No. "Comin' Down Maria" and "Talk Show" were the next two we did. The Pirates had an All-Star game here in Pittsburgh–I took my son to the Home Run Derby, and the next day I flew to New Jersey when we worked on those two songs. We also did "[Only Lovers Left Alive](../2021-06-27_matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/post.md)," which Bruce helped arrange and played a long guitar solo on, but ultimately I thought that should be a band song. When I recorded it later with the band, Bruce opted to sit that one out. I have an outtake of it somewhere, though.
 
 **Okay, so this is July '94?**<br>
 
 Yeah. And then at some point we didn't do anything for a while, and then March '95, I went out with the band and we finished the record. I went back out in May and did overdubs.
 
-**Okay, so July '94 for "[Comin' Down Maria](https://estreetshuffle.com/index.php/2021/09/05/matr-joe-grushecky-bruce-springsteen-and-patti-scialfa-comin-down-maria/)," "Talk Show" and the "Lovers" outtake, and then August for "Dark and Bloody Ground" and "Labor of Love"? Brucebase has those two and a few others pegged to August '94.**<br>
+**Okay, so July '94 for "[Comin' Down Maria](../2021-09-05_matr-joe-grushecky-bruce-springsteen-and-patti-scialfa-comin-down-maria/post.md)," "Talk Show" and the "Lovers" outtake, and then August for "Dark and Bloody Ground" and "Labor of Love"? Brucebase has those two and a few others pegged to August '94.**<br>
 
 It wasn't August. The next time we went out was in March of '95. It'd be before May, because May was my last session with Bruce. We basically finished the record in May. I went out in March with the band and we recorded. I brought "American Babylon" with me, and then we did all the rest of the record.
 
@@ -254,7 +254,7 @@ Right.
 
 [sings the mandolin part]
 
-**–exactly! That shows up later in "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)." When I first heard that I was like, "Whoa! That's instantly recognizable." Did he ask you if he could use that?**<br>
+**–exactly! That shows up later in "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)." When I first heard that I was like, "Whoa! That's instantly recognizable." Did he ask you if he could use that?**<br>
 
 That was just his bit to begin with. Bruce played that part on guitar and mandolin on "Labor of Love." We trade ideas back and forth, so we both used it.
 
@@ -290,7 +290,7 @@ Well, *nobody* does. I'm spilling the beans. You're the first guy to know.
 
 **Okay, "Only Lovers Left Alive." Like I said earlier, title tracks are interesting to me. Album sequences are interesting to me. That is a *dark* note to close that album on.**<br>
 
-Yeah, well it's sort of a dark record. It started with "Dark and Bloody Ground" and we have "American Babylon" in the middle and then "[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/)." But I did purposely try to put in some lighter moments in with "No Strings Attached" and also "Labor of Love."
+Yeah, well it's sort of a dark record. It started with "Dark and Bloody Ground" and we have "American Babylon" in the middle and then "[Only Lovers Left Alive](../2021-06-27_matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/post.md)." But I did purposely try to put in some lighter moments in with "No Strings Attached" and also "Labor of Love."
 
 **It's really interesting to me that you see it as a dark album. I've always heard it as equal parts light and dark. I think it's literally half and half, six and six. It feels very yin and yang, and I wondered whether that was deliberate. But it sounds like you think of it as a darker album–a dark album with some light songs.**<br>
 
@@ -346,7 +346,7 @@ Bruce has a version of it. You heard that, right, on E Street Radio?
 
 **I *have* heard it, but live, I mean–you guys have done it live together, but I don't think he's played it on his own without you, or with the band at all.**<br>
 
-Did you hear the "[Idiot's Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/)" he did?
+Did you hear the "[Idiot's Delight](../2021-03-12_rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/post.md)" he did?
 
 **[Blogger's Note: Bruce and Joe wrote "Idiot's Delight" together.] I did! I did, when he played it on his radio show recently. I was like, hello! Where did *you* come from?**<br>
 
@@ -358,7 +358,7 @@ No, I didn't!
 
 **That's a lot of times.**<br>
 
-The reason I e-mailed, we were having some type of discussion sitting on my patio with my wife and kids about how many times I've played with Bruce, and I said I had written a bunch of them down when we first started, but then I got lax, so I had no idea. I figured you must've known because shortly after, you put out that little blurb about, was it "[Talking to the King](https://estreetshuffle.com/index.php/2020/06/12/matr-joe-grushecky-and-bruce-springsteen-talking-to-the-king/)?"
+The reason I e-mailed, we were having some type of discussion sitting on my patio with my wife and kids about how many times I've played with Bruce, and I said I had written a bunch of them down when we first started, but then I got lax, so I had no idea. I figured you must've known because shortly after, you put out that little blurb about, was it "[Talking to the King](../2020-06-12_matr-joe-grushecky-and-bruce-springsteen-talking-to-the-king/post.md)?"
 
 **Yeah.**<br>
 
@@ -370,11 +370,11 @@ You can send me anything you want. [laughs] I'd be glad to have it.
 
 **Cool. I'm curious though: so you guys definitely have some reliables that you play together, both from your catalog and his. Who chooses the Springsteen songs that you include, you or him? Do you have favorite songs that you guys like to play?**<br>
 
-Well I try to... I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he'll say, "Well, let's do *this* one." That's why we started to do [singing] [*save my love for you*](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/). We started doing that one.
+Well I try to... I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he'll say, "Well, let's do *this* one." That's why we started to do [singing] [*save my love for you*](../2019-07-16_roll-of-the-dice-save-my-love/post.md). We started doing that one.
 
 [Watch on Youtube: Bruce Springsteen with Joe Grushecky and the Houserockers-Save My Love](https://www.youtube.com/watch?v=dptZn4uH4iA)
 
-**Yeah. And you guys did "[Frankie Fell in Love.](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)" I think you guys were the first ones to play both of those.**<br>
+**Yeah. And you guys did "[Frankie Fell in Love.](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)" I think you guys were the first ones to play both of those.**<br>
 
 Yeah. We were the first ones. I think I suggested that because it had that Stones vibe. I'm a big Stones fan.
 
@@ -398,7 +398,7 @@ I got some really good songs that I was excited about, and this pandemic just br
 
 **Yeah, I saw the video you guys did the other day. I bookmarked it to make sure because I was actually out somewhere when I saw it. You did...**<br>
 
-"[Everything's Going to Work Out Right](https://estreetshuffle.com/index.php/2021/05/09/matr-joe-grushecky-and-bruce-springsteen-everythings-going-to-work-out-right/)."
+"[Everything's Going to Work Out Right](../2021-05-09_matr-joe-grushecky-and-bruce-springsteen-everythings-going-to-work-out-right/post.md)."
 
 [Watch on Youtube: Rock For Relief - Joe Grushecky and The Houserockers - "Everything's Gonna Work Out Right"](https://www.youtube.com/watch?v=M6sFMtDO6iM)
 

@@ -4,7 +4,7 @@ When “A Fine Fine Boy” was released in 1963, it became Darlene Love’s nint
 
 Bruce and Darlene have appeared together several times in the 21st century, but Bruce was covering her music even back in the *Born to Run* era. That’s not surprising, since Love was one of Phil Spector’s vocalists, and Bruce famously emulated Spector’s trademark “wall of sound” on his third album*.*
 
-In the summer of 1976, almost a full year after the release of *Born to Run,* Bruce played a one-off of Darlene’s previous hit, “[He’s Sure the Boy I Love,](https://estreetshuffle.com/index.php/2020/08/27/cover-me-shes-sure-the-girl-i-love/)” at the Monmouth Arts Center. A few months later in Philadelphia, he pulled out “A Fine Fine Boy,” swapped the gender of its titular character, and played it throughout his stands at the Spectrum and New York City’s Palladium.
+In the summer of 1976, almost a full year after the release of *Born to Run,* Bruce played a one-off of Darlene’s previous hit, “[He’s Sure the Boy I Love,](../2020-08-27_cover-me-shes-sure-the-girl-i-love/post.md)” at the Monmouth Arts Center. A few months later in Philadelphia, he pulled out “A Fine Fine Boy,” swapped the gender of its titular character, and played it throughout his stands at the Spectrum and New York City’s Palladium.
 
 With its rich arrangement, horn section with standout sax solo, and pre- and mid-song vamping, Bruce couldn’t have chosen a better cover to fit the E Street style. Hear for yourself: take a listen to Bruce, the E Street Band, and the Miami Horns playing a delightful cover of “A Fine Fine Girl” in Philadelphia on October 25, 1976.
 

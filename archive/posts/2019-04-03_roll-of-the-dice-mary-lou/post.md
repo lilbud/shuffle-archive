@@ -2,9 +2,9 @@ How good is Bruce Springsteen?
 
 So good that he can write three different killer pop songs *with the exact same lyrics*.
 
-The lines that many of us became familiar with in "[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" on the Tunnel of Love Express Tour can be found in two other songs as well, and even though the words are the same, when set to different melodies their message is different.
+The lines that many of us became familiar with in "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" on the Tunnel of Love Express Tour can be found in two other songs as well, and even though the words are the same, when set to different melodies their message is different.
 
-Unlike "[Little White Lies](https://estreetshuffle.com/index.php/2018/03/20/roll-of-the-dice-little-white-lies/)," however, which in retrospect seems like a mere lyrical dalliance (when finally released in 2016, it would sport entirely different lyrics that have more in common with "Stolen Car" and "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" than "Be True"), it would be a mistake to dismiss "Mary Lou" as a work in progress. It's every bit a finished song, and for the life of me I couldn't tell you which version–"Be True" or "Mary Lou"–I love more. (But I love them both.)
+Unlike "[Little White Lies](../2018-03-20_roll-of-the-dice-little-white-lies/post.md)," however, which in retrospect seems like a mere lyrical dalliance (when finally released in 2016, it would sport entirely different lyrics that have more in common with "Stolen Car" and "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" than "Be True"), it would be a mistake to dismiss "Mary Lou" as a work in progress. It's every bit a finished song, and for the life of me I couldn't tell you which version–"Be True" or "Mary Lou"–I love more. (But I love them both.)
 
 "Mary Lou" not only ranks among the best of Bruce's lighter songs, it also–along with sister songs "Be True" and "Little White Lies"–offers us a remarkable look at how Bruce creates a song. In fact, so many solo acoustic and full band rehearsal recordings and outtakes exist (about twenty by my count), that it may be one of the most documented and instructive behind-the-scenes peeks in his entire catalog. For that reason (and because I'd otherwise end up analyzing the same lyrics in three different essays), I'm going to save the lyrical analysis for my future "Be True" essay, and focus instead on how "Mary Lou" evolved from a melodic hook to a full-fledged song.
 
@@ -52,7 +52,7 @@ What fascinates me the most about "Mary Lou" and "Be True" is how–despite havi
 
 True, there are some minor lyrical differences in the choruses that help differentiate the songs (I'll discuss them when I write about "Be True"), but the backing track plays a big role here, too: Even this early in his career, Bruce has clearly realized the power of a melody or arrangement to underline or shift the meaning of a song.
 
-Not satisfied enough with "Mary Lou" to release her on the *The River*, Bruce nevertheless couldn't bring himself to abandon her story. To see where Bruce took the tale from here, see my write-up on "[Little White Lies](https://estreetshuffle.com/index.php/2018/03/20/roll-of-the-dice-little-white-lies/)" and my (someday) entry for "Be True."
+Not satisfied enough with "Mary Lou" to release her on the *The River*, Bruce nevertheless couldn't bring himself to abandon her story. To see where Bruce took the tale from here, see my write-up on "[Little White Lies](../2018-03-20_roll-of-the-dice-little-white-lies/post.md)" and my (someday) entry for "Be True."
 
 As for "Mary Lou," she would see the light of day on *Tracks*, almost two decades after she was recorded.
 

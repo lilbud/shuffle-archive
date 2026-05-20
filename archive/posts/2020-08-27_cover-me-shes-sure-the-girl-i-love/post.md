@@ -1,4 +1,4 @@
-Like "[He's a Rebel](https://estreetshuffle.com/index.php/2021/10/02/matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/)" and "[Da Doo Ron Ron](https://estreetshuffle.com/index.php/2019/01/02/matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/)," figuring out who to credit for "He's Sure the Boy I Love" isn't straightforward.
+Like "[He's a Rebel](../2021-10-02_matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/post.md)" and "[Da Doo Ron Ron](../2019-01-02_matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/post.md)," figuring out who to credit for "He's Sure the Boy I Love" isn't straightforward.
 
 Legally, the 1962 Top 20 Hit (it peaked at #11 on the Billboard Hot 100 and #18 on the Hot R&B Singles chart) was credited to The Crystals. But that was news to The Crystals, because the song was actually recorded by a group called The Blossoms, fronted by one Darlene Love.
 

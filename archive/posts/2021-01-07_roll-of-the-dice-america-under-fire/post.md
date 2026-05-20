@@ -52,7 +52,7 @@ The band changes up the melody to a circus tune during the bridge, and the meani
 
 "America Under Fire" isn't just anti-war; it's a protest against a homeland gone astray from its values and ignorant of the consequences. The title carries a double meaning: America is under fire from within and without.
 
-It's not Bruce's strongest song, even for the era, but it presages some of his best songs from later eras, like "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"
+It's not Bruce's strongest song, even for the era, but it presages some of his best songs from later eras, like "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
 
 And it feels appropriate after a day when the sky turned very, very grey.
 

@@ -20,7 +20,7 @@ Bruce is clearly making a statement in the opening track of his second album. Be
 
 By the time Bruce and the band started recording *Born to Run*, the pressure was high and mounting. Bruce's third album carries a sense of confidence, desperation and focus, but his second is loose, fun, eclectic, and at times breathtakingly daring.
 
-"The E Street Shuffle" is all of these. Bruce's guitar-playing matches Sancious' clavinet funk for funk; the very first E Street horn section (with guest artist Albee Tellone) carries the riff; Richard Blackwell adds some Latin percussion; Bruce even plays a recorder. Years before "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)," Bruce and the band add their simulated street chatter like a cacophonous Greek chorus. "The E Street Shuffle" may not represent Bruce's typical sound, but it certainly introduces key elements of it.
+"The E Street Shuffle" is all of these. Bruce's guitar-playing matches Sancious' clavinet funk for funk; the very first E Street horn section (with guest artist Albee Tellone) carries the riff; Richard Blackwell adds some Latin percussion; Bruce even plays a recorder. Years before "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)," Bruce and the band add their simulated street chatter like a cacophonous Greek chorus. "The E Street Shuffle" may not represent Bruce's typical sound, but it certainly introduces key elements of it.
 
 (Side note: I've always considered the orchestra tune-up introduction to be separate from the song itself, serving more as an introduction for the album than its semi-title track. The fact that it was recorded completely separately only bolsters my opinion. Still, it works perfectly as a lead-in to "The E Street Shuffle" because it telegraphs that something symphonic is on the way only to completely subvert expectations moments later.)
 
@@ -28,7 +28,7 @@ And then there are those lyrics.
 
 Every time I listen to "The E Street Shuffle," I shake my head. There's absolutely no reason why lyrics like "those E Street brats in twilight duel flashlight phantoms in full star stream" should fit *any* melody or meter. It's hard to even *say* some of Bruce's lines, let alone sing them.
 
-And yet somehow, Bruce manages to turn a word salad into a sandwich, pulling off some clever internal rhyming in the process. Even more than in "[Blinded by the Light,](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" I find myself occasionally questioning whether Bruce was really the pharmacological straight-edge he's always claimed he was.
+And yet somehow, Bruce manages to turn a word salad into a sandwich, pulling off some clever internal rhyming in the process. Even more than in "[Blinded by the Light,](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" I find myself occasionally questioning whether Bruce was really the pharmacological straight-edge he's always claimed he was.
 
 Regardless, once we adjust to Bruce's lyrical verbosity, we realize: nothing happens in "The E Street Shuffle." Like *absolutely* nothing. The whole song is just one big stage-setting exercise–the very last lines imply the story is about to start, and then the song turns into a raging party that eventually just fades out.
 
@@ -54,7 +54,7 @@ But in the second verse, the scene gets a bit seedier. Bruce's lyrics are laced 
 > *She's deaf in combat down on Lover's Lane*<br>
 > *She drives all them local boys insane*<br>
 
-There's an argument to be made that these are simply kids continually on the run from the cops, but there's a fair bit of intimation that Power Thirteen and Little Angel are early versions of Spanish Johnny and Puerto Rican Jane, sex workers doing their dance every day to get by on a Lover's Lane that is likely the same ironically named locale from "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)," just a few album tracks away. In the eyebrow-raising bridge, Little Angel has the boys lined up to shuffle her brains out.
+There's an argument to be made that these are simply kids continually on the run from the cops, but there's a fair bit of intimation that Power Thirteen and Little Angel are early versions of Spanish Johnny and Puerto Rican Jane, sex workers doing their dance every day to get by on a Lover's Lane that is likely the same ironically named locale from "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," just a few album tracks away. In the eyebrow-raising bridge, Little Angel has the boys lined up to shuffle her brains out.
 
 > *Little Angel say, "Oh, oh, oh, oh, oh*<br>
 > *Everybody form a line*<br>
@@ -94,7 +94,7 @@ Here's a rare recording of the original E Street Band performing "The E Street S
 
 [Watch on Youtube: The E Street Shuffle,Bruce Springsteen w/Albee Tellone,The Main Point,10-31-1973](https://www.youtube.com/watch?v=xF78hFYM1Ng)
 
-Not long after the album debuted, Bruce premiered a new, slower arrangement for "The E Street Shuffle," liberally borrowing from Manfred Mann's "[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)" (which Bruce would eventually quote mid-song and then finally debut in late 1975).
+Not long after the album debuted, Bruce premiered a new, slower arrangement for "The E Street Shuffle," liberally borrowing from Manfred Mann's "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" (which Bruce would eventually quote mid-song and then finally debut in late 1975).
 
 [Watch on Youtube: The E Street Shuffle - Bruce Springsteen (18-10-1975 The Roxy Theatre,West Hollywood, California)](https://www.youtube.com/watch?v=g_qN59YAwo0)
 

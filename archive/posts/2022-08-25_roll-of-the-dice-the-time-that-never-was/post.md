@@ -10,7 +10,7 @@ But oh, was it ever worth the wait.
 
 "The Time That Never Was" is classic Darkness/River-era Springsteen. Lyrically, it explores the same themes as "The River," but it's paired with a lush, romantic backing track that would be right at home on *The Promise* (or the soundtrack to *Eddie and the Cruisers*, which is what this song constantly evokes for me).
 
-The narrator of "The Time That Never Was" could easily be the same narrator of "[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" in fact. Bruce's lyrics take that final, immortal line of "The River" (*is a dream a lie of it don't come true, or is it something worse?* ), and he answers it with a narrator who can't help but look back on a youthful past that never lived up to its promise, even at the time.
+The narrator of "The Time That Never Was" could easily be the same narrator of "[The River,](../2021-03-04_roll-of-the-dice-the-river/post.md)" in fact. Bruce's lyrics take that final, immortal line of "The River" (*is a dream a lie of it don't come true, or is it something worse?* ), and he answers it with a narrator who can't help but look back on a youthful past that never lived up to its promise, even at the time.
 
 > *Sometimes I wake up in the morning and it cuts me like a knife*<br>
 > *I come face-to-face with my longing for another world, another life*<br>

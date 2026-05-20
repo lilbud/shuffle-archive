@@ -1,4 +1,4 @@
-Chances are that if I told you that a notable rapper/hip-hop singer covered a Bruce Springsteen song, neither Dessa nor "[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)" would immediately spring to mind as likely candidates.
+Chances are that if I told you that a notable rapper/hip-hop singer covered a Bruce Springsteen song, neither Dessa nor "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" would immediately spring to mind as likely candidates.
 
 And even if they did, you probably wouldn't expect a moody, acoustic, and gorgeously atmospheric track like this.
 

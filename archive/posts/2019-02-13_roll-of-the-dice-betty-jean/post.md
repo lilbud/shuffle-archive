@@ -1,6 +1,6 @@
 No, that's not a typo in the title: this is the story of *Betty* Jean.
 
-We all know [*Bobby* Jean's story](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/), of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn't even get to say goodbye.
+We all know [*Bobby* Jean's story](../2018-06-19_roll-of-the-dice-bobby-jean/post.md), of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn't even get to say goodbye.
 
 Hir older sister, Betty, however… oh, she stayed all right, and she made life a mixed blessing for her man.
 
@@ -38,7 +38,7 @@ Bobby and Betty don't slow down one bit. Bobby races up the highway while Betty 
 > *Going up the highway, she was giving me it*
 > *She put her hand on my leg, I drove us in a drainage ditch*
 
-You can't run forever, though. Sooner or later, life catches up and reality sinks its talons into you. And Bobby learns the lesson of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)," although it's not clear they ever had the forethought to dream in the first place.
+You can't run forever, though. Sooner or later, life catches up and reality sinks its talons into you. And Bobby learns the lesson of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," although it's not clear they ever had the forethought to dream in the first place.
 
 Bruce gives the last verse of "Betty Jean" a final line just as memorable as the one in "The River," but a lot less poetic:
 
@@ -51,7 +51,7 @@ And there we have it: the tale of Betty Jean, who peaked early while her sibling
 
 A final curiosity about the Jeans: they actually have a *third* sibling.
 
-*Beverly* Jean made her debut in "[Delivery Man,](https://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/)" another unreleased song from the *Born in the U.S.A. Sessions*. You can tell Betty and Beverly are sisters because they both have the same "eyes like a jack rabbit starin' dead in your high beams."
+*Beverly* Jean made her debut in "[Delivery Man,](../2019-08-28_roll-of-the-dice-delivery-man/post.md)" another unreleased song from the *Born in the U.S.A. Sessions*. You can tell Betty and Beverly are sisters because they both have the same "eyes like a jack rabbit starin' dead in your high beams."
 
 But Beverly's story is a tale for another day.
 

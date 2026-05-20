@@ -6,13 +6,13 @@ I feel like I should remember more of this show than I do.
 
 After all, it was only two years ago, it was the longest show Bruce ever played in the US, and the second longest anywhere (at the time, anyway–that record fell repeatedly over the course of a few weeks).
 
-Plus, I got to hear “New York City Serenade” with strings open the show yet again (I couldn’t believe it was my third time hearing it in under six weeks), along with that beautiful new arrangement of “[Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/).”
+Plus, I got to hear “New York City Serenade” with strings open the show yet again (I couldn’t believe it was my third time hearing it in under six weeks), along with that beautiful new arrangement of “[Jack of All Trades](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md).”
 
 [Watch on Youtube: Bruce Springsteen - NYC Serenade - Met Life Stadium 8-25-2016](https://www.youtube.com/watch?v=I4TujDR__u4)
 
 [Watch on Youtube: Jack of All Trades (with strings) - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=ydQtkgz75Q0)
 
-Also, Tom Morello guest-starred on four songs, including an absolutely searing “American Skin (41 Shots)” and the obligatory “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/).”
+Also, Tom Morello guest-starred on four songs, including an absolutely searing “American Skin (41 Shots)” and the obligatory “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md).”
 
 [Watch on Youtube: Bruce Springsteen and Tom Morello Ghost of Tom Joad 8/25/16 MetLife Stadium, NJ](https://www.youtube.com/watch?v=2N84NR4fmRU)
 
@@ -46,7 +46,7 @@ Bruce’s mom never left her seat, though. She rarely sat in it either–for a n
 
 It was a delight to watch her enjoy her son’s performance, but the whole family reunion playing out in front of me all night long kept me from being as in-the-moment as I usually am at a show.
 
-(And speaking of delights, can we acknowledge for a moment how fantastic this little three-year-old girl is on “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)?”)
+(And speaking of delights, can we acknowledge for a moment how fantastic this little three-year-old girl is on “[Waitin’ on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)?”)
 
 [Watch on Youtube: Bruce Springsteen - Waitin' on a sunny day - Aug 25, 2016 - Metlife - Subtitulado](https://www.youtube.com/watch?v=tREa6yUd_Ec)
 

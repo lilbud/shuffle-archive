@@ -2,7 +2,7 @@ You'd hope an artist with a career as full as Soozie Tyrell's would have more th
 
 Released in 2003, *White Lines* highlights not just Soozie's musicianship–we already knew about that–but also her powerful songwriting. Drawn from her own life experiences, Soozie's songs range from contemplative to declarative but all anchored by her finally-out-in-front vocals and trademark violin.
 
-The album leads off with its title track, one of two songs on the album to feature a Springsteen contribution. (See "[Ste. Genevieve](https://estreetshuffle.com/index.php/2018/08/21/meeting-across-the-river-soozie-tyrell-bruce-springsteen-and-patti-scialfa-ste-genevieve/)" for the other.)
+The album leads off with its title track, one of two songs on the album to feature a Springsteen contribution. (See "[Ste. Genevieve](../2018-08-21_meeting-across-the-river-soozie-tyrell-bruce-springsteen-and-patti-scialfa-ste-genevieve/post.md)" for the other.)
 
 [Watch on Youtube: White Lines (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=dnz2SeT9IP4)
 

@@ -1,8 +1,8 @@
-The Mavericks are certainly no stranger to Bruce's catalog–[their cover of "All That Heaven Will Allow"](https://estreetshuffle.com/index.php/2019/02/28/cover-me-the-mavericks-all-that-heaven-will-allow/) is one of the finer Springsteen covers out there.
+The Mavericks are certainly no stranger to Bruce's catalog–[their cover of "All That Heaven Will Allow"](../2019-02-28_cover-me-the-mavericks-all-that-heaven-will-allow/post.md) is one of the finer Springsteen covers out there.
 
 Now they're at it again: just a couple of months ago they released their latest album, an all-covers compilation entitled *Play the Hits*.
 
-This time, the band turns their attention to "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," giving it an infectious country-ska treatment. (I don't know if that's a thing, but it sure sounds like it to me.)
+This time, the band turns their attention to "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," giving it an infectious country-ska treatment. (I don't know if that's a thing, but it sure sounds like it to me.)
 
 [Watch on Youtube: Hungry Heart](https://www.youtube.com/watch?v=MXzUfPVF08o)
 

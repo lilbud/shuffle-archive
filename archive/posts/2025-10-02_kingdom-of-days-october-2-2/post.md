@@ -40,13 +40,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-10-02b.jpg.webp)
 
-**1996:** Bruce plays a solo acoustic show at the Riverside Theater in Milwaukee, 21 years to the day of the infamous Bomb Scare Show (see above). Following the show, Bruce zips over to the Bradley Center, where he joins Melissa Etheridge on stage for a duet on "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)."<br>
+**1996:** Bruce plays a solo acoustic show at the Riverside Theater in Milwaukee, 21 years to the day of the infamous Bomb Scare Show (see above). Following the show, Bruce zips over to the Bradley Center, where he joins Melissa Etheridge on stage for a duet on "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1La8VWX2)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1996-1002.jpg.webp)
 
-**2004:** The Vote for Change Tour of swing states moves on to Cleveland's Gund Arena, where "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" replaces "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" and "[Bad Moon Rising](https://estreetshuffle.com/index.php/2023/01/18/matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/)" replaces "Proud Mary." Bruce joins R.E.M. for two songs this time: "[Man on the Moon](https://estreetshuffle.com/index.php/2021/01/06/matr-r-e-m-and-bruce-springsteen-man-on-the-moon/)" (as with last night in Philly) and "[Bad Day](https://estreetshuffle.com/index.php/2021/05/05/meeting-across-the-river-r-e-m-and-bruce-springsteen-bad-day/)." For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/10/02/where-the-band-was-cleveland-october-2-2004/)<br>
+**2004:** The Vote for Change Tour of swing states moves on to Cleveland's Gund Arena, where "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" replaces "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" and "[Bad Moon Rising](../2023-01-18_matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/post.md)" replaces "Proud Mary." Bruce joins R.E.M. for two songs this time: "[Man on the Moon](../2021-01-06_matr-r-e-m-and-bruce-springsteen-man-on-the-moon/post.md)" (as with last night in Philly) and "[Bad Day](../2021-05-05_meeting-across-the-river-r-e-m-and-bruce-springsteen-bad-day/post.md)." For more highlights from this show, see my [*Where the Band Was* report.](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)<br>
 
 [Watch on Youtube: REM (and Bruce Springsteen), Cleveland, 2004-10-02](https://www.youtube.com/watch?v=sZcju8_8LpA)
 
@@ -78,7 +78,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-10-02.jpg.webp)
 
-**2009:** On Night Two (of five) at Giants Stadium, Bruce plays the entire [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) album and still finds time to tour premiere "[Jailhouse Rock](https://estreetshuffle.com/index.php/2019/10/12/matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/)" and "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" and give "[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)" its second-ever appearance. Curt Ramm is present once again (as he will be for the remainder of the tour), and he, Ed Manion, Art Baron, and Larry Eagle form an almost-Sessions Band reunion during the "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" encore.<br>
+**2009:** On Night Two (of five) at Giants Stadium, Bruce plays the entire [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) album and still finds time to tour premiere "[Jailhouse Rock](../2019-10-12_matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/post.md)" and "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and give "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" its second-ever appearance. Curt Ramm is present once again (as he will be for the remainder of the tour), and he, Ed Manion, Art Baron, and Larry Eagle form an almost-Sessions Band reunion during the "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" encore.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Z7igU6U2)
 

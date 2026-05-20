@@ -18,7 +18,7 @@ Even if you were around and aware at the time, it's understandable if you missed
 
 Critics and fans were quick to pick up on the similarities in sound and sensibilities between the Houserockers' 32-year-old lead singer and a certain New Jersey rocker, and comparisons (mostly favorable) abounded in reviews and articles.
 
-The band even drew the notice of Bruce himself, who dedicated "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" to "Joe and the Iron City boys" when he came through their hometown of Pittsburgh that autumn.
+The band even drew the notice of Bruce himself, who dedicated "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" to "Joe and the Iron City boys" when he came through their hometown of Pittsburgh that autumn.
 
 [Watch on Youtube: Bruce Springsteen - "The Promised Land" - Pittsburgh, 1980-11-30](https://www.youtube.com/watch?v=I1Ab0iyJitA)
 
@@ -28,7 +28,7 @@ Bruce Springsteen and Joe Grushecky had already met by that time, introduced to 
 
 Joe and Bruce do indeed share a lot in common: born one year and one state apart, they both became local heroes and civic figures, giving voice and giving back to those otherwise mostly ignored by popular music.
 
-Only one became a superstar on the global stage, however. A year after their release, *The River* was flying high, but *Have a Good Time* had run its course. The Houserockers would go on to release two more albums, and Joe would bring us great music for decades to come (frequently collaborating with Bruce, who produced Joe's 1995 [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) album that brought him to the attention of Springsteen fans like me), but none would garner the attention that *Have a Good Time* commanded during the summer of 1980.
+Only one became a superstar on the global stage, however. A year after their release, *The River* was flying high, but *Have a Good Time* had run its course. The Houserockers would go on to release two more albums, and Joe would bring us great music for decades to come (frequently collaborating with Bruce, who produced Joe's 1995 [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) album that brought him to the attention of Springsteen fans like me), but none would garner the attention that *Have a Good Time* commanded during the summer of 1980.
 
 But there's another differentiator between the two famously blue-collar musicians: only one of them actually wore a collar at all. Bruce Springsteen employs keen observation and deep empathy when crafting his songs. Joe Grushecky, by contrast, draws from a well of first-hand experience.
 
@@ -50,11 +50,11 @@ Joe may lead two separate lives, but they occasionally overlap: Songs like and "
 
 Over the years, Joe's been an active school and community fundraiser, helping the school get new band uniforms (They wore the same ones for forty years!), computers, supplies, whatever's needed. When Pittsburgh was ravaged by Hurricane Ivan-induced floods in 2004, it was Grushecky who organized a benefit show and pulled in Springsteen.
 
-One of the songs Bruce and Joe played that night was "[Pumping Iron](https://estreetshuffle.com/index.php/2018/11/03/meeting-across-the-river-bruce-springsteen-and-joe-grushecky-pumping-iron/)," the most enduring and Pittsburghian track from *Have a Good Time*.
+One of the songs Bruce and Joe played that night was "[Pumping Iron](../2018-11-03_meeting-across-the-river-bruce-springsteen-and-joe-grushecky-pumping-iron/post.md)," the most enduring and Pittsburghian track from *Have a Good Time*.
 
 [Watch Video Highlight](https://videopress.com/embed/gYVg7t5Y)
 
-"Pumping Iron" has become Joe's anthem, and over the years, he and Bruce have played it together 25 times. To put that in perspective, until Bruce started playing *The River* in full in 2016, that's about the same number of times he played "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)" along with about an album-side worth of tracks from Bruce's own 1980 LP.
+"Pumping Iron" has become Joe's anthem, and over the years, he and Bruce have played it together 25 times. To put that in perspective, until Bruce started playing *The River* in full in 2016, that's about the same number of times he played "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)" along with about an album-side worth of tracks from Bruce's own 1980 LP.
 
 "Pumping Iron" was even one of the last songs Bruce performed live before the great pandemic of 2020 took him, Joe, and every other musician off the stage for the time being.
 
@@ -64,7 +64,7 @@ But the *Have a Good Time* reissue offers far more treasures for both long-time 
 
 Of the bonus tracks, the one that stopped me in my tracks was the six-and-a-half-minute version of "Don't Let Them Push You Around," a full four minutes longer than the taut thrasher that graces the released disc.
 
-"That one stopped me in my tracks too!" Joe laughed. It's not just the length, I remarked–it's how much is going on. I was about to compare it to Bruce's "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)" or "[Kitty's Back,](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)" when Joe beat me to the punch:
+"That one stopped me in my tracks too!" Joe laughed. It's not just the length, I remarked–it's how much is going on. I was about to compare it to Bruce's "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" or "[Kitty's Back,](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" when Joe beat me to the punch:
 
 "It was my epic, you know, like ‘Freebird,' or ‘Rosalita,'" the kind of song you play at the end of the night when it's time to pull out all the stops.
 

@@ -6,7 +6,7 @@ That's the question that lingers long after "The River" fades to black.
 
 We'll answer that question, but we have some ground to cover first.
 
-We last pulled at this particular thread in last month's exploration of "[Oh Angelyne](https://estreetshuffle.com/index.php/2021/02/16/roll-of-the-dice-oh-angelyne/)." (I recommend reading or re-reading that one before going any further, because it contains 80% of the backstory for "The River.")
+We last pulled at this particular thread in last month's exploration of "[Oh Angelyne](../2021-02-16_roll-of-the-dice-oh-angelyne/post.md)." (I recommend reading or re-reading that one before going any further, because it contains 80% of the backstory for "The River.")
 
 When we left Bruce, he had just hit upon the missing ingredient in his nascent masterpiece: the metaphor.
 

@@ -161,7 +161,7 @@ Autobiographical in content but universal in theme, "My Hometown" has proved its
 
 (Okay maybe that one wasn't so effortless.)
 
-It's been covered by luminaries like U[2](https://estreetshuffle.com/index.php/2018/04/17/cover-me-u2-my-hometown/), Neil Young, and Emmylou Harris. In concert, fellow icons like Eddie Vedder and Tracey Chapman turned "My Hometown" into a duet.
+It's been covered by luminaries like U[2](../2018-04-17_cover-me-u2-my-hometown/post.md), Neil Young, and Emmylou Harris. In concert, fellow icons like Eddie Vedder and Tracey Chapman turned "My Hometown" into a duet.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aPQTrv2B1sw)
 

@@ -1,8 +1,8 @@
-At first, it seems like we're in "[Ain't Good Enough For You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)" territory: a sad sack hero doing his best to please his girl, only to find that she sets the bar just a little bit higher than he can clear.
+At first, it seems like we're in "[Ain't Good Enough For You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)" territory: a sad sack hero doing his best to please his girl, only to find that she sets the bar just a little bit higher than he can clear.
 
 But "Cindy" quickly takes a darker turn, and it isn't long before we realize that our narrator may be more of a stalker than a suitor.
 
-"Cindy" is an outcast from *The River*, although it was a finalist among the dozens of songs Bruce cut during those recording sessions, and it was actually on the original single-album version that Bruce submitted to the record label. It was ultimately dropped very late in the game, and that's too bad–because much like "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," it combines the trappings of romantic pop with darker lyrics and undertones. It would have fit very nicely on the album. Let's take a listen.
+"Cindy" is an outcast from *The River*, although it was a finalist among the dozens of songs Bruce cut during those recording sessions, and it was actually on the original single-album version that Bruce submitted to the record label. It was ultimately dropped very late in the game, and that's too bad–because much like "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," it combines the trappings of romantic pop with darker lyrics and undertones. It would have fit very nicely on the album. Let's take a listen.
 
 [Watch on Youtube: Cindy](https://www.youtube.com/watch?v=ZlI-L52KrnY)
 

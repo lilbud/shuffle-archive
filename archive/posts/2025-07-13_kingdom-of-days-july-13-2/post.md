@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Bruce Springsteen -1974-07-13 The Bottom Line, New York City, NY](https://www.youtube.com/watch?v=yh2oBFsFfgA)
 
-**1975:** In a stroke of last-minute inspiration, Steven Van Zandt arranges a horn section for "[Tenth Avenue Freeze-Out.](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)" Randy and Michael Brecker provide the wind-power, completing the song mere weeks before its official release.<br>
+**1975:** In a stroke of last-minute inspiration, Steven Van Zandt arranges a horn section for "[Tenth Avenue Freeze-Out.](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" Randy and Michael Brecker provide the wind-power, completing the song mere weeks before its official release.<br>
 
 [Watch on Youtube: Tenth Avenue Freeze-Out](https://www.youtube.com/watch?v=LOkQsVJV8ts)
 
@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-13.jpg.webp)
 
-**1992:** Bruce and his new band wrap up the European leg of World Tour 1992 with a fifth and final show at Wembley Arena. "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)" makes its tour debut, and "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" is dropped from the set list for the first time since its debut in 1984.<br>
+**1992:** Bruce and his new band wrap up the European leg of World Tour 1992 with a fifth and final show at Wembley Arena. "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" makes its tour debut, and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" is dropped from the set list for the first time since its debut in 1984.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/pbxCty6f)
 
@@ -46,13 +46,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1993-07-13b.jpg.webp)
 
-**2005:** Bruce brings his Devils & Dust acoustic tour back to North America, kicking off with a show at Corel Center in Ottawa. Bruce plays a fairly standard set, but a lightning strike-induced power outage at the end of "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)" provides some unplanned excitement.<br>
+**2005:** Bruce brings his Devils & Dust acoustic tour back to North America, kicking off with a show at Corel Center in Ottawa. Bruce plays a fairly standard set, but a lightning strike-induced power outage at the end of "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)" provides some unplanned excitement.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/LRnkEQ4z)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-13.jpg.webp)
 
-**2013:** Bruce and the E Street Band headline the TW Classic Festival in Werchter, Belgium. Ben Harper makes a guest appearance on "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)," and Bruce tour premieres "[Jailhouse Rock.](https://estreetshuffle.com/index.php/2019/10/12/matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/)" "[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)" and "Follow That Dream" also make rare appearances.<br>
+**2013:** Bruce and the E Street Band headline the TW Classic Festival in Werchter, Belgium. Ben Harper makes a guest appearance on "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," and Bruce tour premieres "[Jailhouse Rock.](../2019-10-12_matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/post.md)" "[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)" and "Follow That Dream" also make rare appearances.<br>
 
 [Watch on Youtube: Bruce Springsteen ft. Ben Harper Atlantic city in Werchter (Belgium)](https://www.youtube.com/watch?v=x7z4dXc4UGc)
 
@@ -64,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen Werchter Belgium 13/07/2013 Full Concert](https://www.youtube.com/watch?v=DvsNbfX8iik)
 
-**2016:** Bruce surprises and delights Paris fans by opening with "[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)" (only its third-ever performance) and "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)" before announcing and performing *The River* in full, a first-time event in Europe.<br>
+**2016:** Bruce surprises and delights Paris fans by opening with "[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)" (only its third-ever performance) and "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" before announcing and performing *The River* in full, a first-time event in Europe.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Iceman - AccorHotels Arena 13 07 2016](https://www.youtube.com/watch?v=cZgiQ_v14T8)
 

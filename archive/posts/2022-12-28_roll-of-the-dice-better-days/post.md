@@ -2,7 +2,7 @@ It's possible that I'm biased.
 
 After all, I'd been married a grand total of 11 days to a woman I'd started dating not even four months prior, when "Better Days" was released as the first single ahead of the upcoming *Lucky Town* album.
 
-But c'mon… how is it possible not to love this song? It just *pours* happiness and contentment and wonder into the world, and unlike his previous album ([*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)), I knew exactly how Bruce felt when he wrote and recorded this new material.
+But c'mon… how is it possible not to love this song? It just *pours* happiness and contentment and wonder into the world, and unlike his previous album ([*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)), I knew exactly how Bruce felt when he wrote and recorded this new material.
 
 There are those that argue that great art is born out of heartbreak and pain, not love and contentment. That may be true, but if so, here's an exception.
 
@@ -21,7 +21,7 @@ As the song begins, Bruce recalls the ennui that enveloped him in the 1980s. He 
 > *I'm tired of waiting for tomorrow to come or that train to come roaring 'round the bend*<br>
 > *I got a new suit of clothes and a pretty red rose and a woman I can call my friend*<br>
 
-…and right there, we have the key: Patti Scialfa. (Note: I realize it's dangerous to extrapolate autobiography from a song–if that were always true, we'd have had serious cause for worry after "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" and most of the Tom Joad album–but in this case, I think we're on pretty solid ground.)
+…and right there, we have the key: Patti Scialfa. (Note: I realize it's dangerous to extrapolate autobiography from a song–if that were always true, we'd have had serious cause for worry after "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)" and most of the Tom Joad album–but in this case, I think we're on pretty solid ground.)
 
 > *These are better days, baby*<br>
 > *Yeah there's better days shining through*<br>

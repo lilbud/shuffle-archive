@@ -15,7 +15,7 @@ Now, watch Bruce cover Floyd's song eleven years later in Passaic, New Jersey.
 
 Those are some remarkably recognizable techniques on display, aren't they?
 
-Even Bruce's casual fans recognize Floyd's importance as a musical influence–we've seen it evidenced in Bruce's set lists over the years, from Floyd-penned staples like "[634-5789](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)" on the Wrecking Ball Tour to memorable cameos like "[Ninety-Nine and Half (Won't Do)](https://estreetshuffle.com/index.php/2020/10/11/cover-me-ninety-nine-and-a-half-wont-do/)" and "[Knock on Wood](https://estreetshuffle.com/index.php/2021/04/02/cover-me-knock-on-wood/)."
+Even Bruce's casual fans recognize Floyd's importance as a musical influence–we've seen it evidenced in Bruce's set lists over the years, from Floyd-penned staples like "[634-5789](../2018-08-14_cover-me-634-5789-soulsville-u-s-a/post.md)" on the Wrecking Ball Tour to memorable cameos like "[Ninety-Nine and Half (Won't Do)](https://estreetshuffle.com/index.php/2020/10/11/cover-me-ninety-nine-and-a-half-wont-do/)" and "[Knock on Wood](../2021-04-02_cover-me-knock-on-wood/post.md)."
 
 But it's "Raise Your Hand" that's been the stalwart, appearing in Bruce's set lists almost 200 times (and that's *not* counting the partial or instrumental performances during sign collections).
 

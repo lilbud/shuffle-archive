@@ -88,13 +88,13 @@ In particular, there's a striking familiarity in that song's first verse…
 
 Regardless of which Hank Williams song we credit, Bruce realized what his own song was missing. By late August, he'd transformed "Oh Angelyne," keeping its central couple and circumstance, but ditching the other woman and replacing her with a metaphor borrowed from Williams.
 
-(Bruce took pity on Angelyne, though, and introduced her to his friend Gary. [They clicked](https://estreetshuffle.com/index.php/2019/02/04/cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/).)
+(Bruce took pity on Angelyne, though, and introduced her to his friend Gary. [They clicked](../2019-02-04_cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/post.md).)
 
 Now his song was complete and ready for the recording studio. Bruce's retitled, transformed "Oh Angelyne" would become an instant classic and endure to this day as one of his greatest recordings and songwriting accomplishments.
 
 We'll take a deep listen to that song and admire it in detail… soon.
 
-(To be continued in *Roll of the Dice:* "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)")
+(To be continued in *Roll of the Dice:* "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)")
 
 **Oh Angelyne**<br>
 **Recorded** February-May 1979 (demos only)<br>

@@ -78,7 +78,7 @@ And while Bruce walks around the hall, the band is on stage and Roy begins a cry
 
 Rena takes photos, despite being told not to. I sit front row centre in the empty seats to watch and listen to the soundcheck, hardly believing what's happening. An awkward moment when a merchandise guy tells me to stop giving away those magazines, since he fears it might affect his programme sales. I'm too happy to argue. Who cares?
 
-They're all playing now apart from Bruce, still circling the balconies with Bruce Jackson. "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)," and Bruce joins the band at last on guitar and then vocals – lazy and serious-faced, but magnificent – effortless, in his element.
+They're all playing now apart from Bruce, still circling the balconies with Bruce Jackson. "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," and Bruce joins the band at last on guitar and then vocals – lazy and serious-faced, but magnificent – effortless, in his element.
 
 After one and a half to two hours he's satisfied with those two songs and it's back to the dressing-rooms until showtime: the kids are building up outside, and the armed police look alarming. Harry Sandler, road manager, gives the band Dutch editions of *The River*. "Fainter blue sleeve," I remark to Roy over his shoulder. Yes, he nods.
 
@@ -86,7 +86,7 @@ We're in Clarence's room with him and Glen when Bruce, tense with hunched should
 
 Hey, there's Mike H, over on the Mead Gould coach trip! And a few other familiar faces. Lots of American GIs (a base nearby). The excitement is electric! From a hum to a buzz and then a roar as the lights go down. Talk about an adrenalin rush – we're up and on our chairs before we know it.
 
-Out of the noise drones the organ whine of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)," and this is it! It's really happening, like living a dream.
+Out of the noise drones the organ whine of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)," and this is it! It's really happening, like living a dream.
 
 [Watch Video Highlight](https://videopress.com/embed/ubeehdGF)
 

@@ -1,6 +1,6 @@
 In 1995, Rhino Records issued a thorough (and thoroughly great) five-disc box set called *Academy Award Winning Songs (1934-1993).*
 
-Starting with Fred Astaire and including such luminaries as Bing Crosby, Judy Garland, Billie Holiday, Henry Mancini, and so many more, the box set traces a historical arc through American cinema, culminating, of course, with Bruce's "[Streets of Philadelphia,](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" the Oscar winning song for 1993.
+Starting with Fred Astaire and including such luminaries as Bing Crosby, Judy Garland, Billie Holiday, Henry Mancini, and so many more, the box set traces a historical arc through American cinema, culminating, of course, with Bruce's "[Streets of Philadelphia,](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" the Oscar winning song for 1993.
 
 There was just one problem: Rhino couldn't get the rights to include Bruce's own version of the song. "Streets of Philadelphia" was too big of a hit to leave off the collection, though, so they decided to commission a cover instead.
 

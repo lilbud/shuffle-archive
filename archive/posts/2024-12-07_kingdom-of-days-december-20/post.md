@@ -16,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1975-12-20b.png.webp)
 
-**1978:** Bruce completes his west coast Darkness swing with a show at the Seattle Center Arena, where he and the E Street Band play “[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)” for the first time since the Born to Run Tour. Well after the show ends, after most fans have filed out of the arena and the house lights are on, Bruce returns to the stage to perform two more songs–“[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)” and “Twist and Shout.”<br>
+**1978:** Bruce completes his west coast Darkness swing with a show at the Seattle Center Arena, where he and the E Street Band play “[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)” for the first time since the Born to Run Tour. Well after the show ends, after most fans have filed out of the arena and the house lights are on, Bruce returns to the stage to perform two more songs–“[Rave On](../2019-03-25_matr-bruce-springsteen-and-gary-busey-rave-on/post.md)” and “Twist and Shout.”<br>
 
 [Watch on Youtube: Bruce Springsteen - PRETTY FLAMINGO 1978 (audio)](https://www.youtube.com/watch?v=hYFx4Yr8-D8)
 

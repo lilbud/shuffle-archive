@@ -1,8 +1,8 @@
 For sheer, raw emotional power in song, I'm not sure it's possible to top the gut-punch of Bruce's "Daddy Trilogy."
 
-In 1978, Episode One–"[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)"–introduces us to a young man who feels the gravitational pull of his father's fate and rages against it, feeling resentfully trapped and predestined to follow in his father's footsteps.
+In 1978, Episode One–"[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)"–introduces us to a young man who feels the gravitational pull of his father's fate and rages against it, feeling resentfully trapped and predestined to follow in his father's footsteps.
 
-Two years later, Episode Two–"[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)"–re-introduces us to a slightly older and somewhat wiser protagonist, who now realizes that he has the power to escape and is on the verge of using it. He no longer resents his father; instead, he pities him. He recognizes the similarities that cause them to clash and knows he has to leave, not just to realize his own dreams, but to honor what's left of his father's dreams as well.
+Two years later, Episode Two–"[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)"–re-introduces us to a slightly older and somewhat wiser protagonist, who now realizes that he has the power to escape and is on the verge of using it. He no longer resents his father; instead, he pities him. He recognizes the similarities that cause them to clash and knows he has to leave, not just to realize his own dreams, but to honor what's left of his father's dreams as well.
 
 And that brings us to the conclusion: 1987's "Walk Like a Man."
 
@@ -76,7 +76,7 @@ In a brilliant stroke, Bruce switches mid-song from the electric to acoustic pia
 
 **Walk Like a Man**<br>
 **Recorded:** January 20, 1987<br>
-**Released:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) (1987)<br>
+**Released:** [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) (1987)<br>
 **First performed:** February 25, 1987 (Worcester, MA)<br>
 **Last performed:** August 1, 2005 (Cincinnati, OH)<br>
 

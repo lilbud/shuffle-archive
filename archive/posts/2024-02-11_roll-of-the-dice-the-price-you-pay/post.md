@@ -8,13 +8,13 @@ But let's start in 1978, with a fateful motel poolside meeting. Let's let Bruce 
 
 [Watch Video](https://cdn.embedly.com/widgets/media.html?src=https%3A%2F%2Fw.soundcloud.com%2Fplayer%2F%3Fvisual%3Dtrue%26url%3Dhttp%253A%252F%252Fapi.soundcloud.com%252Ftracks%252F268169474%26show_artwork%3Dtrue%26secret_token%3Ds-cJlpT&url=https%3A%2F%2Fsoundcloud.com%2Faudible%2Fborn-on-the-fourth-of-july%2Fs-cJlpT&image=http%3A%2F%2Fi1.sndcdn.com%2Fartworks-000167511522-b8th0v-t500x500.jpg&key=205dfc3e29a54717b61d110ab0ac5a3d&type=text%2Fhtml&schema=soundcloud)
 
-Bruce's meeting and friendship with Ron Kovic sparked Bruce's interest in veteran's affairs, leading in short order to a benefit concert and songs that confronted the Vietnam veteran's experience head-on ("[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)," "[Vietnam](https://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/)," and "[Born in the U.S.A](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/).").
+Bruce's meeting and friendship with Ron Kovic sparked Bruce's interest in veteran's affairs, leading in short order to a benefit concert and songs that confronted the Vietnam veteran's experience head-on ("[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)," "[Vietnam](../2019-08-31_roll-of-the-dice-vietnam/post.md)," and "[Born in the U.S.A](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md).").
 
-But Bruce had been grappling with the Vietnam war since he was a teenager. As far back as his Steel Mill Days, we have recordings of original Springsteen compositions like "[The War is Over](https://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)" that keenly acknowledge and rage against the human cost of war.
+But Bruce had been grappling with the Vietnam war since he was a teenager. As far back as his Steel Mill Days, we have recordings of original Springsteen compositions like "[The War is Over](../2019-03-23_roll-of-the-dice-the-war-is-over/post.md)" that keenly acknowledge and rage against the human cost of war.
 
 [Watch on Youtube: Steel Mill - The War Is Over (Live At The Matrix 1970)](https://www.youtube.com/watch?v=VEaRsvkobrk)
 
-We even have [a notebook of unrecorded handwritten lyrics](https://estreetshuffle.com/index.php/2019/01/05/roll-of-the-dice-clouds/) by an eighteen-year-old Springsteen that reveal a deep empathy for his peers serving in the war.
+We even have [a notebook of unrecorded handwritten lyrics](../2019-01-05_roll-of-the-dice-clouds/post.md) by an eighteen-year-old Springsteen that reveal a deep empathy for his peers serving in the war.
 
 It's not surprising that the war weighed so heavily on Bruce's mind: his Castiles bandmate Bart Haynes had already been killed in action mere months prior to Bruce's 1968 notebook compositions; his local musical idol Walter Cichon went MIA just weeks before.
 
@@ -24,7 +24,7 @@ But as Bruce realized–probably not at the moment, but certainly later–there 
 
 [Watch Video Highlight](https://videopress.com/embed/tUAdpU2d)
 
-So it's no wonder that Kovic's book touched a raw nerve when Bruce read it. By the end of the Darkness Tour, Kovic and his experience were still very top of mind for Bruce–at the famed Winterland show in December 1978, Bruce dedicated "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" to Kovic, mentioning both author and book by name.
+So it's no wonder that Kovic's book touched a raw nerve when Bruce read it. By the end of the Darkness Tour, Kovic and his experience were still very top of mind for Bruce–at the famed Winterland show in December 1978, Bruce dedicated "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" to Kovic, mentioning both author and book by name.
 
 So when the tour ended and Bruce began writing songs for what would become *The River*, it's reasonable to assume that Kovic and his fellow veterans were still very much a presence–if not overtly, than at least subconsciously.
 
@@ -89,7 +89,7 @@ Bruce may also be writing about the emotional distance and isolation he'd allowe
 
 This last verse is one of the most dramatic in Bruce's catalog, the last line voiced in both desperation and futility. And again, the imagery works whether taken literally (a memorial to fallen soldiers) or metaphorically (a reminder of the cost one doesn't want to admit one pays, a reminder that you can never look away from).
 
-"The Price You Pay" is one of the most emotionally wrenching songs of Bruce's River period, and it's right at home with album-mates "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)," "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)," "Stolen Car" and "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)," all of which deal with the costs imposed by our life decisions. Clearly, "The Price You Pay" wasn't a one-off cathartic exercise.
+"The Price You Pay" is one of the most emotionally wrenching songs of Bruce's River period, and it's right at home with album-mates "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)," "Stolen Car" and "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)," all of which deal with the costs imposed by our life decisions. Clearly, "The Price You Pay" wasn't a one-off cathartic exercise.
 
 Bruce obviously viewed "The Price You Pay" as an important song as well–it was one of only seven *River* songs that were slated to be released on the album when Bruce handed it in to the record company as a single album (and then subsequently revoked the album when he decided it needed to be "bigger").
 

@@ -58,7 +58,7 @@ Bruce wraps up the song by returning to the root of the debate: was the first ma
 
 The irony of "Part Man, Part Monkey" is that it's a slight song, yet it tends to get more credit than it deserves for having substance.
 
-And that's too bad, because taken for what it is–a light-hearted reggae rocker featuring the return of David Sancious on keys–it's a perfectly decent song that would have been thematically if not musically at home on both [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) (for which it was originally recorded) and *Human Touch* (for which it was re-recorded and eventually released as an outtake).
+And that's too bad, because taken for what it is–a light-hearted reggae rocker featuring the return of David Sancious on keys–it's a perfectly decent song that would have been thematically if not musically at home on both [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) (for which it was originally recorded) and *Human Touch* (for which it was re-recorded and eventually released as an outtake).
 
 Bruce seems to have recognized that in concert, often hamming it up on stage both while introducing and performing the song throughout the Tunnel of Love Tour in 1988.
 

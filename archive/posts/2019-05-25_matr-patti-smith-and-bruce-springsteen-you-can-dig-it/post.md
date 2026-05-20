@@ -6,7 +6,7 @@ Among the songs Patti plays that night are some highly improvisational and ephem
 
 They played it twice that night (and never again), and both were captured on tape. Patti's vocals are bit muddy and tough to make out at times, but Bruce's guitar is crystal clear (especially in the latter performance)–you can hear him keeping pace with and matching Patti's monologue, and at times, we're not sure who's tracking who.
 
-Take a listen to both performances below, and for more Bruce and Patti from this night, see "[Slowly Walking Down by the River](https://estreetshuffle.com/index.php/2018/05/29/meeting-across-the-river-patti-smith-and-bruce-springsteen-slowly-walking-down-the-river/)" and "[Picture Hanging Blues](https://estreetshuffle.com/index.php/2019/02/22/matr-patti-smith-and-bruce-springsteen-picture-hanging-blues/)."
+Take a listen to both performances below, and for more Bruce and Patti from this night, see "[Slowly Walking Down by the River](../2018-05-29_meeting-across-the-river-patti-smith-and-bruce-springsteen-slowly-walking-down-the-river/post.md)" and "[Picture Hanging Blues](../2019-02-22_matr-patti-smith-and-bruce-springsteen-picture-hanging-blues/post.md)."
 
 [Watch on Youtube: PATTI SMITH featuring BRUCE SPRINGSTEEN : YOU CAN DIG IT](https://www.youtube.com/watch?v=NVv9bjYr6eo)
 

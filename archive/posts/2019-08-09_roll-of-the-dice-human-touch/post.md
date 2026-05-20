@@ -55,7 +55,7 @@ It's worth noting the introduction of religious imagery here, because Bruce not 
 
 No kindness in the face of strangers. No mercy. No pity.
 
-Sure, maybe "Human Touch" is a modern-day, earthier "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)." It certainly works on that level if you want it to.
+Sure, maybe "Human Touch" is a modern-day, earthier "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)." It certainly works on that level if you want it to.
 
 But I can't help but think that Bruce is also sharing his newfound awareness that he'd never find in his audience the real connection and true recognition that he craved in life. He needed an anchor, a true and intimate companion.
 
@@ -94,7 +94,7 @@ As for the final choruses… well, they're so direct and unadorned that I'm at a
 
 But hey now, that "hey now!" saves "Human Touch" from petering out unremarkably, Those final two minutes–easily the finest two minutes on the album.
 
-Despite its imperfections, "Human Touch" served admirably as the lead-off (and only) single for its album, although it's a little tricky to measure exactly how well: as a promotional gimmick, Bruce promoted his double album combo by releasing a lead-off single with two A-sides and no B-side. "Human Touch" shared the spotlight with "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)," but if memory serves, "Human Touch" received the lion's share of the radio play.
+Despite its imperfections, "Human Touch" served admirably as the lead-off (and only) single for its album, although it's a little tricky to measure exactly how well: as a promotional gimmick, Bruce promoted his double album combo by releasing a lead-off single with two A-sides and no B-side. "Human Touch" shared the spotlight with "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)," but if memory serves, "Human Touch" received the lion's share of the radio play.
 
 Regardless, the song peaked at #16 on the Billboard Hot 100, cracked the top ten in Canada, Sweden, Ireland and other countries, and captured the top of the chart in Italy and Spain (two of Bruce's strongest of strongholds)
 

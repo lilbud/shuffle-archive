@@ -1,4 +1,4 @@
-Bruce Springsteen is such a self-professed fan of Smokey Robinson (both in interviews and on stage), that it's surprising that he doesn't cover him more often. "[The Way You Do the Things You Do](https://estreetshuffle.com/index.php/2020/11/20/cover-me-the-way-you-do-the-things-you-do/)" certainly got a workout nightly on the Wrecking Ball Tour's "Apollo Medley," but even that was part of a medley rather than a full performance.
+Bruce Springsteen is such a self-professed fan of Smokey Robinson (both in interviews and on stage), that it's surprising that he doesn't cover him more often. "[The Way You Do the Things You Do](../2020-11-20_cover-me-the-way-you-do-the-things-you-do/post.md)" certainly got a workout nightly on the Wrecking Ball Tour's "Apollo Medley," but even that was part of a medley rather than a full performance.
 
 But Bruce did once cover one particular greatest hit in full–and it happened via a most unusual team-up.
 
@@ -14,7 +14,7 @@ Here's that performance, from March 6, 1995:
 
 [Watch on Youtube: Bruce Springsteen and Soul Asylum - "Tracks of My Tears" 1995-03-06](https://www.youtube.com/watch?v=PlhXokknEVc)
 
-That was the only time Bruce has ever played Smokey's classic in full, but he did take one more partial run at it during his Asbury Park holiday shows in 2001, when guest-star Elvis Costello sandwiched it into his and Bruce's performance of "[Alison](https://estreetshuffle.com/index.php/2020/11/08/matr-elvis-costello-and-bruce-springsteen-alison/)." As with the "Apollo Medley," it isn't a full performance, but we at least get a verse and a chorus.
+That was the only time Bruce has ever played Smokey's classic in full, but he did take one more partial run at it during his Asbury Park holiday shows in 2001, when guest-star Elvis Costello sandwiched it into his and Bruce's performance of "[Alison](../2020-11-08_matr-elvis-costello-and-bruce-springsteen-alison/post.md)." As with the "Apollo Medley," it isn't a full performance, but we at least get a verse and a chorus.
 
 [Watch on Youtube: track of my tears / the tears of a clown ( cover Smokey Robinson )](https://www.youtube.com/watch?v=D8xQGYjuqzw)
 

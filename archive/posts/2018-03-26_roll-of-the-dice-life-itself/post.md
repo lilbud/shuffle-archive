@@ -1,4 +1,4 @@
-Little known fact: "Life Itself" was actually released ahead of Bruce's *Working on a Dream* album, along with the video below. "[Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)" (the single) and "[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)" also received the pre-release treatment, and both garnered much more attention than "Life Itself."
+Little known fact: "Life Itself" was actually released ahead of Bruce's *Working on a Dream* album, along with the video below. "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)" (the single) and "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)" also received the pre-release treatment, and both garnered much more attention than "Life Itself."
 
 That's too bad, because "Life Itself" is clearly the most complex and mature song of the three, and it deserved more airplay than it received.
 

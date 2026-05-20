@@ -1,6 +1,6 @@
 You know the rule: Do it better, or do it different.
 
-When it comes to this gender-flipped version of "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)" by the U.K. disco duo Rhonda... well, it's different.
+When it comes to this gender-flipped version of "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" by the U.K. disco duo Rhonda... well, it's different.
 
 [Watch on Youtube: Rhonda - He's the one 1978](https://www.youtube.com/watch?v=GHE46cZuvuo)
 

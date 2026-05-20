@@ -20,7 +20,7 @@ Joe Tex was an astonishingly prolific soul singer whose mix of crooning vocals a
 
 [Watch on Youtube: Joe Tex - Hold On To What You've Got](https://www.youtube.com/watch?v=_GFq-FT1rZM)
 
-But while "Hold On to What You Got" is certainly a thematic ancestor to Bruce's rapping style (it's even more of an influence on his 1988 "[I'm a Coward](https://estreetshuffle.com/index.php/2018/01/16/roll-of-the-dice-cover-me-im-a-coward/)" performances), I suspect Bruce might have had a different Joe Tex song in mind when he wrote "Back in Your Arms."
+But while "Hold On to What You Got" is certainly a thematic ancestor to Bruce's rapping style (it's even more of an influence on his 1988 "[I'm a Coward](../2018-01-16_roll-of-the-dice-cover-me-im-a-coward/post.md)" performances), I suspect Bruce might have had a different Joe Tex song in mind when he wrote "Back in Your Arms."
 
 [Watch on Youtube: Joe Tex - I've Got To Do A Little Bit Better](https://www.youtube.com/watch?v=6M0COSqKGsU)
 

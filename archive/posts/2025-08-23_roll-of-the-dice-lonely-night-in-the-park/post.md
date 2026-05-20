@@ -1,6 +1,6 @@
 When Sirius first announced its E Street Radio station, fans wondered if it would feature any rare or unheard songs, or if it would stick to released tracks and more mainstream bootleg recordings. We didn't have to wait long to find out: shortly after the station debuted in 2005, this well-documented but never-heard (by me, at least!) song entered the rotation with absolutely no fanfare. To call me surprised is to put it mildly.
 
-I'd long wondered what this song sounded like. I knew it was an outtake from the *Born to Run* sessions, and while there aren't many of them, the few that exist are genuine gems, lush and romantic songs like "[Linda, Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)" and ""So Young and in Love." So once I realized what I was listening to and got over my dumbfoundedness, I paid close attention, and…
+I'd long wondered what this song sounded like. I knew it was an outtake from the *Born to Run* sessions, and while there aren't many of them, the few that exist are genuine gems, lush and romantic songs like "[Linda, Let Me Be the One](../2021-03-27_roll-of-the-dice-linda-let-me-be-the-one/post.md)" and ""So Young and in Love." So once I realized what I was listening to and got over my dumbfoundedness, I paid close attention, and…
 
 Well, let's just say there's a lot going on here.
 

@@ -1,4 +1,4 @@
-In 1980, Joe Grushecky's band, the Iron City Houserockers, were recording their second album, [*Have a Good Time But Get Out Alive*](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/).
+In 1980, Joe Grushecky's band, the Iron City Houserockers, were recording their second album, [*Have a Good Time But Get Out Alive*](../2020-05-22_have-a-good-time-but-get-out-alive/post.md).
 
 Steve Van Zandt produced and arranged five of the songs on that album (and played guitar on one), all while still working in the studio with the E Street Band on *The River.* One night, Steve invited Joe to tag along and introduced him to Bruce. That, as they say, was the beginning of a long and beautiful friendship.
 

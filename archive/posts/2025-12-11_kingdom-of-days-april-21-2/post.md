@@ -50,7 +50,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication,* produced 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-21.jpg.webp)
 
-**2009:** At the first of two nights at Boston’s TD Garden, Bruce and the band play “[I’](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)m[Bad, I’m Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)” (by request) for the first time in 25 years.<br>
+**2009:** At the first of two nights at Boston’s TD Garden, Bruce and the band play “[I’](../2020-02-17_cover-me-im-bad-im-nationwide/post.md)m[Bad, I’m Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md)” (by request) for the first time in 25 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm Bad, I'm Nationwide (Live April 21, 2009 Boston, Massachusetts)](https://www.youtube.com/watch?v=ONBtIdJnY-g)
 

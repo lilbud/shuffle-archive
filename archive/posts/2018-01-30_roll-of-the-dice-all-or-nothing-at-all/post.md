@@ -1,6 +1,6 @@
-The maddening thing about Bruce's *Human Touch* album is that there are some really good songs ruined by terrible arrangements and over-production (I'm talking to *you*, "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)").
+The maddening thing about Bruce's *Human Touch* album is that there are some really good songs ruined by terrible arrangements and over-production (I'm talking to *you*, "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)").
 
-And then there are the throwaway songs, weightless in substance without even the saving grace of a pleasant pop hook. But even those can fool you: I spent a couple of decades hating "All or Nothin' at All" for its over-dense guitars, grating vocals, and unimaginative lyrics… and then one night in 2014, he whips it out in concert for only the second time in 20+ years, and dang if it isn't one of the night's highlights. Makes me wonder what he could do with "[Real Man](https://estreetshuffle.com/index.php/2020/04/15/roll-of-the-dice-real-man/)" if he tried.
+And then there are the throwaway songs, weightless in substance without even the saving grace of a pleasant pop hook. But even those can fool you: I spent a couple of decades hating "All or Nothin' at All" for its over-dense guitars, grating vocals, and unimaginative lyrics… and then one night in 2014, he whips it out in concert for only the second time in 20+ years, and dang if it isn't one of the night's highlights. Makes me wonder what he could do with "[Real Man](../2020-04-15_roll-of-the-dice-real-man/post.md)" if he tried.
 
 Let's compare. Here's the original–
 

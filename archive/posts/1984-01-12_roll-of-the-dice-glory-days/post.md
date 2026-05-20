@@ -18,7 +18,7 @@ And in Kilkenny, he had to stop the show when he realized he was physically inca
 
 It's been a decade since Bruce last scheduled his shows on back-to-back nights; now he needs at least three days to recover between shows.
 
-He didn't dare attempt his customary knee slide during "Waitin'[on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)" in Sunderland. He no longer mounts pianos during "Tenth Avenue Freeze-Out." His hair is thinner, his body leaner. He moves less but breathes harder than in tours of yesteryear.
+He didn't dare attempt his customary knee slide during "Waitin'[on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" in Sunderland. He no longer mounts pianos during "Tenth Avenue Freeze-Out." His hair is thinner, his body leaner. He moves less but breathes harder than in tours of yesteryear.
 
 And yet each night, at the end of a setlist laced with loss and remembrance, Bruce Springsteen and the E Street Band launch into a song that rings with wry and raucous irony.
 

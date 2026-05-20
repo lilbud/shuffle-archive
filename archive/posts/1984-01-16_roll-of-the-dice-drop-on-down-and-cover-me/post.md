@@ -60,7 +60,7 @@ Both narrators are looking for shelter, but the protagonist of "Cover Me" is hid
 
 Like all art, music is subjective. But "Drop on Down and Cover Me" is such a superior song to the officially released "Cover Me" that I can't help but wonder why Bruce chose to release the older version.
 
-It clearly wasn't always his intention to do so–in the summer of 1983, Bruce had an album sequence that included "Drop on Down and Cover Me" right in the middle of Side One (after "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)" and before "Shut Out the Light"–what an album that would have been).
+It clearly wasn't always his intention to do so–in the summer of 1983, Bruce had an album sequence that included "Drop on Down and Cover Me" right in the middle of Side One (after "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)" and before "Shut Out the Light"–what an album that would have been).
 
 Unless we're lucky enough to get a sign-requested debut someday, we're not likely to ever gain any more insight; for now, we'll just chalk it up as just one more unsolved Springsteen mystery.
 

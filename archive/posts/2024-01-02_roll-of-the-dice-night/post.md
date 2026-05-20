@@ -43,7 +43,7 @@ And of course, just a couple of years later, Bruce would mine that theme yet ano
 > *All day you've been working that hard line*<br>
 > *Now tonight you're gonna have a good time*<br>
 
-"[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" and "[Out on the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)" are far from Bruce's only songs that focus on or spring from working life, but "Night" is the prototype. In "Factory" Bruce would examine the cost of grueling work; in "Out in the Street" Bruce had found connection and at least had someone to share the night with. But "Night" is a celebration of pure freedom.
+"[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" and "[Out on the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" are far from Bruce's only songs that focus on or spring from working life, but "Night" is the prototype. In "Factory" Bruce would examine the cost of grueling work; in "Out in the Street" Bruce had found connection and at least had someone to share the night with. But "Night" is a celebration of pure freedom.
 
 Our hero–and he certainly sees himself that way–bristles with power and possibility. His fellow night dwellers are merely potential conquests, romantic and otherwise.
 

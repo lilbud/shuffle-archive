@@ -20,7 +20,7 @@ I won't spoil the ending in case you're inspired to read the book, but let's jus
 
 The year was 1995, and the cable news era was in its infancy. It was maturing rapidly, though, thanks to the rise to prominence of CNN during the first Gulf War, and society was starting to reckon with the notion of the 24-hour news cycle and the oversimplification of complex political and societal problems that came with it.
 
-Against that backdrop and inspired by Thompson's novel, Bruce wrote and recorded "My Best Was Never Good Enough," and sequenced it as the closing track of his next album, [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).
+Against that backdrop and inspired by Thompson's novel, Bruce wrote and recorded "My Best Was Never Good Enough," and sequenced it as the closing track of his next album, [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).
 
 [Watch on Youtube: My Best Was Never Good Enough](https://www.youtube.com/watch?v=fBSvAPlnDOU)
 

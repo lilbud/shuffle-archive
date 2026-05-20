@@ -12,7 +12,7 @@ But it was Dobie Gray's soulful cover that captured the spirit of the lyrics and
 
 "Drift Away" is a tribute to the enduring power of rock and roll to carry us through trying times, but when sung by one musician to another, it becomes a tribute to musical brotherhood as well.
 
-That's what happened one summer night in 1984 on the Born in the U.S.A. Tour. Bruce had just finished the main set of his tenth and final homecoming show at the Brendan Byrne Arena in East Rutherford, when he surprised and overjoyed fans by calling former bandmate Little Steven to the stage. Following a perhaps predictable "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" (which almost always has their friendship as its subtext), Bruce promised "something special for you tonight."
+That's what happened one summer night in 1984 on the Born in the U.S.A. Tour. Bruce had just finished the main set of his tenth and final homecoming show at the Brendan Byrne Arena in East Rutherford, when he surprised and overjoyed fans by calling former bandmate Little Steven to the stage. Following a perhaps predictable "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" (which almost always has their friendship as its subtext), Bruce promised "something special for you tonight."
 
 Following an almost mournful introduction by The Miami Horns, Bruce sang Mentor Williams' instantly recognizable opening lyrics. Bruce's vocals dripped with emotion and perfectly conveyed the "lost in the wilderness" setup of the song's first verse; Steve's response promised lifelong friendship and loyalty beyond the ad-libbed "twenty years you've given me."
 

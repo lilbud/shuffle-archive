@@ -12,7 +12,7 @@ Also on or about this night, Bonnie Raitt plays across the street at the Gasligh
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1975-0904.jpg.webp)
 
-**1976:** Bruce and Steve make a guest appearance for "[I Don't Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)" and "[Having a Party](https://estreetshuffle.com/index.php/2021/12/31/matr-bruce-springsteen-and-southside-johnny-having-a-party/)" with Southside Johnny and the Asbury Jukes at The Stone Pony.<br>
+**1976:** Bruce and Steve make a guest appearance for "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)" and "[Having a Party](../2021-12-31_matr-bruce-springsteen-and-southside-johnny-having-a-party/post.md)" with Southside Johnny and the Asbury Jukes at The Stone Pony.<br>
 
 [Watch on Youtube: Southside Johnny, Bruce Springsteen, Steve Van Zandt - "We're Havin' a Party" 1976-09-04](https://www.youtube.com/watch?v=WXSDFvmvpVA)
 
@@ -20,7 +20,7 @@ Bruce is keeping busy on stage, because he's unable to record. Billboard publish
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1976-0904.jpg.webp)
 
-**1977:** Bruce makes a guest appearance with The Shots, the new Stone Pony house band on "[Farther Up the Road](https://estreetshuffle.com/index.php/2021/04/06/matr-bruce-springsteen-and-the-shots-farther-up-the-road/)" and "[Funky Broadway](https://estreetshuffle.com/index.php/2019/10/28/matr-bruce-springsteen-and-the-shots-funky-broadway/)."<br>
+**1977:** Bruce makes a guest appearance with The Shots, the new Stone Pony house band on "[Farther Up the Road](../2021-04-06_matr-bruce-springsteen-and-the-shots-farther-up-the-road/post.md)" and "[Funky Broadway](../2019-10-28_matr-bruce-springsteen-and-the-shots-funky-broadway/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KXWUSmka)
 
@@ -56,7 +56,7 @@ Today is also the deadline for MTV's "On the Road with Bruce Springsteen" contes
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-04b.jpg.webp)
 
-**1988:** The Human Rights Now! Tour moves on to Paris for the first of two nights. Sting joins Bruce on "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" for the first time; he will continue to do so for the rest of the tour.<br>
+**1988:** The Human Rights Now! Tour moves on to Paris for the first of two nights. Sting joins Bruce on "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" for the first time; he will continue to do so for the rest of the tour.<br>
 
 [Watch on Youtube: Bruce Springsteen w/ Sting The River (Live 1988 09 04)](https://www.youtube.com/watch?v=0hSynMKLJ2Y)
 
@@ -66,7 +66,7 @@ Today is also the deadline for MTV's "On the Road with Bruce Springsteen" contes
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/The_Modesto_Bee_1988_09_05_2.jpg.webp)
 
-**1997:** Bruce performs with The Wallflowers on the MTV Video Music Awards, playing the band's nominated "[One Headlight](https://wp.me/p9w3Lk-10U)" live on stage at Radio City Music Hall. Bruce is nominated himself, for Best Video from a Film, for "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)," but he loses to "Men in Black."<br>
+**1997:** Bruce performs with The Wallflowers on the MTV Video Music Awards, playing the band's nominated "[One Headlight](https://wp.me/p9w3Lk-10U)" live on stage at Radio City Music Hall. Bruce is nominated himself, for Best Video from a Film, for "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)," but he loses to "Men in Black."<br>
 
 [Watch on Youtube: Wallflowers & Bruce Springsteen One Headlight](https://www.youtube.com/watch?v=xY3q69KWqb4)
 

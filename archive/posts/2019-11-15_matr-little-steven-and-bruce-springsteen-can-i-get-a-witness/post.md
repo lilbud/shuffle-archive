@@ -1,6 +1,6 @@
 Fans attending Little Steven's *Soulfire* record release show at the Count Basie Theater were no doubt delighted when Bruce Springsteen made a late on-stage appearance, but they probably weren't surprised. Bruce often turns up when his lifelong friend performs locally.
 
-They probably weren't shocked by the song selection, either: Bruce and Steve have performed "It's Been a Long Time" and "[I Don't Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)" together many times, and "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)" too may times to count.
+They probably weren't shocked by the song selection, either: Bruce and Steve have performed "It's Been a Long Time" and "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)" together many times, and "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" too may times to count.
 
 But the show's encore–now *that* was different.
 

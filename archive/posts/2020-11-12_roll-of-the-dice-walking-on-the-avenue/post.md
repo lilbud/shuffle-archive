@@ -1,4 +1,4 @@
-How prolific was Bruce Springsteen during the period between [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)and *The River*?
+How prolific was Bruce Springsteen during the period between [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)and *The River*?
 
 So prolific that despite requiring a double-album to hold all the songs he chose to release, there were dozens and dozens–and that's not an exaggeration–that had to be left behind.
 
@@ -14,7 +14,7 @@ The lyrics in both the recording above and below are primitive and very, very bl
 
 [Watch on Youtube: Bruce Springsteen Walking on the Avenue #2](https://www.youtube.com/watch?v=buOU7yYP2Ys)
 
-But the melody is warm, Bruce's vocals are pure, and if we're to judge from Bruce's rhythmic timekeeping guitar-thumping, he probably intended "Walking on the Avenue" to be a melancholy romantic ballad in the style of "[Fade Away.](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)" (It's quite possible, in fact, that "Walking on the Avenue" evolved into "Fade Away" given the chronology of recording.)
+But the melody is warm, Bruce's vocals are pure, and if we're to judge from Bruce's rhythmic timekeeping guitar-thumping, he probably intended "Walking on the Avenue" to be a melancholy romantic ballad in the style of "[Fade Away.](../2018-04-28_roll-of-the-dice-fade-away/post.md)" (It's quite possible, in fact, that "Walking on the Avenue" evolved into "Fade Away" given the chronology of recording.)
 
 Regardless of whether Bruce evolved or abandoned it, however, this is as far as Bruce got with "Walking on the Avenue" (unless he surprises us someday on *Tracks 2*).
 

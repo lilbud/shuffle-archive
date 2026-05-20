@@ -2,7 +2,7 @@ Jim van der Zee is just a few days shy of his 26th birthday, but his career is o
 
 In 2018, the Dutch singer-songwriter was the winning contestant on *The Voice of Holland*, and with the record deal he won from that competition, he released his debut album, *Where I Come From.*
 
-*Where I Come From* is a cover album, featuring ten songs by van der Zee's musical heroes, including a wonderful cover of Bruce Springsteen's "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)."
+*Where I Come From* is a cover album, featuring ten songs by van der Zee's musical heroes, including a wonderful cover of Bruce Springsteen's "[Highway 29](../2018-03-23_roll-of-the-dice-highway-29/post.md)."
 
 [Watch on Youtube: Jim van der Zee - Highway 29 (Official audio)](https://www.youtube.com/watch?v=42G9pT6xMVw)
 

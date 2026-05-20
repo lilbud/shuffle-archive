@@ -16,7 +16,7 @@ Truth be told, this is my *least* favorite arrangement of "Seeds." While I love 
 
 But at the time, this original live arrangement of "Seeds" suited the song well.
 
-Originally recorded titled (and recorded) under the name "Gone, Gone, Gone" (very likely a hat-tip to The Everly Brothers song by the same name, which features a similar "movin' on"/"gone gone gone" lyrical pairing as well as a riff that bears a distant resemblance), "Seeds" is a song that points the way to [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)even more than the songs on *Nebraska* do.
+Originally recorded titled (and recorded) under the name "Gone, Gone, Gone" (very likely a hat-tip to The Everly Brothers song by the same name, which features a similar "movin' on"/"gone gone gone" lyrical pairing as well as a riff that bears a distant resemblance), "Seeds" is a song that points the way to [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)even more than the songs on *Nebraska* do.
 
 Our point of view character is an unemployed worker, lured from his home up north (probably working in the steel mills or coal mines) by the promise of plentiful and secure work in Texas. He heads south with nothing to his name other than his family, only to find that by the time he gets there, the price of oil had dropped and the jobs along with it. With no work to do and no place to go, he and his family find themselves homeless in Houston.
 
@@ -43,7 +43,7 @@ The scene on the streets is grim. The homeless huddle by the railroad tracks or 
 > *Billy club tapping on the windshield in the middle of the night*
 > *He says, "Move along son, move along"*
 
-(Note, by the way, the tracks/back paring that Bruce would use again a decade later in "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)." The imagery in "Seeds" rhymes with "The Ghost of Tom Joad" even more than the words do.)
+(Note, by the way, the tracks/back paring that Bruce would use again a decade later in "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)." The imagery in "Seeds" rhymes with "The Ghost of Tom Joad" even more than the words do.)
 
 At this point, a limousine passes by (presumably carrying an oil executive, whose employment is secure), adding insult to injury.
 
@@ -52,7 +52,7 @@ At this point, a limousine passes by (presumably carrying an oil executive, whos
 
 The bigwig doesn't even acknowledge the presence of his former workers now out on the street. Presumably the exec is rich enough to forget their names, a notion that Bruce would make more explicit in another song on *The Ghost of Tom Joad.*
 
-But Bruce's next lines are a callback to one of his most popular contemporary songs. Like the narrator of "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)," our hero in "Seeds" feels like a dog who's been beat too much and has hit the ground too many times. These next lines are among Bruce's angriest and most bitter:
+But Bruce's next lines are a callback to one of his most popular contemporary songs. Like the narrator of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," our hero in "Seeds" feels like a dog who's been beat too much and has hit the ground too many times. These next lines are among Bruce's angriest and most bitter:
 
 > *How many times can you get up after you've been hit*
 > *Well I swear if I could spare the spit*
@@ -77,7 +77,7 @@ Bruce played "Seeds" so regularly during the last leg of the Born in the U.S.A. 
 
 What *was* surprising was the form it took in its next appearance. After the marathon Born in the U.S.A. Tour ended, Bruce took 1986 off. He did make a few public appearances, though, including at an acoustic benefit show for Neil and Pegi Young's Bridge School benefit show.
 
-It would have been shocking enough to hear "Seeds" played acoustically after such a fierce electric debut, but Bruce did more than just play it acoustically–he completely transformed it, pairing the lyrics with the music from another unreleased contemporary outtake, "[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/)."
+It would have been shocking enough to hear "Seeds" played acoustically after such a fierce electric debut, but Bruce did more than just play it acoustically–he completely transformed it, pairing the lyrics with the music from another unreleased contemporary outtake, "[Rockaway the Days](../2021-03-15_roll-of-the-dice-rockaway-the-days/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - Seeds (RARE 10-13-86 Bridge Benefit arrangement)](https://www.youtube.com/watch?v=8kK5BNy-P5A)
 

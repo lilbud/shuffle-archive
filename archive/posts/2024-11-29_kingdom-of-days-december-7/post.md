@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/The_Tennessean_Tue__Dec_9__1975_.jpg.webp)
 
-**1978:** The Darkness Tour descends on the University of Texas at Austin, where Bruce debuts “[Preacher’s Daughter](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)” as part of the introduction to “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” (and screws up the lyrics to “Thunder Road”).<br>
+**1978:** The Darkness Tour descends on the University of Texas at Austin, where Bruce debuts “[Preacher’s Daughter](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)” as part of the introduction to “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)” (and screws up the lyrics to “Thunder Road”).<br>
 
 [Watch on Youtube: Bruce Springsteen - "Thunder Road" - Austin, 1978-12-07](https://www.youtube.com/watch?v=zuMFOwrLZrQ)
 
@@ -40,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1984-12-07.png.webp)
 
-**1987:** Bruce pays tribute to Harry Chapin at Carnegie Hall when Chapin is posthumously awarded the Special Congressional Gold Medal. Bruce performs “[Remember When the Music](https://estreetshuffle.com/index.php/2021/03/14/cover-me-remember-when-the-music/)” for the occasion.<br>
+**1987:** Bruce pays tribute to Harry Chapin at Carnegie Hall when Chapin is posthumously awarded the Special Congressional Gold Medal. Bruce performs “[Remember When the Music](../2021-03-14_cover-me-remember-when-the-music/post.md)” for the occasion.<br>
 
 [Watch on Youtube: Bruce Springsteen 1987 Harry Chapin Tribute: Remember When the Music](https://www.youtube.com/watch?v=BMSaVEbHt-U)
 
@@ -48,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1987-12-07b.png.webp)
 
-**1990:** Bruce records “[Over the Rise](https://estreetshuffle.com/index.php/2020/07/12/roll-of-the-dice-over-the-rise/)” with Roy Bittan at Soundworks West in Los Angeles. It will remain unreleased for almost eight years.<br>
+**1990:** Bruce records “[Over the Rise](../2020-07-12_roll-of-the-dice-over-the-rise/post.md)” with Roy Bittan at Soundworks West in Los Angeles. It will remain unreleased for almost eight years.<br>
 
 [Watch on Youtube: Over The Rise (Studio Outtake - 1990)](https://www.youtube.com/watch?v=SzmJ_HPqE9Q)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-07b.png.webp)
 
-**1997:** Bruce salutes Bob Dylan at the annual Kennedy Center Honors, performing “[The Times They Are A-Changin’](https://estreetshuffle.com/index.php/2021/08/02/cover-me-the-times-they-are-a-changin/).”<br>
+**1997:** Bruce salutes Bob Dylan at the annual Kennedy Center Honors, performing “[The Times They Are A-Changin’](../2021-08-02_cover-me-the-times-they-are-a-changin/post.md).”<br>
 
 [Watch on Youtube: The Times They Are A-Changin' (Bob Dylan Tribute) - Bruce Springsteen - 1997 Kennedy Center Honors](https://www.youtube.com/watch?v=Wa0fOE-x84k)
 
@@ -92,7 +92,7 @@
 
 [Watch on Youtube: Bruce Springsteen, Jon Bon Jovi & Friends - (What's So Funny 'Bout) Peace, Love, and Understanding](https://www.youtube.com/watch?v=9QSZsvxHxV8)
 
-**2010:** Bruce and the E Street Band gather at the Carousel House in Asbury Park, where a small crowd of sixty lucky fans witness the last E Street Band performance with Clarence Clemons. Bruce and the band are filming a special performance to promote the release of *The Promise,* and seven songs from that album are played live for the first time. The band is complemented by The Miami Horns and David Lindley on violin. For more highlights from this show, see [today’s guest-blog](https://estreetshuffle.com/index.php/2020/12/07/where-the-band-was-asbury-park-december-7-2010-mariettas-story/) by Marietta Phillips, who is at the show tonight.<br>
+**2010:** Bruce and the E Street Band gather at the Carousel House in Asbury Park, where a small crowd of sixty lucky fans witness the last E Street Band performance with Clarence Clemons. Bruce and the band are filming a special performance to promote the release of *The Promise,* and seven songs from that album are played live for the first time. The band is complemented by The Miami Horns and David Lindley on violin. For more highlights from this show, see [today’s guest-blog](../2020-12-07_where-the-band-was-asbury-park-december-7-2010-mariettas-story/post.md) by Marietta Phillips, who is at the show tonight.<br>
 
 [Watch on Youtube: Racing in the Street ('78) - Asbury Park 07-12-2010](https://www.youtube.com/watch?v=NZ4YA6aj7rA)
 
@@ -106,7 +106,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2010-12-07.png.webp)
 
-**2014:** Five years after Sting saluted Bruce at the Kennedy Center Honors, Bruce reciprocates by performing his cover of Sting’s “[I Hung My Head](https://estreetshuffle.com/index.php/2020/03/02/cover-me-i-hung-my-head/).”<br>
+**2014:** Five years after Sting saluted Bruce at the Kennedy Center Honors, Bruce reciprocates by performing his cover of Sting’s “[I Hung My Head](../2020-03-02_cover-me-i-hung-my-head/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - I Hung My Head - Sting - Kennedy Center Honors 2014](https://www.youtube.com/watch?v=BwyIUWtGyh0)
 

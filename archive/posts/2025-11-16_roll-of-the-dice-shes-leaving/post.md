@@ -2,7 +2,7 @@ If Bruce's catalog of officially released material was a mountain, it would be s
 
 "She's Leaving" is one of Bruce's loveliest early recorded-but-not-released demos. Written and performed during the Bruce Springsteen Band era, it's one of the few compositions from that period that Bruce carried forward into the recording sessions that would yield much of the material for his first album.
 
-Because it was written no later than 1971 (we have a surviving live recording from that year as testament), the lyrical style of "She's Leaving" is in stark contrast against the material Bruce would select for [*Greetings From Asbury Park, N.J*.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) It's spare, straightforward, and easy on the rhyming dictionary.
+Because it was written no later than 1971 (we have a surviving live recording from that year as testament), the lyrical style of "She's Leaving" is in stark contrast against the material Bruce would select for [*Greetings From Asbury Park, N.J*.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) It's spare, straightforward, and easy on the rhyming dictionary.
 
 It's also heartfelt, tender, and vulnerable–almost pitiably so. It's so different from Bruce's typical narrative voice from this period that one can't help but wonder if the song is autobiographical. It certainly seems to come from a very raw place in a 22-year-old singer's heart.
 

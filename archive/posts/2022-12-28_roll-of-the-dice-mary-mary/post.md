@@ -1,6 +1,6 @@
 "'Mary Mary" is a lovely mystery, a small piece of heartbreak poetry that sneaks up on you with its slippery grove, punctuated string section and spectral lyrics."
 
-So says the songwriter, in his release notes for his *[American Beauty](https://estreetshuffle.com/index.php/2022/02/05/album-companion-american-beauty/)*EP. Released on Record Store Day in 2014, *American Beauty* featured four songs that didn't make the cut for the *High Hopes* album a few months earlier.
+So says the songwriter, in his release notes for his *[American Beauty](../2022-02-05_album-companion-american-beauty/post.md)*EP. Released on Record Store Day in 2014, *American Beauty* featured four songs that didn't make the cut for the *High Hopes* album a few months earlier.
 
 Apparently "Mary Mary" came pretty darn close, but it's easy to see how this light, quiet love song would have been overpowered by the fierce rockers and deep musings on the album.
 

@@ -72,7 +72,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Y97eccXdw6c)
 
-**2016:** The River Tour starts a northern European swing with a show at Telia Parken in Copenhagen, where Bruce tour premieres "Rendezvous," "Blinded by the Light," [We Take Care](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/) [of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)," and "Pink Cadillac."<br>
+**2016:** The River Tour starts a northern European swing with a show at Telia Parken in Copenhagen, where Bruce tour premieres "Rendezvous," "Blinded by the Light," [We Take Care](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md) [of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," and "Pink Cadillac."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mwlCGEQVK5w)
 

@@ -8,11 +8,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0321.jpg.webp)
 
-**1978:** Bruce works on mixing and overdubs for "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" at the Record Plant in New York City.<br>
+**1978:** Bruce works on mixing and overdubs for "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" at the Record Plant in New York City.<br>
 
 [Watch on Youtube: Racing in the Street](https://www.youtube.com/watch?v=cm9UuM3UXdc)
 
-**1980:** Bruce and the E Street Band record "[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)" at the Power Station in New York City.<br>
+**1980:** Bruce and the E Street Band record "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" at the Power Station in New York City.<br>
 
 [Watch on Youtube: Out In the Street](https://www.youtube.com/watch?v=abIbKWBwCkU)
 
@@ -24,11 +24,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/The_Sydney_Morning_Herald_1985_03_23_Page_44.jpg.webp)
 
-**1992:** "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)" is released as the first single from Bruce's upcoming *Lucky Town* album.<br>
+**1992:** "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)" is released as the first single from Bruce's upcoming *Lucky Town* album.<br>
 
 [Watch on Youtube: Bruce Springsteen - Better Days (Official HD Video)](https://www.youtube.com/watch?v=VmwJQ62Cs_o)
 
-**1994:** Bruce wins the Best Original Song Academy Award for "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" and performs the song live during the ceremony.<br>
+**1994:** Bruce wins the Best Original Song Academy Award for "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" and performs the song live during the ceremony.<br>
 
 [Watch on Youtube: Bruce Springsteen Streets of Philadelphia Oscar 1994](https://www.youtube.com/watch?v=QeIOtaydCyo)
 

@@ -18,7 +18,7 @@ And so in 1976, Bruce stared that scary question in the face and refused to flin
 
 > *And then what?*<br>
 
-Answering that question led him away from his romantic *Born to Run* songwriting and opened a darker, realistic vein that produced "The Promise," "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)," and what still stands as one of his crowning songwriting achievements: "Racing in the Street."
+Answering that question led him away from his romantic *Born to Run* songwriting and opened a darker, realistic vein that produced "The Promise," "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)," and what still stands as one of his crowning songwriting achievements: "Racing in the Street."
 
 [Watch on Youtube: Racing in the Street](https://www.youtube.com/watch?v=cm9UuM3UXdc)
 
@@ -42,11 +42,11 @@ In "Racing in the Street," the car still offers escape, but only for and in the 
 > *Tonight, tonight the strip's just right, I wanna blow 'em off in my first heat*<br>
 > *Summer's here and the time is right for racing in the street*<br>
 
-We feel that *sameness* throughout "Racing in the Street," from its languid rhythm (Max can't even keep the pace constant during the otherwise gorgeous bridge–*stick!*) to its torpid riff, lifted with a wink from The Crystals "[Then He Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)." Sameness, impotence, and a melodic ennui.
+We feel that *sameness* throughout "Racing in the Street," from its languid rhythm (Max can't even keep the pace constant during the otherwise gorgeous bridge–*stick!*) to its torpid riff, lifted with a wink from The Crystals "[Then He Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)." Sameness, impotence, and a melodic ennui.
 
-It isn't just the riff that paid homage to the romantic girl group music of the 1960s. Bruce tips his hat throughout to "[Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/)" by Martha and the Vandellas, co-opting that song's chorus repeatedly to underscore how his narrator uses street racing as a way to recapture a simpler, more innocent time of his life.
+It isn't just the riff that paid homage to the romantic girl group music of the 1960s. Bruce tips his hat throughout to "[Dancing in the Street](../2020-09-12_cover-me-dancing-in-the-street/post.md)" by Martha and the Vandellas, co-opting that song's chorus repeatedly to underscore how his narrator uses street racing as a way to recapture a simpler, more innocent time of his life.
 
-"I felt like if I was going to move on," Bruce told Flanagan, "[my music] was going to have to make sense of my life *now*. And the thing that I found in ‘[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)‘ is not going to answer the questions that come up [now]."
+"I felt like if I was going to move on," Bruce told Flanagan, "[my music] was going to have to make sense of my life *now*. And the thing that I found in ‘[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md)‘ is not going to answer the questions that come up [now]."
 
 So the callbacks to the sixties represent the narrator's lost youth and innocence, and the car (from the same era) represents a momentary way to recapture it.
 
@@ -166,7 +166,7 @@ That version of "Racing in the Street" is likely to stay a curiosity, but the or
 
 **Racing in the Street**<br>
 **Recorded** August 1977 (both versions)<br>
-**Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*(1978), *The Promise* (2010, '78 version)<br>
+**Released:** *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*(1978), *The Promise* (2010, '78 version)<br>
 **First performed:** May 23, 1978 (Buffalo, NY)<br>
 **Last performed:** June 26, 2023 (Gothenburg, Sweden)<br>
 

@@ -8,7 +8,7 @@ And it ain't pretty. Which is too bad, because "She's a Woman" sounds like it mu
 
 [Watch Video Highlight](https://videopress.com/embed/8OYX83LN)
 
-Lyrically, we can make out enough of "She's a Woman" to get a sense of the song. There's not a lot of substance here: if we compare it to "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)," which he'd write only three years later, we find a similar theme but a complete lack of imagery.
+Lyrically, we can make out enough of "She's a Woman" to get a sense of the song. There's not a lot of substance here: if we compare it to "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)," which he'd write only three years later, we find a similar theme but a complete lack of imagery.
 
 Whoever this woman is, Bruce seems more obsessed by her effect on him rather than on anything about the woman herself. "She's a Woman" is more about wordplay and guitar jams than it is a tale, romantic or otherwise.
 

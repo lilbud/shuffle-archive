@@ -1,6 +1,6 @@
 Ninety-nine percent of the time, Bruce picks the right take of a song to officially release. With "Sherry Darling," however, I humbly submit he got it wrong.
 
-Listen to this outtake from the [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)sessions, recorded more than three years before the release of *The River*, and tell me that it's not superior to the final release:
+Listen to this outtake from the [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)sessions, recorded more than three years before the release of *The River*, and tell me that it's not superior to the final release:
 
 [Watch on Youtube: Bruce Springsteen - Sherry Darling (recorded in 1977)](https://www.youtube.com/watch?v=2vY-5RMGjWA)
 
@@ -66,7 +66,7 @@ Bruce answers that in the last chorus, where the protagonist suddenly lapses int
 
 Sorry, girls–and enjoy your conquests, you operators–our guy has Sherry, and that's all he needs and wants.
 
-Don't get suckered by the bravado and the machismo–"Sherry Darling" is as romantic as "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)."
+Don't get suckered by the bravado and the machismo–"Sherry Darling" is as romantic as "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)."
 
 And can we talk about the band for a minute? It takes a lot of practice and a ton of camaraderie (and a great bandleader) to sound this loose and free-wheeling and yet still hold together. "Sherry Darling" captures not only the skill but also the spirit of the E Street Band at the top of their game.
 

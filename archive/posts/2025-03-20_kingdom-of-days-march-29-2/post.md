@@ -20,7 +20,7 @@
 
 **1989:** *Video Anthology/1978-1988* is certified 3x multi-platinum by the Recording Industry Association of America.<br>
 
-**2008:** Bruce opens with “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” and pulls out the Magic tour premiere of “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” and a very rare “[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)” at his KeyArena show in Seattle. For more highlights see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/03/29/where-the-band-was-seattle-march-29-2008/) from this date.<br>
+**2008:** Bruce opens with “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” and pulls out the Magic tour premiere of “[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)” and a very rare “[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)” at his KeyArena show in Seattle. For more highlights see my [*Where the Band Was* report](../2018-03-29_where-the-band-was-seattle-march-29-2008/post.md) from this date.<br>
 
 [Watch on Youtube: Bruce Springsteen - Point Blank - Seattle - March 29, 2008](https://www.youtube.com/watch?v=RSl5Oe0oXIo)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2008-03-29.png.webp)
 
-**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” and a glorious, brassy “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/).” Also today: Bruce appears on the cover of the new issue of *Rolling Stone,* which features [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/).<br>
+**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)” and a glorious, brassy “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md).” Also today: Bruce appears on the cover of the new issue of *Rolling Stone,* which features [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/).<br>
 
 [Watch on Youtube: Trapped - Springsteen - Philadelphia March 29, 2012](https://www.youtube.com/watch?v=QimUtzbHEvg)
 
@@ -48,7 +48,7 @@
 
 [Spotify Embed: Fatherhood](https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&utm_source=oembed)
 
-**2023:** “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.<br>
+**2023:** “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Concert - Live in Detroit - March 29, 2023](https://www.youtube.com/watch?v=ozJ7CrhBLKI)
 

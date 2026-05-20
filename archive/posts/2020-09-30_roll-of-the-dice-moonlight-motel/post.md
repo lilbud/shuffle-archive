@@ -10,7 +10,7 @@ Okay, we can proceed now.
 
 Today marks one thousand days for me–one thousand *consecutive* days–of daily Springsteen blogging. I don't think I've *ever* done anything for a thousand days in a row before that isn't an involuntary or life-sustaining biological function, but for a thousand days in a row I've been writing my way through every song Bruce Springsteen has ever released, recorded, covered, and even discarded, never knowing what I'll be writing about next until my randomizer reveals it to me.
 
-So for my 1,000th daily-versary present, I'm allowing myself a dealer's choice (my first since [Day 1](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)) and writing about a song I've been champing at the bit to discuss since I first heard it on [Day 526](https://estreetshuffle.com/index.php/2020/06/14/kingdom-of-days-june-14/).
+So for my 1,000th daily-versary present, I'm allowing myself a dealer's choice (my first since [Day 1](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)) and writing about a song I've been champing at the bit to discuss since I first heard it on [Day 526](https://estreetshuffle.com/index.php/2020/06/14/kingdom-of-days-june-14/).
 
 [Watch on Youtube: Bruce Springsteen - Moonlight Motel (Official Audio)](https://www.youtube.com/watch?v=paFUBjeTcZY)
 
@@ -22,7 +22,7 @@ It's not my favorite song in his catalog. Heck, it's not even my favorite song o
 
 "Moonlight Motel" is *dripping* in symbolism. Every line, every phrase, every detail is significant on at least two levels, and sometimes more. Both in sound and content, it is unique. For an artist notorious for cross-pollinating his lyrics and music, "Moonlight Motel" sounds like no other song in Bruce's catalog. It stands alone, expertly crafted and perfectly sequenced at the end of an album that's all about the late stages of life's journey.
 
-*Western Stars* begins with characters who are propelled ever-forward ("[Hitch Hikin',](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)" "[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/)," and [Tucscon Train](https://estreetshuffle.com/index.php/2020/05/25/roll-of-the-dice-tucson-train/)"), arcs toward characters rooted in place (whether at peace in "[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)" or restless in "[Chasin' Wild Horses](https://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)"), and then bends toward characters for whom loss and regret keeps them focused backward ("Sundown" through "[There Goes My Miracle](https://estreetshuffle.com/index.php/2021/04/10/roll-of-the-dice-there-goes-my-miracle/)"). The album ends with two characters *almost* ready to move forward, but first they need to allow themselves to accept new light and love and let go of old ones.
+*Western Stars* begins with characters who are propelled ever-forward ("[Hitch Hikin',](../2021-05-22_roll-of-the-dice-hitch-hikin/post.md)" "[The Wayfarer](../2022-01-29_roll-of-the-dice-the-wayfarer/post.md)," and [Tucscon Train](../2020-05-25_roll-of-the-dice-tucson-train/post.md)"), arcs toward characters rooted in place (whether at peace in "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)" or restless in "[Chasin' Wild Horses](../2020-01-26_roll-of-the-dice-chasin-wild-horses/post.md)"), and then bends toward characters for whom loss and regret keeps them focused backward ("Sundown" through "[There Goes My Miracle](../2021-04-10_roll-of-the-dice-there-goes-my-miracle/post.md)"). The album ends with two characters *almost* ready to move forward, but first they need to allow themselves to accept new light and love and let go of old ones.
 
 Today we're going to take a long, loving, line-by-line look at "Moonlight Motel," the period at the end of *Western Stars'* sentence.
 
@@ -97,7 +97,7 @@ The words that open one of Bruce's greatest songs of vibrant and vital youth.
 
 I've never seen anyone put the question to Bruce, but there's no doubt in my mind that this is an intentional callback to "Thunder Road." Perhaps not literal, although it isn't hard to imagine that our narrator and Mary pulled out of town to win, stopped at the Moonlight Motel (hey, they had to spend the night *somewhere*), and that after a long journey together, he now finds himself alone staring back at the path they traveled together.
 
-But it's at least an intentional thematic bookend, meant to show how time and tide teach us the fallacy of love without consequence. (As Bruce put it nightly on the 2016 River Tour when introducing "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)," it's "the kind that doesn't exist.")
+But it's at least an intentional thematic bookend, meant to show how time and tide teach us the fallacy of love without consequence. (As Bruce put it nightly on the 2016 River Tour when introducing "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)," it's "the kind that doesn't exist.")
 
 The screen door.
 

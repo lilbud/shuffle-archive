@@ -20,7 +20,7 @@ By the time Bruce's recording career started in earnest, Sam and Dave were alrea
 
 Sam and Dave split up not long after that show at The Fast Lane, and Dave died only a few years after that, in a 1988 car crash.
 
-A year later, Bruce recorded his most Stax-inspired song yet, a Sam and Dave-styled soul romp about a man's pledge to love his woman right. In fact, if not for a mid-song twist, "Man's Job" would basically be a rewrite of Sam and Dave's "[Hold On, I'm Comin'](https://estreetshuffle.com/index.php/2019/04/24/matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/)."
+A year later, Bruce recorded his most Stax-inspired song yet, a Sam and Dave-styled soul romp about a man's pledge to love his woman right. In fact, if not for a mid-song twist, "Man's Job" would basically be a rewrite of Sam and Dave's "[Hold On, I'm Comin'](../2019-04-24_matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/post.md)."
 
 Bruce had the right team to pull it off when he recorded it in the waning days of 1989: himself on guitar and Roy Bittan on keys, with new additions Jeff Porcaro (of Toto fame) on drums and Randy Jackson (yes, *American Idol's* Randy Jackson) providing the song's light-on-its-feet bassline. But something was missing from the track, and Bruce knew what it was: his vocals were rooted in the earth, and he needed some counterbalance to lift the song to the heavens.
 

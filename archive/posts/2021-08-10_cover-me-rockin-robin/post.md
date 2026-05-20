@@ -2,7 +2,7 @@ Twice attempted, twice denied.
 
 Despite its near universal recognition and acclaim, "Rockin' Robin" stopped just short of the top spot on the Billboard Hot 100 not once but twice, peaking at #2 both times.
 
-Operating under the pseudonym Jimmie Thomas, songwriter Leon René (responsible for such hits as "[I Sold My Heart to the Junkman](https://estreetshuffle.com/index.php/2020/06/21/cover-me-i-sold-my-heart-to-the-junkman/)") wrote and produced "Rockin' Robin" for Bobby Day, who scored a national hit with it in 1958.
+Operating under the pseudonym Jimmie Thomas, songwriter Leon René (responsible for such hits as "[I Sold My Heart to the Junkman](../2020-06-21_cover-me-i-sold-my-heart-to-the-junkman/post.md)") wrote and produced "Rockin' Robin" for Bobby Day, who scored a national hit with it in 1958.
 
 [Watch on Youtube: Bobby Day "Rockin' Robin"](https://www.youtube.com/watch?v=4OFESufsZG0)
 

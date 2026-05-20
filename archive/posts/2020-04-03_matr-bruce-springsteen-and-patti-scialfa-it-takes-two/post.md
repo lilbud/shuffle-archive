@@ -1,6 +1,6 @@
 For all of the countless hours they've shared a stage together, it's surprisingly difficult to come across a true duet between Bruce Springsteen and Patti Scialfa.
 
-You can trip over performances where Patti's vocals back her husband's, of course–just pick any E Street Band show since 1984. The converse is a lot rarer, but [those performances](https://estreetshuffle.com/index.php/2020/03/22/matr-patti-scialfa-and-bruce-springsteen-tell-him/) are [out there, too](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/).
+You can trip over performances where Patti's vocals back her husband's, of course–just pick any E Street Band show since 1984. The converse is a lot rarer, but [those performances](../2020-03-22_matr-patti-scialfa-and-bruce-springsteen-tell-him/post.md) are [out there, too](../2018-10-02_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/post.md).
 
 And while on almost any given night on Broadway, theatergoers were treated to lovely intimate Bruce-and-Patti performances of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)," these duets were essentially just Patti shadowing Bruce.
 
@@ -12,7 +12,7 @@ On five of those occasions, Bruce and Patti teamed up on a faithful arrangement 
 
 "It Takes Two" was a huge hit when it was first released, peaking at #4 on the Billboard Soul Singles chart and #14 on the Pop chart in early 1967.
 
-It clearly made a lasting impression on Bruce–he featured it nightly on the Reunion Tour as the outro to "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)," sharing the mic with his lifelong best friend.
+It clearly made a lasting impression on Bruce–he featured it nightly on the Reunion Tour as the outro to "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," sharing the mic with his lifelong best friend.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Two Hearts (Live in New York City)](https://www.youtube.com/watch?v=HOLyHZiUkzk)
 

@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1973-1018.jpg.webp)
 
-**1974:** Bruce is scheduled as the second opening act (after Dan Fogelberg) for John Sebastian's show at the Capitol Theater in Passaic, but after watching the band soundcheck, Sebastian wisely decides to let Bruce close the show instead. Bruce's set includes his first known cover of "[Spanish Harlem](https://estreetshuffle.com/index.php/2018/01/23/cover-me-spanish-harlem/)."<br>
+**1974:** Bruce is scheduled as the second opening act (after Dan Fogelberg) for John Sebastian's show at the Capitol Theater in Passaic, but after watching the band soundcheck, Sebastian wisely decides to let Bruce close the show instead. Bruce's set includes his first known cover of "[Spanish Harlem](../2018-01-23_cover-me-spanish-harlem/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - SPANISH HARLEM 1974 (audio)](https://www.youtube.com/watch?v=GPPf5FH3pGQ)
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Unique "Growin' Up" story, Georgetown 1976-10-18](https://www.youtube.com/watch?v=Q0XFjZ-y7Tg)
 
-**1980:** At Night Two in St. Louis on the River Tour, Bruce plays "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)," and "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)"– all for the very first time. Take a listen to "Hungry Heart" played without the audience sing-along–that tradition won't start for another month.<br>
+**1980:** At Night Two in St. Louis on the River Tour, Bruce plays "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)," and "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)"– all for the very first time. Take a listen to "Hungry Heart" played without the audience sing-along–that tradition won't start for another month.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yAVvxMMV)
 
@@ -60,7 +60,7 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 [Watch on Youtube: Legends Of Springsteen 03](https://www.youtube.com/watch?v=XVkGH9KWGCk)
 
-**1995:** On the second night of the *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*Tour, Bruce joins Joe Grushecky and The Houserockers at Tramps in New York City, and Dion DiMucci and Scott Kempner make a guest encore appearance on "[The Wanderer](https://estreetshuffle.com/index.php/2019/05/08/cover-me-the-wanderer/)."<br>
+**1995:** On the second night of the *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*Tour, Bruce joins Joe Grushecky and The Houserockers at Tramps in New York City, and Dion DiMucci and Scott Kempner make a guest encore appearance on "[The Wanderer](../2019-05-08_cover-me-the-wanderer/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/WoQylHbz)
 
@@ -76,7 +76,7 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-18c.png.webp)
 
-**2001:** Bruce joins a stellar line-up of talent (including Joan Jett, Joe Ely, Bon Jovi, Phoebe Snow, Max Weinberg, Patti Scialfa, Michelle Moore, and musical director Garry Tallent) for the first of two Alliance of Neighbors benefit concerts for the victims of the recent 9/11 attacks. The set features Bruce's first-ever performance of "[Tiger Rose](https://estreetshuffle.com/index.php/2019/01/26/rotd-matr-cm-tiger-rose/)," performed with Sonny Burgess and the Sun Rhythm Section.<br>
+**2001:** Bruce joins a stellar line-up of talent (including Joan Jett, Joe Ely, Bon Jovi, Phoebe Snow, Max Weinberg, Patti Scialfa, Michelle Moore, and musical director Garry Tallent) for the first of two Alliance of Neighbors benefit concerts for the victims of the recent 9/11 attacks. The set features Bruce's first-ever performance of "[Tiger Rose](../2019-01-26_rotd-matr-cm-tiger-rose/post.md)," performed with Sonny Burgess and the Sun Rhythm Section.<br>
 
 [Watch on Youtube: Tiger rose - sonny burgess & bruce springsteen](https://www.youtube.com/watch?v=zPY4nX3nWLY)
 
@@ -88,7 +88,7 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2001-10-18b.png.webp)
 
-**2002:** The Rising Tour moves on to Bologna, where Bruce and the band tour premiere a "[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)" one-off in the encores. My favorite highlight, however, is the final "Thunder Road." The Italian crowd won't let go of the coda, and Bruce eventually returns to the stage to accompany them on piano to bring the show to a close.<br>
+**2002:** The Rising Tour moves on to Bologna, where Bruce and the band tour premiere a "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)" one-off in the encores. My favorite highlight, however, is the final "Thunder Road." The Italian crowd won't let go of the coda, and Bruce eventually returns to the stage to accompany them on piano to bring the show to a close.<br>
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road (BOLOGNA 2002) SUB ITA](https://www.youtube.com/watch?v=dph_i62PUNs)
 
@@ -98,7 +98,7 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 [Watch on Youtube: Bruce Springsteen Bologna 18/10/2002 Full Concert](https://www.youtube.com/watch?v=Dd4xxtDGyyQ)
 
-**2007:** Bruce tour premieres a back-to-back "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)" and "Jungleland" at Night Two on the Magic Tour at Madison Square Garden. Sessions Band alumni Charlie Giordano, Lisa Lowell, Larry Eagle, Jeremy Chatzky, and Greg Liszt join the E Street Band for a show closing "[American Land.](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" Although no one knows it at the time, Charlie will be back on the E Street stage a month later due to tragic circumstances.<br>
+**2007:** Bruce tour premieres a back-to-back "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" and "Jungleland" at Night Two on the Magic Tour at Madison Square Garden. Sessions Band alumni Charlie Giordano, Lisa Lowell, Larry Eagle, Jeremy Chatzky, and Greg Liszt join the E Street Band for a show closing "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)" Although no one knows it at the time, Charlie will be back on the E Street stage a month later due to tragic circumstances.<br>
 
 [Watch on Youtube: Bruce Springsteen & E Street Band - Meeting Across The River](https://www.youtube.com/watch?v=LRg_IOi5YtQ)
 
@@ -110,7 +110,7 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 [Watch on Youtube: Bruce Springsteen continued his recent tour with a stop at New York's Madison Square Garden on Thurs](https://www.youtube.com/watch?v=9g9aUHL9bRw)
 
-**2012:** Bruce performs at two election rallies with President Obama, first at Cuyahoga Community College in Ohio, later at Iowa State University in Ames. Bruce premieres his new song, "[Forward](https://estreetshuffle.com/index.php/2018/02/09/roll-of-the-dice-forward/)" at the Ohio show.<br>
+**2012:** Bruce performs at two election rallies with President Obama, first at Cuyahoga Community College in Ohio, later at Iowa State University in Ames. Bruce premieres his new song, "[Forward](../2018-02-09_roll-of-the-dice-forward/post.md)" at the Ohio show.<br>
 
 [Watch on Youtube: Bill Clinton and Bruce Springsteen campaign for Obama](https://www.youtube.com/watch?v=rAlo72LBwTY)
 

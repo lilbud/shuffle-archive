@@ -34,7 +34,7 @@ That night in Tempe remains my recollection of Bruce's first overtly political s
 
 ***"I don't know what you guys think about what happened last night, but I think it's pretty frightening."***<br>
 
-He then threw down a particularly enraged version of his one of his most defiant songs, "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," which is how great artists should assist us in making sense of our world.
+He then threw down a particularly enraged version of his one of his most defiant songs, "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," which is how great artists should assist us in making sense of our world.
 
 [Watch on Youtube: Bruce Springsteen - Badlands (Tempe 1980)](https://www.youtube.com/watch?v=NGoBcNXa3mM)
 

@@ -54,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2006-06-24.jpg.webp)
 
-**2007:** Bruce performs "If I Should Fall Behind" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Neve](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)r[Can Tell](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)."<br>
+**2007:** Bruce performs "If I Should Fall Behind" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Neve](../2020-03-14_cover-me-you-never-can-tell/post.md)r[Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QIQjpeIfk9s)
 

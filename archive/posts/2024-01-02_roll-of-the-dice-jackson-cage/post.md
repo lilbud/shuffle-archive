@@ -60,7 +60,7 @@ A second rehearsal from the same day is largely similar, but it reveals more of 
 
 [Watch on Youtube: Bruce Springsteen Jackson Cage #2 different music & lyrics](https://www.youtube.com/watch?v=GEApRJTtGrI)
 
-Still, even though it may seem like Bruce was pretty far afield from the song that would end up on *The River* later that year, it didn't take long for the song to gel from here: within a month, Bruce and the E Street Band would take a melody Bruce had tried out earlier on "[Take 'em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)"…
+Still, even though it may seem like Bruce was pretty far afield from the song that would end up on *The River* later that year, it didn't take long for the song to gel from here: within a month, Bruce and the E Street Band would take a melody Bruce had tried out earlier on "[Take 'em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)"…
 
 [Watch on Youtube: Bruce Springsteen Take 'Em As They Come #2](https://www.youtube.com/watch?v=n-t7wGtd4j4)
 
@@ -136,7 +136,7 @@ For as much solace as she brings to him through her visits and loyalty, she incr
 
 There's no happy ending in "Jackson Cage," no resolution of any sort–or even an inkling of one. This is a song about prison, after all. All we can do is wonder whether at least one of them someday escapes their cage.
 
-(Ironically, though, Bruce took the opening lines of the song and repurposed them in one of his most carefree compositions, "[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/).")
+(Ironically, though, Bruce took the opening lines of the song and repurposed them in one of his most carefree compositions, "[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md).")
 
 "Jackson Cage" made its live premiere on the first night of the River Tour in Ann Arbor. Bruce introduced it simply as a song off the new album and performed it faithfully, if a bit slowly:
 

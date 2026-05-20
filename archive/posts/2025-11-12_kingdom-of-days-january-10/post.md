@@ -6,7 +6,7 @@
 
 [Watch on Youtube: Bruce Springsteen Restless Nights #5](https://www.youtube.com/watch?v=KsosBOD17_0)
 
-**1985:** Bruce releases Arthur Baker’s 12-inch “Freedom Mix” of “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)”<br>
+**1985:** Bruce releases Arthur Baker’s 12-inch “Freedom Mix” of “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)”<br>
 
 [Watch on Youtube: Born In The U.S.A. (The Freedom Mix) - Bruce Springsteen](https://www.youtube.com/watch?v=DsNQb0KO5Zo)
 
@@ -16,11 +16,11 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1985-01-10b.png.webp)
 
-**1987:** Bruce records “[When You Need Me](https://estreetshuffle.com/index.php/2020/01/30/roll-of-the-dice-when-you-need-me/)” at his home studio in Rumson.<br>
+**1987:** Bruce records “[When You Need Me](../2020-01-30_roll-of-the-dice-when-you-need-me/post.md)” at his home studio in Rumson.<br>
 
 [Watch on Youtube: When You Need Me (Studio Outtake - 1987)](https://www.youtube.com/watch?v=mimaPIQVUjI)
 
-**1996:** Bruce debuts a new song, “[Sell It and They Will Come](https://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/),” at the first of two nights at the Fox Theater in Detroit. Suffice it to say it’s not among the deeper songs in Bruce’s catalog. Check out the world premiere of this still unreleased song below. Bruce tour premieres “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” tonight as well.<br>
+**1996:** Bruce debuts a new song, “[Sell It and They Will Come](../2019-02-09_roll-of-the-dice-sell-it-and-they-will-come/post.md),” at the first of two nights at the Fox Theater in Detroit. Suffice it to say it’s not among the deeper songs in Bruce’s catalog. Check out the world premiere of this still unreleased song below. Bruce tour premieres “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” tonight as well.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3)
 
@@ -36,7 +36,7 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Jon Bon Jovi.<br>
 
-**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First-hand reports from fans listening at the stage door confirm the return of “[If I Was The Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)” after more than 50 years, although it will receive only three outings on the tour proper.<br>
+**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First-hand reports from fans listening at the stage door confirm the return of “[If I Was The Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)” after more than 50 years, although it will receive only three outings on the tour proper.<br>
 
 **2025:** Bruce visits the set of *Deliver Me From Nowhere*, filming today in downtown Freehold. After filming wraps for the morning, he joins the crew for lunch at Federici’s.<br>
 

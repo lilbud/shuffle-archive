@@ -1,4 +1,4 @@
-Okay, just *one* more post before I go back to vacation mode, because this new cover of "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" by Home Free is too great to sit on until August. If it's gonna be stuck in my head, I want company.
+Okay, just *one* more post before I go back to vacation mode, because this new cover of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" by Home Free is too great to sit on until August. If it's gonna be stuck in my head, I want company.
 
 [Watch on Youtube: Home Free - Born In The USA](https://www.youtube.com/watch?v=D-OkZBtgmS8)
 

@@ -14,7 +14,7 @@
 
 **1974:** Bruce holds a recording session for his upcoming third album at 914 Sound Studios in Blauvelt, New York.<br>
 
-**1975:** Bruce and the E Street Band kick off a four-night/six-show stand at The Roxy Theater in West Hollywood. Thanks to Columbia Records (but unknown to Bruce), the audience is filled with industry insiders and media, resulting in a quieter-than-usual audience and at least one underwhelmed critic. Among the notables in the audience: Jackson Browne, Neil Diamond, Jim Messina, Jack Nicholson, Peter Boyle, Robert De Niro, and Carole King, to whom Bruce dedicates his debut of her song, “[Goin’ Back](https://estreetshuffle.com/index.php/2021/02/07/cover-me-goin-back/).” It’s speculated that De Niro swiped Bruce’s “you talking to *me?*” routine performed at this show for his part in *Taxi Driver.*<br>
+**1975:** Bruce and the E Street Band kick off a four-night/six-show stand at The Roxy Theater in West Hollywood. Thanks to Columbia Records (but unknown to Bruce), the audience is filled with industry insiders and media, resulting in a quieter-than-usual audience and at least one underwhelmed critic. Among the notables in the audience: Jackson Browne, Neil Diamond, Jim Messina, Jack Nicholson, Peter Boyle, Robert De Niro, and Carole King, to whom Bruce dedicates his debut of her song, “[Goin’ Back](../2021-02-07_cover-me-goin-back/post.md).” It’s speculated that De Niro swiped Bruce’s “you talking to *me?*” routine performed at this show for his part in *Taxi Driver.*<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1975-10-16.jpg.webp)
 
@@ -52,15 +52,15 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1995-10-16b.png.webp)
 
-**1996:** Bruce plays “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” for the very first time, nine years before its album release, at this solo acoustic show at the Paramount Theater in Denver.<br>
+**1996:** Bruce plays “[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)” for the very first time, nine years before its album release, at this solo acoustic show at the Paramount Theater in Denver.<br>
 
 [Watch on Youtube: Bruce Springsteen - debut of "Long Time Comin'" Denver, 1996-10-16](https://www.youtube.com/watch?v=qTMe5fUtv3g)
 
-**2002:** Bruce and the E Street Band bring the Rising Tour to Barcelona, where the show is filmed and released on DVD as *Live in Barcelona.* Bruce tour premieres “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” on solo piano (forgetting the lyrics), and the setlist also includes a rare “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”<br>
+**2002:** Bruce and the E Street Band bring the Rising Tour to Barcelona, where the show is filmed and released on DVD as *Live in Barcelona.* Bruce tour premieres “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” on solo piano (forgetting the lyrics), and the setlist also includes a rare “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Live in Barcelona](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
-**2008:** Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a *Change Rocks* benefit for presidential candidate Barack Obama in New York City. Bruce joins John Legend for “If You’re Out There” before performing “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” and “This Hard Land” as solo acoustic numbers. Finally he, Patti, and Roy join Billy and his band for a set of combined Joel/Springsteen classics capped by a show-closing “[Signed, Sealed, Delivered I’m Yours](https://estreetshuffle.com/index.php/2021/11/29/matr-john-legend-bruce-springsteen-billy-joel-and-india-arie-signed-sealed-delivered-im-yours/)” with the Obamas.<br>
+**2008:** Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a *Change Rocks* benefit for presidential candidate Barack Obama in New York City. Bruce joins John Legend for “If You’re Out There” before performing “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” and “This Hard Land” as solo acoustic numbers. Finally he, Patti, and Roy join Billy and his band for a set of combined Joel/Springsteen classics capped by a show-closing “[Signed, Sealed, Delivered I’m Yours](../2021-11-29_matr-john-legend-bruce-springsteen-billy-joel-and-india-arie-signed-sealed-delivered-im-yours/post.md)” with the Obamas.<br>
 
 [Watch on Youtube: Springsteen, Joel Rock for Obama's Benefit](https://www.youtube.com/watch?v=cDCy0G9MpyU)
 

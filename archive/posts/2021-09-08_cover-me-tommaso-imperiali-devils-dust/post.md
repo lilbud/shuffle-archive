@@ -1,8 +1,8 @@
 Continuing our coverage of last week's *Cover Me* finals in Bergamo, let's meet Tommaso Imperiali, an Italian blues musician, guitarist, vocalist for the band Five Quarters, and philosophy student at the University of Milan.
 
-Although his first Springsteen concerts were in 2016, Tommaso is no stranger to Bruce's music, nor to covering him in competition. Last year, Tommaso finished in third place with his cover (in Italian!) of "[The Promised Land.](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)"
+Although his first Springsteen concerts were in 2016, Tommaso is no stranger to Bruce's music, nor to covering him in competition. Last year, Tommaso finished in third place with his cover (in Italian!) of "[The Promised Land.](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)"
 
-He matched that feat again this year with a breathtaking adaption of "[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)."
+He matched that feat again this year with a breathtaking adaption of "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)."
 
 [Watch on Youtube: Devils and Dust (Bruce Springsteen cover) - Tommaso Imperiali](https://www.youtube.com/watch?v=B4NQNuvX0Yo)
 

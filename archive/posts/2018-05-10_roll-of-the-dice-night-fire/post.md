@@ -18,13 +18,13 @@ Second (as you could probably tell), Bruce's vocals are obviously not from the o
 
 But after listening to it a couple of times, a third realization dawned on me: not only were the vocals brand new, so were the lyrics. I don't mean "new" as in "comprehensible" — I'm pretty sure they're just a completely new set of lyrics. Go ahead and listen carefully to the bootleg compared with the released version. I can't make out the specific words in the former, but I'm almost certain it's not what Bruce is singing in the latter. A few words and phrases jump out here and there that don't match up, and the meter is off in places.
 
-At this point, if you're not a hardcore fan, you might be rolling your eyes. Why does it matter what Bruce was singing in the original take if we have an officially released version now? At least this isn't a "[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)" situation, where the released version was unrecognizable from the bootleg outtake.
+At this point, if you're not a hardcore fan, you might be rolling your eyes. Why does it matter what Bruce was singing in the original take if we have an officially released version now? At least this isn't a "[Whitetown](../2018-04-19_roll-of-the-dice-whitetown/post.md)" situation, where the released version was unrecognizable from the bootleg outtake.
 
 I guess it matters to me because I love tracing the evolution of songs and trying to figure out how and why Bruce crafts his songs the way he does. So this drives me nuts. If you can make out any of the original lyrics, please let me know.
 
 Okay, now that *that's* off my chest: the song. Honestly, it's not one of Bruce's best. It deserved being cast off the island. The melody is repetitive, the guitar-work is uninspired, and Bruce's vocals are strained.
 
-And now I'm gonna obsess about the lyrics again. Because the "finished" lyrics sound very much like a primitive version of "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)," which we know Bruce was actually performing as early as the Darkness Tour. The final version of "Night Fire" covers the same ground as "Point Blank" but nowhere near as artfully.
+And now I'm gonna obsess about the lyrics again. Because the "finished" lyrics sound very much like a primitive version of "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," which we know Bruce was actually performing as early as the Darkness Tour. The final version of "Night Fire" covers the same ground as "Point Blank" but nowhere near as artfully.
 
 And this is what drives me nuts about not being able to make out the original lyrics–because what if they were *better*? Maybe, like "Whitetown," the new version is a very different song from the old one.
 

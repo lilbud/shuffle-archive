@@ -1,6 +1,6 @@
 Greg Kihn did more than cover "Rendezvous" — he gave it a home.
 
-Kihn was one of the earliest artists to cover Bruce–his take on "For You" was distinctive, and Bruce admired it so much that he sought out Kihn when "Rendezvous" didn't make the cut for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
+Kihn was one of the earliest artists to cover Bruce–his take on "For You" was distinctive, and Bruce admired it so much that he sought out Kihn when "Rendezvous" didn't make the cut for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
 
 Bruce caught Kihn's show at the Roxy and went backstage to hang out and do tequila shots. Bruce hadn't come empty-handed: he gifted Greg with a cassette of the Darkness outtake, the lyrics to the song, and his blessing for Greg to record it. (Read Greg's account of that night [here](https://somethingelsereviews.com/2012/07/12/one-track-mind-greg-kihn-on-the-breakup-song-rendezvous-and-jeopardy/).)
 

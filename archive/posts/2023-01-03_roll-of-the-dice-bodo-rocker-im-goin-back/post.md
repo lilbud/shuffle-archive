@@ -6,7 +6,7 @@ It's about the beat.
 
 [Watch on Youtube: Bruce Springsteen - I'm Goin' Back aka Bo Diddley Rocker - Unreleased Outtake](https://www.youtube.com/watch?v=Z2K_UUntwtM)
 
-Bootleggers called it "I'm Goin' Back" since it's the obvious chorus, but "BoDo Rocker" (as it's called in the studio session logs) is a more apt title. This five-and-a-half-minute rave-up is even more of an homage to Bo Diddley than Bruce's previous two tributes, "[Preacher's Daughter](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)" and "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)."
+Bootleggers called it "I'm Goin' Back" since it's the obvious chorus, but "BoDo Rocker" (as it's called in the studio session logs) is a more apt title. This five-and-a-half-minute rave-up is even more of an homage to Bo Diddley than Bruce's previous two tributes, "[Preacher's Daughter](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)" and "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)."
 
 Bruce starts us off with a wailing harmonica intro, but from the moment the band enters at the five-second mark, "BoDo Rocker" is a freight train that cannot be stopped.
 
@@ -14,7 +14,7 @@ I've seen several attempts to transcribe the lyrics; I'm convinced all of them a
 
 Bruce calls on every member of the band to keep that train barreling down the tracks. The Professor is all over his keys, Max is a veritable machine, The Big Man is on another plane, and Bruce–when he isn't turning in one of his finest studio harmonica performances–sings like a man possessed. (I love his evil laugh when the song comes to a crashing halt.)
 
-Recorded in late 1977, "BoDo Rocker" never had a prayer of making it onto [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/). It would have steamrolled over all the carefully crafted tracks on that classic album.
+Recorded in late 1977, "BoDo Rocker" never had a prayer of making it onto [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). It would have steamrolled over all the carefully crafted tracks on that classic album.
 
 But I'd consider paying platinum prices to see them play it live on the next tour.
 

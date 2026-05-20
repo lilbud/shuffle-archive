@@ -33,7 +33,7 @@ The twilight in the song represents years advancing, and as we go through life t
 > *So let's make our steps clear that the other may see*<br>
 > *And I'll wait for you, and if I should fall behind wait for me*<br>
 
-The narrator of this song–and although I always to separate the writer from the character, it's almost impossible to do so in this case–doesn't try to promise otherwise. In fact, he pretty much predicts the bumps in the road ahead. He knows they're coming, in fact, because he's already done some walking down his that road alone: Bruce has revealed that the narrator "If I Should Fall Behind" may be the same man who sang "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)."
+The narrator of this song–and although I always to separate the writer from the character, it's almost impossible to do so in this case–doesn't try to promise otherwise. In fact, he pretty much predicts the bumps in the road ahead. He knows they're coming, in fact, because he's already done some walking down his that road alone: Bruce has revealed that the narrator "If I Should Fall Behind" may be the same man who sang "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)."
 
 [Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 

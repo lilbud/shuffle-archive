@@ -1,4 +1,4 @@
-Buried on the bonus DVD that came with *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*was Bruce's take on the classic American folk song "Buffalo Gals."
+Buried on the bonus DVD that came with *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)*was Bruce's take on the classic American folk song "Buffalo Gals."
 
 Why wasn't it included on the main disc? No idea. It was included in the *American Land* edition reissue later that year, so it obviously wasn't for space reasons.
 

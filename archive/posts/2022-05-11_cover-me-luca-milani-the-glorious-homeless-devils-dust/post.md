@@ -1,4 +1,4 @@
-If "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)," a protest song born of the blues, works as rock anthem, then why wouldn't "[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)"?
+If "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," a protest song born of the blues, works as rock anthem, then why wouldn't "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)"?
 
 "I did a version like that myself in the studio… and it worked very well," Bruce told Brian Hiatt in *Bruce Springsteen: The Stories Behind the Songs*.
 

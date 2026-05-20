@@ -1,12 +1,12 @@
 The road to Tenth Avenue started way back in 1972.
 
-The original line-up for what would become *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*included ten songs, evenly split between full-band recordings and Springsteen solo performances.
+The original line-up for what would become *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*included ten songs, evenly split between full-band recordings and Springsteen solo performances.
 
 That wasn't so much an artistic decision as a diplomatic one: while Bruce stubbornly wanted his first album to be a full-band rocker, John Hammond and Mike Appel put their thumbs on the scale for a solo debut. So Bruce split the difference, writing and recording five tracks in each vein.
 
 Bruce submitted his balanced album to Columbia in August 1972, but when president Clive Davis listened to it, he sent it back with a veto: the album had too many solo tracks and no hit singles.
 
-Bruce went back to his notebook, and before the month was out he'd written two new songs with radio sensibility in mind: "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" and "[Spirit in the Night.](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" To make room for the new tracks, he had to jettison three existing ones, so off to the chopping block went "[Arabian Nights](https://estreetshuffle.com/index.php/2021/03/23/roll-of-the-dice-arabian-nights/)," "Visitation at Fort Horn," and a lovely solo piano character study called "Jazz Musician."
+Bruce went back to his notebook, and before the month was out he'd written two new songs with radio sensibility in mind: "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night.](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" To make room for the new tracks, he had to jettison three existing ones, so off to the chopping block went "[Arabian Nights](../2021-03-23_roll-of-the-dice-arabian-nights/post.md)," "Visitation at Fort Horn," and a lovely solo piano character study called "Jazz Musician."
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - jazz musician](https://www.youtube.com/watch?v=OPR6NIinPK4)
 
@@ -66,7 +66,7 @@ Historically, though, "Jazz Musician" points the way forward to one of Bruce's m
 > *And shuffling my feet, clutching my high school diploma*
 > *Promised sixty bucks a week and top billing*
 
-I'm sure you recognized **the lines** that would years later end up in or evolve into "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)." And there's more:
+I'm sure you recognized **the lines** that would years later end up in or evolve into "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." And there's more:
 
 > *And has anybody seen sweet Gabriel*
 > *That dark woman with the funny tattoo*

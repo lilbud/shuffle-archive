@@ -1,6 +1,6 @@
 Here's a fascinating one for fans of the obscure (with apologies to anyone who's not).
 
-In the spring of 1981, Bruce and the E Street Band performed a cover of John Fogerty's "[Run Through the Jungle](https://estreetshuffle.com/index.php/2018/04/05/cover-me-run-through-the-jungle/)" at three European River Tour shows–the only times Bruce would ever play the Creedence Clearwater Revival classic.
+In the spring of 1981, Bruce and the E Street Band performed a cover of John Fogerty's "[Run Through the Jungle](../2018-04-05_cover-me-run-through-the-jungle/post.md)" at three European River Tour shows–the only times Bruce would ever play the Creedence Clearwater Revival classic.
 
 There was something odd about those performances, though, something fans of the original song almost certainly noticed: Bruce added verses that weren't in the original song. You'll hear them shortly after the 2:30 mark in the video below.
 

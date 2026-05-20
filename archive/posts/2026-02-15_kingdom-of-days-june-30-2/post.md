@@ -10,13 +10,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1978-0630.jpg.webp)
 
-**1985:** Night Two in Paris on the Born in the U.S.A. Tour features the last performance of "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)" in its original arrangement for 23 years.<br>
+**1985:** Night Two in Paris on the Born in the U.S.A. Tour features the last performance of "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" in its original arrangement for 23 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/HCJT03pP)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Press_of_Atlantic_City_1985_07_07_57.jpg.webp)
 
-**1989:** Bruce makes a guest appearance with Jackson Browne at Bally's Atlantic City casino, playing "[S](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)t[ay](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)," "Running on Empty," and "Sweet Little Sixteen."<br>
+**1989:** Bruce makes a guest appearance with Jackson Browne at Bally's Atlantic City casino, playing "[S](../2018-07-22_meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/post.md)t[ay](../2018-07-22_meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/post.md)," "Running on Empty," and "Sweet Little Sixteen."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3)
 

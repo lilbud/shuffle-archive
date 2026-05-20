@@ -1,6 +1,6 @@
 "Bad Day" isn't the most well-known R.E.M. song that Bruce has performed, but it's probably the most fitting one.
 
-After all, "Bad Day" evolved in true Springsteenian style, first appearing in the form of a couple of lyrics seemingly ad libbed by Michael Stipe "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)"-style in concert on August 25, 1985.
+After all, "Bad Day" evolved in true Springsteenian style, first appearing in the form of a couple of lyrics seemingly ad libbed by Michael Stipe "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)"-style in concert on August 25, 1985.
 
 [R.E.M. - PSA (Bad Day) - JB's Theater, Albany, NY, 25 August 1985 by R.E.M. Timeline](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F636937005&show_artwork=true&maxwidth=758&maxheight=1000&dnt=1)
 

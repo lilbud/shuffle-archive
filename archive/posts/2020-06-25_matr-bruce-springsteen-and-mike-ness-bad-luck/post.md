@@ -1,4 +1,4 @@
-If you were with me about six months ago, you may remember our spotlight on Bruce's studio guest appearance with Mike Ness on "[Misery Loves Company](https://estreetshuffle.com/index.php/2020/01/22/matr-mike-ness-and-bruce-springsteen-misery-loves-company/)."
+If you were with me about six months ago, you may remember our spotlight on Bruce's studio guest appearance with Mike Ness on "[Misery Loves Company](../2020-01-22_matr-mike-ness-and-bruce-springsteen-misery-loves-company/post.md)."
 
 I led that article stating that Bruce had been a fan of Social Distortion (Ness' band) since the early nineties. It's a pretty safe bet that one of the songs that originally grabbed his attention was "Bad Luck."
 
@@ -10,7 +10,7 @@ Years later, Ness made two appearances with Bruce Springsteen and the E Street B
 
 [Watch on Youtube: Bruce Springsteen & Mike Ness | Bad Luck - Los Angeles - 16/04/2009](https://www.youtube.com/watch?v=d3irr_f-ZIs)
 
-Six years after Ness' last E Street stage appearance, Bruce returned the favor when Social Distortion played Asbury Park's Sea.Hear.Now. Festival in the autumn of 2018. Bruce took a rare rocking break from his Broadway schedule to join the band for three songs that night: the aforementioned "Misery Loves Company," a terrific cover of "[Ring of Fire](https://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)," and (of course) "Bad Luck."
+Six years after Ness' last E Street stage appearance, Bruce returned the favor when Social Distortion played Asbury Park's Sea.Hear.Now. Festival in the autumn of 2018. Bruce took a rare rocking break from his Broadway schedule to join the band for three songs that night: the aforementioned "Misery Loves Company," a terrific cover of "[Ring of Fire](../2019-07-19_cover-me-ring-of-fire/post.md)," and (of course) "Bad Luck."
 
 [Watch on Youtube: Bad Luck - Social Distortion with Bruce Springsteen- Sea Hear Now](https://www.youtube.com/watch?v=imPrGD5RIT8)
 

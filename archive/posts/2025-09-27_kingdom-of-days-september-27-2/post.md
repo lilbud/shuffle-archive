@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 1975, 1985, and 1988*<br>
 
-**1975:** Bruce and the "East Side Band" play their first-ever show in Missouri when the Born to Run Tour stops at the Ambassador Theater in St. Louis. The set list features a 27-minute(!) "[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)."<br>
+**1975:** Bruce and the "East Side Band" play their first-ever show in Missouri when the Born to Run Tour stops at the Ambassador Theater in St. Louis. The set list features a 27-minute(!) "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mmpgyjjC)
 
@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1975-09-27.jpg.webp)
 
-**1977:** At the Record Plant in New York City, Bruce records "Because the Night," "[Outside Looking In](https://estreetshuffle.com/index.php/2021/02/19/roll-of-the-dice-outside-looking-in/)," and "[Down by the River](https://estreetshuffle.com/index.php/2020/05/13/roll-of-the-dice-down-by-the-river/)." It will take more than 30 years for Bruce to release the first two; the last one still hasn't been released to this day.<br>
+**1977:** At the Record Plant in New York City, Bruce records "Because the Night," "[Outside Looking In](../2021-02-19_roll-of-the-dice-outside-looking-in/post.md)," and "[Down by the River](../2020-05-13_roll-of-the-dice-down-by-the-river/post.md)." It will take more than 30 years for Bruce to release the first two; the last one still hasn't been released to this day.<br>
 
 [Watch on Youtube: Outside Looking In](https://www.youtube.com/watch?v=Ev4XO_RCAag)
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Bruce Springsteen - DARKNESS ON THE EDGE OF TOWN 1980 (The River rehearsals)](https://www.youtube.com/watch?v=igHd2JZI9PM)
 
-**1985:** The final stand of the marathon Born in the U.S.A. Tour begins at the Los Angeles Memorial Coliseum, where Bruce plays both "[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)" and "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" for the very first time. "War" will continue to be a staple through the Tunnel of Love Tour, but "Janey" won't be played again for eight years. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,21734/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-27-1985-Los-Angeles-Memorial-Coliseum-Los-Angeles-CA.html).<br>
+**1985:** The final stand of the marathon Born in the U.S.A. Tour begins at the Los Angeles Memorial Coliseum, where Bruce plays both "[War](../2019-05-27_cover-me-war/post.md)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" for the very first time. "War" will continue to be a staple through the Tunnel of Love Tour, but "Janey" won't be played again for eight years. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,21734/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-27-1985-Los-Angeles-Memorial-Coliseum-Los-Angeles-CA.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - Cadillac Ranch (1985)](https://www.youtube.com/watch?v=a1kiuXZtODg)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-27b.jpg.webp)
 
-**1988:** The Human Rights Now! Tour lands in Asia, starting with a show at the Tokyo Dome, where Bruce tour debuts "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."<br>
+**1988:** The Human Rights Now! Tour lands in Asia, starting with a show at the Tokyo Dome, where Bruce tour debuts "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D15WeCor)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1999-09-27b.jpg.webp)
 
-**2002:** Milwaukee gets tour one-offs of "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" and a show-closing "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" (complete with "Are you loose?") and a "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" tour premiere when the Rising Tour stops at the Bradley Center for a night.<br>
+**2002:** Milwaukee gets tour one-offs of "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" and a show-closing "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" (complete with "Are you loose?") and a "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" tour premiere when the Rising Tour stops at the Bradley Center for a night.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jFG933Sz)
 
@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2002-09-27b.jpg.webp)
 
-**2003:** The Rising Tour is winding down, and each show of this last month is special. At Miller Park in Milwaukee (one year to the day since his last show in that city), Bruce opens with "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)," plays a rare "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)," and by request: a Danny Federici spotlight on "[Beer Barrel Polka](https://estreetshuffle.com/index.php/2020/03/24/cover-me-beer-barrel-polka/)."<br>
+**2003:** The Rising Tour is winding down, and each show of this last month is special. At Miller Park in Milwaukee (one year to the day since his last show in that city), Bruce opens with "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," plays a rare "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)," and by request: a Danny Federici spotlight on "[Beer Barrel Polka](../2020-03-24_cover-me-beer-barrel-polka/post.md)."<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN | MILWAUKEE 2003 | FULL CONCERT](https://www.youtube.com/watch?v=WdlwIJmm6ro)
 
@@ -94,7 +94,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2016-09-27.jpg.webp)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is sick tonight, so Bruce Broadway-debuts "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" in place of his usual "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" duet with his wife. In attendance tonight: Robert Gordon and Simple Minds.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is sick tonight, so Bruce Broadway-debuts "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" in place of his usual "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" duet with his wife. In attendance tonight: Robert Gordon and Simple Minds.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/2018-09-27a.jpg.webp)
 

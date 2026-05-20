@@ -38,7 +38,7 @@ Bruce usually isn't often this cynical with his lyrics, and if something about t
 > *And suddenly you see something new in her eyes*<br>
 > *And in that moment you begin to realize*<br>
 
-Sound familiar? That's because those lines also appear in Bruce's "[Little White Lies](https://estreetshuffle.com/index.php/2018/03/20/roll-of-the-dice-little-white-lies/)" an outtake from *The River* that was released in that album's anniversary box set in 2015:
+Sound familiar? That's because those lines also appear in Bruce's "[Little White Lies](../2018-03-20_roll-of-the-dice-little-white-lies/post.md)" an outtake from *The River* that was released in that album's anniversary box set in 2015:
 
 ***There were no cold denials, nobody really lied***<br>
 ***It wasn't in the things we said, girl, just time spent, promises implied***<br>
@@ -56,7 +56,7 @@ But I'm not done–because check out the last verse of "Your Love:"
 > *Like an empty shadow that's suddenly found (oh yeah)*<br>
 > *That your love is gonna let you down*<br>
 
-If something about that verse tugs at you, there's a reason for that, too–there's another outtake from the same time period in which the narrator walks the street at night, looking for romance but always stumbling in a half-trance. But that narrator refuses to accept a cynical outlook, declaring "[My Love Will Not Let You Down.](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)"
+If something about that verse tugs at you, there's a reason for that, too–there's another outtake from the same time period in which the narrator walks the street at night, looking for romance but always stumbling in a half-trance. But that narrator refuses to accept a cynical outlook, declaring "[My Love Will Not Let You Down.](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)"
 
 [Watch on Youtube: Bruce Springsteen || My love will not let you down](https://www.youtube.com/watch?v=c7ky70i_VGc)
 

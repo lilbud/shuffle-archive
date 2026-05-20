@@ -8,9 +8,9 @@
 
 **1974:** Bruce and the E Street Band play their second of two nights at the War Memorial Theater in Trenton.<br>
 
-**1977:** At The Record Plant in New York City, Bruce and the E Street Band work on "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)."<br>
+**1977:** At The Record Plant in New York City, Bruce and the E Street Band work on "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)."<br>
 
-**1980:** Bruce takes the River Tour to the Civic Arena in Pittsburgh, where Bruce dedicates "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" to Joe Grushecky.<br>
+**1980:** Bruce takes the River Tour to the Civic Arena in Pittsburgh, where Bruce dedicates "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" to Joe Grushecky.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The Promised Land" - Pittsburgh, 1980-11-30](https://www.youtube.com/watch?v=I1Ab0iyJitA)
 
@@ -34,13 +34,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-30b.png.webp)
 
-**1995:** Bruce plays his second of two nights at the Berkeley Community Theater, where "[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)" makes its debut, and the setlist contains the entire [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) album. Once again, John Wesley Harding opens the show with a short set.<br>
+**1995:** Bruce plays his second of two nights at the Berkeley Community Theater, where "[The New Timer](../2018-07-13_roll-of-the-dice-the-new-timer/post.md)" makes its debut, and the setlist contains the entire [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md) album. Once again, John Wesley Harding opens the show with a short set.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The New Timer" - Berkeley, 1995-11-30](https://www.youtube.com/watch?v=6l2Zp_7SXro)
 
 **2007:** Bruce comes down with a severe cold and postpones a scheduled show in Arnhem to the next day.<br>
 
-**2012:** The Wrecking Ball Tour travels down the west coast to Oakland for a show at Oracle Arena. Notables tonight include a rare full-band "[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)" a by-request "[Pay Me My Money Down,](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)" and a "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)" encore.<br>
+**2012:** The Wrecking Ball Tour travels down the west coast to Oakland for a show at Oracle Arena. Notables tonight include a rare full-band "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)" a by-request "[Pay Me My Money Down,](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" and a "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" encore.<br>
 
 [Watch on Youtube: Bruce Springsteen "Pay Me My Money Down" 11/30/2012 Oakland, CA](https://www.youtube.com/watch?v=bC_Tvu0cDYo)
 

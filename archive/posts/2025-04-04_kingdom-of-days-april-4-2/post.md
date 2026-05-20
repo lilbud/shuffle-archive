@@ -36,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-04-04d.jpg.webp)
 
-**1993:** Night Two in Dortmund, Germany, for Bruce's World Tour 1993 features a rare (back then, anyway) acoustic arrangement of "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" along with acoustic versions of "[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)" and "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)" as well.<br>
+**1993:** Night Two in Dortmund, Germany, for Bruce's World Tour 1993 features a rare (back then, anyway) acoustic arrangement of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" along with acoustic versions of "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)" and "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" as well.<br>
 
 [Watch on Youtube: Bruce Springsteen - Westfalenhalle, Dortmund 04.04.93](https://www.youtube.com/watch?v=DlSwO7z_59o)
 
@@ -44,13 +44,13 @@
 
 [Watch on Youtube: Bruce Springsteen - ATLANTIC CITY 1993 live](https://www.youtube.com/watch?v=TpVWGvhK-Ls)
 
-**1998:** Bruce performs "[Oh, What a Beautiful Mornin'](https://estreetshuffle.com/index.php/2019/10/09/cover-me-oh-what-a-beautiful-mornin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in tribute to Elaine Steinbeck (widow of John) at a ceremony in Sag Harbor, New York.<br>
+**1998:** Bruce performs "[Oh, What a Beautiful Mornin'](../2019-10-09_cover-me-oh-what-a-beautiful-mornin/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in tribute to Elaine Steinbeck (widow of John) at a ceremony in Sag Harbor, New York.<br>
 
 [Watch on Youtube: Bruce Springsteen - WHAT A BEAUTIFUL MORNING 1998 (audio)](https://www.youtube.com/watch?v=sMm2Ig691KY)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Newsday__Nassau_Edition__Mon__Apr_6__1998_.jpg.webp)
 
-**2000:** Bad Seattle traffic delays Bruce's show at the Tacoma Dome. Bruce makes up for it by delivering a scorching set, filmed in its entirety by a fan in the audience and paired with an IEM recording. Watch this amazing (for the time) full show video below, and check out the somersault at the end of the final encore of Ramrod! For more on this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/04/04/where-the-band-was-tacoma-april-4-2000/)<br>
+**2000:** Bad Seattle traffic delays Bruce's show at the Tacoma Dome. Bruce makes up for it by delivering a scorching set, filmed in its entirety by a fan in the audience and paired with an IEM recording. Watch this amazing (for the time) full show video below, and check out the somersault at the end of the final encore of Ramrod! For more on this show, see my [*Where the Band Was* report.](../2018-04-04_where-the-band-was-tacoma-april-4-2000/post.md)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KyuwuVe8)
 
@@ -60,7 +60,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2000-04-04b.jpg.webp)
 
-**2005:** Bruce tapes an episode of VH1 Storytellers before a live audience in Red Bank, where he debuts "[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)" and "[Jesus Was an Only Son](https://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/)." Following the show, Bruce holds a rare Q&A session. Watch the show below, including the Q&A session.<br>
+**2005:** Bruce tapes an episode of VH1 Storytellers before a live audience in Red Bank, where he debuts "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)" and "[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md)." Following the show, Bruce holds a rare Q&A session. Watch the show below, including the Q&A session.<br>
 
 [Watch on Youtube: Bruce Springsteen - Show Introduction (From VH1 Storytellers)](https://www.youtube.com/watch?v=uHTKQsExS8Y?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu)
 
@@ -76,7 +76,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-04.jpg.webp)
 
-**2012:** The second of two nights in East Rutherford features five tour premieres, including "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)."<br>
+**2012:** The second of two nights in East Rutherford features five tour premieres, including "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/UqHksOXt)
 
@@ -94,7 +94,7 @@ Meanwhile, *Springsteen on Broadway* continues its theatrical run at the Walter 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/tony-goldwyn.jpg.webp)
 
-**2024:** Bruce shakes things up in Inglewood with a setlist inspired by the return of Patti Scialfa to the E Street stage. Four tour debuts tonight, including the show-opening cover of "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)," "[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" and "[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)."<br>
+**2024:** Bruce shakes things up in Inglewood with a setlist inspired by the return of Patti Scialfa to the E Street stage. Four tour debuts tonight, including the show-opening cover of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)," "[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band live "Boom Boom" Kia Forum Inglewood CA April 4, 2024](https://www.youtube.com/watch?v=rvg0VODMBYc)
 

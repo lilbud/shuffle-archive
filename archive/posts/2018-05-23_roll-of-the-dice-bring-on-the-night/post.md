@@ -6,7 +6,7 @@ Case in point: "Bring on the Night," a Darkness/River-era outtake that has some 
 
 [Watch on Youtube: Bring On The Night (Studio Outtake - 1979)](https://www.youtube.com/watch?v=lumeLcEFPsI)
 
-Yes, "Bring on the Night" is a kissing cousin to "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)." The two songs share more than some common lines–they're both restless, urgent, lonely cries for connection from an isolated introvert. ("[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" is another example of that theme–Bruce would mine this ground often during his early stardom years.)
+Yes, "Bring on the Night" is a kissing cousin to "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)." The two songs share more than some common lines–they're both restless, urgent, lonely cries for connection from an isolated introvert. ("[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" is another example of that theme–Bruce would mine this ground often during his early stardom years.)
 
 But while the protagonist of "My Love" is fiercely defiant and determined to make that connection and conquer his shyness, the narrator of "Bring on the Night" accepts and relishes his inability to connect.
 
@@ -58,7 +58,7 @@ By 1979, Bruce had almost settled on the final lyrics. He seized the late transi
 
 [Watch on Youtube: "Bring on the Night" Studio rehearsal, 1979](https://www.youtube.com/watch?v=48hBjV19GlM)
 
-On June 13, 1979, the band recorded the final take, but it would sit in the vault for 19 years before being remixed and released on *Tracks*. Sandwiched on Disc One right after "[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)" and "[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)," and just before "So Young and in Love" and "[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)," "Bring on the Night" sticks out prominently, weak in comparison to the polished classics that surround it.
+On June 13, 1979, the band recorded the final take, but it would sit in the vault for 19 years before being remixed and released on *Tracks*. Sandwiched on Disc One right after "[Give the Girl a Kiss](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)" and "[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)," and just before "So Young and in Love" and "[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md)," "Bring on the Night" sticks out prominently, weak in comparison to the polished classics that surround it.
 
 Nevertheless, it offers a fascinating peek into Bruce's songwriting process, and some insight into what would become one of my favorite Springsteen songs. For those reasons at least, I'm glad Bruce released "Bring on the Night."
 

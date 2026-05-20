@@ -8,7 +8,7 @@ Most of Bruce's set lists from those shows are undocumented, so we can't be cert
 
 [Watch on Youtube: Love Is A Crazy Thing - Bruce Springsteen Band](https://www.youtube.com/watch?v=S9Ho0oWDDB8)
 
-To my ears, "Love Is a Crazy Thing" sounds like a predecessor to "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)," which Bruce would record a little more than a year later. Both the tempo change and mid-song instrumental break were devices that Bruce would use upon occasion in those early years, but here he seems to be clearly reaching toward something specific.
+To my ears, "Love Is a Crazy Thing" sounds like a predecessor to "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)," which Bruce would record a little more than a year later. Both the tempo change and mid-song instrumental break were devices that Bruce would use upon occasion in those early years, but here he seems to be clearly reaching toward something specific.
 
 As for the lyrics, well, Bruce's early love songs were rarely as layered and nuanced as his later ones, but this one seems like the kind of dream-girl fantasy only a 22-year-old could come up with. Which, of course, was exactly what Bruce was at the time.
 

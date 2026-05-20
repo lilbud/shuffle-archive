@@ -1,4 +1,4 @@
-It takes a lot of darkness to out-dark [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/), but "Breakaway" manages to do it.
+It takes a lot of darkness to out-dark [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md), but "Breakaway" manages to do it.
 
 "Breakaway" is easily the bleakest song to come out of the Darkness sessions and is surely a contender for the title across Bruce's entire catalog.
 
@@ -44,14 +44,14 @@ Perhaps Sonny got off lucky by signing away his car as a gambling loss, but it s
 
 Hoping to break away from whatever metaphorical chains bound him, he ended up breaking away from life itself.
 
-(Sonny will return in "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).")
+(Sonny will return in "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md).")
 
 > *Now the promises and the lies they demand it*
 > *Let the hearts that have been broken stand as the price you pay*
 > *To breakaway, oh, breakaway, oh Ronde, Ronde, Ronde, Ronde Ray*
 > *To breakaway*
 
-Yes, that's the chorus for "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)" you spotted there. Although Bruce was working on "Badlands" at the same time he recorded "Breakaway," that iconic line ("let the broken hearts stand as the price you've gotta pay") wouldn't migrate to "Badlands" until several months later. Bruce isn't one to let a great line go to waste.
+Yes, that's the chorus for "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" you spotted there. Although Bruce was working on "Badlands" at the same time he recorded "Breakaway," that iconic line ("let the broken hearts stand as the price you've gotta pay") wouldn't migrate to "Badlands" until several months later. Bruce isn't one to let a great line go to waste.
 
 > *Janie slipped from behind the bar last night*
 > *Cashed out and walked onto streets rainy and grey*

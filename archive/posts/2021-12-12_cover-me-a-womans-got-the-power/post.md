@@ -1,4 +1,4 @@
-When Bruce’s mom complained that he always sang about his father but never about her, Bruce replied by covering “A Woman’s Got the Power” by the great Philly band The A’s during a Meadowlands appearance early on the *Born in the U.S.A.* Tour. (This was before Bruce wrote “[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/).”)
+When Bruce’s mom complained that he always sang about his father but never about her, Bruce replied by covering “A Woman’s Got the Power” by the great Philly band The A’s during a Meadowlands appearance early on the *Born in the U.S.A.* Tour. (This was before Bruce wrote “[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md).”)
 
 [Watch Video Highlight](https://videopress.com/embed/t5cDigsh)
 

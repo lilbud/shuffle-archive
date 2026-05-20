@@ -16,11 +16,11 @@ The original version of "Soothe Me" influenced R&B duos for years afterward, inc
 
 Ten years after that incredible performance, another soul duo performed "Soothe Me" on the stage of The Stone Pony in Asbury Park. Former house band Southside Johnny & The Asbury Jukes were holding court that October evening, and local-boy-made-good Bruce Springsteen stopped by to join them for a few classic R&B covers.
 
-Bruce was no stranger to "[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)" and "[Ain't Too Proud to Beg](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)"; he'd performed both of them during the Born to Run Tour. "Soothe Me," however, was both a debut and a never-to-be-repeated performance.
+Bruce was no stranger to "[Carol](../2022-02-17_cover-me-carol/post.md)" and "[Ain't Too Proud to Beg](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)"; he'd performed both of them during the Born to Run Tour. "Soothe Me," however, was both a debut and a never-to-be-repeated performance.
 
 [Watch on Youtube: Soothe me (Simms Twins cover)](https://www.youtube.com/watch?v=kjcj59K5a-s)
 
-The surviving recording from that night is unfortunately muddy, but it's clear enough for us to appreciate how loose and improvisational the boys were that night. Bruce and Southside interplay in true Sam and Dave fashion, working snippets of "Good Times" and "[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)" into a good-time performance that seemed like it might go on forever.
+The surviving recording from that night is unfortunately muddy, but it's clear enough for us to appreciate how loose and improvisational the boys were that night. Bruce and Southside interplay in true Sam and Dave fashion, working snippets of "Good Times" and "[Shout](../2019-09-12_cover-me-shout/post.md)" into a good-time performance that seemed like it might go on forever.
 
 It didn't though, and that 1977 team-up with Southside remains Bruce's only performance of "Sooth Me" to date.
 

@@ -1,6 +1,6 @@
 He died way too young at the age of 21, but he left us with a string of rockabilly classics that would influence generations of artists to come.
 
-Eddie Cochran's biggest hit was "[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)," a song Springsteen covered as far back as the Darkness Tour. But that's not the only song of Cochran's that Bruce covered.
+Eddie Cochran's biggest hit was "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," a song Springsteen covered as far back as the Darkness Tour. But that's not the only song of Cochran's that Bruce covered.
 
 On the evening of July 23, 1982, Bruce joined rockabilly band Stray Cats on guitar at The Fast Lane for a one-time-only cover of Cochran's "Twenty Flight Rock."
 

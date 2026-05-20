@@ -1,4 +1,4 @@
-Wow, do I love this version of [Bruce's greatest hit](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).
+Wow, do I love this version of [Bruce's greatest hit](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).
 
 It's both different and great–and arguably an even better arrangement than Bruce's original track.
 

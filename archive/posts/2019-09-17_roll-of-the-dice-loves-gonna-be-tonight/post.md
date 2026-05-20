@@ -6,7 +6,7 @@ There's definitely an infectious "Peggy Sue" vibe to this one in both the melody
 
 [Watch on Youtube: Bruce Springsteen Loves Gonna Be Tonight #1](https://www.youtube.com/watch?v=EvarhCR7h7Q)
 
-It would have been interesting to hear this one develop; I think it might have been right at home on *The River* alongside "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)," especially in this second attempt, in which we can clearly hear Bruce envisioning what the song would sound like electrified:
+It would have been interesting to hear this one develop; I think it might have been right at home on *The River* alongside "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," especially in this second attempt, in which we can clearly hear Bruce envisioning what the song would sound like electrified:
 
 [Watch on Youtube: Bruce Springsteen Loves Gonna Be Tonight #2](https://www.youtube.com/watch?v=SGBumicu9TE)
 

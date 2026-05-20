@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1952-09-23.jpg.webp)
 
-**1973:** On his 24th birthday, Bruce records two of his greatest songs: “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” and “Rosalita (Come Out Tonight).” With these songs in the can, Bruce’s second album is complete.<br>
+**1973:** On his 24th birthday, Bruce records two of his greatest songs: “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)” and “Rosalita (Come Out Tonight).” With these songs in the can, Bruce’s second album is complete.<br>
 
 [Watch on Youtube: Incident on 57th Street](https://www.youtube.com/watch?v=ioQcvijom28)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1986-09-23.jpg.webp)
 
-**1988:** A special Human Rights Now! show in Oakland on the occasion of Bruce’s 39th birthday: Roy Orbison surprises Bruce backstage and leads the crowd in singing “Happy Birthday,” as does Joan Baez, who also performs “[Blowin’ in the Wind](https://estreetshuffle.com/index.php/2019/12/19/cover-me-blowin-in-the-wind/)” with Bruce. During Bruce’s set, he tour premieres “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” and plays his very first “[I Ain’t Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/).”<br>
+**1988:** A special Human Rights Now! show in Oakland on the occasion of Bruce’s 39th birthday: Roy Orbison surprises Bruce backstage and leads the crowd in singing “Happy Birthday,” as does Joan Baez, who also performs “[Blowin’ in the Wind](../2019-12-19_cover-me-blowin-in-the-wind/post.md)” with Bruce. During Bruce’s set, he tour premieres “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” and plays his very first “[I Ain’t Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md).”<br>
 
 [Watch on Youtube: Bruce springsteen at the amnesty international concert oakland california](https://www.youtube.com/watch?v=-nGfxpXnuBQ)
 
@@ -58,7 +58,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-23b.jpg.webp)
 
-**1989:** Bruce celebrates his 40th birthday with the E Street Band (including Steve Van Zandt, who sings lead on “[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)” so Bruce can have a dance with his mom) at McLoone’s Rum Runner in Sea Bright. This is the last E Street Band performance before Bruce disbands them.<br>
+**1989:** Bruce celebrates his 40th birthday with the E Street Band (including Steve Van Zandt, who sings lead on “[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)” so Bruce can have a dance with his mom) at McLoone’s Rum Runner in Sea Bright. This is the last E Street Band performance before Bruce disbands them.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1989-09-23.jpg.webp)
 

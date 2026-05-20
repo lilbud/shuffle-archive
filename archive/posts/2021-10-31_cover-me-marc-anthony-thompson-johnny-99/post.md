@@ -4,7 +4,7 @@ There was a stellar array of on-stage talent that night, from Michelle Shocked t
 
 All the performances were great, but one in particular blew me away. Early in the show, the emcee introduced an artist named Marc Anthony Thompson, who recorded and performed as the leader of Chocolate Genius, a musical collective (as Thompson calls it) with a membership that ebbs and flows over time.
 
-That night, Chocolate Genius consisted of Thompson and pianist/omnichordist Thomas Bartlett, a.k.a. Doveman. The duo took the stage to play a cover of "[Johnny 99](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)," and within seconds the audience was rapt.
+That night, Chocolate Genius consisted of Thompson and pianist/omnichordist Thomas Bartlett, a.k.a. Doveman. The duo took the stage to play a cover of "[Johnny 99](../2018-04-16_roll-of-the-dice-nebraska/post.md)," and within seconds the audience was rapt.
 
 [Watch Video Highlight](https://videopress.com/embed/3nc9WEDn)
 

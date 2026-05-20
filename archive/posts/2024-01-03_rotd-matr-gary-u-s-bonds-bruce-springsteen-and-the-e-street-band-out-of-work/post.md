@@ -1,4 +1,4 @@
-In 1981, Bruce and Steve Van Zandt produced *Dedication*, a comeback album for one of their musical heroes, Gary U.S. Bonds. It worked: Bonds indeed came back to the charts, leading off with Bruce's original song "[This Little Girl,](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)" which peaked at #11 on the Billboard Hot 100.
+In 1981, Bruce and Steve Van Zandt produced *Dedication*, a comeback album for one of their musical heroes, Gary U.S. Bonds. It worked: Bonds indeed came back to the charts, leading off with Bruce's original song "[This Little Girl,](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)" which peaked at #11 on the Billboard Hot 100.
 
 *Dedication* worked so well that the trio decided to do an encore. In 1982, Bonds released his follow-up album–also produced by Bruce and Steve–entitled *On the Line.*
 
@@ -8,7 +8,7 @@ Only one of those seven songs became a hit single though: the comical but slyly 
 
 [Watch on Youtube: Gary U.S. Bonds - Out Of Work](https://www.youtube.com/watch?v=aKxfxixwdXE)
 
-Even if you've never heard it before, "Out of Work" might sound a bit familiar. That's because Bruce built it on the chassis of "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)." Give it another listen and you'll hear what I mean.
+Even if you've never heard it before, "Out of Work" might sound a bit familiar. That's because Bruce built it on the chassis of "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)." Give it another listen and you'll hear what I mean.
 
 That's not the only aspect of "Out of Work" that rings familiar, though: that's a bona fide E Street Band backing track, with the entire band credited except for Bruce–who nevertheless is still audibly present on backing vocals. This is Bruce and the E Street Band at their River-era peak, complete with a classic Big Man sax solo.
 
@@ -55,7 +55,7 @@ Lyrically, "Out of Work" is sneaky: it starts out like an homage to the doo wop 
 > *I'm unemployed, I'm out of work*<br>
 > *I need a job, I'm out of work*<br>
 
-A few months ago, we traced the evolution of "[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" starting with Bruce's unreleased 1979 outtake "[Oh Angelyne](https://estreetshuffle.com/index.php/2021/02/16/roll-of-the-dice-oh-angelyne/)." That was where we first heard the influence of the rapidly receding economy on Bruce's songwriting.
+A few months ago, we traced the evolution of "[The River,](../2021-03-04_roll-of-the-dice-the-river/post.md)" starting with Bruce's unreleased 1979 outtake "[Oh Angelyne](../2021-02-16_roll-of-the-dice-oh-angelyne/post.md)." That was where we first heard the influence of the rapidly receding economy on Bruce's songwriting.
 
 By 1981, the U.S. was experiencing its third straight year of double-digit inflation. By 1982, the year that Bonds released "Out of Work," the U.S. unemployment rate had topped 10% for the first time since the Great Depression. So while "Out of Work" may today sound akin to a novelty song, if you heard it on the radio at the time you likely winced while you laughed.
 

@@ -10,7 +10,7 @@ With the possible exception of "Sundown" on the same album, "There Goes My Mirac
 
 Tracing the lineage of the *Western Stars* collection is a challenge even for Springsteen scholars, since there's precious little information available about the recording sessions. However, we can do a little sleuthing and speculating. Bruce is on record stating that the album's origins date back to as early as 2010:
 
-> *"I wrote most of [Western Stars] before [Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), and I stopped making that record to make Wrecking Ball, and then I went back to it."*<br>
+> *"I wrote most of [Western Stars] before [Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md), and I stopped making that record to make Wrecking Ball, and then I went back to it."*<br>
 
 I strongly suspect that "There Goes My Miracle" is one of those original pre-*Wrecking Ball* tracks–in fact, I wouldn't be surprised if Bruce had written it during the same period that yielded *Working on a Dream* in 2009, so similar is the song to that album's material.
 

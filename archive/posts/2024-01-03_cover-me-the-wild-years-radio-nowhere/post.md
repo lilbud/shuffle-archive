@@ -1,6 +1,6 @@
 > *Thanks to friend of the blog Frank Saverio for tipping me off to this one!*<br>
 
-"[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)" took on new resonance during the pandemic of 2020-21.
+"[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)" took on new resonance during the pandemic of 2020-21.
 
 At the height of quarantine and pre-vaccine social distancing, it seemed like we were all isolated from one another. The pandemic didn't care if you were famous or anonymous; we all experienced it together.
 

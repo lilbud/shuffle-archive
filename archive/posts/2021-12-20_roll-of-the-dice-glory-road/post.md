@@ -4,7 +4,7 @@ Bruce included it on an early 1974 track list for his upcoming third album (whic
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/proposedtracklist_1.jpg.webp)
 
-At least for a time, it appeared that "Glory Road" was a candidate for anchoring the closing end of Side One (along with its alternate, "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)"), but the lack of a runtime after its entry suggests that Bruce had yet to take it into the studio.
+At least for a time, it appeared that "Glory Road" was a candidate for anchoring the closing end of Side One (along with its alternate, "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)"), but the lack of a runtime after its entry suggests that Bruce had yet to take it into the studio.
 
 If you can't help but wonder what "Glory Road" must have sounded like if it even had a shred of a chance of knocking "She's the One" off of the record–consider that in another early album sequence Bruce had "Glory Road" listed *as an alternate for "Born to Run."*
 

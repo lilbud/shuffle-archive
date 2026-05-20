@@ -1,6 +1,6 @@
 It's always fun (for me, at least) when the dice turn up a mini-theme.
 
-For the second time this week, we're examining an officially released song that shares a whole lot of DNA with another released song. The other day, we looked at lyrical twins "[Be True](https://estreetshuffle.com/index.php/2019/04/03/roll-of-the-dice-mary-lou/)" and "[Mary Lou](https://estreetshuffle.com/index.php/2019/04/03/roll-of-the-dice-mary-lou/);" today, we take a look at "Come On (Let's Go Tonight)," the musical twin of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)."
+For the second time this week, we're examining an officially released song that shares a whole lot of DNA with another released song. The other day, we looked at lyrical twins "[Be True](../2019-04-03_roll-of-the-dice-mary-lou/post.md)" and "[Mary Lou](../2019-04-03_roll-of-the-dice-mary-lou/post.md);" today, we take a look at "Come On (Let's Go Tonight)," the musical twin of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."
 
 [Watch on Youtube: Come On (Let's Go Tonight)](https://www.youtube.com/watch?v=j_LBQD2nghw)
 
@@ -8,9 +8,9 @@ If Bruce hadn't released it on *The Promise* in 2010, I'd probably be covering "
 
 To hardcore Springsteen fans, it's difficult to listen to "Come On (Let's Go Tonight)" and hear anything other than a hodgepodge of lyrics that would eventually find their way to other more well-known songs.
 
-And yet, if we can pretend that we've never listened to "Factory," "[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)," and "[Johnny Bye Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)" before, there's a somber reflection on life and death waiting to be discovered here.
+And yet, if we can pretend that we've never listened to "Factory," "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," and "[Johnny Bye Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)" before, there's a somber reflection on life and death waiting to be discovered here.
 
-"Come On (Let's Go Tonight)" was one of the very first songs recorded for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/). In fact, a first cut was recorded on the very first day of recording sessions. Bruce worked on it throughout the early days of the summer of '77, and one of those early July recordings escaped into the wild as a bootleg.
+"Come On (Let's Go Tonight)" was one of the very first songs recorded for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). In fact, a first cut was recorded on the very first day of recording sessions. Bruce worked on it throughout the early days of the summer of '77, and one of those early July recordings escaped into the wild as a bootleg.
 
 [https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3](https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3)
 

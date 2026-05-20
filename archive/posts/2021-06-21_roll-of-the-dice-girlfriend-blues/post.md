@@ -2,7 +2,7 @@ I know we've been spending a lot of time in the pre-Street past lately, and we'l
 
 As I often do with Bruce's early material, I feel compelled to emphasize Bruce's tender age of twenty on the date this was recorded. Usually, I do that to underline how impressive and accomplished his performances were; this time it's also a reminder that we've all said things at that age that we're fortunate were never captured on tape for posterity.
 
-If our spotlight on "[You Better Be Nice to Me](https://estreetshuffle.com/index.php/2021/06/19/roll-of-the-dice-you-better-be-nice-to-me-baby/)" a few days ago featured Bruce at his jazziest, today's entry features Bruce at his bluesiest.
+If our spotlight on "[You Better Be Nice to Me](../2021-06-19_roll-of-the-dice-you-better-be-nice-to-me-baby/post.md)" a few days ago featured Bruce at his jazziest, today's entry features Bruce at his bluesiest.
 
 "Girlfriend Blues" hails from a full year earlier than "You Better Be Nice to Me, Baby," which places us in Bruce's late Steel Mill period during the summer of 1970.
 

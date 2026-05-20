@@ -8,11 +8,11 @@ I remember listening to "Stray Bullet" for the first time when it was released i
 
 Musically, it's unlike anything else Bruce recorded at that point in his career; lyrically, it covers some very dark and very bloody ground.
 
-I can see why it was left off *The River*: it conjures up some of the same imagery as that album's title track and overlaps thematically with "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)" (even if "Stray Bullet" is literal while "Point Blank" is metaphorical).
+I can see why it was left off *The River*: it conjures up some of the same imagery as that album's title track and overlaps thematically with "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" (even if "Stray Bullet" is literal while "Point Blank" is metaphorical).
 
 But as a standalone song, "Stray Bullet" is haunting and deceptively idyllic.
 
-The melody is lilting and gentle, carried by Clarence's brooding sax–gentler than any track Bruce had set down on vinyl to that point–and as the first verse unfolds, it seems as if this may simply be an alternate-universe version of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)."
+The melody is lilting and gentle, carried by Clarence's brooding sax–gentler than any track Bruce had set down on vinyl to that point–and as the first verse unfolds, it seems as if this may simply be an alternate-universe version of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)."
 
 > *In the tall grass we held hands*
 > *Down by the river we made plans*

@@ -21,7 +21,7 @@ I first heard "No Surrender" when I was fifteen. More accurately, I first heard 
 
 I remember a swirling debate during the closing days of the school year about Bruce's delinquent, corrupting lyrics: *Bruce Springsteen is encouraging our children to skip school! Or worse: drop out! The nerve of suggesting that rock and roll can replace a good education!*
 
-Even at fifteen and without having heard the song, I knew that was ridiculous. My first thought was: *Wait until they hear "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)."* My second, like with every other kid in school, was: *I need to hear this song*.
+Even at fifteen and without having heard the song, I knew that was ridiculous. My first thought was: *Wait until they hear "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)."* My second, like with every other kid in school, was: *I need to hear this song*.
 
 I wouldn't be able to afford *Born in the U.S.A.* for a couple of months yet, but I listened to it at a friend's house. When we flipped the album and dropped the needle on Side Two, I'll never forget that jolt of adrenaline that comes with hearing Max Weinberg barrel roll into "No Surrender" for the first time–heightened by the fact that Bruce was narrating exactly what we were feeling that moment:
 

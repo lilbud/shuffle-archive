@@ -110,7 +110,7 @@ The last lines of the song are devastatingly poignant. As he makes his move on a
 
 Bruce often writes cinematically, and here he literally employs a cinematic tool, fading to black as the song plays out. Patti Scialfa's backing vocals finally appear in this verse–deliberately held in reserve until the final lines–representing (in hindsight, with irony both awful and perfect) his wife's voice, the ghost of his lost love. Patti, of course, is the love that Bruce *found* around the time of this song, so her presence here adds layers of meaning and resonance beyond what the writer must have intended at the time.
 
-Their call and response on the coda, playing out as hands separate and bodies come together, as Bruce's direct gaze gives way to indecisive reverie and finally, in the final frames, to "what am I doing" dismay tells us that this story is far from over. Were it not for the setting, we might suspect that the narrator is still trapped in his self-destructive cycle almost 20 years later, covering similar ground in Bruce's 2005 song, "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)."
+Their call and response on the coda, playing out as hands separate and bodies come together, as Bruce's direct gaze gives way to indecisive reverie and finally, in the final frames, to "what am I doing" dismay tells us that this story is far from over. Were it not for the setting, we might suspect that the narrator is still trapped in his self-destructive cycle almost 20 years later, covering similar ground in Bruce's 2005 song, "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)."
 
 Bruce performed "One Step Up" throughout the Tunnel of Love Tour, the eye contact and interplay between Bruce and Patti increasing with each performance. The song disappeared from Bruce's setlists after 1988, though, emerging only for a handful of solo acoustic performances in 2005 during the "anything goes leg" of that tour.
 
@@ -132,7 +132,7 @@ None of us can know exactly what memories and emotions this song conjures for th
 
 **One Step Up**<br>
 **Recorded:** May-August 1987<br>
-**Released:** *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*(1987), *The Essential Bruce Springsteen* (2015)<br>
+**Released:** *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*(1987), *The Essential Bruce Springsteen* (2015)<br>
 **First performed:** February 25, 1988 (Worcester, MA)<br>
 **Last performed:** May 14, 2014 (Houston, TX)<br>
 

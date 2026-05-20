@@ -18,15 +18,15 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3)
 
-**1984:** Bruce's world premiere performance of "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" occurs under very strange circumstances: Bruce happens to be at Xanadu in Asbury Park where the band Bystander is playing. The band had managed to obtain a promo copy of Bruce's new single, learned the song, and planned to debut it on this night. When they learn that Bruce is in the house, they invite him to join them, but Bruce declines. The band extends the intro, hoping Bruce will relent–and he does, grabbing the mic at the last second and performing the live debut of his greatest hit.<br>
+**1984:** Bruce's world premiere performance of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" occurs under very strange circumstances: Bruce happens to be at Xanadu in Asbury Park where the band Bystander is playing. The band had managed to obtain a promo copy of Bruce's new single, learned the song, and planned to debut it on this night. When they learn that Bruce is in the house, they invite him to join them, but Bruce declines. The band extends the intro, hoping Bruce will relent–and he does, grabbing the mic at the last second and performing the live debut of his greatest hit.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0BTfSZSi)
 
-**1988:** Bruce joins John Mellencamp on stage for "[Like a Rolling Stone](https://estreetshuffle.com/index.php/2019/06/09/cover-me-like-a-rolling-stone/)" at the Irvine Meadows Amphitheater in Irvine, California.<br>
+**1988:** Bruce joins John Mellencamp on stage for "[Like a Rolling Stone](../2019-06-09_cover-me-like-a-rolling-stone/post.md)" at the Irvine Meadows Amphitheater in Irvine, California.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1988-05-26.jpg.webp)
 
-**1997:** Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris. Elliot Murphy makes a guest appearance, joining Bruce for "[Blowin' Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)," and "[Diamonds by the Yard](https://estreetshuffle.com/index.php/2022/03/29/matr-elliott-murphy-and-bruce-springsteen-diamonds-by-the-yard/)" (the only known performance of this song).<br>
+**1997:** Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris. Elliot Murphy makes a guest appearance, joining Bruce for "[Blowin' Down This Road](../2020-05-27_matr-bruce-springsteen-and-friends-blowin-down-this-road/post.md)," and "[Diamonds by the Yard](../2022-03-29_matr-elliott-murphy-and-bruce-springsteen-diamonds-by-the-yard/post.md)" (the only known performance of this song).<br>
 
 [Watch on Youtube: Bruce Springsteen The Ghost Of Tom Joad Live in Paris 26/05/1997 Excellent Son](https://www.youtube.com/watch?v=eIVqrJvUvx4)
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Bruce Springsteen Across The Border Live in Paris 26/05/1997 Excellent Son](https://www.youtube.com/watch?v=fFlzC3YXddA)
 
-**2003:** At the first of two Rising shows at the Crystal Palace in London, Bruce tour premieres "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)" (into "Jungleland," of course).<br>
+**2003:** At the first of two Rising shows at the Crystal Palace in London, Bruce tour premieres "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" (into "Jungleland," of course).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/I7tpxG4Z)
 
@@ -48,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/2003-0526.jpg.webp)
 
-**2013:** At the first of three shows in Germany–this one in Munich–Bruce opens with a solo acoustic "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)" and plays a rare "[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)" along with *Born in the U.S.A.* in full.<br>
+**2013:** At the first of three shows in Germany–this one in Munich–Bruce opens with a solo acoustic "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" and plays a rare "[Seaside Bar Song](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)" along with *Born in the U.S.A.* in full.<br>
 
 [Watch on Youtube: bruce springsteen - who`ll stop the rain, munich 2013](https://www.youtube.com/watch?v=llBeo074_bA)
 

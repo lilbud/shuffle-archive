@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/19960322_Press_01_Reschedule.jpg.webp)
 
-**2013:** The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/).”<br>
+**2013:** The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Jungleland - Melbourne, Australia 27 March 2013](https://www.youtube.com/watch?v=VWJ36EUmKPg)
 

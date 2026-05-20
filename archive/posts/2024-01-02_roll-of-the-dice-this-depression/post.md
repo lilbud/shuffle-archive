@@ -1,6 +1,6 @@
 In retrospect, it couldn't have been more obvious.
 
-When Bruce Springsteen released his [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)album in 2012, many a music critic admired "This Depression" with "if we didn't know better…" praise.
+When Bruce Springsteen released his [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album in 2012, many a music critic admired "This Depression" with "if we didn't know better…" praise.
 
 They didn't know better.
 

@@ -10,7 +10,7 @@
 
 **1974:** Bruce cancels a scheduled gig at Tusculum College in Greeneville, Tennessee, to make room for recording sessions for *Born to Run*.<br>
 
-**1979:** Bruce rehearses with the E Street Band at his home studio in Holmdel. Listen to their rehearsal of “[Bring on the Night](https://estreetshuffle.com/index.php/2018/05/23/roll-of-the-dice-bring-on-the-night/)” below.<br>
+**1979:** Bruce rehearses with the E Street Band at his home studio in Holmdel. Listen to their rehearsal of “[Bring on the Night](../2018-05-23_roll-of-the-dice-bring-on-the-night/post.md)” below.<br>
 
 [Watch on Youtube: "Bring on the Night" Studio rehearsal, 1979](https://www.youtube.com/watch?v=48hBjV19GlM)
 
@@ -28,11 +28,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1985-05-14.jpg.webp)
 
-**1988:** On *American Top 40*, host Casey Kasem introduces Natalie Cole’s cover of “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)” with a medley of Springsteen covers that hit the Top 40.<br>
+**1988:** On *American Top 40*, host Casey Kasem introduces Natalie Cole’s cover of “[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)” with a medley of Springsteen covers that hit the Top 40.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3)
 
-**1993:** Bruce’s World Tour 1993 moves on to Germany for the first of four shows. The opener is in Berlin, where Bruce plays “[Satan’s Jeweled Crown](https://estreetshuffle.com/index.php/2020/05/09/cover-me-satans-jeweled-crown/)” for the very first time. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28724/Bruce-Springsteen-mp3-flac-download-5-14-1993-Waldb%C3%BChne-Berlin-DE.html).<br>
+**1993:** Bruce’s World Tour 1993 moves on to Germany for the first of four shows. The opener is in Berlin, where Bruce plays “[Satan’s Jeweled Crown](../2020-05-09_cover-me-satans-jeweled-crown/post.md)” for the very first time. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28724/Bruce-Springsteen-mp3-flac-download-5-14-1993-Waldb%C3%BChne-Berlin-DE.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - SATAN'S JEWEL CROWN 1993 (audio)](https://www.youtube.com/watch?v=Fg1Uze7_2W4)
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Bruce Springsteen "Across The Borderline" 5/14/1993](https://www.youtube.com/watch?v=spuJ2Tg638s)
 
-**2005:** At his solo show at the Patriot Center in Fairfax, Bruce treats fans to the tour premieres of “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)” (his first performance of that song in over a decade), “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/),” and “[Dry Lightning](https://estreetshuffle.com/index.php/2020/10/16/roll-of-the-dice-dry-lightning/).”<br>
+**2005:** At his solo show at the Patriot Center in Fairfax, Bruce treats fans to the tour premieres of “[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)” (his first performance of that song in over a decade), “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md),” and “[Dry Lightning](../2020-10-16_roll-of-the-dice-dry-lightning/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Wreck on the Highway, Fairfax 5/14/05](https://www.youtube.com/watch?v=aurDV4QN-Os)
 
@@ -74,7 +74,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Dancing in the dark/Twist and shout (Copenhagen 2013-05-14)](https://www.youtube.com/watch?v=tkucXqYD6I0)
 
-**2014:** The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where the set includes an opening “[Clampdown](https://estreetshuffle.com/index.php/2021/09/10/cover-me-clampdown/),” the tour premiere of “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/),” and a stunning solo piano performance of “[For You.](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/05/14/where-the-band-was-hershey-may-14-2014/) from this date. Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11392/Bruce-Springsteen-mp3-flac-download-5-14-2014-Hersheypark-Stadium-Hershey-PA.html).<br>
+**2014:** The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where the set includes an opening “[Clampdown](../2021-09-10_cover-me-clampdown/post.md),” the tour premiere of “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md),” and a stunning solo piano performance of “[For You.](../2022-01-08_roll-of-the-dice-for-you/post.md)” For more highlights from this show, see my [*Where the Band Was* report](../2018-05-14_where-the-band-was-hershey-may-14-2014/post.md) from this date. Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11392/Bruce-Springsteen-mp3-flac-download-5-14-2014-Hersheypark-Stadium-Hershey-PA.html).<br>
 
 [Watch on Youtube: Bruce Springsteen "For You" Hershey Park](https://www.youtube.com/watch?v=xZuMWcKdRT0)
 
@@ -88,7 +88,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2014-05-14b.jpg.webp)
 
-**2016:** The European leg of the River Tour kicks off with a show at Camp Nou in Barcelona. Immediately noticeable: Bruce is no longer playing the entire *The River* album, although he does play much of it, along with a rare outing for “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)” and the tour premiere of “Twist and Shout.” Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,14104/Bruce-Springsteen-mp3-flac-download-5-14-2016-Camp-Nou-Barcelona-ES.html).<br>
+**2016:** The European leg of the River Tour kicks off with a show at Camp Nou in Barcelona. Immediately noticeable: Bruce is no longer playing the entire *The River* album, although he does play much of it, along with a rare outing for “[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)” and the tour premiere of “Twist and Shout.” Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,14104/Bruce-Springsteen-mp3-flac-download-5-14-2016-Camp-Nou-Barcelona-ES.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Be With You - Live in Camp Nou, Barcelona, May 14, 2016](https://www.youtube.com/watch?v=c5qV9LPdRss)
 

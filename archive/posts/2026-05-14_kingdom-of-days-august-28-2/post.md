@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9Dt1W6kxZlo)
 
-**1992:** World Tour 1992 moves on to Philadelphia for the first of two shows at The Spectrum, where "[Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)" makes its full-band debut.<br>
+**1992:** World Tour 1992 moves on to Philadelphia for the first of two shows at The Spectrum, where "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)" makes its full-band debut.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6dmP2rKyTo0)
 

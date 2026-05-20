@@ -12,7 +12,7 @@
 
 **1975:** Bruce works on "Jungleland" and "Thunder Road" at the Record Plant in New York City.<br>
 
-**1983:** Bruce works on "[Richfield Whistle](https://estreetshuffle.com/index.php/2022/12/01/roll-of-the-dice-richfield-whistle/)" at his home studio in Los Angeles. As of this writing, the song has never been released. That's due to change soon.<br>
+**1983:** Bruce works on "[Richfield Whistle](../2022-12-01_roll-of-the-dice-richfield-whistle/post.md)" at his home studio in Los Angeles. As of this writing, the song has never been released. That's due to change soon.<br>
 
 [Watch on Youtube: Bruce Springsteen - Richfield Whistle (RARE home demo 1983)](https://www.youtube.com/watch?v=Gn1OcjnKDsw)
 
@@ -62,7 +62,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-04-23b.jpg.webp)
 
-**2008:** Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of "[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)." Roger McGuinn guests on "[Turn! Turn! Turn!](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/)" and "[Mr. Tambourine Man](https://estreetshuffle.com/index.php/2019/12/28/matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/)" in the encores, the former of which will appear on the *Magic Tour Highlights* EP later in the year. Also tour premiering at this show: "[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" This show is available as part of Bruce's official archive series–get it [here](https://www.nugs.net/04-11-2025-archive-release-bruce-springsteen-and-the-e-street-band-amway-arena-orlando-florida-april-23-2008.html).<br>
+**2008:** Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of "[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)." Roger McGuinn guests on "[Turn! Turn! Turn!](../2021-06-09_matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/post.md)" and "[Mr. Tambourine Man](../2019-12-28_matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/post.md)" in the encores, the former of which will appear on the *Magic Tour Highlights* EP later in the year. Also tour premiering at this show: "[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" This show is available as part of Bruce's official archive series–get it [here](https://www.nugs.net/04-11-2025-archive-release-bruce-springsteen-and-the-e-street-band-amway-arena-orlando-florida-april-23-2008.html).<br>
 
 [Watch on Youtube: "Blood Brothers" Bruce Springsteen & The E Street Band April 23, 2008](https://www.youtube.com/watch?v=j9a_xcfrxqk)
 
@@ -76,7 +76,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-23b.jpg.webp)
 
-**2016:** As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens the first of two closing shows at Brooklyn's Barclays Center with "[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)" in tribute to Prince, who passed away two days prior.<br>
+**2016:** As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens the first of two closing shows at Brooklyn's Barclays Center with "[Purple Rain](../2021-03-03_cover-me-purple-rain/post.md)" in tribute to Prince, who passed away two days prior.<br>
 
 [Watch on Youtube: Bruce Springsteen Purple Rain (Pro Shot)](https://www.youtube.com/watch?v=sAYhtbp5Br8)
 

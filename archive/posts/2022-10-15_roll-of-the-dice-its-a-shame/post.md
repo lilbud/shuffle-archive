@@ -1,4 +1,4 @@
-On May 28, 1977, Bruce Springsteen and former manager Mike Appel settled the mutual litigation that barred Springsteen from a recording studio for almost a year. Only four days later, Bruce and the E Street Band were back in the recording studio, recording eight songs that first night alone for what would eventually become [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/). He was overflowing with material, arriving almost every day with new songs for the band to test drive.
+On May 28, 1977, Bruce Springsteen and former manager Mike Appel settled the mutual litigation that barred Springsteen from a recording studio for almost a year. Only four days later, Bruce and the E Street Band were back in the recording studio, recording eight songs that first night alone for what would eventually become [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). He was overflowing with material, arriving almost every day with new songs for the band to test drive.
 
 On June 14th, Bruce had the bones of a song he was eager to flesh out, but Max and Garry had yet to arrive. Unwilling to wait, he enlisted Jon Landau on drums and road manager Bob Chirmside on bass and led the E Street-ish Band through what the session log labeled as "Jon's Jam."
 
@@ -10,7 +10,7 @@ Some of the tracks on *The Promise* are vintage, some had some modern elements a
 
 "It's a Shame" isn't exactly the E Street Band's finest moment on record, but Landau and Chirmside hold their own in a catchy R&B jam that doesn't aspire to anything more than a pleasant distraction and succeeds admirably.
 
-There's nothing remarkable here lyrically, either. Bruce turns in a fairly pedestrian lament about a guy who just can't seem to make his girl happy. It's neither his first nor his best draw from this particular well. It's not even the best one on that album–"[Ain't Good Enough For You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)" is basically the same song and far superior.
+There's nothing remarkable here lyrically, either. Bruce turns in a fairly pedestrian lament about a guy who just can't seem to make his girl happy. It's neither his first nor his best draw from this particular well. It's not even the best one on that album–"[Ain't Good Enough For You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)" is basically the same song and far superior.
 
 > *Well I walk the way you want me to*<br>
 > *And I'll talk the way you want me to*<br>
@@ -33,7 +33,7 @@ There's nothing remarkable here lyrically, either. Bruce turns in a fairly pedes
 > *Well maybe I was born to be just your fool*<br>
 > *Trying to satisfy your every desire, each need you require*<br>
 
-If there's anything historically or artistically significant about "It's a Shame," it's in the riff. Bruce held on to it and evolved it into a full-fledged melody. It took him a while to find the right words to pair with it (in a parallel universe it backs the lyrics for "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)"), but by September [he'd found them](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/).
+If there's anything historically or artistically significant about "It's a Shame," it's in the riff. Bruce held on to it and evolved it into a full-fledged melody. It took him a while to find the right words to pair with it (in a parallel universe it backs the lyrics for "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)"), but by September [he'd found them](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md).
 
 [Watch on Youtube: Prove It All Night](https://www.youtube.com/watch?v=UzjkWdRqWFo)
 

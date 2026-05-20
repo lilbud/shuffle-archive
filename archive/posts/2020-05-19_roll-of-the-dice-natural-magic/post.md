@@ -6,7 +6,7 @@ Today, we'll take a listen to one of my favorite original songs from this period
 
 [Watch on Youtube: My Baby's Natural Magic Bruce Springsteen Band 1971 08 07, Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=H9OhTpz87sc)
 
-"Natural Magic" may be an original Springsteen song, but it clearly owes a debt of influence to Van Morrison. We can clearly hear the similarities with "[Crazy Love](https://estreetshuffle.com/index.php/2019/06/27/cover-me-crazy-love/)," released the year prior.
+"Natural Magic" may be an original Springsteen song, but it clearly owes a debt of influence to Van Morrison. We can clearly hear the similarities with "[Crazy Love](../2019-06-27_cover-me-crazy-love/post.md)," released the year prior.
 
 [Watch on Youtube: Crazy Love (2013 Remaster)](https://www.youtube.com/watch?v=OIaKy1vM9hs)
 
@@ -30,7 +30,7 @@ Today, we'll take a listen to one of my favorite original songs from this period
 > *In the end it sure would be tragic*
 > *Because my baby's natural magic*
 
-And yet, despite wearing its influences on its sleeve, "Natural Magic" is sweet and charmingly earnest. Together with songs like "[You Mean So Much to Me](https://estreetshuffle.com/index.php/2020/01/13/roll-of-the-dice-you-mean-so-much-to-me/)" (played just two songs prior that night) and "[She's Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)," "Natural Magic" represents the beginning of a soulfully romantic vein that Bruce would mine for many years to come.
+And yet, despite wearing its influences on its sleeve, "Natural Magic" is sweet and charmingly earnest. Together with songs like "[You Mean So Much to Me](../2020-01-13_roll-of-the-dice-you-mean-so-much-to-me/post.md)" (played just two songs prior that night) and "[She's Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)," "Natural Magic" represents the beginning of a soulfully romantic vein that Bruce would mine for many years to come.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/naturalmagic_lyrics.jpg.webp)
 

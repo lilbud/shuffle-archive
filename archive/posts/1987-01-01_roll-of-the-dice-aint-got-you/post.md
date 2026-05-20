@@ -16,7 +16,7 @@ A decade after Arnold and Reed released their versions, "I Ain't Got You" was co
 
 Given Bruce's fondness for both bands, it's likely he first became aware of "I Ain't Got You" through those cover recordings, which debuted within weeks of each other during the summer The Castiles played their very first shows.
 
-But at some point Bruce traced the song to its original artist, because there are homages all over "Ain't Got You," the leadoff track to Bruce's 1987 *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*album.
+But at some point Bruce traced the song to its original artist, because there are homages all over "Ain't Got You," the leadoff track to Bruce's 1987 *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*album.
 
 [Watch on Youtube: Ain't Got You](https://www.youtube.com/watch?v=5iO8d8m0esY)
 
@@ -74,7 +74,7 @@ Even though it was the first new studio track from Bruce Springsteen since the m
 
 ---
 
-During the 1988 Tunnel of Love Express Tour, Bruce leaned hard into the Bo Diddley beat, arranging "I Ain't Got You" as a simmering medley seamlessly melded with (what else) "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)."
+During the 1988 Tunnel of Love Express Tour, Bruce leaned hard into the Bo Diddley beat, arranging "I Ain't Got You" as a simmering medley seamlessly melded with (what else) "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)."
 
 [Watch on Youtube: Bruce Springsteen "She's the One " LA 4-23-88](https://www.youtube.com/watch?v=oPSms2LwPkI)
 

@@ -86,7 +86,7 @@ Bruce opens his own set with his first and only performance of "Coma Girl," in t
 
 [Watch Video Highlight](https://videopress.com/embed/XBcyMolZ)
 
-**2024:** Bruce and the E Street Band tour debut "[Cadill](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)a[c Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" when World Tour '24 comes to Nijmegen in The Netherlands.<br>
+**2024:** Bruce and the E Street Band tour debut "[Cadill](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)a[c Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" when World Tour '24 comes to Nijmegen in The Netherlands.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wjeY0XTsydY)
 

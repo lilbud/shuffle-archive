@@ -1,4 +1,4 @@
-We know Bruce is a Jimmy Cliff fan–his cover of Jimmy's "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)" has been a fan favorite since its debut.
+We know Bruce is a Jimmy Cliff fan–his cover of Jimmy's "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" has been a fan favorite since its debut.
 
 But "Trapped" isn't the only Jimmy Cliff song Bruce has covered over the years–during World Tour 1993, Bruce frequently covered "Many Rivers to Cross" as well. And while Bruce's "Trapped" cover was a departure from the original, for "Many Rivers to Cross," Bruce chose a more faithful arrangement.
 

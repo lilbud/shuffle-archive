@@ -14,15 +14,15 @@ He'd just returned from an extended holiday visit to his parents' house in San M
 
 He'd been driven west by heartbreak, leaving behind his band and a toxic romance. Looking to start over in a new place, he started by renewing his oldest relationships. Although his relations with his parents had been strained when he was a teen, Bruce was a mature 22 now. Whatever ice had formed over the years thawed during their reunion.
 
-Bruce may have successfully burnished his familial bonds, but he was far less successful finding a way to make living out west. Ultimately, he returned to where "I was who I was, a son of New Jersey, gunslinger, bar band king, small-town local hero, big fish in a little pond and breadwinner." As we saw a few days ago when we looked at "[Confessin' the Blues](https://estreetshuffle.com/index.php/2021/10/11/cover-me-confessin-the-blues/)," Bruce went back home in January, resumed his position as leader of the band named after him, and picked up where he left off.
+Bruce may have successfully burnished his familial bonds, but he was far less successful finding a way to make living out west. Ultimately, he returned to where "I was who I was, a son of New Jersey, gunslinger, bar band king, small-town local hero, big fish in a little pond and breadwinner." As we saw a few days ago when we looked at "[Confessin' the Blues](../2021-10-11_cover-me-confessin-the-blues/post.md)," Bruce went back home in January, resumed his position as leader of the band named after him, and picked up where he left off.
 
 But something had changed.
 
 Bruce may have left his family behind geographically, but emotionally they were still very much with him.
 
-In those first few months following his return to New Jersey in 1972, he recorded "[Family Song](https://estreetshuffle.com/index.php/2020/02/23/roll-of-the-dice-family-song/)," a chronicle of his reunion with and newfound empathy for his parents.
+In those first few months following his return to New Jersey in 1972, he recorded "[Family Song](../2020-02-23_roll-of-the-dice-family-song/post.md)," a chronicle of his reunion with and newfound empathy for his parents.
 
-It wasn't just his parents on his mind, though, because "[Randolph Street](https://estreetshuffle.com/index.php/2020/12/27/roll-of-the-dice-randolph-street/)" also came out of this period. "Randolph Street" was a love letter to his grandparents and a tentative attempt to revisit his great loss when they passed away.
+It wasn't just his parents on his mind, though, because "[Randolph Street](../2020-12-27_roll-of-the-dice-randolph-street/post.md)" also came out of this period. "Randolph Street" was a love letter to his grandparents and a tentative attempt to revisit his great loss when they passed away.
 
 But Bruce never directly faces death head-on in "Randolph Street." His sixteen-year-old self is the narrator, in a detached state of shock on the day of his grandmother's passing. We hear Bruce recollect his grandparents in loving detail, and we can hear the pain in his voice as he revisits their final days. But when it comes to his grandparents' deaths, his songwriting is delicate and circumspect.
 

@@ -1,6 +1,6 @@
 (Thanks to friend of the blog Doug Watson for pointing me to this one.)
 
-"[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)" doesn't get nearly as much cover love as it deserves (although [Town Bike's spectacular version](https://estreetshuffle.com/index.php/2019/01/31/cover-me-town-bike-radio-nowhere/) still rates as one of my all-time favorite Springsteen covers).
+"[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)" doesn't get nearly as much cover love as it deserves (although [Town Bike's spectacular version](../2019-01-31_cover-me-town-bike-radio-nowhere/post.md) still rates as one of my all-time favorite Springsteen covers).
 
 But Canadian singer-songwriter Northcote (a.k.a. Matthew Goud) gave "Radio Nowhere" some attention back in 2016 with his wonderful B-side rendition.
 

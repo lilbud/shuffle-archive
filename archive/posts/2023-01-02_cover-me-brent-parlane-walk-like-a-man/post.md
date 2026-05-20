@@ -1,4 +1,4 @@
-"[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" is one of Bruce Springsteen's loveliest songs, but the studio track that appears on [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) is one of his most dated.
+"[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" is one of Bruce Springsteen's loveliest songs, but the studio track that appears on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) is one of his most dated.
 
 It's not like the drum machine and prominent synths squelch the tenderness of the song, but it screams "eighties" like few other songs in his catalog.
 

@@ -1,4 +1,4 @@
-Bruce adapted classic literature in song long before "[The Ghost of Tom Joad.](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)"
+Bruce adapted classic literature in song long before "[The Ghost of Tom Joad.](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)"
 
 In the autumn of 1968, nineteen-year-old Bruce Springsteen put pen to paper and wrote a song called "Mississippi," featuring two friends drifting down the great river on a raft on a beautiful, lazy summer day. One of them was named Jim, and although the narrator never identifies himself, it's not too difficult to figure out his name, too.
 

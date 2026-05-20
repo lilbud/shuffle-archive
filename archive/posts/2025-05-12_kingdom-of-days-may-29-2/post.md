@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1974-0529.jpg.webp)
 
-**1978:** The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” into “Thunder Road,” which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.<br>
+**1978:** The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” into “Thunder Road,” which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/XXl8vEEQ)
 
@@ -22,11 +22,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1978-05-29c.jpg.webp)
 
-**1979:** Bruce and the E Street Band work on “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” and “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” at the Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on “[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)” and “[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)” at the Power Station in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen Point Blank (Complete different arrangement)](https://www.youtube.com/watch?v=tHkii-j_Cac)
 
-**1981:** At the first of six River shows at London’s Wembley Arena, Bruce performs “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” for the very first time.<br>
+**1981:** At the first of six River shows at London’s Wembley Arena, Bruce performs “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” for the very first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - live debut of "Trapped" - 1981-05-29](https://www.youtube.com/watch?v=RpGVwh0NkY4)
 
@@ -50,7 +50,7 @@
 
 **1992:** Bruce hires Gia Ciambotti, Carol Dennis, Cleo Kennedy, and Angel Rogers as backup singers for his upcoming World Tour.<br>
 
-**1994:** Bruce makes one of his most unusual guest appearances with The Rock Bottom Remainders, a band comprised entirely of famous authors, including Stephen King, Amy Tan, Matt Groening, and others at a booksellers convention in Hollywood. Bruce joins the motley crew for “[Gloria](https://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/).”<br>
+**1994:** Bruce makes one of his most unusual guest appearances with The Rock Bottom Remainders, a band comprised entirely of famous authors, including Stephen King, Amy Tan, Matt Groening, and others at a booksellers convention in Hollywood. Bruce joins the motley crew for “[Gloria](../2018-03-16_cover-me-gloria/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen joins the Rock Bottom Remainders - May 29, 1994](https://www.youtube.com/watch?v=c1wzfR82-7c)
 
@@ -70,17 +70,17 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2000-05-29b.jpg.webp)
 
-**2003:** Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
+**2003:** Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)” and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
 
 [Watch on Youtube: Manchester 29/05/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic)
 
-**2014:** Bruce makes a guest appearance on “[Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)” with The Rolling Stones at Rock in Rio in Lisbon.<br>
+**2014:** Bruce makes a guest appearance on “[Tumbling Dice](../2022-08-17_matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/post.md)” with The Rolling Stones at Rock in Rio in Lisbon.<br>
 
 [Watch on Youtube: The Rolling Stones & Bruce Springsteen - Rock In Rio Lisboa](https://www.youtube.com/watch?v=YQ9a6lh9sps)
 
 [Watch on Youtube: The Rolling Stones With Bruce Springsteen - Tumbling Dice](https://www.youtube.com/watch?v=GVPGA9gI_Dw)
 
-**2016:** Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acoustic piano “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” followed by a [*Greetings*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)three-pack. The entire U2 band is at the show, and Bono joins Bruce on stage for “Because the Night.”<br>
+**2016:** Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acoustic piano “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)” followed by a [*Greetings*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)three-pack. The entire U2 band is at the show, and Bono joins Bruce on stage for “Because the Night.”<br>
 
 [Watch on Youtube: 2016-05-29 Bruce Springsteen - Dublin soundcheck - Streets Of Fire](https://www.youtube.com/watch?v=GCYKxpavmyM)
 
@@ -92,7 +92,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Croke Park - Dublin - 29 May 2016 - Thunder Road](https://www.youtube.com/watch?v=dYl5h2vAxOs)
 
-**2020:** Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on “Rose Tattoo” and “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)” in their empty stadium performance at Fenway Park.<br>
+**2020:** Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on “Rose Tattoo” and “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)” in their empty stadium performance at Fenway Park.<br>
 
 [Watch on Youtube: Dropkick Murphys & Bruce Springsteen live streaming at Fenway Park, 29-5-2020 - American Land](https://www.youtube.com/watch?v=0I4SBPyGD9g)
 

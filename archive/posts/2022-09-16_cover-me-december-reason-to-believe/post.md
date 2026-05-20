@@ -1,6 +1,6 @@
 This is the second appearance on the Shuffle for Glasgow-based indie-rock band December.
 
-[Their cover of "No Surrender"](https://estreetshuffle.com/index.php/2022/03/05/cover-me-december-no-surrender/) was deservedly a reader favorite earlier this year, and now they're back with an upbeat cover of "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)."
+[Their cover of "No Surrender"](../2022-03-05_cover-me-december-no-surrender/post.md) was deservedly a reader favorite earlier this year, and now they're back with an upbeat cover of "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)."
 
 [Watch on Youtube: December - Reason to believe (Springsteen cover)](https://www.youtube.com/watch?v=HMC12uA5JwA)
 

@@ -6,7 +6,7 @@ That's a fact, but our narrator in "Easy Money" ain't buying it. In his world, t
 
 [Watch on Youtube: Easy Money](https://www.youtube.com/watch?v=gG1fMRmuomQ)
 
-On first listen, "Easy Money" is so strikingly similar to "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" in theme and lyrics that it may take a repeat listen or two before we appreciate how dramatically different they are in outlook.
+On first listen, "Easy Money" is so strikingly similar to "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" in theme and lyrics that it may take a repeat listen or two before we appreciate how dramatically different they are in outlook.
 
 Both "Atlantic City" and "Easy Money" are socio-economic parables, but whereas the narrator of "Atlantic City" resorts to crime as a last resort, the narrator of "Easy Money" gleefully embraces and celebrates it.
 
@@ -48,9 +48,9 @@ The rest of the song sees the metaphor through: our narrator has it made. That h
 
 Both "Atlantic City" and "Easy Money" are products of their time. The former was written when America's economic inequality was just beginning to accelerate; the latter was written at its peak.
 
-In fact, "Easy Money" was the gateway to [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/). It came to Bruce almost in a daydream on his way home one day, and fortunately producer Ron Aniello was on hand at Bruce's home studio (working on another project, most likely *Western Stars*). When Bruce burst in barely able to contain his creative energy, they arranged and recorded a rough cut of the song within minutes.
+In fact, "Easy Money" was the gateway to [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md). It came to Bruce almost in a daydream on his way home one day, and fortunately producer Ron Aniello was on hand at Bruce's home studio (working on another project, most likely *Western Stars*). When Bruce burst in barely able to contain his creative energy, they arranged and recorded a rough cut of the song within minutes.
 
-Bruce went home that night and wrote "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)," which they recorded the next morning. An album was on the way, and while "We Take Care of Our Own" was its first single, its theme was established by "Easy Money."
+Bruce went home that night and wrote "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," which they recorded the next morning. An album was on the way, and while "We Take Care of Our Own" was its first single, its theme was established by "Easy Money."
 
 ---
 

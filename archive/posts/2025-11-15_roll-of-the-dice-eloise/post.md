@@ -2,7 +2,7 @@ Someday I hope someone brings an "Eloise!" sign to a show, just so I can a) fina
 
 [Watch on Youtube: Bruce Springsteen - Eloise](https://www.youtube.com/watch?v=tkdPhiYlFa4)
 
-Or maybe Bruce can play an "Eloise/Growin' Up" mash-up the way he used to segue from "[Preacher's Daughter](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)" into "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)." Either way, it'd be fun.
+Or maybe Bruce can play an "Eloise/Growin' Up" mash-up the way he used to segue from "[Preacher's Daughter](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)" into "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)." Either way, it'd be fun.
 
 Anyway: yeah, this is the origin of what would become "[Growin' Up,](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" at least musically. Or maybe it's the other way around.
 

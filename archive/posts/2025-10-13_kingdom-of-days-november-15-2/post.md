@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1974-11-15.jpg.webp)
 
-**1979:** Bruce appears on the cover of *Rolling Stone* as part of their cover feature on the MUSE events from September. Meanwhile, Bruce and the band rehearse at his home studio in Holmdel for upcoming recording sessions. Listen in on “[Chevrolet Deluxe](https://estreetshuffle.com/index.php/2018/10/06/roll-of-the-dice-chevrolet-deluxe/)” and “[Living on the Edge of the World](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)” below.<br>
+**1979:** Bruce appears on the cover of *Rolling Stone* as part of their cover feature on the MUSE events from September. Meanwhile, Bruce and the band rehearse at his home studio in Holmdel for upcoming recording sessions. Listen in on “[Chevrolet Deluxe](../2018-10-06_roll-of-the-dice-chevrolet-deluxe/post.md)” and “[Living on the Edge of the World](../2018-10-18_roll-of-the-dice-living-on-the-edge-of-the-world/post.md)” below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Chevrolet Deluxe (Mega RARE song!!!)](https://www.youtube.com/watch?v=mU_SsLCelWY)
 
@@ -50,7 +50,7 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 [Watch on Youtube: Counting with Bruce Springsteen](https://www.youtube.com/watch?v=FIJ3grfB3WE)
 
-**1999:** On Night Two in Cleveland on the Reunion Tour, Bruce and the E Street Band debut a new country-ish arrangement of “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” and soundcheck a unique “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/).”<br>
+**1999:** On Night Two in Cleveland on the Reunion Tour, Bruce and the E Street Band debut a new country-ish arrangement of “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” and soundcheck a unique “[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Odds and Sods Rarities - State Trooper - (Cleveland 1999 soundcheck)](https://www.youtube.com/watch?v=rlejOJ7Ve28)
 
@@ -64,7 +64,7 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2005-11-15.png.webp)
 
-**2007:** The Magic Tour comes to Albany, where Bruce and the E Street Band tour premiere a Wild & Innocent double-header: “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” and “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/).”<br>
+**2007:** The Magic Tour comes to Albany, where Bruce and the E Street Band tour premiere a Wild & Innocent double-header: “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” and “[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md).”<br>
 
 [Watch on Youtube: 4th of July, Asbury Park - Bruce Springsteen](https://www.youtube.com/watch?v=Dy6ggRLH6m4)
 
@@ -72,7 +72,7 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-11-15.png.webp)
 
-**2009:** Bruce has a laugh at his own expense, greeting his Milwaukee crowd with “Good evening, Ohio!” (a nod to the mistake he’d made legitimately the show before). The show itself opens with “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” and includes the tour premiere of “[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)” by request, along with rare outings for “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/),” “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/),” and “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)” and a complete album performance of *Born to Run*.<br>
+**2009:** Bruce has a laugh at his own expense, greeting his Milwaukee crowd with “Good evening, Ohio!” (a nod to the mistake he’d made legitimately the show before). The show itself opens with “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)” and includes the tour premiere of “[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)” by request, along with rare outings for “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md),” “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md),” and “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” and a complete album performance of *Born to Run*.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN "Living Proof" 11/15/09 Milwaukee, WI](https://www.youtube.com/watch?v=-gl9xW7CC0o)
 
@@ -104,6 +104,6 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2022:** On the second night of his *Tonight Show* takeover, Bruce premieres “[Turn Back the Hands of Time](https://estreetshuffle.com/index.php/2024/07/04/cover-me-turn-back-the-hands-of-time/).”<br>
+**2022:** On the second night of his *Tonight Show* takeover, Bruce premieres “[Turn Back the Hands of Time](../2024-07-04_cover-me-turn-back-the-hands-of-time/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wXTPNGBp)

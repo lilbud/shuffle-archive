@@ -2,13 +2,13 @@ At last: the dice lead us to Bruce Springsteen's latest and finest album, *Weste
 
 Seven months after its release, with the benefit of distance, catalog comparison, and deep and repeated listens, I can confidently rank *Western Stars* at the very pinnacle of Bruce's officially released catalog.
 
-*Born to Run* may be a more important milestone; [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) may have brought us a legendary tour; *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*may reveal the artist at his most vulnerable. But *Western Stars* is unrivaled in songwriting and musical craftsmanship, and in years to come I trust that it will receive its due recognition.
+*Born to Run* may be a more important milestone; [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) may have brought us a legendary tour; *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*may reveal the artist at his most vulnerable. But *Western Stars* is unrivaled in songwriting and musical craftsmanship, and in years to come I trust that it will receive its due recognition.
 
 *Western Stars* is a deeply romantic and emotionally vibrant album. I've heard some call it depressing, even nihilistic–but respectfully, I would argue the opposite: *Western Stars* is uplifting, a tribute to life lived. There's a theme to be found at work in *Western Stars*, but we have to look beyond its American West imagery and not allow our lens to be overly filtered through our knowledge of Bruce's chronic depression.
 
 Released shortly before his 70th birthday (and recorded some years prior), *Western Stars* introduces us to a handful of characters late in their lives. They've made mistakes, as have we all, and to varying degrees of success they dedicate themselves to moving forward regardless, as do we all. That's the theme of *Western Stars* in a nutshell: living your life when the road ahead is so much shorter than the road already traveled. If we are each the sum of our life experiences and decisions, how do we continue to grow and move forward while carrying the weight of them?
 
-Over the next few years, we'll explore each and every track on the album, from the carpe diem "[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)" and the achingly beautiful "[Moonlight Motel,](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)" both of which I rank in Bruce's top ten best songs ever, to what is perhaps the happiest and most romantic song Bruce has ever written, "[Hitch Hikin'](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)."
+Over the next few years, we'll explore each and every track on the album, from the carpe diem "[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)" and the achingly beautiful "[Moonlight Motel,](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" both of which I rank in Bruce's top ten best songs ever, to what is perhaps the happiest and most romantic song Bruce has ever written, "[Hitch Hikin'](../2021-05-22_roll-of-the-dice-hitch-hikin/post.md)."
 
 But today we'll start with the album's literal centerpiece, "Chasin' Wild Horses."
 
@@ -43,7 +43,7 @@ In the next verse, we learn that whatever our narrator's running from, it brough
 > *Up on the Montana line*
 > *Chasing wild horses, chasing wild horses*
 
-There's a musical structure at work so far: each verse begins on an up note (with a melody reminiscent of "[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)"), but each subsequent line ends on a downer. By the end of the second verse, Marc Muller's pedal steel enters, painting the exterior scene and drawing us out of the narrator's reverie across a deliberately monotonous bridge that represents the physical tedium that serves as a substitute for solace:
+There's a musical structure at work so far: each verse begins on an up note (with a melody reminiscent of "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)"), but each subsequent line ends on a downer. By the end of the second verse, Marc Muller's pedal steel enters, painting the exterior scene and drawing us out of the narrator's reverie across a deliberately monotonous bridge that represents the physical tedium that serves as a substitute for solace:
 
 > *We're out before sunup*
 > *We're in after sundown*
@@ -67,11 +67,11 @@ Notice how Bruce holds the moment after the "way too tired to think" line. It im
 > *Like wild horses, just like wild horses*
 > *Just like wild horses*
 
-We only see her hair, but to the narrator it stands out against the blue sky like the manes of the horses he spends the day with–and instantly, we know that whatever effectiveness his day job has offered in suppressing his regret, it's vanished forever more. (The use of equestrian imagery in particular strongly suggests that "Chasin' Wild Horses" is a sequel to "[Dry Lightning](https://estreetshuffle.com/index.php/2020/10/16/roll-of-the-dice-dry-lightning/)," so similar are its narrators.)
+We only see her hair, but to the narrator it stands out against the blue sky like the manes of the horses he spends the day with–and instantly, we know that whatever effectiveness his day job has offered in suppressing his regret, it's vanished forever more. (The use of equestrian imagery in particular strongly suggests that "Chasin' Wild Horses" is a sequel to "[Dry Lightning](../2020-10-16_roll-of-the-dice-dry-lightning/post.md)," so similar are its narrators.)
 
 The orchestra swells now, anchored by repetitive piano riff (presumably Ron Aniello) that creates the effect of an emotional whirlwind that catches us up in it, along with the narrator with whom we are now inseparably bound.
 
-My favorite part of the song comes next, as past merges with present in a way that's very reminiscent of "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)," another Springsteen masterpiece.
+My favorite part of the song comes next, as past merges with present in a way that's very reminiscent of "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)," another Springsteen masterpiece.
 
 > *A fingernail moon in a twilight sky*
 > *I'm riding in the high grass of the switchback*

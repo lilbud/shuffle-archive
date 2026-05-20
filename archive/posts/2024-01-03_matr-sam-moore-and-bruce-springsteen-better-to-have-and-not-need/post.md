@@ -1,6 +1,6 @@
 You could say Bruce Springsteen owed Sam Moore a favor.
 
-In 1992, the great soul singer lent his pipes to Bruce's *Human Touch* album, providing backing vocals on "[Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)," "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)," and "[Man's Job.](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)" Fourteen years later, he asked Bruce to do the same.
+In 1992, the great soul singer lent his pipes to Bruce's *Human Touch* album, providing backing vocals on "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)," "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)," and "[Man's Job.](../2022-05-30_roll-of-the-dice-mans-job/post.md)" Fourteen years later, he asked Bruce to do the same.
 
 Moore was working on his debut(!) solo album, *Overnight Sensational*, and he'd picked out the perfect song for two legendary frontmen to team up on.
 

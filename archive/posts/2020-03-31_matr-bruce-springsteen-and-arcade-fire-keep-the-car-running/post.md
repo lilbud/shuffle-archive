@@ -2,7 +2,7 @@
 
 Bruce lavished that praise on Arcade Fire in the presence of the band's lead vocalists, Win Butler and Régine Chassagne, just hours before Bruce's Magic show at the Meadowlands in early October 2007.
 
-Just days later, Win and Régine would join Bruce and the E Street Band on stage in Ottawa for two songs. First they played "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)," an obvious choice, given that Arcade Fire had covered it in concert several times by that point.
+Just days later, Win and Régine would join Bruce and the E Street Band on stage in Ottawa for two songs. First they played "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)," an obvious choice, given that Arcade Fire had covered it in concert several times by that point.
 
 But as we can tell from the pull quote at the top of the article, Bruce is too much of an Arcade Fire fan not to play one of their songs, too–and that one turned to be an obvious choice also.
 

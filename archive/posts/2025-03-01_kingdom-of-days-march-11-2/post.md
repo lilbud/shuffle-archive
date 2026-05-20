@@ -12,7 +12,7 @@
 
 **2002:** Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner and auction at the Roseland Ballroom in New York City.<br>
 
-**2003:** “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/).”<br>
+**2003:** “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)” gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Fire](https://www.youtube.com/watch?v=AMhdLG0vX7I)
 

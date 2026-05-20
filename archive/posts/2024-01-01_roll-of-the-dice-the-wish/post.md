@@ -47,7 +47,7 @@ Here's the very first time Bruce played "The Wish," eight years before he releas
 > *This one's for you, ma, let me come right out and say it*<br>
 > *It's overdue, but baby, if you're looking for a sad song, well I ain't gonna play it*<br>
 
-Bruce recorded the song during the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) sessions, but he sat on the song for more than a decade before releasing it on *Tracks*.
+Bruce recorded the song during the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) sessions, but he sat on the song for more than a decade before releasing it on *Tracks*.
 
 [Watch on Youtube: The Wish (Studio Outtake - 1987)](https://www.youtube.com/watch?v=KgkOPd5nHJk)
 

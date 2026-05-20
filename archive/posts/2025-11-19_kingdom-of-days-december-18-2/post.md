@@ -18,13 +18,13 @@ A scheduled Darkness show in Portland, Oregon is postponed to the following day.
 
 **1980:**<br>
 
-The River Tour comes home (or close to it, anyway) for the holidays, as Bruce and the band play their first of two nights at Madison Square Garden. Early in the set, they play "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)" for the first time ever.
+The River Tour comes home (or close to it, anyway) for the holidays, as Bruce and the band play their first of two nights at Madison Square Garden. Early in the set, they play "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" for the first time ever.
 
 [https://videopress.com/embed/nmrhM2Ww](https://videopress.com/embed/nmrhM2Ww)
 
 **1988:**<br>
 
-Bruce joins local musicians at the Stone Pony and plays "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" for local ill and disabled children.
+Bruce joins local musicians at the Stone Pony and plays "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" for local ill and disabled children.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1988-12-18a.png.webp)
 

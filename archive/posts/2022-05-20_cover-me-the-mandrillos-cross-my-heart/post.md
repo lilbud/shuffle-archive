@@ -4,7 +4,7 @@ Given that the covered artist is Bruce Springsteen, pretty much every *Cover Me*
 
 But here's one.
 
-It's not surprising (at least not to me) that the track in question comes from *Human Touch*. That album is full of great songs that go underappreciated, largely due (IMHO) to the album's over-the-top production. "[Cross My Heart](https://estreetshuffle.com/index.php/2020/12/29/roll-of-the-dice-cross-my-heart/)" is one of the rare *Human Touch* tracks that doesn't suffer from over-production–it's actually pretty spare.
+It's not surprising (at least not to me) that the track in question comes from *Human Touch*. That album is full of great songs that go underappreciated, largely due (IMHO) to the album's over-the-top production. "[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md)" is one of the rare *Human Touch* tracks that doesn't suffer from over-production–it's actually pretty spare.
 
 It's also pretty slow.
 

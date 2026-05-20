@@ -8,7 +8,7 @@ Releasing "Outside Looking In" on his follow-up almost certainly would have invi
 
 [Watch on Youtube: Outside Looking In](https://www.youtube.com/watch?v=Ev4XO_RCAag)
 
-It's more than just Max Weinberg's rumbling percussion; even the chord progression of Bruce's 1977 [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) outtake is modeled after Buddy Holly's 1957 classic. It's not much of a stretch to argue that "Outside Looking In" is basically built on Peggy Sue's chassis.
+It's more than just Max Weinberg's rumbling percussion; even the chord progression of Bruce's 1977 [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) outtake is modeled after Buddy Holly's 1957 classic. It's not much of a stretch to argue that "Outside Looking In" is basically built on Peggy Sue's chassis.
 
 [Watch on Youtube: Buddy Holly - Peggy Sue HQ](https://www.youtube.com/watch?v=OUesbTObC9A)
 

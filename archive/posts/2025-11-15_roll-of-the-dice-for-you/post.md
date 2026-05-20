@@ -131,7 +131,7 @@ That misstep aside, "For You" is one of Bruce's oldest fan-favorites, and one al
 
 **For You**<br>
 **Recorded** June 27 – October 28, 1972<br>
-**Released:** [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1973)<br>
+**Released:** [*Greetings from Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)(1973)<br>
 **First performed:** February 14, 1972 (New York City, NY)<br>
 **Last performed:** September 5, 2016 (Virginia Beach, VA)<br>
 

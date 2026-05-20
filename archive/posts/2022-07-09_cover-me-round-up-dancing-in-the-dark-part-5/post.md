@@ -1,6 +1,6 @@
 They keep on coming–but thankfully, they never stop surprising and delighting.
 
-We're talking about covers of Bruce Springsteen's 1984 megahit single, "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."
+We're talking about covers of Bruce Springsteen's 1984 megahit single, "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."
 
 Ever since Bruce *almost* topped the charts with it (Prince denied him what would otherwise have been his only #1 hit single), and with increasing frequency, artists have been putting their own spins on it. Considering that the original version sounds about as eighties as you can get, "Dancing in the Dark" has proven to be almost infinitely malleable in the hands of the right bands.
 
@@ -12,7 +12,7 @@ Let start with Australian indie-folk band Hollow Coves and their recent appearan
 
 Hollow Coves is headed to North America this fall; if you're interested in catching them on the road, check out their tour dates [here](https://hollowcoves.com/).
 
-Since we're already in Europe, let's head south to Italy, where Roberta Finocchiaro makes her third appearance on the Shuffle. Roberta is an amazing guitarist, and she knows how to arrange a song to play to her strengths. (See her previous covers of "[New York City Serenade](https://estreetshuffle.com/index.php/2020/06/07/cover-me-roberta-finocchiaro-new-york-city-serenade/)" and "[If I Was the Priest](https://estreetshuffle.com/index.php/2021/05/15/cover-me-roberta-finocchiaro-if-i-was-the-priest/).")
+Since we're already in Europe, let's head south to Italy, where Roberta Finocchiaro makes her third appearance on the Shuffle. Roberta is an amazing guitarist, and she knows how to arrange a song to play to her strengths. (See her previous covers of "[New York City Serenade](../2020-06-07_cover-me-roberta-finocchiaro-new-york-city-serenade/post.md)" and "[If I Was the Priest](../2021-05-15_cover-me-roberta-finocchiaro-if-i-was-the-priest/post.md).")
 
 She's outdone herself with "Dancing in the Dark" though, giving us a cool groove of a cover that's guaranteed to get you dancing in the dark yourself.
 

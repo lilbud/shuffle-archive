@@ -2,7 +2,7 @@ Two Bruce Springsteen Band songs in one week? You bet: it's Memorial Day weekend
 
 I love those Bruce Springsteen Band shows–they're warm and soulful, cool and brassy, and at times as close to pop as Bruce ever got. I love playing them on a warm weekend afternoon.
 
-Earlier this week, we listened to "[Natural Magic](https://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/)," Bruce's Van Morrison tribute. Today, we check out Bruce's hat tip to The Crystals, "I'm in Love Again." No further introduction needed–this song is as light as a feather. Let's take a listen:
+Earlier this week, we listened to "[Natural Magic](../2020-05-19_roll-of-the-dice-natural-magic/post.md)," Bruce's Van Morrison tribute. Today, we check out Bruce's hat tip to The Crystals, "I'm in Love Again." No further introduction needed–this song is as light as a feather. Let's take a listen:
 
 [Watch Video Highlight](https://videopress.com/embed/mEy5mzkR)
 
@@ -20,7 +20,7 @@ The late Dee Holmes (she passed away in 2010) was more than a backing vocalist t
 
 Holmes had a tremendous voice, so upon occasion she would step forward and take the lead vocal for The Bruce Springsteen Band, which gave Bruce a chance to write lyrics for a female singer.
 
-Which brings us to the second thing we notice: Bruce is obviously paying tribute with "I'm in Love Again" to the girl groups of the 1960s. The similarities in theme, structure, and lyrics to The Crystals' "[Then He Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)" (which Bruce would cover frequently in his early E Street Band years) are impossible to miss.
+Which brings us to the second thing we notice: Bruce is obviously paying tribute with "I'm in Love Again" to the girl groups of the 1960s. The similarities in theme, structure, and lyrics to The Crystals' "[Then He Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)" (which Bruce would cover frequently in his early E Street Band years) are impossible to miss.
 
 > *I met him at a party on a lonely Saturday*
 > *I listened to him talking and I liked the things he had to say*

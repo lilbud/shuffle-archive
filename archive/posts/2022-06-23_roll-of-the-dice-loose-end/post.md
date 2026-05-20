@@ -6,7 +6,7 @@ That's the question at the heart of "Loose End,"* one of the best Springsteen tr
 
 It wasn't supposed to be that way, though. When Bruce first sent his fifth studio album to his record label, it was only a single disc entitled *The Ties That Bind*, and "Loose End" was the closing song.
 
-And what a magnificent album closer it would have been: musically lush in the Spectorian girl group mold (even more so than "Born to Run"), but lyrically dark, hopeless and fatalistic. Had Bruce released it as intended, "Loose End" would have become Bruce's first true relationship song as well as the standard bearer for his trademark juxtaposition of poppy melody with somber lyrics. (["Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" holds that honor instead.)
+And what a magnificent album closer it would have been: musically lush in the Spectorian girl group mold (even more so than "Born to Run"), but lyrically dark, hopeless and fatalistic. Had Bruce released it as intended, "Loose End" would have become Bruce's first true relationship song as well as the standard bearer for his trademark juxtaposition of poppy melody with somber lyrics. (["Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" holds that honor instead.)
 
 "Loose End" is the story of a relationship turned toxic. Like all great loves, it starts like a storybook, and Bruce employs some of his most romantic lyrics to date to paint the scene.
 

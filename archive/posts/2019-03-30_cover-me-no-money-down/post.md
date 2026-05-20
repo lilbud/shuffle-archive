@@ -4,7 +4,7 @@ With its instantly recognizable (if not original) stop-time riff and sly, comica
 
 And cover it he did, often and famously, during the River Tour–but only in part (it was never the full song, just select verses and lyrics, often tailored to local TV car dealer commercials).
 
-Slow and sultry, Bruce's 1980 homage kicked off his show's second set, building suspense before breaking into the uptempo "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)."
+Slow and sultry, Bruce's 1980 homage kicked off his show's second set, building suspense before breaking into the uptempo "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - No Money Down (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=YdLC-sG4f4U)
 

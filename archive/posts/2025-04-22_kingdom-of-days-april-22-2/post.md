@@ -46,11 +46,11 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [Watch on Youtube: Bruce Springsteen - Evening Magazine (Pittsburgh), April 22, 1988](https://www.youtube.com/watch?v=DzQHe4A1mkk)
 
-**1996:** Thanks to the request of a fan who snuck his way into the soundcheck, Bruce plays "[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)" for the first time ever (and the last time for 13 years) at his solo acoustic show in Royal Albert Hall in London.<br>
+**1996:** Thanks to the request of a fan who snuck his way into the soundcheck, Bruce plays "[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)" for the first time ever (and the last time for 13 years) at his solo acoustic show in Royal Albert Hall in London.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/hWsdZ1Y5)
 
-**2000:** Bruce soundchecks a new song, "American Skin (41 Shots)," before the Reunion show in Raleigh. Cousin Frank Bruno guest-stars on "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" during the show.<br>
+**2000:** Bruce soundchecks a new song, "American Skin (41 Shots)," before the Reunion show in Raleigh. Cousin Frank Bruno guest-stars on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" during the show.<br>
 
 [Watch on Youtube: Bruce Springsteen Lucky Town Live In Raleigh 22/04/2000 Soundboard](https://www.youtube.com/watch?v=0DUdqPBb-hc)
 
@@ -60,13 +60,13 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2000-04-22b-1.jpg.webp)
 
-**2005:** At a second public rehearsal/benefit show (held in the afternoon) at Asbury Park's Paramount Theater for his upcoming solo tour, Bruce premieres "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)" and surprises fans with the return of the Christic arrangement of "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)." The bullet mic makes its debut on "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" and will remain a fixture on both this tour as well as the Magic Tour (albeit with very different arrangements).<br>
+**2005:** At a second public rehearsal/benefit show (held in the afternoon) at Asbury Park's Paramount Theater for his upcoming solo tour, Bruce premieres "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)" and surprises fans with the return of the Christic arrangement of "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)." The bullet mic makes its debut on "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" and will remain a fixture on both this tour as well as the Magic Tour (albeit with very different arrangements).<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2005-04-22.jpg.webp)
 
-**2008:** Bruce and the E Street Band play their first show since the passing of Danny Federici. The Tampa show opens with a tribute film set to "[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)" and opens with an emotional "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)." The band kicks of the encores with a gorgeous rendition of the gospel classic "[I'll Fly Away](https://estreetshuffle.com/index.php/2018/10/16/cover-me-ill-fly-away/)." This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,21216/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-22-2008-St-Pete-Times-Forum-Tampa-FL.html).<br>
+**2008:** Bruce and the E Street Band play their first show since the passing of Danny Federici. The Tampa show opens with a tribute film set to "[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)" and opens with an emotional "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)." The band kicks of the encores with a gorgeous rendition of the gospel classic "[I'll Fly Away](../2018-10-16_cover-me-ill-fly-away/post.md)." This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,21216/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-22-2008-St-Pete-Times-Forum-Tampa-FL.html).<br>
 
 [Watch on Youtube: Danny Federici Tribute (brucespringsteen.net)](https://www.youtube.com/watch?v=VLYAEoFY0ZA)
 
@@ -82,7 +82,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-22a.jpg.webp)
 
-**2009:** Night Two in Boston brings the premiere of "[I Wanna Be Sedated](https://estreetshuffle.com/index.php/2019/03/15/cover-me-i-wanna-be-sedated/)" (by request) and a guest-spot/marriage proposal by Tim Brennan of Dropkick Murphys. Making their tour premiere: "[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)," "So Young and in Love," and "[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)."<br>
+**2009:** Night Two in Boston brings the premiere of "[I Wanna Be Sedated](../2019-03-15_cover-me-i-wanna-be-sedated/post.md)" (by request) and a guest-spot/marriage proposal by Tim Brennan of Dropkick Murphys. Making their tour premiere: "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)," "So Young and in Love," and "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Be sedated (Boston 2009)](https://www.youtube.com/watch?v=kCvJo1-Z3B8)
 
@@ -98,7 +98,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2010-04-22.jpg.webp)
 
-**2014:** The High Hopes Tour continues to deliver an amazing run of surprises and great performances. This show at the Consol Energy Center in Pittsburgh opens with the premiere of "[Clampdown](https://estreetshuffle.com/index.php/2021/09/10/cover-me-clampdown/)" by The Clash and features the tour premieres of "[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)" and "[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)," along with a rare "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" and some adorable Bruce and Patti interplay on "[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)."<br>
+**2014:** The High Hopes Tour continues to deliver an amazing run of surprises and great performances. This show at the Consol Energy Center in Pittsburgh opens with the premiere of "[Clampdown](../2021-09-10_cover-me-clampdown/post.md)" by The Clash and features the tour premieres of "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)" and "[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)," along with a rare "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" and some adorable Bruce and Patti interplay on "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen_ Pittsburgh 2014](https://www.youtube.com/watch?v=YC6QL4hrHJ0)
 
@@ -114,11 +114,11 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2014-04-22.jpg.webp)
 
-The video for "[American Beauty](https://estreetshuffle.com/index.php/2019/02/21/roll-of-the-dice-american-beauty/)" also premieres on this date.
+The video for "[American Beauty](../2019-02-21_roll-of-the-dice-american-beauty/post.md)" also premieres on this date.
 
 [Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=JYMc4FkSObM)
 
-**2017:** At a party with his mom at a local restaurant in Marlboro, New Jersey, Bruce joins the Eddie Tesla Band on stage briefly for a "[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)" and "[Soul Man](https://estreetshuffle.com/index.php/2018/07/25/meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/)." Later, he watches Little Steven's show at the Paramount and joins him on-stage for the encores.<br>
+**2017:** At a party with his mom at a local restaurant in Marlboro, New Jersey, Bruce joins the Eddie Tesla Band on stage briefly for a "[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)" and "[Soul Man](../2018-07-25_meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/post.md)." Later, he watches Little Steven's show at the Paramount and joins him on-stage for the encores.<br>
 
 [Watch on Youtube: Little Steven & the Disciples of Soul w/Bruce Springsteen, Asbury Park, NJ 04/22/2017](https://www.youtube.com/watch?v=GDOEFWUmXUU)
 
@@ -128,6 +128,6 @@ The video for "[American Beauty](https://estreetshuffle.com/index.php/2019/02/21
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/april22.jpg.webp)
 
-**2020:** Bruce and Patti perform "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" at the virtual Jersey 4 Jersey benefit for pandemic relief.<br>
+**2020:** Bruce and Patti perform "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" at the virtual Jersey 4 Jersey benefit for pandemic relief.<br>
 
 [Watch on Youtube: Jersey 4 Jersey - Bruce Springsteen & Patti Scialfa](https://www.youtube.com/watch?v=8hHfTEYt52w)

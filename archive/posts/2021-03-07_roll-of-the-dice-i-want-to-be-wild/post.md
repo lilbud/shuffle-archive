@@ -1,6 +1,6 @@
 This one is (as they say) for the collectors.
 
-About a year-and-a-half ago, we took a listen to Bruce's unreleased 1977 outtake "[Don't Say No](https://estreetshuffle.com/index.php/2019/10/15/roll-of-the-dice-dont-say-no/)," and scratched our heads trying to make heads or tails of Bruce's vocals, which were buried so far down in the mix that they challenge even the most astute of listeners.
+About a year-and-a-half ago, we took a listen to Bruce's unreleased 1977 outtake "[Don't Say No](../2019-10-15_roll-of-the-dice-dont-say-no/post.md)," and scratched our heads trying to make heads or tails of Bruce's vocals, which were buried so far down in the mix that they challenge even the most astute of listeners.
 
 It had a killer backing track, though, and I mentioned at the time that Bruce wouldn't give up on finding a home for it over the next couple of years.
 
@@ -59,7 +59,7 @@ What follows is a transcription from the kind folks at springsteenlyrics.com, bu
 
 So, yeah… sure. We'll go with that.
 
-Assuming we take the above as gospel, it's easy to see why Bruce didn't include this 1977 outtake on [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/). It would have been more at home on *The River*, and it does seem like Bruce tried at least once more to find a home for his instrumental track during those sessions, too.
+Assuming we take the above as gospel, it's easy to see why Bruce didn't include this 1977 outtake on [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). It would have been more at home on *The River*, and it does seem like Bruce tried at least once more to find a home for his instrumental track during those sessions, too.
 
 We'll pick up that thread another time.
 

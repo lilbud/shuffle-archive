@@ -5,7 +5,7 @@ Divine Fits formed back in 2011 as an indie super-group of sorts. Led by Britt D
 
 During their brief run, Divine Fits released an album of original material and worked up a repertoire of complementary covers for their live sets. One of those was Bruce's "," which the band debuted in Australia on Triple J's show in early 2013.
 
-[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)*Like a Version*
+[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)*Like a Version*
 
 ( Unfortunately the video was removed from YouTube.)
 

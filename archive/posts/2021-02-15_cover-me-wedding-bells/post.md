@@ -20,7 +20,7 @@ Something in the sad, broken-hearted lyrics of "Wedding Bells" called to Bruce, 
 
 By the autumn, Bruce moved on from his fascination with Hank Williams... on stage, at least. In private, though, Bruce started channeling Williams through his songwriting. The Darkness Tour ended just a few months later, but when Bruce resurfaced at the M.U.S.E. concerts in 1979, he would debut a new song that owed a large debt to Williams.
 
-We'll pick up that story in [tomorrow's *Roll of the Dice* entry.](https://estreetshuffle.com/index.php/2021/02/16/roll-of-the-dice-oh-angelyne/)
+We'll pick up that story in [tomorrow's *Roll of the Dice* entry.](../2021-02-16_roll-of-the-dice-oh-angelyne/post.md)
 
 **Wedding Bells**<br>
 **First performed:** December 12, 1975 (Greenvale, NY) – soundcheck only<br>

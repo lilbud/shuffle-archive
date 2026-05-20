@@ -10,7 +10,7 @@ Martin released the song as a single shortly after the sensational (and controve
 
 The song first started getting some serious airplay in mid-May–exactly when Bruce and the boys were rehearsing for their upcoming Darkness Tour at the Paramount Theater in Asbury Park.
 
-That may explain why in between "[Paradise by the 'C'](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)" and "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," Bruce led the band in a brief cover of the song that had everyone talking that summer.
+That may explain why in between "[Paradise by the 'C'](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)" and "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," Bruce led the band in a brief cover of the song that had everyone talking that summer.
 
 [Watch on Youtube: King Tut](https://www.youtube.com/watch?v=0fn5nbrxpt4)
 

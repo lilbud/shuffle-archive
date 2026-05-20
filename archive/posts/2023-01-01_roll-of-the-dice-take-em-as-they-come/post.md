@@ -8,7 +8,7 @@ But it's clear that Bruce was enamored by the phrase "take 'em as they come"–i
 
 [Watch on Youtube: Bruce Springsteen Take 'Em As They Come #1](https://www.youtube.com/watch?v=abBvLmXOsYY)
 
-From the melody in that clip above, it sounds like Bruce originally had something a bit more serious and pensive than what he eventually ended up with, but it didn't last long. He soon moved on to a more upbeat melody–and while this one wouldn't last either, it would soon find a home attached to [a song that *would* make it onto *The River*](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/).
+From the melody in that clip above, it sounds like Bruce originally had something a bit more serious and pensive than what he eventually ended up with, but it didn't last long. He soon moved on to a more upbeat melody–and while this one wouldn't last either, it would soon find a home attached to [a song that *would* make it onto *The River*](../2018-11-04_roll-of-the-dice-jackson-cage/post.md).
 
 [Watch on Youtube: Bruce Springsteen Take 'Em As They Come #2](https://www.youtube.com/watch?v=n-t7wGtd4j4)
 

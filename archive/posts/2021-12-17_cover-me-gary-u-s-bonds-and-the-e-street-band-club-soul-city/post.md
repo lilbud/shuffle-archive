@@ -6,7 +6,7 @@ Sometime during the autumn of 1981, Bruce broke out his cassette recorder at his
 
 Oh yeah… the second one's the stuff. But those 55 seconds are the only glimpse we have into the development of a song that Bruce would quickly finish and donate to Gary U.S. Bonds.
 
-Gary's cover of "Club Soul City" appears on *On the Line*, his 1982 follow-up to his *Dedication* comeback album. Produced by both Bruce and Steve Van Zandt, *On the Line* features no less than *seven* original Springsteen compositions (see "[Angelyne](https://estreetshuffle.com/index.php/2019/02/04/cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/)" for another), and the entire E Street Band backs Bonds throughout.
+Gary's cover of "Club Soul City" appears on *On the Line*, his 1982 follow-up to his *Dedication* comeback album. Produced by both Bruce and Steve Van Zandt, *On the Line* features no less than *seven* original Springsteen compositions (see "[Angelyne](../2019-02-04_cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/post.md)" for another), and the entire E Street Band backs Bonds throughout.
 
 In fact, if not for Columbia's insistence on removing Bruce's backing from the album, it wouldn't be that much of a stretch to call *On the Line* a lost Springsteen album. Bruce's contributions to *On the Line* are light pop numbers, in stark contrast to what he was writing and recording in that *Nebraska* era; I'm sure Bonds was more than happy to provide an outlet for the lighter side of Bruce's songwriting.
 
@@ -14,7 +14,7 @@ Let's take a listen:
 
 [Watch on Youtube: GARY U.S. BONDS - Club soul city](https://www.youtube.com/watch?v=kOEgaUp-3Pw)
 
-"Club Soul City" doesn't demand a lot of analysis. In fact, it's basically a more soulful re-write of "[Heartbreak Hotel](https://estreetshuffle.com/index.php/2021/04/11/matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/)." While Bruce doesn't provide the club's address, it's almost certainly down at the end of Lonely Street.
+"Club Soul City" doesn't demand a lot of analysis. In fact, it's basically a more soulful re-write of "[Heartbreak Hotel](../2021-04-11_matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/post.md)." While Bruce doesn't provide the club's address, it's almost certainly down at the end of Lonely Street.
 
 > *Pack up your bags, don't look back*<br>
 > *There's a little place out ‘cross the railroad tracks*<br>

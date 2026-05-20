@@ -12,7 +12,7 @@ As beloved as "Centerfield" has become, it was still something of a surprise to 
 
 That tour had a decidedly political message, with tight and carefully constructed sets designed to spur activism from an audience that was perhaps politically aligned with John and Bruce but not necessarily inclined to get out and vote.
 
-"[Fortunate Son](https://estreetshuffle.com/index.php/2019/11/09/matr-john-fogerty-and-bruce-springsteen-fortunate-son/)," was a lock of course, as was John's latest single, "[Deja Vu All Over Again](https://estreetshuffle.com/index.php/2020/07/11/matr-john-fogerty-and-bruce-springsteen-deja-vu-all-over-again/)." But "Centerfield" was a curveball–although perhaps it shouldn't have been, since Bruce is known to be quite the lifelong baseball fan himself.
+"[Fortunate Son](../2019-11-09_matr-john-fogerty-and-bruce-springsteen-fortunate-son/post.md)," was a lock of course, as was John's latest single, "[Deja Vu All Over Again](../2020-07-11_matr-john-fogerty-and-bruce-springsteen-deja-vu-all-over-again/post.md)." But "Centerfield" was a curveball–although perhaps it shouldn't have been, since Bruce is known to be quite the lifelong baseball fan himself.
 
 The chance to perform "Centerfield" with the song's original artist was probably too tempting to pass up, and the song became Fogerty's first number upon taking the stage each night.
 

@@ -40,7 +40,7 @@ Towards the end of the song, he seems to get caught up in his lover, but even th
 > *Just the kind of little woman that puts'em down*
 > *The finest little woman in the whole damn town, and the prettiest thing I've seen*
 
-So yeah, it's best not to focus too much on the lyrics. Like I said at the top, "Goin' Down Slow's" role in life is to showcase the band, and even if they're not as tight here as they would later be, they all get a chance to shine, particularly in the jazzy extended "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)"-ish interlude that kicks in at the seven-minute mark.
+So yeah, it's best not to focus too much on the lyrics. Like I said at the top, "Goin' Down Slow's" role in life is to showcase the band, and even if they're not as tight here as they would later be, they all get a chance to shine, particularly in the jazzy extended "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)"-ish interlude that kicks in at the seven-minute mark.
 
 When the song resumes after the interlude, the band never really recovers their original cool groove. The final minutes feel forced and the ending abrupt. But we know that the band continued to perform "Goin' Down Slow" as show closer at least through mid-1970, so we can assume that their performance became tighter and more natural over time.
 

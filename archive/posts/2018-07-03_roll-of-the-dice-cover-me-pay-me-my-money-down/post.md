@@ -1,4 +1,4 @@
-It's no surprise that Bruce chose "Pay Me My Money Down" to be the leadoff single from his 2006 album, *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/).* See how much fun they're having playing it?
+It's no surprise that Bruce chose "Pay Me My Money Down" to be the leadoff single from his 2006 album, *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md).* See how much fun they're having playing it?
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down (Tour Version Video)](https://www.youtube.com/watch?v=BYF8IntUFZI)
 

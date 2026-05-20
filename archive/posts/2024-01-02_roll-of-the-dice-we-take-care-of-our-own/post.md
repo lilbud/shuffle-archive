@@ -10,7 +10,7 @@ In his review of the event, the *New York Times* music critic wrote, "The show o
 
 And just like that, 2012 became 1984.
 
-But Bruce had learned a thing or two in the almost two decades between "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" and "We Take Care of Our Own," the most important of which: he put the song's message in the title.
+But Bruce had learned a thing or two in the almost two decades between "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "We Take Care of Our Own," the most important of which: he put the song's message in the title.
 
 Casual listeners might misinterpret "We Take Care of Our Own" as boastful rather than chiding, but in doing so they at least have to acknowledge Bruce's main point: whether at the national or a community level, we expect our citizens to look out for each other.
 
@@ -22,7 +22,7 @@ It worked because "We Take Care of Our Own" is more than just scolding disillusi
 
 And in the right context, it's a promise: *We **will** be better than this.*
 
-As the advance single and lead-off track for [*Wrecking Ball*,](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/) "We Take Care of Our Own" introduced Bruce's audience to the influence of new studio collaborator Ron Aniello, a breath of fresh air that restored and modernized the bright E Street sound without the sonic harshness that characterized most of the Brenden O'Brien era.
+As the advance single and lead-off track for [*Wrecking Ball*,](../2023-03-28_album-companion-wrecking-ball/post.md) "We Take Care of Our Own" introduced Bruce's audience to the influence of new studio collaborator Ron Aniello, a breath of fresh air that restored and modernized the bright E Street sound without the sonic harshness that characterized most of the Brenden O'Brien era.
 
 Bruce mined "We Take Care of Our Own" from the same earth that yielded "Born in the U.S.A."–wrapping harshly critical lyrics in an anthemic backing track complete with ready-made fist-pumping moments.
 
@@ -49,7 +49,7 @@ With his lyrics now visually front and center for the first time, Bruce compelle
 
 There's nuance in that first verse that might be masked in a first listen: Bruce isn't condemning his countrymen–he acknowledges that Americans have good hearts and good intentions. *Why aren't we living up to our ideals*, he asks.
 
-He speaks truth to power, but power won't answer the door. In a callback to "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" five years prior, we've strayed so far from our ideals that we can't even find the way back without a map.
+He speaks truth to power, but power won't answer the door. In a callback to "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" five years prior, we've strayed so far from our ideals that we can't even find the way back without a map.
 
 More than anything else, "We Take Care of Our Own" is a song of bewildered frustration: why are our values so disconnected from our actions? The chorus isn't a statement of who we are but rather an incessant reminder of who we're supposed to be.
 

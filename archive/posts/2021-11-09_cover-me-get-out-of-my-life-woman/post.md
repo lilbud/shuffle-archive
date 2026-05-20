@@ -4,7 +4,7 @@ I mean, it's not surprising that we have almost every show from the River era fo
 
 But what *really* blows me away is that we have surviving recordings of *seventeen-year-old* Bruce Springsteen fronting his very first band, The Castiles. What are the odds that someone would have recorded a high school band in 1967 (it wasn't as easy as holding up a mobile phone back then) let alone preserved it for a half-century after?
 
-We can thank Father Fred Coleman for that. He was the one who saw the boys' potential and recorded their stage performance for posterity. (Read about Father Coleman [here](https://estreetshuffle.com/index.php/2020/11/09/roll-of-the-dice-look-into-my-window/).)
+We can thank Father Fred Coleman for that. He was the one who saw the boys' potential and recorded their stage performance for posterity. (Read about Father Coleman [here](../2020-11-09_roll-of-the-dice-look-into-my-window/post.md).)
 
 One of the songs he captured for us on tape was a cover of Lee Dorsey's funky 1965 single, "Get Out of My Life, Woman," which peaked at #44 on the Billboard Hot 100 and #5 on the R&B chart in 1966.
 

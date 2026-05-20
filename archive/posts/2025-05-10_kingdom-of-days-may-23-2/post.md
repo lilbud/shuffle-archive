@@ -10,9 +10,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1970-0523.jpg.webp)
 
-**1975:** Bruce and the E Street Band work on “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” at the Record Plant in New York City.<br>
+**1975:** Bruce and the E Street Band work on “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” at the Record Plant in New York City.<br>
 
-**1978:** The Darkness on the Edge of Town Tour begins at Shea’s Buffalo Theater in Buffalo, New York. Besides the obvious album track premieres, this show also marks the first performances of “[Paradise by the ‘C’](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)” and “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/),” as well as the first “Sad Eyes” version of “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” and the only full-band performance of “The Promise” until 2010. Listen in on the pre-show soundcheck, live debut of “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” and more below.<br>
+**1978:** The Darkness on the Edge of Town Tour begins at Shea’s Buffalo Theater in Buffalo, New York. Besides the obvious album track premieres, this show also marks the first performances of “[Paradise by the ‘C’](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)” and “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md),” as well as the first “Sad Eyes” version of “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” and the only full-band performance of “The Promise” until 2010. Listen in on the pre-show soundcheck, live debut of “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” and more below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/IL3IeSg9)
 
@@ -24,7 +24,7 @@
 
 **1982:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony.<br>
 
-**1983:** Bruce and the E Street Band complete “[County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)” at *Born in the U.S.A.* recording sessions at The Hit Factory in New York City. It won’t be released for another thirty years.<br>
+**1983:** Bruce and the E Street Band complete “[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)” at *Born in the U.S.A.* recording sessions at The Hit Factory in New York City. It won’t be released for another thirty years.<br>
 
 [Watch on Youtube: County Fair (Studio Outtake - 1983)](https://www.youtube.com/watch?v=yltKgMyWLH0)
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Springsteen - Radio Nowhere & No Retreat (Part 1) RDS 2008](https://www.youtube.com/watch?v=1SkVTUNWxvo)
 
-**2009:** The final show of the first American leg of the Working on a Dream Tour in East Rutherford features the tour premieres of “S[omething in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” and “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/).”<br>
+**2009:** The final show of the first American leg of the Working on a Dream Tour in East Rutherford features the tour premieres of “S[omething in the Night,](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” and “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/94aBB87m)
 
@@ -68,7 +68,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/cEYUIH2l)
 
-**2013:** The Wrecking Ball Tour stops in Naples for a show at the Piazza del Plebiscito, where the band opens with “O Sole Mio.” During the sign request collection, a fan actually requests “[Crazy Rocker](https://estreetshuffle.com/index.php/2019/03/10/roll-of-the-dice-crazy-rocker/),” and it’s hard to tell if Bruce remembered that’s an actual song he’d (partially, at least) written. (He plays “Rosalita (Come Out Tonight)” instead.)<br>
+**2013:** The Wrecking Ball Tour stops in Naples for a show at the Piazza del Plebiscito, where the band opens with “O Sole Mio.” During the sign request collection, a fan actually requests “[Crazy Rocker](../2019-03-10_roll-of-the-dice-crazy-rocker/post.md),” and it’s hard to tell if Bruce remembered that’s an actual song he’d (partially, at least) written. (He plays “Rosalita (Come Out Tonight)” instead.)<br>
 
 [Watch on Youtube: Napoli - Bruce Springsteen canta 'O sole mio' (23.05.13)](https://www.youtube.com/watch?v=X-NYkLOguTM)
 
@@ -76,7 +76,7 @@
 
 [Watch on Youtube: Naples 23/05/2013](https://www.youtube.com/playlist?list=PLJTyL9twk3zClsrGQNJMvyH672fGlpumC)
 
-**2014:** Bruce and Joe Grushecky play their second of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh, featuring another eclectic set of rarities, including an acoustic “[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)” and “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” along with rare outings for “[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/),” “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/),” “[I’ll Work For Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/),” “[Savin’ Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/),” and more.<br>
+**2014:** Bruce and Joe Grushecky play their second of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh, featuring another eclectic set of rarities, including an acoustic “[Outlaw Pete](../2021-12-29_roll-of-the-dice-outlaw-pete/post.md)” and “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” along with rare outings for “[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md),” “[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md),” “[I’ll Work For Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md),” “[Savin’ Up](../2018-05-14_roll-of-the-dice-cover-me-clarence-clemons-savin-up/post.md),” and more.<br>
 
 [Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - Further On Up The Road (solo acoustic)](https://www.youtube.com/watch?v=GQvnGb6YpaQ)
 

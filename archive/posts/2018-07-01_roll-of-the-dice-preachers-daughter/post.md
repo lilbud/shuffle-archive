@@ -8,7 +8,7 @@ Take a listen with me.
 
 Am I right, or what?
 
-"Preacher's Daughter" is an outtake from the [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)sessions, but you would be forgiven for placing it during the *Born to Run* era instead. It certainly has more in common with Bruce's third album, with street fight scenes straight out of "Jungleland" and a melody and rhythm made to mash seamlessly with "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)."
+"Preacher's Daughter" is an outtake from the [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)sessions, but you would be forgiven for placing it during the *Born to Run* era instead. It certainly has more in common with Bruce's third album, with street fight scenes straight out of "Jungleland" and a melody and rhythm made to mash seamlessly with "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)."
 
 Lyrically, "Preacher's Daughter" is a tale of good Catholic boy frustration–our hero is infatuated with the daughter of his church's preacher, but the preacher is more than a match for his street-fueled bravado.
 

@@ -1,6 +1,6 @@
 How in the world did it take Bruce 45 years to cover the breakthrough hit from one of his favorite bands?
 
-We know The Kinks were on Bruce's radar from the very beginning: he's on record for having seen the band's 1964 appearance on *The Red Skelton Show*, and surviving Castiles set lists reveal covers of "Tired of Waiting For You" and "[See My Friends](https://estreetshuffle.com/index.php/2020/04/30/cover-me-see-my-friends/)." (We even have a recording of the latter one.)
+We know The Kinks were on Bruce's radar from the very beginning: he's on record for having seen the band's 1964 appearance on *The Red Skelton Show*, and surviving Castiles set lists reveal covers of "Tired of Waiting For You" and "[See My Friends](../2020-04-30_cover-me-see-my-friends/post.md)." (We even have a recording of the latter one.)
 
 So what explains the absence of "You Really Got Me" from Bruce's known set lists? After all, The Kinks' first U.S. Top Ten hit was practically irresistible to any young guitar hero in the mid-sixties.
 

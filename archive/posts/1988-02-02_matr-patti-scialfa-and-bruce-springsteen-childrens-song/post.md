@@ -10,7 +10,7 @@ One of those artists was Patti Scialfa. Patti readily agreed to participate, but
 
 "We had both versions and I kept pushing for the new one,” Patti told *Rolling Stone* in 2011, “and Bruce kept pushing for the one that ended up on the record. I kept saying, 'I just don't sing it that well.' And he said, 'Run the tape, I'll sing it.' He sang the whole song and it really suited him just perfectly."
 
-Ultimately, Patti and Bruce recorded the song as a duet, tapping Ron Aniello for production duty during the *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*sessions. While that may technically have violated the “mothers only” rule for the album, the gentle, parental benediction turned out too lovely to keep in the vault.
+Ultimately, Patti and Bruce recorded the song as a duet, tapping Ron Aniello for production duty during the *[Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md)*sessions. While that may technically have violated the “mothers only” rule for the album, the gentle, parental benediction turned out too lovely to keep in the vault.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XndDKzxj9xs)
 

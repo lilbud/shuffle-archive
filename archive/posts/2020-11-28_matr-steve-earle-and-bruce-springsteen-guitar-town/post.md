@@ -1,4 +1,4 @@
-> "A friend of mine bought me a ticket to see Bruce Springsteen and the E Street Band at Murphy Center in Murfreesboro, Tennessee on the Born in the U.S.A. Tour. We went out there, and Bruce walked out that night and sang '[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)' right out of the box. Three hours and fifteen minutes later, I walked out into the Tennessee night, and I knew exactly what to do. I went home and wrote 'Guitar Town.'" — *Steve Earle, December 4, 2016*
+> "A friend of mine bought me a ticket to see Bruce Springsteen and the E Street Band at Murphy Center in Murfreesboro, Tennessee on the Born in the U.S.A. Tour. We went out there, and Bruce walked out that night and sang '[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)' right out of the box. Three hours and fifteen minutes later, I walked out into the Tennessee night, and I knew exactly what to do. I went home and wrote 'Guitar Town.'" — *Steve Earle, December 4, 2016*
 
 It was the evening of December 9, 1984, at an otherwise unremarkable show on the Born in the U.S.A. Tour.
 

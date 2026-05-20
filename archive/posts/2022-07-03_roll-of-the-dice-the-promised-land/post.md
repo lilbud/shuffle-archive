@@ -98,7 +98,7 @@ If not for the setting (Jersey vs. Utah), it wouldn't be a stretch to wonder if 
 
 You hear it now, don't you?
 
-You might argue that the rousing music belies this interpretation; I'd counter by pointing out that this would hardly be the only case of Bruce pairing painful, sobering lyrics with an anthem-like melody (see "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)").
+You might argue that the rousing music belies this interpretation; I'd counter by pointing out that this would hardly be the only case of Bruce pairing painful, sobering lyrics with an anthem-like melody (see "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)").
 
 And just like the acoustic blues version of "Born in the U.S.A." brings out the deep meaning and inner pain of that song, so too does the acoustic version of "The Promised Land" from the 1995-1997 and 2005 tours practically beg a darker reading:
 

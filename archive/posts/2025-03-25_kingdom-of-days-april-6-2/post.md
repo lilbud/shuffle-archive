@@ -14,11 +14,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Sydney_Morning_Herald_Mon__Apr_8__1985_-scaled.jpg.webp)
 
-**1990:** Bruce records "[Trouble River](https://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)" at Soundworks West in Los Angeles. It will remain in the vault for almost a decade.<br>
+**1990:** Bruce records "[Trouble River](../2019-03-05_roll-of-the-dice-trouble-river/post.md)" at Soundworks West in Los Angeles. It will remain in the vault for almost a decade.<br>
 
 [Watch on Youtube: Trouble River (Studio Outtake - 1990)](https://www.youtube.com/watch?v=0KstWZbn3Fw)
 
-**1999:** At a special Johnny Cash tribute in New York City, Bruce performs "[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/)" via a pre-recorded video. The event is recorded for airing on TNT later in the month.<br>
+**1999:** At a special Johnny Cash tribute in New York City, Bruce performs "[Give My Love to Rose](../2020-10-29_cover-me-give-my-love-to-rose/post.md)" via a pre-recorded video. The event is recorded for airing on TNT later in the month.<br>
 
 [Watch on Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
 
@@ -28,7 +28,7 @@
 
 "*I'd like to thank everyone for the honor. It's especially nice coming from my hometown and my old alma mater. It's kind of funny, really. I spent my years at Freehold Regional pretty much as an outcast and at best a very mediocre student. I would probably have been voted ‘Least Likely to Succeed'. My only advice to teachers and the administrators would be to keep your eyes on the ones that don't fit in. They're the ones thinking out of the box and reimagining this place we live in… our hometown. You never know where they're going. So, thank you once again and please show my mother a good time. Without her I may not have survived Freehold Regional High School."*
 
-**2012:** Bruce brings the Wrecking Ball Tour to Madison Square Garden for the first of two nights. The setlist features the tour premiere of "[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)" and a very rare "[Lion's Den](https://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)," only its fourth performance and its first in over a decade.<br>
+**2012:** Bruce brings the Wrecking Ball Tour to Madison Square Garden for the first of two nights. The setlist features the tour premiere of "[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)" and a very rare "[Lion's Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)," only its fourth performance and its first in over a decade.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QvFl1u7J)
 
@@ -40,14 +40,14 @@
 
 [Watch on Youtube: Bruce Springsteen concert at Madison Square Garden 04/06/12](https://www.youtube.com/watch?v=F9SuCBFcZlo)
 
-**2014:** Back in the U.S. after their Australia/New Zealand tour, Bruce and the E Street Band play a free concert at the NCAA March Madness Music Festival in Dallas. Bruce continues his streak of creative opening covers with Van Halen's "[Jump](https://estreetshuffle.com/index.php/2019/04/02/cover-me-jump/)."<br>
+**2014:** Back in the U.S. after their Australia/New Zealand tour, Bruce and the E Street Band play a free concert at the NCAA March Madness Music Festival in Dallas. Bruce continues his streak of creative opening covers with Van Halen's "[Jump](../2019-04-02_cover-me-jump/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AclwSTf7)
 
 [Watch Video Highlight](https://videopress.com/embed/Bel2SeJM)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring ["Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)." In attendance tonight: actress Gina Gershon.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring ["Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in place of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)." In attendance tonight: actress Gina Gershon.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/20180406_GinaGershon_01.jpg.webp)
 
-**2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)."<br>
+**2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)."<br>

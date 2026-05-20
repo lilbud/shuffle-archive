@@ -1,6 +1,6 @@
 In the midst of the Born to Run Tour, Bruce Springsteen and his former manager Mike Appel filed mutual lawsuits that precluded Springsteen from entering a recording studio for almost a year.
 
-By the time the dust finally settled in May 1977, Bruce had quite a backlog of material. He wasted no time getting back into the studio with the band, and over the months that followed they recorded at least sixty songs, only ten of which would see release a year later on *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).*
+By the time the dust finally settled in May 1977, Bruce had quite a backlog of material. He wasted no time getting back into the studio with the band, and over the months that followed they recorded at least sixty songs, only ten of which would see release a year later on *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).*
 
 If we were to judge by the finished album only, we'd conclude that Bruce left his *Born to Run* romanticism by the wayside in favor of a more cynical yet defiant vein of songwriting. In truth, Springsteen was still writing the big romantic ballads that typified his setlists from 1975 through 1977. He just locked them away for decades until he finally set them free on *The Promise* in 2010.
 
@@ -32,7 +32,7 @@ The second thing that leaps out at us are the lyrics, which sound awfully famili
 > *And let your doubts slip away ‘neath your sighs*<br>
 > *Let me kiss your Spanish eyes*<br>
 
-"Spanish Eyes" wouldn't see the light of day until 2010, but those four lines in bold introduce one of Bruce's greatest hits, his 1985 Top Ten single, "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."
+"Spanish Eyes" wouldn't see the light of day until 2010, but those four lines in bold introduce one of Bruce's greatest hits, his 1985 Top Ten single, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."
 
 [Watch on Youtube: I'm On Fire](https://www.youtube.com/watch?v=1VxFS5-klfk)
 
@@ -53,7 +53,7 @@ It's not just those lines that rhyme between songs; they're thematically similar
 
 "Spanish Eyes" only sounds romantic. While its bridge makes us swoon with words like emotion and devotion, our narrator makes no promises beyond showing his would-be lover a good time. But hey, maybe that's good enough for tonight.
 
-"Spanish Eyes" is almost certainly inspired by Ben E. King's 1960 single, "[Spanish Harlem](https://estreetshuffle.com/index.php/2018/01/23/cover-me-spanish-harlem/)," which Bruce performed a few times during the Wild and Innocent Tour. We can hear its influences in both the music and lyrics (both songs feature references to coal-black eyes).
+"Spanish Eyes" is almost certainly inspired by Ben E. King's 1960 single, "[Spanish Harlem](../2018-01-23_cover-me-spanish-harlem/post.md)," which Bruce performed a few times during the Wild and Innocent Tour. We can hear its influences in both the music and lyrics (both songs feature references to coal-black eyes).
 
 [Watch on Youtube: Spanish Harlem](https://www.youtube.com/watch?v=GxigkOzGq9Q)
 
@@ -67,7 +67,7 @@ What complicates things is that we have a second work-in-progress take from 1977
 
 Whether misdated or a branch experiment that went nowhere, no record exists of "New Spanish" before or after the above outtake, so we'll simply consider it a curious artifact of the "Spanish Eyes" development process.
 
-Springsteen didn't tour in support of *The Promise*, so when he took the E Street Band on a two-year tour to promote [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)and *High Hopes* in 2012, hopes ran high that his sets would feature deep cuts from *The Promise*. By and large, those hopes didn't pan out–hard times had come again, and Bruce's set lists were focused on setting a different mood.
+Springsteen didn't tour in support of *The Promise*, so when he took the E Street Band on a two-year tour to promote [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)and *High Hopes* in 2012, hopes ran high that his sets would feature deep cuts from *The Promise*. By and large, those hopes didn't pan out–hard times had come again, and Bruce's set lists were focused on setting a different mood.
 
 Thank goodness for that tour's fan request segment, however. One time only, in (fittingly) Madrid in June 2012, an audience member made a sign for "Spanish Eyes." It caught Bruce's eye, and the band played it for the first and only time to date.
 

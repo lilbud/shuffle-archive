@@ -6,7 +6,7 @@ This is my sixth *Roll of the Dice* entry for *Western Stars*, and I'm well awar
 
 I'm about to do it again.
 
-Ask me for my Top Ten Springsteen songs, and the list will vary from day to day. But without exception since *Western Stars* debuted, I'd name the [title track](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/), "[Moonlight Motel,](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)" "[Hello Sunshine](https://estreetshuffle.com/index.php/2021/01/01/roll-of-the-dice-hello-sunshine/)," and "Drive Fast (The Stuntman)" among them.
+Ask me for my Top Ten Springsteen songs, and the list will vary from day to day. But without exception since *Western Stars* debuted, I'd name the [title track](../2020-03-28_roll-of-the-dice-western-stars/post.md), "[Moonlight Motel,](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" "[Hello Sunshine](../2021-01-01_roll-of-the-dice-hello-sunshine/post.md)," and "Drive Fast (The Stuntman)" among them.
 
 "Drive Fast" isn't the best of the four (I'd give that nod to "Western Stars"), and it doesn't have the strongest lyrics. (That would be "Moonlight Motel.")
 

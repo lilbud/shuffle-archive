@@ -14,7 +14,7 @@ But oh, what a glorious summer that was! Surviving bootleg recordings from those
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/dinkins.jpg.webp)
 
-Bruce was impressed enough by Barbara and Dee to give them star turns on lead vocals. For example, Dee sang lead on "[I'm in Love Again](https://estreetshuffle.com/index.php/2020/05/23/roll-of-the-dice-im-in-love-again/)." As for Barbara, not only did she sing lead on "You Don't Leave Me No Choice," she actually *wrote* the song along with Sancious (whose stamp is immediately obvious from the extended piano intro).
+Bruce was impressed enough by Barbara and Dee to give them star turns on lead vocals. For example, Dee sang lead on "[I'm in Love Again](../2020-05-23_roll-of-the-dice-im-in-love-again/post.md)." As for Barbara, not only did she sing lead on "You Don't Leave Me No Choice," she actually *wrote* the song along with Sancious (whose stamp is immediately obvious from the extended piano intro).
 
 It was and is extremely rare for Bruce to add songs written by his band members to his set lists, but this was one well-deserved exception.
 

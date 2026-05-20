@@ -2,7 +2,7 @@
 
 **1966:** The Castiles play a sweet sixteen party for a high school classmate at the American Hotel in Freehold.<br>
 
-**1973:** Bruce and his unnamed band headline at the Rova Farm Function Center in Jackson, New Jersey, where a fight breaks out during (of all things) “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/).” Luckily, the police break up the brawl and allow the show to go on.<br>
+**1973:** Bruce and his unnamed band headline at the Rova Farm Function Center in Jackson, New Jersey, where a fight breaks out during (of all things) “[Santa Claus is Comin’ to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md).” Luckily, the police break up the brawl and allow the show to go on.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/ad326.jpg.webp)
 

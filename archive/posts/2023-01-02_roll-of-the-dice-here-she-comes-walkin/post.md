@@ -1,4 +1,4 @@
-We're so used to hearing it performed as a lead-in to "[I Wanna Mary You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)" (in fact, that's the only way we've *ever* heard it for all of its 69 live outings), that you'd be forgiven for not realizing that "Here She Comes Walkin'" is an original Springsteen song all on its own.
+We're so used to hearing it performed as a lead-in to "[I Wanna Mary You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" (in fact, that's the only way we've *ever* heard it for all of its 69 live outings), that you'd be forgiven for not realizing that "Here She Comes Walkin'" is an original Springsteen song all on its own.
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Marry You (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=GRIpM_mrmX4)
 

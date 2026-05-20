@@ -16,19 +16,19 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/1975-11-03.png.webp)
 
-**1976:** It’s Night Five of six at the Palladium in New York City on the Lawsuit Tour; tonight’s show is notable for the debut of “Mona” as the intro to “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” and the last known “[A Fine Fine Girl](https://estreetshuffle.com/index.php/2019/01/28/cover-me-a-fine-fine-boy/)” for 33 years.<br>
+**1976:** It’s Night Five of six at the Palladium in New York City on the Lawsuit Tour; tonight’s show is notable for the debut of “Mona” as the intro to “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)” and the last known “[A Fine Fine Girl](../2019-01-28_cover-me-a-fine-fine-boy/post.md)” for 33 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/tYm0RPgx)
 
-**1980:** Bruce and the band play their final night of a four-night stand at the Los Angeles Memorial Sports Arena, where the 1978 version of “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” makes its final appearance for 32 years. Flo and Eddie guest star on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/),” and Jackson Browne joins the band for a final encore of “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/).”<br>
+**1980:** Bruce and the band play their final night of a four-night stand at the Los Angeles Memorial Sports Arena, where the 1978 version of “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” makes its final appearance for 32 years. Flo and Eddie guest star on “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md),” and Jackson Browne joins the band for a final encore of “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/).”<br>
 
 [Watch on Youtube: Bruce Springsteen and Jackson Browne, "Detroit Medley" Los Angeles, 1980-11-03](https://www.youtube.com/watch?v=4H0xsYHJYw8)
 
-**1984:** On *American Top 40*, host Casey Kasem shines a spotlight on Bruce’s marathon shows while introducing “[Cover Me.](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)”<br>
+**1984:** On *American Top 40*, host Casey Kasem shines a spotlight on Bruce’s marathon shows while introducing “[Cover Me.](../2021-01-13_roll-of-the-dice-cover-me/post.md)”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3)
 
-**1992:** It’s Election Day in the United States, and during Bruce’s show in Milwaukee, Bill Clinton is declared the winner. Bruce congratulates him from the stage, dedicating (fittingly) “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/).”<br>
+**1992:** It’s Election Day in the United States, and during Bruce’s show in Milwaukee, Bill Clinton is declared the winner. Bruce congratulates him from the stage, dedicating (fittingly) “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - "Glory Days" Milwaukee, 1992-11-03](https://www.youtube.com/watch?v=kItDzU6Jz38)
 
@@ -46,13 +46,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2000-11-03b.png.webp)
 
-**2001:** Bruce makes an encore appearance at Light of Day 2001 at Tradewinds in Sea Bright, joining Joe Grushecky three songs into his set. Listen to their performance below, featuring Bruce’s first performance of “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” in 15 years.<br>
+**2001:** Bruce makes an encore appearance at Light of Day 2001 at Tradewinds in Sea Bright, joining Joe Grushecky three songs into his set. Listen to their performance below, featuring Bruce’s first performance of “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)” in 15 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MNUjFpDS)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2001-11-03.png.webp)
 
-**2002:** The Rising Tour returns to the U.S., and the next leg kicks off with a show at American Airlines Center in Dallas, where Don Henley makes a guest appearance on the tour premiere of “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/),” and Bruce plays a rare solo piano “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”<br>
+**2002:** The Rising Tour returns to the U.S., and the next leg kicks off with a show at American Airlines Center in Dallas, where Don Henley makes a guest appearance on the tour premiere of “[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md),” and Bruce plays a rare solo piano “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen & Don Henley - "I Fought the Law" - Dallas, 2002-11-03](https://www.youtube.com/watch?v=_fKGF8uy3cI)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2005-11-03.png.webp)
 
-**2009:** Bruce plays “[Brown Eyed Girl](https://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)” for the very first time when the Working on a Dream Tour stops at Time Warner Cable Arena in Charlotte. Other highlights include “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/),” “So Young and in Love” and a full album performance of *Born to Run.* Frank Bruno makes a guest appearance on “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)” in the encores.<br>
+**2009:** Bruce plays “[Brown Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)” for the very first time when the Working on a Dream Tour stops at Time Warner Cable Arena in Charlotte. Other highlights include “[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md),” “So Young and in Love” and a full album performance of *Born to Run.* Frank Bruno makes a guest appearance on “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)” in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen - Charlotte, NC 11-03-09 "So Young & In Love"](https://www.youtube.com/watch?v=7O-SD9pOwYE)
 
@@ -72,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2009-11-03.png.webp)
 
-**2010:** Bruce’s third appearance at Stand Up for Heroes (at the Beacon Theater in New York City) is his most productive: he once again auctions a guitar and brings in $140,000 for the Bob Woodruff foundation. Oh, and he also joins the Max Weinberg 7 to perform “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/),” “[Kitty’s Back,](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/).”<br>
+**2010:** Bruce’s third appearance at Stand Up for Heroes (at the Beacon Theater in New York City) is his most productive: he once again auctions a guitar and brings in $140,000 for the Bob Woodruff foundation. Oh, and he also joins the Max Weinberg 7 to perform “[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md),” “[Kitty’s Back,](../2022-01-22_roll-of-the-dice-kittys-back/post.md)” and “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md).”<br>
 
 [Watch on Youtube: Open All Night - Springsteen Live Stand Up for Heroes 2010.avi](https://www.youtube.com/watch?v=dAUY3qlh6Ag)
 
@@ -82,7 +82,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2010-11-03.png.webp)
 
-**2011:** Almost one year to the day, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. Bruce joins opening act The Composure for “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/),” performs a mini-acoustic set, and then joins Joe Grushecky and The Houserockers for a full set.<br>
+**2011:** Almost one year to the day, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. Bruce joins opening act The Composure for “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md),” performs a mini-acoustic set, and then joins Joe Grushecky and The Houserockers for a full set.<br>
 
 [Watch on Youtube: Bruce Springsteen with The Composure - "Dancing In The Dark"](https://www.youtube.com/watch?v=5ShAXSeBQFc)
 
@@ -92,7 +92,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2011-11-03.png.webp)
 
-**2012:** The Wrecking Ball Tour stops in Louisville, where “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” gets a rare outing.<br>
+**2012:** The Wrecking Ball Tour stops in Louisville, where “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)” gets a rare outing.<br>
 
 [Watch on Youtube: Springsteen - Shackled & Drawn Louisville 11-3-2012](https://www.youtube.com/watch?v=5fN4rlvEP8Q)
 
@@ -116,7 +116,7 @@
 
 **2023:** Bruce’s scheduled show in Vancouver, B.C. is postponed by more than a year due to his peptic ulcer disease.<br>
 
-**2024:** Bruce kicks off his concert in Toronto with “[She’s the One,](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” the first time that song has ever opened a show.<br>
+**2024:** Bruce kicks off his concert in Toronto with “[She’s the One,](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)” the first time that song has ever opened a show.<br>
 
 [Watch on Youtube: She's The One by Bruce Springsteen. Nov 3 2024 Scotiabank Arena, Toronto On Canada](https://www.youtube.com/watch?v=Ax-wnSj2p_c)
 

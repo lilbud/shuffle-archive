@@ -24,7 +24,7 @@ In this first documented outing from July 1975, we hear a somewhat distant E Str
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/03-CRY-TO-ME.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/03-CRY-TO-ME.mp3)
 
-Five months later, before the famous C.W. Post College show that gave us our annual radio visit from "[Santa Claus Is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)," Bruce and the boys took another run through "Cry to Me," in a much clearer recording and more assured and powerful performance.
+Five months later, before the famous C.W. Post College show that gave us our annual radio visit from "[Santa Claus Is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)," Bruce and the boys took another run through "Cry to Me," in a much clearer recording and more assured and powerful performance.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/1975-12-12-Soundcheck-07-CRY-TO-ME-1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/1975-12-12-Soundcheck-07-CRY-TO-ME-1.mp3)
 

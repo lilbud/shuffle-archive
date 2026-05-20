@@ -31,7 +31,7 @@ Maharidge was stunned. "The first thing I asked Bruce was: ‘How did you find t
 
 He may have been one of the book's original 10,000 purchasers, but *Journey to Nowhere* collected dust on Springsteen's bookshelf for a full decade before he finally cracked it open. And then one sleepless night in 1995, Springsteen pulled it off the shelf and started to read.
 
-"I had completed most of the [[*Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)] record," Bruce recalled in the introduction he would end up writing for the book's second edition, "when one night, unable to sleep, I pulled this book down off my living room shelf. I read it in one sitting and lay awake that night disturbed by its power and frightened by its implication."
+"I had completed most of the [[*Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)] record," Bruce recalled in the introduction he would end up writing for the book's second edition, "when one night, unable to sleep, I pulled this book down off my living room shelf. I read it in one sitting and lay awake that night disturbed by its power and frightened by its implication."
 
 [Watch on Youtube: BRUCE SPRINGSTEEN--RAW INTERVIEW FOOTAGE](https://www.youtube.com/watch?v=HN6z96fJq44)
 
@@ -39,9 +39,9 @@ Within a week, Springsteen had written two new songs based on the stories told i
 
 Maharidge wasn't comfortable selling. "You can't copyright inspiration," he told *The Modesto Bee*, "and the book inspired him. I'm flattered that it had that impact on him. That alone was enough of a thrill to me. If he wanted to take the words from the book verbatim and slap them into his songs, I would have said, ‘fine.'"
 
-With the author's permission, Bruce added the two songs to his now-complete album. "[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)" chronicles the dangers faced by the homeless roaming the country by rail, drawing heavily from profiles in the book. It's a quiet, harrowing song–even by the album's sober standards–and it remains the least performed track from the album to this day.
+With the author's permission, Bruce added the two songs to his now-complete album. "[The New Timer](../2018-07-13_roll-of-the-dice-the-new-timer/post.md)" chronicles the dangers faced by the homeless roaming the country by rail, drawing heavily from profiles in the book. It's a quiet, harrowing song–even by the album's sober standards–and it remains the least performed track from the album to this day.
 
-The second song went on to become the album's most popular song besides its title track, and along with "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)," it's one of the album's only two tracks to be performed in both contemplative acoustic and ferocious rock arrangements.
+The second song went on to become the album's most popular song besides its title track, and along with "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)," it's one of the album's only two tracks to be performed in both contemplative acoustic and ferocious rock arrangements.
 
 [Watch on Youtube: Youngstown](https://www.youtube.com/watch?v=p-zs4lohmYc)
 

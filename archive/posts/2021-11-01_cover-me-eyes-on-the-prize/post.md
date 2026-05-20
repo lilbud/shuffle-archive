@@ -37,7 +37,7 @@ The crowd builds as the song culminates in a Dixieland march and a reminder of w
 
 It's a powerful performance, a story told as much by its arrangement and Bruce's vocal performance as by its lyrics. But the song grew more powerful still in concert.
 
-Yesterday, we listened to Marc Anthony Thompson's [terrific cover](https://estreetshuffle.com/index.php/2021/10/31/cover-me-marc-anthony-thompson-johnny-99/) of "[Johnny 99](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" and learned how it led to an invitation to join the Sessions Band.
+Yesterday, we listened to Marc Anthony Thompson's [terrific cover](../2021-10-31_cover-me-marc-anthony-thompson-johnny-99/post.md) of "[Johnny 99](../2018-04-16_roll-of-the-dice-nebraska/post.md)" and learned how it led to an invitation to join the Sessions Band.
 
 "[Marc] said he'd be interested in doing some singing," Bruce told Dave Marsh in a *Backstreets* interview, "and I said 'Well great, come on down!' And he came down, and it was like, bang!, it was just perfect right away."
 
@@ -57,7 +57,7 @@ Other than a Magic Tour cameo, Thompson hasn't performed with Bruce since the en
 
 **Eyes on the Prize**<br>
 **Recorded** January 21, 2006<br>
-**Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) (2006)<br>
+**Released:** [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** November 21, 2006 (Belfast, Northern Ireland)<br>
 

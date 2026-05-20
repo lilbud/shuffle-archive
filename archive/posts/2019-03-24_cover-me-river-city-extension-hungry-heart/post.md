@@ -1,4 +1,4 @@
-I'm not sure that Bruce's "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" lyrics are well-served by this cool arrangement by River City Extension... but then again, I'm not sure that Bruce's own arrangement works particularly well either.
+I'm not sure that Bruce's "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" lyrics are well-served by this cool arrangement by River City Extension... but then again, I'm not sure that Bruce's own arrangement works particularly well either.
 
 "Hungry Heart" has always generated some cognitive dissonance with its pop melody welded to lyrics of familial abandonment.
 

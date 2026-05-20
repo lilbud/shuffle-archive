@@ -88,7 +88,7 @@ On September 12, 2013, it was Bruce's turn. Forty years to the day of Jara's cap
 
 The crowd roared in recognition and appreciation and then listened raptly and respectfully while Bruce, Nils, and Curt kept Jara's legacy alive.
 
-When they finished, Bruce went directly into "[We Are Alive.](https://estreetshuffle.com/index.php/2018/09/15/roll-of-the-dice-we-are-alive/)"
+When they finished, Bruce went directly into "[We Are Alive.](../2018-09-15_roll-of-the-dice-we-are-alive/post.md)"
 
 He couldn't have picked a more perfect segue.
 

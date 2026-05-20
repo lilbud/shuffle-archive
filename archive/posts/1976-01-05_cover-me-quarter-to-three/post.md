@@ -20,7 +20,7 @@ The following year, Bonds (or perhaps his manager, accounts vary) wrote lyrics t
 
 [Watch on Youtube: Gary US Bonds - Quarter to Three 1961 www.thegroovewithcharleshightower.com](https://www.youtube.com/watch?v=C7cAZhW-WGs)
 
-"Quarter to Three" was an instant hit, topping the Billboard Hot 100 for two weeks in the summer of 1961, driven in part by the "[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)" effect of Bonds' indecipherable patter at the beginning of the track.
+"Quarter to Three" was an instant hit, topping the Billboard Hot 100 for two weeks in the summer of 1961, driven in part by the "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)" effect of Bonds' indecipherable patter at the beginning of the track.
 
 (Teenagers at the time were certain that Bonds was shouting something obscene which I will not reprint here. "Absolutely not," said Bonds when questioned about it in a 1994 interview. "I mean, my mother was at the recording session where we did 'Quarter to Three.' Do you think I would say something like that in front of my mother?")
 

@@ -14,7 +14,7 @@ With such an incredible array of talent on stage, whose songs did they choose to
 
 [Watch on Youtube: Bruce Springsteen - HEY TONIGHT 1994 (audio)](https://www.youtube.com/watch?v=2TAIm_y2JnQ)
 
-It's a hard-driving performance with traded vocals (we can clearly hear Bruce at the mic at times), and it was a great way to kick off the encore set. (See [here](https://estreetshuffle.com/index.php/2019/04/11/matr-john-eddie-and-bruce-springsteen-bang-a-gong-get-it-on/) and [here](https://estreetshuffle.com/index.php/2019/03/09/matr-bruce-springsteen-john-eddie-and-friends-suspicious-minds/) for more of it.) Sadly, though, it was a one-off–at least for Bruce, who was still five years away from his next rock tour, and another three before he attempted "Hey Tonight" again at those RCDS benefits.
+It's a hard-driving performance with traded vocals (we can clearly hear Bruce at the mic at times), and it was a great way to kick off the encore set. (See [here](../2019-04-11_matr-john-eddie-and-bruce-springsteen-bang-a-gong-get-it-on/post.md) and [here](../2019-03-09_matr-bruce-springsteen-john-eddie-and-friends-suspicious-minds/post.md) for more of it.) Sadly, though, it was a one-off–at least for Bruce, who was still five years away from his next rock tour, and another three before he attempted "Hey Tonight" again at those RCDS benefits.
 
 If we're lucky, maybe a recording from one of those shows will surface one day.
 

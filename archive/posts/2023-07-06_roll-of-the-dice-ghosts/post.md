@@ -28,7 +28,7 @@ Theiss passed away five years ago this month, a few weeks shy of fifty years sin
 
 "George had been in a rough battle with lung cancer the last years of his life and he only had a few days to live," Bruce recalled from the stage earlier this year. "And I realized that his passing would leave me as the last surviving member of [The Castiles]. It's sort of like you're standing on the railroad tracks, with the white-hot light of an oncoming train bearing down on you. It brings a certain clarity of thought that you haven't previously experienced."
 
-With that newfound clarity of thought, Springsteen went home and wrote "[Last Man Standing](https://estreetshuffle.com/index.php/2022/11/19/roll-of-the-dice-last-man-standing/)." Most of what became *Letter to You* followed shortly thereafter.
+With that newfound clarity of thought, Springsteen went home and wrote "[Last Man Standing](../2022-11-19_roll-of-the-dice-last-man-standing/post.md)." Most of what became *Letter to You* followed shortly thereafter.
 
 Bruce has used that phrase a lot in the years since: *last man standing.* Although he never voices it, I get the sense that in his mind, it's followed by the words: *next to go.*
 
@@ -46,7 +46,7 @@ We don't hear it immediately, though. As "Ghosts" opens, Bruce speaks to his fal
 > *I need you by my side*<br>
 > *Your love and I'm alive*<br>
 
-It's territory Bruce has trod elsewhere–even on the same album, in fact. "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" is essentially a song-length expansion of the first verse of "Ghosts." The notion of ghosts as friendly companions has been part of his private and public musings since at least the passing of Clarence Clemons in 2011.
+It's territory Bruce has trod elsewhere–even on the same album, in fact. "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" is essentially a song-length expansion of the first verse of "Ghosts." The notion of ghosts as friendly companions has been part of his private and public musings since at least the passing of Clarence Clemons in 2011.
 
 "When you're young, you're taught that ghosts are frightening," Bruce explained to his Vancouver audience in 2012. "But as you get older, you realize that ghosts and spirits of your lost friends… have imprinted themselves on your heart. They've become an indelible part of your life. You carry them with you, good spirits everywhere you go."
 
@@ -102,7 +102,7 @@ This is where past becomes present. Bruce is deliberately vague in his reference
 
 Let's talk about the band for a moment.
 
-All the while Bruce relives his Castile days, he's surrounded by a track that's as E Street as it gets–toe to toe with "[Livin' in the Future](https://estreetshuffle.com/index.php/2023/06/24/roll-of-the-dice-livin-in-the-future/)" as the 21st-century Springsteen track with the most 20th-century E Street sound.
+All the while Bruce relives his Castile days, he's surrounded by a track that's as E Street as it gets–toe to toe with "[Livin' in the Future](../2023-06-24_roll-of-the-dice-livin-in-the-future/post.md)" as the 21st-century Springsteen track with the most 20th-century E Street sound.
 
 With its Mighty Max lead-in and late-song crescendo, jangly guitars, buoyant bassline, Little Steven harmony vocals, delicate piano caesura, and the wait-for-it sax solo that ushers in the most joyful wordless coda in the entire Springsteen catalog, "Ghosts" sounds for all the world like it belongs on *The River* rather than *Letter to You*.
 

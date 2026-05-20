@@ -12,7 +12,7 @@ Today's entry is different. "Love Is a Gun" is little more than a musical exerci
 
 I'm not even sure Bruce is singing *love is a gun*, to be honest. It sounds more like *under the gun*, which is actually the name of a different song (also a dead-end, although it at least made it to band rehearsal sessions) Bruce was working on around this time.
 
-It's quite possible that this acoustic demo is simply an early version of what would evolve into "[Under the Gun](https://estreetshuffle.com/index.php/2020/12/17/roll-of-the-dice-under-the-gun/)" with a different musical accompaniment, but we'll likely never know.
+It's quite possible that this acoustic demo is simply an early version of what would evolve into "[Under the Gun](../2020-12-17_roll-of-the-dice-under-the-gun/post.md)" with a different musical accompaniment, but we'll likely never know.
 
 But for students of Bruce's songwriting process, it's still interesting to hear an early draft of a song that never was.
 

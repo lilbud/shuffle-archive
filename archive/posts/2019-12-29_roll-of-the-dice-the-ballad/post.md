@@ -1,6 +1,6 @@
 "The Ballad" has always intrigued me.
 
-Many of the lyrics from this [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) outtake are too distant to confidently make out, and the title offers us no clues or context to the song's content.
+Many of the lyrics from this [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) outtake are too distant to confidently make out, and the title offers us no clues or context to the song's content.
 
 If only the instrumental track wasn't so darn gorgeous, I'd ignore the track altogether–but just give it a listen and marvel at what might have been had Bruce finished the song.
 

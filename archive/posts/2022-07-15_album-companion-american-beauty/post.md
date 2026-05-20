@@ -10,10 +10,10 @@ Bruce released *American Beauty* on April 19, 2014–Record Store Day. A promoti
 
 All four tracks on the EP are outtakes from the *High Hopes* album Bruce released just a few months prior, although some tracks are quite a bit older. Each track stands out from Bruce's main body of work, each for a different reason.
 
-- "[American Beauty](https://estreetshuffle.com/index.php/2019/02/21/roll-of-the-dice-american-beauty/)," the title track, a hard-rocking musical melange that shares DNA with several of Bruce's songs yet sounds like none of them
-- "[Mary Mary,](https://estreetshuffle.com/index.php/2018/04/01/roll-of-the-dice-mary-mary/)" a sweet love song and close melodic cousin to "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)"
-- "[Hurry Up Sundown](https://estreetshuffle.com/index.php/2020/04/26/roll-of-the-dice-hurry-up-sundown/)," which out power-pops everything on *Magic* and *Working on a Dream*
-- "[Hey Blue Eyes](https://estreetshuffle.com/index.php/2019/06/30/roll-of-the-dice-hey-blue-eyes/)," perhaps Bruce's most ferocious social commentary song on record
+- "[American Beauty](../2019-02-21_roll-of-the-dice-american-beauty/post.md)," the title track, a hard-rocking musical melange that shares DNA with several of Bruce's songs yet sounds like none of them
+- "[Mary Mary,](../2018-04-01_roll-of-the-dice-mary-mary/post.md)" a sweet love song and close melodic cousin to "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)"
+- "[Hurry Up Sundown](../2020-04-26_roll-of-the-dice-hurry-up-sundown/post.md)," which out power-pops everything on *Magic* and *Working on a Dream*
+- "[Hey Blue Eyes](../2019-06-30_roll-of-the-dice-hey-blue-eyes/post.md)," perhaps Bruce's most ferocious social commentary song on record
 
 The four songs don't form any kind of cohesive whole, but they're not meant to–they're just four strong outtakes that didn't make their respective albums because Bruce had too much great material to work with.
 

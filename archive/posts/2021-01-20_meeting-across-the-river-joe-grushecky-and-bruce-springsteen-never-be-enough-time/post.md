@@ -1,4 +1,4 @@
-This isn't the first time and won't be the last that I'll say: Joe Grushecky's [*American Babylon* album](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) is a must-own for a serious Springsteen fan. Bruce produced the album, wrote a couple of songs, and plays and/or sings on several.
+This isn't the first time and won't be the last that I'll say: Joe Grushecky's [*American Babylon* album](../2020-10-17_american-babylon-a-retrospective/post.md) is a must-own for a serious Springsteen fan. Bruce produced the album, wrote a couple of songs, and plays and/or sings on several.
 
 "Never Be Enough Time" is one of the strongest tracks on the album. It's also the oldest song on the album, dating back to Joe's Iron City Houserocker days, and their *Cracking Under Pressure* album.
 

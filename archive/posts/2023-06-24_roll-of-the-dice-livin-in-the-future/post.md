@@ -20,13 +20,13 @@ When the tour ended the next day, so did Springsteen's bully pulpit. Still seeth
 
 [Watch on Youtube: Livin' In the Future](https://www.youtube.com/watch?v=I6x06jXRD70)
 
-For such a bitter song, "Livin' in the Future" sure is bouncy. Its backing track is an amalgam of "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)" and Gary U.S. Bond's "[Out of Work](https://estreetshuffle.com/index.php/2021/04/18/rotd-matr-gary-u-s-bonds-bruce-springsteen-and-the-e-street-band-out-of-work/)" (which Springsteen wrote), and it has the strut and swagger of both. That's intentional.
+For such a bitter song, "Livin' in the Future" sure is bouncy. Its backing track is an amalgam of "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" and Gary U.S. Bond's "[Out of Work](../2021-04-18_rotd-matr-gary-u-s-bonds-bruce-springsteen-and-the-e-street-band-out-of-work/post.md)" (which Springsteen wrote), and it has the strut and swagger of both. That's intentional.
 
 "Livin' in the Future" is Springsteen's only 21st-century recording that sounds like it was recorded by the 1970s E Street Band, with both Danny Federici and Clarence Clemons taking generous turns in the spotlight. Even the trademark early E Street glockenspiel is present (although oddly, it's Bruce rather than Danny on those keys), a dead giveaway that this retro sound is deliberate.
 
 Why does Bruce revive his 20th century sound? In order to take us back in time so that we might better recognize how much the world has changed in the years since.
 
-Lyrically, "Livin' in the Future" is a companion song to "[Your Own Worst Enemy.](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)" (The latter is the stronger of the two both lyrically and musically.) Both are patriot songs in the truest sense: they hold allegiance to the American ideal of democracy and liberty for all, and they hold the nation accountable for falling short of it.
+Lyrically, "Livin' in the Future" is a companion song to "[Your Own Worst Enemy.](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" (The latter is the stronger of the two both lyrically and musically.) Both are patriot songs in the truest sense: they hold allegiance to the American ideal of democracy and liberty for all, and they hold the nation accountable for falling short of it.
 
 Both are written in the form of relationship songs, a decision Bruce made for both artistic and pragmatic reasons. "I tried to combine personal and political," he told Levy, "so you can read into the songs either way. You can read the record as a comment on what's been going on, or you can read it just as relationship songs."
 

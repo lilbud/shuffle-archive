@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg.webp)
 
-**1979:** Bruce works on "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" during a recording session at The Power Station in New York City.<br>
+**1979:** Bruce works on "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" during a recording session at The Power Station in New York City.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XwJp0FaZNG4)
 
@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2000-06-12.jpg.webp)
 
-**2003:** Wolfgang Niedecken guest-stars on "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" at Bruce's Rising show in Hamburg.<br>
+**2003:** Wolfgang Niedecken guest-stars on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" at Bruce's Rising show in Hamburg.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bDfAzjmjOdc)
 

@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live in Barcelona](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
-**2006:** Bruce and the Sessions Band play the second of a three-night stand at Dublin's Point Theater, where "Highway Patrolman" makes its tour premiere, and "[Shenandoah](https://estreetshuffle.com/index.php/2022/03/22/cover-me-shenandoah/)" makes its world debut. The show is recorded and filmed, and eight songs will be released on the *Live in Dublin* CD and video release. "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" and "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)" from this show will be released in a special *Bruce Springsteen With The Sessions Band PBS Exclusive* EP for PBS pledge donors.<br>
+**2006:** Bruce and the Sessions Band play the second of a three-night stand at Dublin's Point Theater, where "Highway Patrolman" makes its tour premiere, and "[Shenandoah](../2022-03-22_cover-me-shenandoah/post.md)" makes its world debut. The show is recorded and filmed, and eight songs will be released on the *Live in Dublin* CD and video release. "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" and "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" from this show will be released in a special *Bruce Springsteen With The Sessions Band PBS Exclusive* EP for PBS pledge donors.<br>
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - Eyes on the Prize (Live In Dublin)](https://www.youtube.com/watch?v=qd6J2QF3fJY)
 
@@ -58,7 +58,7 @@
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - American Land (Live In Dublin)](https://www.youtube.com/watch?v=i3yZRNPCBBs)
 
-**2007:** Bruce wraps up the first leg of the Magic Tour with a two-night stand at TD Banknorth Garden in Boston. Night One brings a relatively standard set, but "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" makes a rare appearance.<br>
+**2007:** Bruce wraps up the first leg of the Magic Tour with a two-night stand at TD Banknorth Garden in Boston. Night One brings a relatively standard set, but "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" makes a rare appearance.<br>
 
 [Watch on Youtube: Jackson Cage - Bruce Springsteen; Boston 11-18-07](https://www.youtube.com/watch?v=C7_zJiUewJk)
 
@@ -72,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2007-11-18c.png.webp)
 
-**2009:** The Working on a Dream Tour enters its final week with a show at Sommet Center in Nashville, where Bruce once again performs the entire *Born to Run* album in sequence and plays "[Ring of Fire](https://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)" for the first time in 35 years.<br>
+**2009:** The Working on a Dream Tour enters its final week with a show at Sommet Center in Nashville, where Bruce once again performs the entire *Born to Run* album in sequence and plays "[Ring of Fire](../2019-07-19_cover-me-ring-of-fire/post.md)" for the first time in 35 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Nashville, TN 11/18/09](https://www.youtube.com/watch?v=IUaDmax2CxM)
 
@@ -88,9 +88,9 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2019:** Bruce assembles the E Street Band at his home studio in Colts Neck for the first of a five-day recording session for what will become [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/).<br>
+**2019:** Bruce assembles the E Street Band at his home studio in Colts Neck for the first of a five-day recording session for what will become [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md).<br>
 
-**2020:** Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performing as he has for every other installment of the annual benefit event. Patti joins him this time for performances of "[House of a Thousand Guitars](https://estreetshuffle.com/index.php/2021/04/23/roll-of-the-dice-house-of-a-thousand-guitars/)," and "[I'll See You in My Dreams,](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" and Bruce plays a solo acoustic "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" as well.<br>
+**2020:** Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performing as he has for every other installment of the annual benefit event. Patti joins him this time for performances of "[House of a Thousand Guitars](../2021-04-23_roll-of-the-dice-house-of-a-thousand-guitars/post.md)," and "[I'll See You in My Dreams,](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" and Bruce plays a solo acoustic "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" as well.<br>
 
 [Watch on Youtube: Bruce Springsteen - Stand Up For Heroes 2020 (with Jon Stewart introductions)](https://www.youtube.com/watch?v=NqT9L2aT9XE)
 

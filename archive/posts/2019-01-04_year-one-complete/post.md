@@ -1,4 +1,4 @@
-Today marks the end of Year One for this blog, and whether you've been with me from [the beginning](https://estreetshuffle.com/index.php/2018/01/05/is-there-anybody-alive-out-there/) (which would be like five of you) or you just discovered this site for the first time [today](https://estreetshuffle.com/index.php/2019/01/04/kingdom-of-days-january-4/), I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
+Today marks the end of Year One for this blog, and whether you've been with me from [the beginning](../2018-01-05_is-there-anybody-alive-out-there/post.md) (which would be like five of you) or you just discovered this site for the first time [today](https://estreetshuffle.com/index.php/2019/01/04/kingdom-of-days-january-4/), I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/thank_you_PNG132.png.webp)
 

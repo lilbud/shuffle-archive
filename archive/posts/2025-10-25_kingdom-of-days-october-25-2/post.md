@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/48716655231_77b34c6fe1_o.jpg.webp)
 
-**1976:** Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he plays his very first headlining show at the Philadelphia Spectrum. During the encores, the band debuts their cover of Darlene Love's "[A Fine Fine Boy](https://estreetshuffle.com/index.php/2019/01/28/cover-me-a-fine-fine-boy/)." Amazingly, some great footage exists from this show.<br>
+**1976:** Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he plays his very first headlining show at the Philadelphia Spectrum. During the encores, the band debuts their cover of Darlene Love's "[A Fine Fine Boy](../2019-01-28_cover-me-a-fine-fine-boy/post.md)." Amazingly, some great footage exists from this show.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live at Philadelphia 1976 (25/10/1976)](https://www.youtube.com/watch?v=IBmULwOxOD4)
 
@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1976-10-25.png.webp)
 
-**1980:** The River Tour heads south down the west coast, stopping for a night at Portland's Memorial Coliseum, where Bruce and the band play "[On Top of Old Smoky](https://estreetshuffle.com/index.php/2019/08/24/cover-me-on-top-of-old-smoky/)" for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).<br>
+**1980:** The River Tour heads south down the west coast, stopping for a night at Portland's Memorial Coliseum, where Bruce and the band play "[On Top of Old Smoky](../2019-08-24_cover-me-on-top-of-old-smoky/post.md)" for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/tfj2O84c)
 
@@ -50,13 +50,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47083179991_ddd2099192_o.jpg.webp)
 
-**1993:** At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two tracks for what will eventually become *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*, joining Joe on both of them: "[Chain Smokin'](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" and "[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)."<br>
+**1993:** At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two tracks for what will eventually become *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*, joining Joe on both of them: "[Chain Smokin'](../2021-05-25_matr-joe-grushecky-and-bruce-springsteen-chain-smokin/post.md)" and "[Never Be Enough Time](../2018-04-03_meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/post.md)."<br>
 
 [Watch on Youtube: Chain Smoking' (Demo)](https://www.youtube.com/watch?v=TTjzF7dHCHI)
 
 [Watch on Youtube: Never Be Enough Time (Demo)](https://www.youtube.com/watch?v=HXEb4Dmbfoo)
 
-**1996:** Danny Federici makes a guest appearance at Bruce's solo acoustic show in Santa Barbara, joining Bruce for "This Hard Land" and "[There Will Never Be Any Other for Me But You.](https://estreetshuffle.com/index.php/2019/08/23/roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/)"<br>
+**1996:** Danny Federici makes a guest appearance at Bruce's solo acoustic show in Santa Barbara, joining Bruce for "This Hard Land" and "[There Will Never Be Any Other for Me But You.](../2019-08-23_roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen and Danny Federici - Santa Barbara - 1996-10-25](https://www.youtube.com/watch?v=YG6dpWqDjLg)
 
@@ -74,7 +74,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-25d.png.webp)
 
-**2006:** At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour debuts "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)," performed as a duet with Frank Bruno.<br>
+**2006:** At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour debuts "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)," performed as a duet with Frank Bruno.<br>
 
 [Watch on Youtube: The Ghost of Tom Joad - Bruce Springsteen and The Sessions band](https://www.youtube.com/watch?v=AS2ODXkCzfw)
 
@@ -88,11 +88,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2007-10-25.png.webp)
 
-**2009:** Bruce performs the entire *Born to Run* album, tour premieres "[Roll Over Beethoven](https://estreetshuffle.com/index.php/2019/08/08/cover-me-roll-over-beethoven/)," and plays a rare "[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)" when the Working on a Dream Tour stops in St. Louis for a night.<br>
+**2009:** Bruce performs the entire *Born to Run* album, tour premieres "[Roll Over Beethoven](../2019-08-08_cover-me-roll-over-beethoven/post.md)," and plays a rare "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" when the Working on a Dream Tour stops in St. Louis for a night.<br>
 
 [Watch on Youtube: Roll over Beethoven (cover)](https://www.youtube.com/watch?v=ItC8FsFxaro)
 
-**2012:** Bruce's Wrecking Ball show in Hartford rockets out of the gate with the tour premiere (and fifth performance ever) of "[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)." The fantastic set also includes the tour premiere of "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)" and rare outings for "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" and "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)."<br>
+**2012:** Bruce's Wrecking Ball show in Hartford rockets out of the gate with the tour premiere (and fifth performance ever) of "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)." The fantastic set also includes the tour premiere of "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" and rare outings for "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" and "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen "Held Up Without A Gun/Radio Nowhere" 10-25-12 XL Center Hartford CT](https://www.youtube.com/watch?v=k9sgCmzYeWo)
 

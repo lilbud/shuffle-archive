@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/1973-0802.jpg.webp)
 
-**1975:** Bruce and the boys play a show at Chrysler Hall in Norfolk. Listen to a gorgeous cover of “[Up on the Roof](https://estreetshuffle.com/index.php/2018/12/15/cover-me-up-on-the-roof/)” from this show, only ever played during this two-week stretch of the Born to Run Tour.<br>
+**1975:** Bruce and the boys play a show at Chrysler Hall in Norfolk. Listen to a gorgeous cover of “[Up on the Roof](../2018-12-15_cover-me-up-on-the-roof/post.md)” from this show, only ever played during this two-week stretch of the Born to Run Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/eknLq04x)
 
@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1978-08-02b.png.webp)
 
-**1983:** Bruce joins Jackson Browne on stage at Jackson’s Madison Square Garden gig, where they play “[Stay,](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)” “[Running on Empty,](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)” and “[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)” together. Jackson dedicates “For a Rocker” and “Lawyers in Love” to Bruce as well. (Photo credit: Dari)<br>
+**1983:** Bruce joins Jackson Browne on stage at Jackson’s Madison Square Garden gig, where they play “[Stay,](../2018-07-22_meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/post.md)” “[Running on Empty,](../2021-03-24_matr-jackson-browne-and-bruce-springsteen-running-on-empty/post.md)” and “[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)” together. Jackson dedicates “For a Rocker” and “Lawyers in Love” to Bruce as well. (Photo credit: Dari)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yuChnbxK)
 
@@ -34,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1983-0802.jpg.webp)
 
-**1987:** Bruce and the E Street Band (minus Nils) play a rare bar set at The Stone Pony with members of Cats on a Smooth Surface. Bruce and the band open with only the second-ever performance of “[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/).”<br>
+**1987:** Bruce and the E Street Band (minus Nils) play a rare bar set at The Stone Pony with members of Cats on a Smooth Surface. Bruce and the band open with only the second-ever performance of “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md).”<br>
 
 [Watch on Youtube: Stone Pony (8/2/1987)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1BmZaAMHtsFXD8V2iKu4ZNp)
 
@@ -50,17 +50,17 @@
 
 [Watch on Youtube: Bruce Springsteen - Downbound Train - Madrid 8/2/1988](https://www.youtube.com/watch?v=Q94J4oGGTEU)
 
-**1989:** Bruce joins Bobby Bandiera on stage at Cheers in Long Branch, New Jersey, for “[Willie and the Hand Jive](https://estreetshuffle.com/index.php/2021/02/22/matr-bruce-springsteen-and-bobby-bandiera-willie-and-the-hand-jive/).”<br>
+**1989:** Bruce joins Bobby Bandiera on stage at Cheers in Long Branch, New Jersey, for “[Willie and the Hand Jive](../2021-02-22_matr-bruce-springsteen-and-bobby-bandiera-willie-and-the-hand-jive/post.md).”<br>
 
 [Watch on Youtube: Willy and the hand jive (Johnny Otis cover )](https://www.youtube.com/watch?v=V0bdSzmU4jI)
 
-**1992:** Night Seven of eleven at the Brendan Byrne Arena in East Rutherford sees the live debut of the very rarely performed “[Book of Dreams](https://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/).”<br>
+**1992:** Night Seven of eleven at the Brendan Byrne Arena in East Rutherford sees the live debut of the very rarely performed “[Book of Dreams](../2019-06-04_roll-of-the-dice-book-of-dreams/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - BOOK OF DREAMS 1992 live](https://www.youtube.com/watch?v=pOZX8CqaEp4)
 
 [Watch on Youtube: Bruce Springsteen - Glory Days - 8/2/92 Meadowlands, NJ](https://www.youtube.com/watch?v=vdK1JoYDc9w)
 
-**1999:** At Night Nine of fifteen on the opening U.S. stand of the Reunion Tour, fans at the Meadowlands are treated to the return of “[Something in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” last played more than two decades prior, and the U.S. premiere of “[Take ‘Em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/),” which opens the show. During “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” Bruce tells his “River of Life” story for the first time.<br>
+**1999:** At Night Nine of fifteen on the opening U.S. stand of the Reunion Tour, fans at the Meadowlands are treated to the return of “[Something in the Night,](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” last played more than two decades prior, and the U.S. premiere of “[Take ‘Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md),” which opens the show. During “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” Bruce tells his “River of Life” story for the first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Wv8iQ1BU)
 
@@ -68,7 +68,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-08-02.png.webp)
 
-**2002:** Bruce and the E Street Band play a third rehearsal show at Asbury Park’s Convention Hall, featuring the first “[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” in over twenty years. That night, *The Late Show With David Letterman* airs an interview with Bruce and a full-band performance of “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” (recorded the day prior).<br>
+**2002:** Bruce and the E Street Band play a third rehearsal show at Asbury Park’s Convention Hall, featuring the first “[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)” in over twenty years. That night, *The Late Show With David Letterman* airs an interview with Bruce and a full-band performance of “[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)” (recorded the day prior).<br>
 
 [Watch on Youtube: Bruce Springsteen Video clip from 2002](https://www.youtube.com/watch?v=GPdPi8srX1Q)
 
@@ -82,9 +82,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/d6XZXBmU)
 
-**2007:** Three days ago, Bruce’s dear friend and personal assistant Terry Magovern passed away. In his grief, Bruce writes a new song–“[Terry’s Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)“–and performs it this day at Terry’s memorial service in Red Bank.<br>
+**2007:** Three days ago, Bruce’s dear friend and personal assistant Terry Magovern passed away. In his grief, Bruce writes a new song–“[Terry’s Song](../2018-07-30_roll-of-the-dice-terrys-song/post.md)“–and performs it this day at Terry’s memorial service in Red Bank.<br>
 
-**2008:** On a rainy night in Foxboro, Boston fans at Gillette Stadium enjoy two Magic Tour premieres: “[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)” and “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/),” last played in 1995.<br>
+**2008:** On a rainy night in Foxboro, Boston fans at Gillette Stadium enjoy two Magic Tour premieres: “[Who’ll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)” and “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/),” last played in 1995.<br>
 
 [Watch on Youtube: Bruce Springsteen- Latin Lupe Lu](https://www.youtube.com/watch?v=DU2LzvOjhjc)
 
@@ -94,7 +94,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-02.png.webp)
 
-**2009:** The European leg of the Working on a Dream Tour comes to an end with this last show in Santiago de Compostela, Spain. Highlights include back-to-back tour premieres of “[Burning Love](https://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)” and “[Born to Be Wild](https://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)” and an ultra-rare “This Life.”<br>
+**2009:** The European leg of the Working on a Dream Tour comes to an end with this last show in Santiago de Compostela, Spain. Highlights include back-to-back tour premieres of “[Burning Love](../2018-05-01_cover-me-burning-love/post.md)” and “[Born to Be Wild](../2020-05-20_cover-me-born-to-be-wild/post.md)” and an ultra-rare “This Life.”<br>
 
 [Watch on Youtube: Bruce Springsteen - This Life - Santiago de Compostela 2009](https://www.youtube.com/watch?v=uTfSLImSU8w)
 

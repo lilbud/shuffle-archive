@@ -1,6 +1,6 @@
-It's time for another installment of *Cover Me Round-Up: [I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)—*a song so nice, they covered it seventy bazillion times. At this rate, we'll never catch up, so let's jump right in.
+It's time for another installment of *Cover Me Round-Up: [I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)—*a song so nice, they covered it seventy bazillion times. At this rate, we'll never catch up, so let's jump right in.
 
-First up is a familiar face. We met Carson McKee a couple of months ago when we listened to his lovely [cover of "Nebraska"](https://estreetshuffle.com/index.php/2021/09/23/cover-me-carson-mckee-and-skylar-mckee-nebraska/) with his brother Skylar. Carson has another musical partner, though–he also performs with Joshua Lee Turner as indie folk duo The Other Favorites.
+First up is a familiar face. We met Carson McKee a couple of months ago when we listened to his lovely [cover of "Nebraska"](../2021-09-23_cover-me-carson-mckee-and-skylar-mckee-nebraska/post.md) with his brother Skylar. Carson has another musical partner, though–he also performs with Joshua Lee Turner as indie folk duo The Other Favorites.
 
 Carson and Josh have over 600,000 subscribers on YouTube and their videos have amassed more than 150 million views. Relatively speaking, their terrific video performance of "I'm on Fire" has gone under the radar at "only" 73,000 views. Not too shabby, guys.
 

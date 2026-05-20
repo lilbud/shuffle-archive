@@ -4,7 +4,7 @@ But I don't believe that.
 
 An attentive listen reveals that the two songs are linked by far more than their title–they also have the same narrator and serve as prequel/sequel.
 
-The later song is the better known of the two: "[Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)" was recorded in 1995 and explores the plight of returning Vietnam vets; we'll delve into it someday when the dice direct me to write about it. Bruce performed it regularly during his Ghost of Tom Joad solo acoustic tour.
+The later song is the better known of the two: "[Brothers Under the Bridge](../2022-01-10_roll-of-the-dice-brothers-under-the-bridge-95/post.md)" was recorded in 1995 and explores the plight of returning Vietnam vets; we'll delve into it someday when the dice direct me to write about it. Bruce performed it regularly during his Ghost of Tom Joad solo acoustic tour.
 
 The earlier song is considerably more obscure. Although both were released on Bruce's 1998 *Tracks* compilation years after they were originally recorded, "Brothers Under the Bridges" (note the plural), unlike its younger sibling, has never been performed live.
 
@@ -14,7 +14,7 @@ Let's take a listen:
 
 [Watch on Youtube: Brothers Under The Bridges ('83) (Studio Outtake - 1983)](https://www.youtube.com/watch?v=dthkGZiL1gA)
 
-You probably heard echoes of "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" in the "li li li" chorus, and the lyrics have the same wistful yearning of youth for independence. That's probably not an accident. "Brothers Under the Bridges" was recorded between mid-September and early October of 1983; "No Surrender" was recorded just before Halloween.
+You probably heard echoes of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" in the "li li li" chorus, and the lyrics have the same wistful yearning of youth for independence. That's probably not an accident. "Brothers Under the Bridges" was recorded between mid-September and early October of 1983; "No Surrender" was recorded just before Halloween.
 
 Some have speculated that "Brothers Under the Bridges" should be considered an early prototype of "No Surrender," but I don't subscribe to that theory. Bruce has often worked on similar songs in parallel–sometimes instead of choosing between two paths for a song, he chooses both. I think this is one of those instances. Still, it wouldn't have made sense to put both songs on the album, and it's hard to argue that Bruce didn't make the right choice.
 
@@ -72,7 +72,7 @@ This older (wiser?) narrator is still by the highway, but it's no longer the car
 
 The last line of the song implies that our hero has finally joined the brotherhood–and he's beginning to suspect that the secrets they share are not as romantic as his younger self imagined. In a dozen years, Bruce would revisit our young hero and his brotherhood and show us just how prescient that last verse was.
 
-**To be continued in Roll of the Dice: [Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)**<br>
+**To be continued in Roll of the Dice: [Brothers Under the Bridge](../2022-01-10_roll-of-the-dice-brothers-under-the-bridge-95/post.md)**<br>
 
 **Brothers Under the Bridges**<br>
 **Recorded** September 14 – October 10, 1983<br>

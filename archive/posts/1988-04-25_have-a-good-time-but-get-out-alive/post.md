@@ -54,7 +54,7 @@ One of the songs Bruce and Joe played that night was “Pumping Iron,” the mos
 
 [Watch Video Highlight](https://videopress.com/embed/gYVg7t5Y)
 
-“Pumping Iron” has become Joe’s anthem, and over the years, he and Bruce have played it together 25 times. To put that in perspective, until Bruce started playing *The River* in full in 2016, that’s about the same number of times he played “[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)” along with about an album-side worth of tracks from Bruce’s own 1980 LP.
+“Pumping Iron” has become Joe’s anthem, and over the years, he and Bruce have played it together 25 times. To put that in perspective, until Bruce started playing *The River* in full in 2016, that’s about the same number of times he played “[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)” along with about an album-side worth of tracks from Bruce’s own 1980 LP.
 
 “Pumping Iron” was even one of the last songs Bruce performed live before the great pandemic of 2020 took him, Joe, and every other musician off the stage for the time being.
 

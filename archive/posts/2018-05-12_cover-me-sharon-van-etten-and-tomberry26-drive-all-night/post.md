@@ -1,4 +1,4 @@
-When I started this blog, the very first cover I wanted to share was Sharon Van Etten's version of "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)." It's gorgeous–and Sharon's vocals are so passionate that I dare say they rival the original. Without a doubt, it's one of my all-time favorite covers of a Springsteen song.
+When I started this blog, the very first cover I wanted to share was Sharon Van Etten's version of "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)." It's gorgeous–and Sharon's vocals are so passionate that I dare say they rival the original. Without a doubt, it's one of my all-time favorite covers of a Springsteen song.
 
 But unfortunately, all of the videos of her performance of it had been removed–except for one. It's a beautiful live performance (at The Stone Pony, no less), but the audio inexplicably cut out toward the end of the song. So I didn't share it, but every few weeks I'd check to see if another, corrected video had surfaced. To date, no such luck.
 

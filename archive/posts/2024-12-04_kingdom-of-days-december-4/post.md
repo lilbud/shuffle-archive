@@ -8,13 +8,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-12-04.png.webp)
 
-**1980:** At their River Tour stop at the Buffalo Memorial Auditorium, Bruce and the E Street Band tour premiere "[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)" and officially usher in the holiday season with their first "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" of the tour. Check out rare video footage of a couple of songs.<br>
+**1980:** At their River Tour stop at the Buffalo Memorial Auditorium, Bruce and the E Street Band tour premiere "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)" and officially usher in the holiday season with their first "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" of the tour. Check out rare video footage of a couple of songs.<br>
 
 [Watch on Youtube: Bruce Springsteen - Buffalo 1980 Muchmusic footage](https://www.youtube.com/watch?v=PGnzoL3by14)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/40492702103_734e8a51f0_o.jpg.webp)
 
-**1990:** Bruce records "[My Lover Man](https://estreetshuffle.com/index.php/2018/10/24/roll-of-the-dice-my-lover-man/)" at Soundworks West in Los Angeles.<br>
+**1990:** Bruce records "[My Lover Man](../2018-10-24_roll-of-the-dice-my-lover-man/post.md)" at Soundworks West in Los Angeles.<br>
 
 [Watch on Youtube: My Lover Man (Studio Outtake - 1990)](https://www.youtube.com/watch?v=n-jzr3jSDX0)
 
@@ -22,11 +22,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1999-12-04.png.webp)
 
-**2001:** Bruce, The Max Weinberg 7 and a host of friends play their second of five holiday shows at Asbury Park's Convention Hall in support of local charities. All of last night's guests are present, plus The Miami Horns, who kick things off with "Deck the Halls," followed by "[Wild Billy's Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)" played by just Bruce and Garry (on tuba).<br>
+**2001:** Bruce, The Max Weinberg 7 and a host of friends play their second of five holiday shows at Asbury Park's Convention Hall in support of local charities. All of last night's guests are present, plus The Miami Horns, who kick things off with "Deck the Halls," followed by "[Wild Billy's Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md)" played by just Bruce and Garry (on tuba).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/K55rhq4Y)
 
-**2002:** The Rising Tour stops at Mellon Arena in Pittsburgh, where Joe Grushecky joins Bruce for the tour premiere of "[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)" and stays through "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)" and "Born to Run." Bruce also tour premieres "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)" and the show-closing "Santa Claus is Comin' to Town."<br>
+**2002:** The Rising Tour stops at Mellon Arena in Pittsburgh, where Joe Grushecky joins Bruce for the tour premiere of "[Code of Silence](../2018-08-27_codeofsilence/post.md)" and stays through "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" and "Born to Run." Bruce also tour premieres "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" and the show-closing "Santa Claus is Comin' to Town."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fMgCtazQ)
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Springsteen, Oslo Spectrum 04 December 2007. Santa claus](https://www.youtube.com/watch?v=T6s2T96l35A)
 
-**2012:** Bruce kicks off his last week of the American Wrecking Ball Tour with a show at the Honda Center in Anaheim. Tom Morello joins the band for seven songs, including the show opener and closer, and Mike Ness makes a guest appearance as well for the tour premiere of "[Bad Luck](https://estreetshuffle.com/index.php/2020/06/25/matr-bruce-springsteen-and-mike-ness-bad-luck/)." "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" also makes its tour debut at this show.<br>
+**2012:** Bruce kicks off his last week of the American Wrecking Ball Tour with a show at the Honda Center in Anaheim. Tom Morello joins the band for seven songs, including the show opener and closer, and Mike Ness makes a guest appearance as well for the tour premiere of "[Bad Luck](../2020-06-25_matr-bruce-springsteen-and-mike-ness-bad-luck/post.md)." "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" also makes its tour debut at this show.<br>
 
 [Watch on Youtube: Bruce Springsteen " Land of Hope and Dreams" Anaheim 12-4-12](https://www.youtube.com/watch?v=JKvcjZepxjg)
 

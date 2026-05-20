@@ -32,7 +32,7 @@ That evening, Bruce and the E Street Band perform “The Promise” during their
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1989-07-15.jpg.webp)
 
-**1999:** Bruce and the E Street Band kick off the U.S. leg of the Reunion Tour with the first of fifteen(!) shows at the Continental Airlines Arena in East Rutherford. The anticipation and build-up to this show is intense, and VH1 broadcasts the first couple of songs. Kicking off the encores, Bruce plays “[Freehold](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/)” for only the second time in the U.S. This show is available to stream or purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,35515/Bruce-Springsteen-mp3-flac-download-7-15-1999-Continental-Airlines-Arena-East-Rutherford-NJ.html).<br>
+**1999:** Bruce and the E Street Band kick off the U.S. leg of the Reunion Tour with the first of fifteen(!) shows at the Continental Airlines Arena in East Rutherford. The anticipation and build-up to this show is intense, and VH1 broadcasts the first couple of songs. Kicking off the encores, Bruce plays “[Freehold](../2018-12-03_roll-of-the-dice-freehold/post.md)” for only the second time in the U.S. This show is available to stream or purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,35515/Bruce-Springsteen-mp3-flac-download-7-15-1999-Continental-Airlines-Arena-East-Rutherford-NJ.html).<br>
 
 [Watch on Youtube: My Love Will Not Let You Down / Promised Land - Bruce Springsteen - Meadowlands - 1999](https://www.youtube.com/watch?v=MtoJDzSPpyE)
 
@@ -56,7 +56,7 @@ That evening, Bruce and the E Street Band perform “The Promise” during their
 
 [Watch on Youtube: Bruce Springsteen - Giants Stadium - July 15th 2003 (Pro-Shot)](https://www.youtube.com/watch?v=9HICkNqhkJ0)
 
-**2008:** The final European leg of the Magic Tour enters the home stretch with a final run of shows in Spain, starting with a night in San Sebastian. Bruce opens with “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/),” and the set list features a rare “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” as well.<br>
+**2008:** The final European leg of the Magic Tour enters the home stretch with a final run of shows in Spain, starting with a night in San Sebastian. Bruce opens with “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/),” and the set list features a rare “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)” as well.<br>
 
 [Watch on Youtube: THE BOSS IN DONOSTI](https://www.youtube.com/watch?v=h6Rfl6Esl1g)
 

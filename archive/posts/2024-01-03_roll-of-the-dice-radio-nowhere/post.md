@@ -4,7 +4,7 @@ It's the essential, existential question at the heart of rock and roll.*****
 
 If rock is about anything, it's about *connection.*
 
-Even the term "rock and roll" began as a colloquialism for religious rapture and a euphemism for sex and dancing (before fusing in the milestone "[Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)"), and what do all three of those have in common if not connection?
+Even the term "rock and roll" began as a colloquialism for religious rapture and a euphemism for sex and dancing (before fusing in the milestone "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)"), and what do all three of those have in common if not connection?
 
 So it's not much of a stretch to label Bruce Springsteen's Grammy-winning 2007 single "Radio Nowhere" a mission statement for rock stars current and aspiring.
 
@@ -76,9 +76,9 @@ In a contemporaneous interview, Bruce described "Radio Nowhere" as apocalyptic, 
 > *Bopping through the wild blue*<br>
 > *Trying to make a connection with you*<br>
 
-Our narrator searches high and low for connection: to music (the mystery train refers to the [iconic rock song](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)) and to people.
+Our narrator searches high and low for connection: to music (the mystery train refers to the [iconic rock song](../2019-05-21_cover-me-mystery-train/post.md)) and to people.
 
-I've read suggestions that "misty rain" is a "[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)" callback, and that "dancing down a dark hole" refers to another *Born in the U.S.A.* track, but I think that's reading too much into Bruce's penchant for recycling metaphors. It's a neat idea to think that this might be Bruce's way of referring to his career journey (of which *Born in the U.S.A.* was his commercial apex), but if that was his intent, I doubt he'd select one of the few songs from that album that wasn't even released as a single.)
+I've read suggestions that "misty rain" is a "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" callback, and that "dancing down a dark hole" refers to another *Born in the U.S.A.* track, but I think that's reading too much into Bruce's penchant for recycling metaphors. It's a neat idea to think that this might be Bruce's way of referring to his career journey (of which *Born in the U.S.A.* was his commercial apex), but if that was his intent, I doubt he'd select one of the few songs from that album that wasn't even released as a single.)
 
 And since we're discussing similarities to other songs, I supposed this is as good a place as any to address the musical controversy that unfortunately overshadowed a deservedly deeper discussion of "Radio Nowhere" when it first debuted.
 
@@ -94,7 +94,7 @@ But acknowledging the influence of the hit 1981 single on Bruce's 2007 anthem sh
 
 It was an odd controversy at the time (fueled, no doubt, by some tongue-in-cheek comments offered by songwriter Tommy Heath when interviewed about it), and I'm glad it was much shorter-lived than the maddening "waves/sways" debate. (*Thank you*, Jon Landau, for putting that to rest before the dice forced me to waste words on it someday.)
 
-So let's look past the separated-at-birth riffs and appreciate the E Street Band's performance on"Radio Nowhere" for what it is: a powerful, hard-driving, galvanizing instrumental clarion call as powerful as any in the rock canon. There's a reason why "Radio Nowhere" tends to only appear as an opener, encore, or lead-in to a main set finale. Like "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)" (with which "Radio Nowhere" shares common traits), it reliably rallies the audience to the peak of emotion, energy, and zeal required for the moment… even at 8:45 in the morning.
+So let's look past the separated-at-birth riffs and appreciate the E Street Band's performance on"Radio Nowhere" for what it is: a powerful, hard-driving, galvanizing instrumental clarion call as powerful as any in the rock canon. There's a reason why "Radio Nowhere" tends to only appear as an opener, encore, or lead-in to a main set finale. Like "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" (with which "Radio Nowhere" shares common traits), it reliably rallies the audience to the peak of emotion, energy, and zeal required for the moment… even at 8:45 in the morning.
 
 [Watch on Youtube: Bruce Springsteen - Radio Nowhere (Live) [HQ TV version]](https://www.youtube.com/watch?v=h8Xb8Cq9NrI)
 
@@ -108,7 +108,7 @@ It should also be mentioned that when Jay Weinberg filled in for his dad on drum
 
 When it came to airplay, however, Bruce's song went… well, radio nowhere. It was released as the lead single in advance of *Magic*, but it didn't even crack the Billboard Hot 100. (It did, however, chart in other countries.) "Radio Nowhere" fared better at the Grammy Awards, where it earned Bruce an award for Best Solo Rock Vocal Performance.
 
-The failure of "Radio Nowhere" to chart signaled that Bruce's days of commercial success were behind him. After "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)" the following year and "[Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)" in 2009 both peaked at #95, the pop music chart said goodbye to Bruce Springsteen and never looked back, rendering "Radio Nowhere" fittingly prescient.
+The failure of "Radio Nowhere" to chart signaled that Bruce's days of commercial success were behind him. After "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)" the following year and "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)" in 2009 both peaked at #95, the pop music chart said goodbye to Bruce Springsteen and never looked back, rendering "Radio Nowhere" fittingly prescient.
 
 Is there anybody alive out there?
 

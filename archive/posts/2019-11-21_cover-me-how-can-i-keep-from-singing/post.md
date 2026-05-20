@@ -14,7 +14,7 @@ Bruce's version keeps the first half of that verse but otherwise keeps his cover
 
 [Watch on Youtube: How Can I Keep from Singing](https://www.youtube.com/watch?v=3qQ6rvBaQJ8)
 
-In the recording above, Bruce is just another member of the choir, his voice at equal power with the rest of the singers. Perhaps that's why he held the song back from the original release of *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*, releasing it only months later on the American Land Edition (although the song was also hidden away on the DVD that accompanied the original album release).
+In the recording above, Bruce is just another member of the choir, his voice at equal power with the rest of the singers. Perhaps that's why he held the song back from the original release of *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)*, releasing it only months later on the American Land Edition (although the song was also hidden away on the DVD that accompanied the original album release).
 
 When Bruce added "How Can I Keep From Singing" to the set list during his U.K. visit in 2006, however, there was definitely a lead voice in the mix–and it wasn't Bruce's.
 

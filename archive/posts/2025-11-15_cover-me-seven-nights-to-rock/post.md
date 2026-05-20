@@ -2,7 +2,7 @@ Aubrey "Moon" Mullican was never the crossover star he should have been.
 
 Born in 1909, Mullican was too old to ride the rock and roll wave when it crested, even though he helped create it.
 
-Known as the "King of the Hillbilly Piano Players" (which is much more of a compliment than it might sound), Mullican nevertheless scored a series of Top Ten country hits, starting with "[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)" in 1947 when he was already thirty-eight.
+Known as the "King of the Hillbilly Piano Players" (which is much more of a compliment than it might sound), Mullican nevertheless scored a series of Top Ten country hits, starting with "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" in 1947 when he was already thirty-eight.
 
 [Watch on Youtube: 1947 version: Moon Mullican - Jole Blon (New Pretty Blonde) (#2 C&W hit)](https://www.youtube.com/watch?v=N9c5Fz5PMLQ)
 

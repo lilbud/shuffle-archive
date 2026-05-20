@@ -2,7 +2,7 @@
 
 Sometimes, though, he simply offered his father a voice of release.
 
-If [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) infused his father's frustration into a collection of working-class characters trapped in dead-end lives, *The River* at least provided a few moments of cathartic celebration, with characters determined to make the most of their fleeting evening and weekend hours.
+If [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) infused his father's frustration into a collection of working-class characters trapped in dead-end lives, *The River* at least provided a few moments of cathartic celebration, with characters determined to make the most of their fleeting evening and weekend hours.
 
 Because when you can't stand the weekdays, you live for the weekends. And nowhere in Bruce's catalog is that Friday night jubilation more present than in "Out in the Street."
 
@@ -32,7 +32,7 @@ Bruce gives his characters only the barest of backstories: he's a dockworker (an
 > *And Monday when the foreman calls time*<br>
 > *I've already got Friday on my mind*<br>
 
-That hat-tip was deliberate. "When I wrote ["Out in the Street"]," Bruce told interviewer Molly Meldum in 1995, "I was trying to copy one of my all time favorite songs, [‘Friday On My Mind](https://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)‘ by the Easybeats. I have always loved that song. The structure on that is just incredible, and it had that unbelievable exhilaration when they broke into the chorus. You know, its Friday and you are out of school or out of work and you're just *out there*!"
+That hat-tip was deliberate. "When I wrote ["Out in the Street"]," Bruce told interviewer Molly Meldum in 1995, "I was trying to copy one of my all time favorite songs, [‘Friday On My Mind](../2019-06-07_cover-me-friday-on-my-mind/post.md)‘ by the Easybeats. I have always loved that song. The structure on that is just incredible, and it had that unbelievable exhilaration when they broke into the chorus. You know, its Friday and you are out of school or out of work and you're just *out there*!"
 
 But the blank canvas characterization is deliberate, too. If his characters don't sound like anybody, then they can be *everybody*. And that's the magic trick at work in "Out in the Street": by the time we reach the build toward the first chorus, *we* are the narrator, and we feel that explosion of freedom and joy as if it's our own. We are *out there!*
 
@@ -42,7 +42,7 @@ But the blank canvas characterization is deliberate, too. If his characters don'
 > *When I'm out in the street, oh oh oh oh oh, I talk the way I wanna talk*<br>
 > *When I'm out in the street, when I'm out in the street*<br>
 
-It helps that "Out in the Street" is a track in which both music and lyrics operate in concert, even synergy. Unlike "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" (which immediately precedes it), there's no mistaking what this song is about.
+It helps that "Out in the Street" is a track in which both music and lyrics operate in concert, even synergy. Unlike "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" (which immediately precedes it), there's no mistaking what this song is about.
 
 The song is so infectious, in fact, that it's easy to miss the specter of authority that hovers over the second half of the song in the form of patrolling police officers, as if to remind us that for the characters Bruce writes about, this kind of freedom is fleeting if not wholly illusory.
 

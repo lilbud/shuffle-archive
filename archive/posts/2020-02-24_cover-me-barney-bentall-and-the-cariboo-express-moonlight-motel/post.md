@@ -8,7 +8,7 @@ More than thirty years later, Bentall is still recording and performing across C
 
 At one of the revue's recent shows in St. Albert, Bentall chose to cover a brand new Springsteen song, and his choice revealed a deep appreciation and respect for Bruce's music.
 
-Their cover of "[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)" is perfect–delicate, intimate, and nuanced like the original, making full use of the band's violinist and pedal steel guitarist.
+Their cover of "[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" is perfect–delicate, intimate, and nuanced like the original, making full use of the band's violinist and pedal steel guitarist.
 
 No wonder the audience is rapt from the start. Take a listen:
 

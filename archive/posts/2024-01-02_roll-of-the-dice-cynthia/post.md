@@ -2,7 +2,7 @@ Bruce Springsteen *really* likes Roy Orbison, and that esteem goes waaay back. L
 
 [Watch on Youtube: Bruce Springsteen talks about Roy Orbison 1981](https://www.youtube.com/watch?v=gVYCtCZ6c5o)
 
-You can hear Orbison's influence scattered throughout Bruce's catalog, from the name check in "Thunder Road" to the vocal stylings of "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)" to the inspiration for "[Leah](https://estreetshuffle.com/index.php/2019/12/12/roll-of-the-dice-leah/)."
+You can hear Orbison's influence scattered throughout Bruce's catalog, from the name check in "Thunder Road" to the vocal stylings of "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md)" to the inspiration for "[Leah](../2019-12-12_roll-of-the-dice-leah/post.md)."
 
 And then, of course, there's "Cynthia."
 
@@ -12,7 +12,7 @@ Many fans and commentators have picked up on Bruce's Orbisonian "Cynthia" vocals
 
 [Watch on Youtube: Bruce Springsteen - Cynthia (Live 2005-07-31) audio](https://www.youtube.com/watch?v=bbD4ey7XRCc)
 
-But I'm surprised that no one ever seems to notice that "Cynthia" is essentially a re-write of Orbison's "[Oh, Pretty Woman](https://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/)" — or at the very least an answer song.
+But I'm surprised that no one ever seems to notice that "Cynthia" is essentially a re-write of Orbison's "[Oh, Pretty Woman](../2019-08-25_matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/post.md)" — or at the very least an answer song.
 
 [Watch on Youtube: Oh, Pretty Woman](https://www.youtube.com/watch?v=3KFvoDDs0XM)
 
@@ -106,9 +106,9 @@ One of those times, though, was especially inspired. On a rainy birthday eve in 
 
 [Watch on Youtube: Cynthia (Live at MetLife Stadium, E. Rutherford, NJ - 9/22/2012)](https://www.youtube.com/watch?v=OmCnCMdfsVw)
 
-Like "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)," "Cynthia" is a song that ages well with its singer. Don't count her out yet–"Cynthia" may come walkin' on by again soon.
+Like "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)," "Cynthia" is a song that ages well with its singer. Don't count her out yet–"Cynthia" may come walkin' on by again soon.
 
-***Want another take on "Cynthia?" Check out Katy Crane's excellent essay [here.](https://estreetshuffle.com/index.php/2021/12/06/two-faces-cynthia/)***<br>
+***Want another take on "Cynthia?" Check out Katy Crane's excellent essay [here.](../2021-12-06_two-faces-cynthia/post.md)***<br>
 
 **Cynthia**<br>
 **Recorded** June 15, 1983<br>

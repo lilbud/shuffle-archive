@@ -82,7 +82,7 @@ We think we've been protecting our freedom, securing it–but it's been steadily
 
 That's the core message at the heart of "Magic": When we demonize each other, we clear a path for the demons to come to power.
 
-Gaslighting won't fool all of the people, but it'll fool enough of us to divide us against each other. And once that happens… well, Bruce drives it home in the last verse with lyrics that are almost certainly an intentional inversion of "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)."
+Gaslighting won't fool all of the people, but it'll fool enough of us to divide us against each other. And once that happens… well, Bruce drives it home in the last verse with lyrics that are almost certainly an intentional inversion of "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)."
 
 > *Now there's a fire down below*
 > *But it's coming up here*

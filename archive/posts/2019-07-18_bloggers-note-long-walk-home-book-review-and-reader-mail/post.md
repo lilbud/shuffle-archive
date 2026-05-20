@@ -10,7 +10,7 @@ By *far*, the most frequent question I've been asked over the last month is: **"
 
 That's a pretty easy one. If you're asking about the album, the answer is: probably never. I haven't written any album reviews on this blog and have no plans to. No particular reason other than that it doesn't fit the theme I established on Day One. And besides, there are so many great reviews of the album out there that I doubt I could add anything of value to the discussion.
 
-But: if you're wondering about "[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)" the *song* (or any other of the songs on the *Western Stars* album), the answer is: yes, I'll write a *Roll of the Dice* essay on each of them sometime over the next three years or so.
+But: if you're wondering about "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)" the *song* (or any other of the songs on the *Western Stars* album), the answer is: yes, I'll write a *Roll of the Dice* essay on each of them sometime over the next three years or so.
 
 As soon as the album came out, I entered all the songs in my master spreadsheet of songs I haven't yet written about, so as soon as the Google randomizer picks one of them for me to write about, that's when I'll do it.
 
@@ -22,7 +22,7 @@ And honestly, while I'll obey the randomizer, I kind of hope for a little time b
 
 The other question I'm getting a lot of lately is: **"Hey Ken, I'd love to share my really cool Bruce story for your *Where the Band Was* series, but I'm not a great writer and I don't have videos or photos to include with the story. Can you help with that?"**
 
-Absolutely! If you'd like to submit a *Where the Band Was* story like [Anna](https://estreetshuffle.com/index.php/2019/05/03/where-the-band-was-stockholm-may-3-2013/), [Sandi](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/), [Kevin](https://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/), or [Mark](https://estreetshuffle.com/index.php/2019/07/18/where-the-band-was-fort-monmouth-july-18-22-2002-marks-story/), all you need to do is contact me through the blog and send me your memories via e-mail in whatever form you're comfortable writing it. I'll gladly copy edit, and if you like, I'll take a polish pass or even ghost-write–whatever makes you most comfortable. And regardless, I'll absolutely punctuate your story with video and audio from my collection and any photos I can dig up.
+Absolutely! If you'd like to submit a *Where the Band Was* story like [Anna](../2019-05-03_where-the-band-was-stockholm-may-3-2013/post.md), [Sandi](../2019-06-28_where-the-band-was-st-paul-june-28-1984/post.md), [Kevin](../2019-07-02_where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/post.md), or [Mark](../2019-07-18_where-the-band-was-fort-monmouth-july-18-22-2002-marks-story/post.md), all you need to do is contact me through the blog and send me your memories via e-mail in whatever form you're comfortable writing it. I'll gladly copy edit, and if you like, I'll take a polish pass or even ghost-write–whatever makes you most comfortable. And regardless, I'll absolutely punctuate your story with video and audio from my collection and any photos I can dig up.
 
 So please do send me your stories! *Where the Band Was* is quickly becoming my favorite part about writing this blog.
 

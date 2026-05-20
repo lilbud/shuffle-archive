@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *After last month's back-to-back behind-the-scenes first-hand accounts from* *[Sandi Pederson](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/)* *and* *[Kevin Doyle](https://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/)**, I figured it would be a long time before I'd have the privilege to feature another exclusive "I was there" report.*<br>
+***Editor's Note:*** *After last month's back-to-back behind-the-scenes first-hand accounts from* *[Sandi Pederson](../2019-06-28_where-the-band-was-st-paul-june-28-1984/post.md)* *and* *[Kevin Doyle](../2019-07-02_where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/post.md)**, I figured it would be a long time before I'd have the privilege to feature another exclusive "I was there" report.*<br>
 
 > *Enter Mark Cunningham. Mark first wrote to me last year to share a pair of experiences any Springsteen fan would drool over. Now, a year later, he's graciously offered to share the first of those stories with us below.*
 
@@ -24,7 +24,7 @@ Each day, I was sent out to pick up food, supplies, instruments, etc. My down ti
 
 Standout memories:
 
-- Sitting right next to Danny as he was working on his organ part on "[You're Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)," using a small boom box with the CD playing.
+- Sitting right next to Danny as he was working on his organ part on "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)," using a small boom box with the CD playing.
 - Nils Lofgren being as gracious and kind as anyone I've ever met. I ran the most errands for Nils.
 - Watching Clarence in a side room working through the bagpipe section for "Into The Fire." It was just me and the Big Man in the room. He was great, too.
 

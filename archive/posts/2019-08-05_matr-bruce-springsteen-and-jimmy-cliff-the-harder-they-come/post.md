@@ -4,7 +4,7 @@ Jimmy Cliff wrote "The Harder They Come" for the 1972 film by the same name (in 
 
 "The Harder They Come" ranks squarely at #350 on Rolling Stone's 500 Greatest Songs of All Time, and Cliff even performed it on *Saturday Night Live* during the show's very first season–three years after the song was released.
 
-Still, most Springsteen fans are probably more familiar with the song's B-sides (both of them) than the A-side. On its first release, "The Harder They Come" was backed with "[Many Rivers to Cross](https://estreetshuffle.com/index.php/2018/07/28/cover-me-many-rivers-to-cross/)," which Bruce performed regularly on World Tour 1993. On re-release, the single was backed by Cliff's "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)," which has been a fan favorite at Bruce's shows for almost four decades.
+Still, most Springsteen fans are probably more familiar with the song's B-sides (both of them) than the A-side. On its first release, "The Harder They Come" was backed with "[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)," which Bruce performed regularly on World Tour 1993. On re-release, the single was backed by Cliff's "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)," which has been a fan favorite at Bruce's shows for almost four decades.
 
 Bruce did cover the A-side, though–once and once only, at a very special show.
 

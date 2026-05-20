@@ -34,13 +34,13 @@ There’s no audio from the late show, and that’s too bad: it features the las
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2002-08-15.png.webp)
 
-**2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/),” played for the first time in almost a decade, as well as “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/).”<br>
+**2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/),” played for the first time in almost a decade, as well as “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/oc0WivO0)
 
 [Watch on Youtube: Springsteen Fans](https://www.youtube.com/watch?v=c7R8BLSvYEQ)
 
-**2012:** Night Two at Boston’s Fenway Park brings an embarrassment of riches, from an opening “Thunder Road” with just Bruce and Roy, to an almost completely audibled opening pack, to the first “[Knock on Wood](https://estreetshuffle.com/index.php/2021/04/02/cover-me-knock-on-wood/)” in 36 years, to the first “[Prove It ’78](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” in the U.S.A. since ’78, a guest-spot by Ken Casey, and so much more. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26943/bruce-springsteen-fenway-park-boston-ma-08-15-2012-mp3-flac-or-online-music-streaming.html). For more highlights from this show, see my [*Where the Band Was*](https://estreetshuffle.com/index.php/2018/08/15/where-the-band-was-boston-august-15-2012/) report.<br>
+**2012:** Night Two at Boston’s Fenway Park brings an embarrassment of riches, from an opening “Thunder Road” with just Bruce and Roy, to an almost completely audibled opening pack, to the first “[Knock on Wood](../2021-04-02_cover-me-knock-on-wood/post.md)” in 36 years, to the first “[Prove It ’78](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” in the U.S.A. since ’78, a guest-spot by Ken Casey, and so much more. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26943/bruce-springsteen-fenway-park-boston-ma-08-15-2012-mp3-flac-or-online-music-streaming.html). For more highlights from this show, see my [*Where the Band Was*](../2018-08-15_where-the-band-was-boston-august-15-2012/post.md) report.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/FaVCWMDK)
 

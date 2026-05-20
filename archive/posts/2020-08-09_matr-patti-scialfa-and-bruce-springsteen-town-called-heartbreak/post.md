@@ -25,7 +25,7 @@ Patti Scialfa recorded "Town Called Heartbreak" for her 2007 album, *Play It As 
 
 And yet in a way, "Town Called Heartbreak" very much is a love song. It's about the reality of love, rather than the cliche of it. Maybe we can't be complete without our partners, but they're not all it takes to make us complete.
 
-We change, we grow, and our marriages and relationships need to evolve as we do. In that sense, "Town Called Heartbreak" is almost a companion piece to "[If I Should Fall Behind.](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" Bruce wrote that one at the beginning of his life with Patti; "Town Called Heartbreak" is almost like Patti's answer song many years later.
+We change, we grow, and our marriages and relationships need to evolve as we do. In that sense, "Town Called Heartbreak" is almost a companion piece to "[If I Should Fall Behind.](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" Bruce wrote that one at the beginning of his life with Patti; "Town Called Heartbreak" is almost like Patti's answer song many years later.
 
 There's a tag at the end of Patti's song that comes directly from the end of Janis Ian's "Society's Child," and it ends the song on an ominously unsettled note. "Society's Child" is about an inter-racial relationship that doesn't end well.
 

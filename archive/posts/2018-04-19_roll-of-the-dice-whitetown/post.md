@@ -8,7 +8,7 @@ Case in point: "Whitetown."
 
 When Bruce and Co. announced *The River* anniversary box set complete with a bonus disc of unreleased outtakes, I was excited to hear finished versions of songs I was intimately familiar with in demo versions.
 
-I was curious, too: the track list showed that both "Whitetown" and "[Mr. Outside](https://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/)" would be included, and based on the bootleg demos, I considered the latter to be an offshoot of the former. Listen to the 1979 demo below–not only will you hear essentially the same melody as "Mr. Outside," (along with another never-released outtake, "[You Gotta Be Kind](https://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/)"), you'll also hear him namechecked.
+I was curious, too: the track list showed that both "Whitetown" and "[Mr. Outside](../2019-06-10_roll-of-the-dice-mr-outside/post.md)" would be included, and based on the bootleg demos, I considered the latter to be an offshoot of the former. Listen to the 1979 demo below–not only will you hear essentially the same melody as "Mr. Outside," (along with another never-released outtake, "[You Gotta Be Kind](../2018-02-23_roll-of-the-dice-you-gotta-be-kind/post.md)"), you'll also hear him namechecked.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - down in whitetown #1](https://www.youtube.com/watch?v=HwmtT9WAyAM)
 

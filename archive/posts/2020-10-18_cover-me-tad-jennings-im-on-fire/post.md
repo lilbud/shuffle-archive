@@ -1,4 +1,4 @@
-I know, I know... another "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" cover.
+I know, I know... another "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" cover.
 
 Trust me: at this point an artist needs to bring something new and fresh to the table if they want me to pay attention to the umpteenth cover of Bruce's 1985 Top Ten single.
 

@@ -2,7 +2,7 @@ Okay, we all know that Bruce Springsteen is a John Steinbeck fan.
 
 But did you know that Steinbeck's wife was a Bruce Springsteen fan?
 
-It's true: the late Elaine Steinbeck was a self-professed tramp like us long before Bruce paid tribute to her husband with his *[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*album. She was thrilled when Bruce appropriated Tom Joad for his album, and at the age of 81, she took her grandson backstage at one of Bruce's concerts.
+It's true: the late Elaine Steinbeck was a self-professed tramp like us long before Bruce paid tribute to her husband with his *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)*album. She was thrilled when Bruce appropriated Tom Joad for his album, and at the age of 81, she took her grandson backstage at one of Bruce's concerts.
 
 Presumably, Elaine charmed Bruce enough that a few years later, he joined a cast of notables including Gary Sinise, E. L. Doctorow, and Roddy McDowall to pay tribute to her on the occasion of the Bay Street Theater in Sag Harbor naming its stage after her. (Elaine was an accomplished theater stage manager.)
 

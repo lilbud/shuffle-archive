@@ -2,11 +2,11 @@ Special treat today, folks! We're taking another trip back to the Bruce Springst
 
 Presented here for your listening pleasure: a fifty-year-old never-recorded, extremely rare (performed only once that we know of) lost Springsteen original, "You Better Be Nice to Me, Baby."
 
-Don't confuse this with the lost Bruce Springsteen Band original we listened to last week. That one was "[I've Got to Have You, Baby](https://estreetshuffle.com/index.php/2021/06/13/roll-of-the-dice-ive-got-to-have-you-baby/)," and it's a completely different song (although Bruce played them back-to-back in a baby-centric set on September 1, 1971).
+Don't confuse this with the lost Bruce Springsteen Band original we listened to last week. That one was "[I've Got to Have You, Baby](../2021-06-13_roll-of-the-dice-ive-got-to-have-you-baby/post.md)," and it's a completely different song (although Bruce played them back-to-back in a baby-centric set on September 1, 1971).
 
 If you thought "I've Got to Have You, Baby" was a fun listen, though, you've got a treat in store when you hear this one.
 
-Both songs delight, but if the former song is a bluesy jam, "You Better Be Nice to Me, Baby" is light on its feet, carried by a terrific David Sancious performance that would have been right at home in a late-night jazz club. In fact, with the possible exception of "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)," this is as close to jazz as you'll ever hear Bruce get.
+Both songs delight, but if the former song is a bluesy jam, "You Better Be Nice to Me, Baby" is light on its feet, carried by a terrific David Sancious performance that would have been right at home in a late-night jazz club. In fact, with the possible exception of "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)," this is as close to jazz as you'll ever hear Bruce get.
 
 [Watch Video Highlight](https://videopress.com/embed/RB65kVa8)
 

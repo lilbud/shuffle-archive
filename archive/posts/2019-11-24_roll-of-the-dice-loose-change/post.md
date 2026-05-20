@@ -40,7 +40,7 @@ Bruce pulls the same trick in the next verse, but this time hardcore Springsteen
 > *We lay in bed and watched the moon come up crawling*
 > *Loose change in my pocket*
 
-That bolded line might remind you of a similar line from a song Bruce would write a few years later. In "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)," Bruce would again present us with a character who loses his better judgment when he meets a femme fatale.
+That bolded line might remind you of a similar line from a song Bruce would write a few years later. In "[Highway 29](../2018-03-23_roll-of-the-dice-highway-29/post.md)," Bruce would again present us with a character who loses his better judgment when he meets a femme fatale.
 
 But even that song is a reworking of an earlier outtake called "Losin' Kind" that Bruce wrote and recorded back in the *Nebraska* era. And that early song featured lines that bear shocking familiarity to the second verse of "Loose Change:"
 

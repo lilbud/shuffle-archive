@@ -1,6 +1,6 @@
 They may have been a high school band, but we have to give The Castiles some extra credit, because they certainly did not shy away from challenging material.
 
-Whether tackling guitar hero challenges like “[Purple Haze](https://estreetshuffle.com/index.php/2019/02/19/cover-me-purple-haze/)” and “[Jeff’s Boogie](https://estreetshuffle.com/?p=17364)” or covering the Indian-influenced “See My Friends,” The Castiles were always stretching themselves, because Bruce Springsteen always had something to prove.
+Whether tackling guitar hero challenges like “[Purple Haze](../2019-02-19_cover-me-purple-haze/post.md)” and “[Jeff’s Boogie](https://estreetshuffle.com/?p=17364)” or covering the Indian-influenced “See My Friends,” The Castiles were always stretching themselves, because Bruce Springsteen always had something to prove.
 
 Released in 1965, “See My Friends” by The Kinks was one of the first songs to introduce the Indian raga sound to rock music, using an electric guitar drone to approximate a sitar to pretty decent effect.
 

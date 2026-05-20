@@ -1,4 +1,4 @@
-Bruce's penchant for tinkering with old recordings and grafting modern elements has accelerated in recent years, and sometimes the seams are more noticeable than others. (I'm looking at you, "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/).")
+Bruce's penchant for tinkering with old recordings and grafting modern elements has accelerated in recent years, and sometimes the seams are more noticeable than others. (I'm looking at you, "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md).")
 
 *The Promise* is full of such hybrid creations, but "Wrong Side of the Street" is one of the subtler ones: a vintage 1977 backing track paired with modern 2010-ish vocals.
 
@@ -8,7 +8,7 @@ Originally and mystifyingly recorded under the title "English Song" on October 1
 
 It's not at all clear that Bruce intended the song to be called "Wrong Side of the Street," and in fact the phrase only appears a couple of times (as does the phrase, "Endless Night," which is the title the bootleg version often circulated under).
 
-But when Bruce decided to spruce up the song for release on his 2010 *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*companion album, *The Promise*, that's the phrase that Bruce seemed to glom on to.
+But when Bruce decided to spruce up the song for release on his 2010 *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*companion album, *The Promise*, that's the phrase that Bruce seemed to glom on to.
 
 [Watch on Youtube: Wrong Side of the Street](https://www.youtube.com/watch?v=gtxR_9j6kLg)
 

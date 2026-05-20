@@ -2,7 +2,7 @@ If you ask me for my top ten Springsteen on songs on any given day, you won't fi
 
 But if you ask me for my top twenty, I guarantee "The Big Muddy" will be on it every time. It's one of Bruce's best songs, and while it may not come immediately to mind when mentally browsing Bruce's catalog, when you hear it, it's bound to stick with you for days afterward.
 
-"The Big Muddy" sticks out like a sore thumb on *Lucky Town*, the 1992 album that introduced it to us. On an album full of bright, shiny optimism, how the heck did a song like this end up smack in the middle of it? Only "[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)" keeps it from being the sole rebel on the album, but whereas "Souls of the Departed" is an angry song, "The Big Muddy" is just… unsettling.
+"The Big Muddy" sticks out like a sore thumb on *Lucky Town*, the 1992 album that introduced it to us. On an album full of bright, shiny optimism, how the heck did a song like this end up smack in the middle of it? Only "[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md)" keeps it from being the sole rebel on the album, but whereas "Souls of the Departed" is an angry song, "The Big Muddy" is just… unsettling.
 
 Everything about it sounds ominous, from Bruce's lyrics to his idle guitar and meandering riff. (Bruce plays almost solo, accompanied only by Roy on keyboards and Gary Mallaber on drums.) This is the song of a man uncertain about the way forward.
 
@@ -35,7 +35,7 @@ We must take a moment to acknowledge the brilliance in Bruce's songwriting in th
 
 One verse in, and we've got a *triple* entendre–and in a song that's all about moral ambiguity, what could be more perfect than that?
 
-In the second verse, the scene shifts–similar, in a way, to "[Reason to Believe,](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" in which Bruce uses vignettes rather than an overarching narrative to illustrate a point.
+In the second verse, the scene shifts–similar, in a way, to "[Reason to Believe,](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" in which Bruce uses vignettes rather than an overarching narrative to illustrate a point.
 
 > *Got in some trouble and needed a hand from a friend of mine*
 > *This old friend had a figure in mind*
@@ -59,7 +59,7 @@ Most accounts of this song cite this adage as a direct quote from Pete Dexter's 
 
 Having the full context of that passage helps us appreciate Bruce's intent in quoting it: the danger isn't just that you might get bitten and poisoned–it's that you might not even feel the bite.
 
-(And yeah, it probably wouldn't have been a cleaner reference if Bruce had used the fox rather than the snake, but to a listener unfamiliar with the novel the notion of a "poison fox" would sound strange and jarring enough to break the song's power and take us out of it. So we'll cut him a break. Besides, Bruce got two great songs out of it: he used the same line in "[Gave it a Name](https://estreetshuffle.com/index.php/2019/05/06/roll-of-the-dice-gave-it-a-name/).")
+(And yeah, it probably wouldn't have been a cleaner reference if Bruce had used the fox rather than the snake, but to a listener unfamiliar with the novel the notion of a "poison fox" would sound strange and jarring enough to break the song's power and take us out of it. So we'll cut him a break. Besides, Bruce got two great songs out of it: he used the same line in "[Gave it a Name](../2019-05-06_roll-of-the-dice-gave-it-a-name/post.md).")
 
 Just in case the song's message is too subtle, Bruce makes it explicit in the final verse:
 

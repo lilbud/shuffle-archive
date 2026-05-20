@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1975-0907.jpg.webp)
 
-**1984:** In honor of Buddy Holly's birthday, Bruce tour premieres "[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)" as an encore at his Born in the U.S.A. show in Hartford. They won't ever play it again (at least to date).<br>
+**1984:** In honor of Buddy Holly's birthday, Bruce tour premieres "[Rave On](../2019-03-25_matr-bruce-springsteen-and-gary-busey-rave-on/post.md)" as an encore at his Born in the U.S.A. show in Hartford. They won't ever play it again (at least to date).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/tkC2vmHI)
 
@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Tunnel of Love (Official Video)](https://www.youtube.com/watch?v=M4K7XZGeHTE)
 
-**2003:** Night Two at Fenway Park on the Rising Tour features the tour premiere of "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)," a reprise opener of "[Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)" and a Peter Wolf guest appearance on the show-closing "[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)."<br>
+**2003:** Night Two at Fenway Park on the Rising Tour features the tour premiere of "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," a reprise opener of "[Diddy Wah Diddy](../2021-06-11_cover-me-diddy-wah-diddy/post.md)" and a Peter Wolf guest appearance on the show-closing "[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/pgo0OErR)
 
@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2003-09-07b.jpg.webp)
 
-**2012:** Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ball Tour arrives for the first of two nights, and what a show it is: Bruce opens with "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)" with the Darkness Tour intro and tour premieres "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)." Tom Morello and Eddie Vedder both make multiple guest appearances.<br>
+**2012:** Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ball Tour arrives for the first of two nights, and what a show it is: Bruce opens with "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" with the Darkness Tour intro and tour premieres "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)." Tom Morello and Eddie Vedder both make multiple guest appearances.<br>
 
 [Watch on Youtube: SPRINGSTEEN - PROVE IT ALL NIGHT - WRIGLEY - 9/7/12](https://www.youtube.com/watch?v=Pshj7jaGkck)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2012-09-07b.jpg.webp)
 
-**2016:** A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04, it remains Bruce's longest show in the U.S. and his second longest show ever. The setlist continues the chronological "autobiography" theme of the victory lap, opening once again with a string-accompanied "New York City Serenade" and a stunning *eleven* pre-1974 songs. Philly specials abound: "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)," and "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" all make their tour debut. For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/09/07/where-the-band-was-philadelphia-september-7-2016/).<br>
+**2016:** A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04, it remains Bruce's longest show in the U.S. and his second longest show ever. The setlist continues the chronological "autobiography" theme of the victory lap, opening once again with a string-accompanied "New York City Serenade" and a stunning *eleven* pre-1974 songs. Philly specials abound: "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," and "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" all make their tour debut. For more highlights from this show, see my [*Where the Band Was* report](../2018-09-07_where-the-band-was-philadelphia-september-7-2016/post.md).<br>
 
 [Watch on Youtube: The Fever - Springsteen - Philadelphia Sept 7, 2016](https://www.youtube.com/watch?v=HdiC-K2O06Y)
 

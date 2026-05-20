@@ -117,7 +117,7 @@ That first line is the key to the whole song: *I got debts no honest man could p
 
 In other words: I had no choice, your honor. If I lose my home, I lose my life. If I can't earn a living honestly–and believe me, I've tried–dishonesty is my only choice.
 
-It's a devastating line, so much so that Bruce would use it in [another song on the same album](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/).
+It's a devastating line, so much so that Bruce would use it in [another song on the same album](../2018-06-04_roll-of-the-dice-atlantic-city/post.md).
 
 Ralph owns his crime, but he uses his moment to address the court (a metaphorical stand-in for society at large) and serve notice: *you played a part in this, too.*
 

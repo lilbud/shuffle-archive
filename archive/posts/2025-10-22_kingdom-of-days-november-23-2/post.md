@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1980-11-23.png.webp)
 
-**1984:** MTV premieres Bruce’s new video, “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.<br>
+**1984:** MTV premieres Bruce’s new video, “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.<br>
 
 [Watch on Youtube: Bruce Springsteen - premiere of "Born in the USA" video on MTV 1984-11-23](https://www.youtube.com/watch?v=vqE08ZnTQNk)
 
@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-23b.png.webp)
 
-**2002:** Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: “[Out in the Street,](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)” “Because the Night” (with Bono and Dave Stewart), “So Young and in Love,” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.<br>
+**2002:** Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: “[Out in the Street,](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)” “Because the Night” (with Bono and Dave Stewart), “So Young and in Love,” and “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen & Bono - Because The Night (Live in Miami)](https://www.youtube.com/watch?v=hFOLwjmjRR4)
 
@@ -54,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2002-11-23.png.webp)
 
-**2019:** Bruce contributes a brief video salute for Steve Van Zandt’s tribute at the Rock and Roll Forever Foundation’s First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their *[Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*recording session that finished just the day before.<br>
+**2019:** Bruce contributes a brief video salute for Steve Van Zandt’s tribute at the Rock and Roll Forever Foundation’s First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their *[Letter to You](../2023-07-10_album-companion-letter-to-you/post.md)*recording session that finished just the day before.<br>
 
 [Watch on Youtube: Bruce Springsteen - Video Message - Rock And Roll Foundation Gala Honoring Little Steven](https://www.youtube.com/watch?v=oFdlLxrAAgI)
 

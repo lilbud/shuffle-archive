@@ -2,7 +2,7 @@ Somewhat improbably, I find myself pulling into Greensboro, North Carolina on th
 
 I manage to snag an entire row of late-breaking side-stage tickets and drag my co-workers (some fans, some newbies) to the show. I'm fully expecting a standard Working on a Dream show, but that's fine by me–this is a "bonus" show, after all.
 
-If you want to read my full account of that night, I wrote about it [here](https://estreetshuffle.com/index.php/2018/05/02/where-the-band-was-greensboro-may-2-2009/). Suffice to say, I was blown away by the crowd and resolved on the spot to never miss a Greensboro show again.
+If you want to read my full account of that night, I wrote about it [here](../2018-05-02_where-the-band-was-greensboro-may-2-2009/post.md). Suffice to say, I was blown away by the crowd and resolved on the spot to never miss a Greensboro show again.
 
 But if you'd shown me the set list in advance, I would never have predicted that the high-energy highlight of the night would be a cover of The McCoys' 1965 smash hit, "Hang On Sloopy."
 

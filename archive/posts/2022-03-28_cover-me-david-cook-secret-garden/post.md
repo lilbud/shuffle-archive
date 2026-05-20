@@ -1,4 +1,4 @@
-Tucked away on the Walmart exclusive edition of the American Idol winner's 2015 *Digital Vein* album is David Cook's daringly fresh cover of Bruce Springsteen's "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)."
+Tucked away on the Walmart exclusive edition of the American Idol winner's 2015 *Digital Vein* album is David Cook's daringly fresh cover of Bruce Springsteen's "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)."
 
 [Watch on Youtube: David Cook - Secret Garden (Bruce Springsteen Cover) (Walmart Edition Bonus)](https://www.youtube.com/watch?v=Em1DR7vXvzI)
 

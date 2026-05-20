@@ -1,4 +1,4 @@
-"Rocky Ground" may be wrapped in gospel trappings, but its themes are as Springsteenian as anything on [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
+"Rocky Ground" may be wrapped in gospel trappings, but its themes are as Springsteenian as anything on [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
 
 [Watch on Youtube: Bruce Springsteen - Rocky Ground (Video)](https://www.youtube.com/watch?v=qPmIIXXv0d8)
 
@@ -73,7 +73,7 @@ Until this point, "Rocky Ground" urges faith and action, but in Moore's spoken-w
 
 > *Rise up.*<br>
 
-The song's final minutes introduce the Victorious Gospel choir (who also appear on "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)"), joining Moore on her "we've been traveling over rocky ground" chorus, while Bruce continues to encourage, "there's a new day coming." The choir transforms the struggles of "Rocky Ground" from personal to communal, as the "I'm a soldier" sample returns to inform us that the battle is nowhere close to being won.
+The song's final minutes introduce the Victorious Gospel choir (who also appear on "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)"), joining Moore on her "we've been traveling over rocky ground" chorus, while Bruce continues to encourage, "there's a new day coming." The choir transforms the struggles of "Rocky Ground" from personal to communal, as the "I'm a soldier" sample returns to inform us that the battle is nowhere close to being won.
 
 In the end, "Rocky Ground" is the dance between faith and reality. We need the former to get through the latter, even though the latter does its best to disprove the former on the daily. It's a stunningly powerful and compassionate work of art that doesn't get anywhere near the recognition it deserves for its beauty and craft.
 
@@ -81,7 +81,7 @@ Bruce clearly has a fondness for it, though, because he not only featured it reg
 
 [Watch on Youtube: Rocky Ground - Bruce Springsteen (22-09-2012 MetLife Stadium, East Rutherford, New Jersey)](https://www.youtube.com/watch?v=GFe1zEnIqus)
 
-Bruce also issued "Rocky Ground" as the second single from [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), in digital audio, video, and vinyl forms, even though other tracks had far more obvious commercial potential. (He did have it remixed and shortened, though–the resulting "modern mix" is relatively unknown even to fans.)
+Bruce also issued "Rocky Ground" as the second single from [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md), in digital audio, video, and vinyl forms, even though other tracks had far more obvious commercial potential. (He did have it remixed and shortened, though–the resulting "modern mix" is relatively unknown even to fans.)
 
 [Watch on Youtube: Bruce Springsteen - Rocky Ground (Modern Mix Video)](https://www.youtube.com/watch?v=Id2Rss2RfgQ)
 

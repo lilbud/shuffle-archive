@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/w4Rg1WKW)
 
-**2002:** On the occasion of Clarence’s 60th birthday, Bruce joins Clarence on stage at B.B. King’s nightclub in Mashantucket, Connecticut. They play four songs together, including “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” with B.B. King.<br>
+**2002:** On the occasion of Clarence’s 60th birthday, Bruce joins Clarence on stage at B.B. King’s nightclub in Mashantucket, Connecticut. They play four songs together, including “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)” with B.B. King.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jbc3T593)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2001-01-11b.png.webp)
 
-**2009**: At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for “[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)” (and wishes Clarence a happy birthday in his acceptance speech).<br>
+**2009**: At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for “[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)” (and wishes Clarence a happy birthday in his acceptance speech).<br>
 
 [Watch on Youtube: Bruce Springsteen Wins Best Original Song Motion Picture - Golden Globes 2009](https://www.youtube.com/watch?v=uEbhqOPKHdo)
 

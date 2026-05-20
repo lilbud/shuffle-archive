@@ -2,13 +2,13 @@ Well, hello there!
 
 I don't write these updates very often (the last one was six months ago) since this isn't really a news site, but there's enough happening in the Springsteen world these days that I thought it was worth doing a brief recap in case you've missed any of it.
 
-The big news, of course, is that we have a brand new Bruce Springsteen song, with an album on the way! "[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)" dropped yesterday morning in two versions: a four-minute video and a five-minute audio. You can find the audio on your favorite streaming service; here's the video for those who haven't had the pleasure yet.
+The big news, of course, is that we have a brand new Bruce Springsteen song, with an album on the way! "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)" dropped yesterday morning in two versions: a four-minute video and a five-minute audio. You can find the audio on your favorite streaming service; here's the video for those who haven't had the pleasure yet.
 
 [Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 
 "Letter to You" serves as the title track for its album, coming our way on October 23rd. You can pre-order it now from wherever you like to get your music.
 
-The album features nine new tracks along with three new versions of ancient, unreleased Springsteen songs from the early 1970s: "[Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)," "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)," and "[Song for Orphans](https://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)." I've actually written at length on each of them in the past via my *Roll of the Dice* series, so if you'd like to get familiar with the songs and their history before comparing with Bruce's new versions, click those links to read and listen.
+The album features nine new tracks along with three new versions of ancient, unreleased Springsteen songs from the early 1970s: "[Janey Needs a Shooter](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md)," "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)," and "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)." I've actually written at length on each of them in the past via my *Roll of the Dice* series, so if you'd like to get familiar with the songs and their history before comparing with Bruce's new versions, click those links to read and listen.
 
 As for the nine new tracks, the answer to the question I've received from many of you over the past 24 hours is: yes, I will be adding *Roll of the Dice* entries for the new album. However, as many of you know, I don't choose the order of the songs I write about–I let a random number generator do that for me (hence the name of the series: *Roll of the Dice*).
 

@@ -20,9 +20,9 @@
 
 **1979:** Bruce and the E Street Band record tracks for *The River* at the Power Station in New York City.<br>
 
-**1980:** Exactly a year later, Bruce is back at the Power Station for mixing work on “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” and “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/).”<br>
+**1980:** Exactly a year later, Bruce is back at the Power Station for mixing work on “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)” and “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md).”<br>
 
-**1981:** As the European leg of The River Tour gains steam, Bruce begins opening the show with “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” in West Berlin–the first time Bruce has ever played this song in Europe.<br>
+**1981:** As the European leg of The River Tour gains steam, Bruce begins opening the show with “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” in West Berlin–the first time Bruce has ever played this song in Europe.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/6J9ty986)
 
@@ -36,7 +36,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3)
 
-**1992:** *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*is certified is 2x multi-platinum by the Recording Industry Association of America.<br>
+**1992:** *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*is certified is 2x multi-platinum by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Greetings from Asbury Park, N.J.](https://www.youtube.com/playlist?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: MY LOVE WILL NOT LET YOU DOWN- BRUCE SPRINGSTEEN](https://www.youtube.com/watch?v=2mfhT-P4REE)
 
-…and my favorite clip from this show, “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/).” Watch from the 4-minute mark, and see what happens when Clarence can’t quite get to the microphone for his line.
+…and my favorite clip from this show, “[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md).” Watch from the 4-minute mark, and see what happens when Clarence can’t quite get to the microphone for his line.
 
 [Watch on Youtube: Bruce Springsteen Out In The Street April 9, 1999 Barcelona](https://www.youtube.com/watch?v=6YHFg55mLPc)
 
@@ -56,13 +56,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/44767315690_66ce7d7276_o.jpg.webp)
 
-**2000:** Kansas City gets an outstanding set list for their Reunion show: Bruce opens with “[Take ‘Em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)” and plays “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” and “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” later in the set.<br>
+**2000:** Kansas City gets an outstanding set list for their Reunion show: Bruce opens with “[Take ‘Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)” and plays “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)” and “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” later in the set.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/TwY6egiH)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2000-04-10-scaled.jpg.webp)
 
-**2003:** The Rising Tour returns to North America as Bruce and the band play Arco Arena in Sacramento. During the soundcheck, Bruce plays a new song for the first time: “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/).”<br>
+**2003:** The Rising Tour returns to North America as Bruce and the band play Arco Arena in Sacramento. During the soundcheck, Bruce plays a new song for the first time: “[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ZiX2cHWZ)
 
@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2003-04-09b.jpg.webp)
 
-**2012:** Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” and “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/),” and the show breaks the three-hour mark.<br>
+**2012:** Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” and “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md),” and the show breaks the three-hour mark.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/OuA08kLJ)
 
@@ -80,6 +80,6 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/Bruce_Springsteen_joins_Hear-the-world-as-ambassador.jpg.webp)
 
-**2023:** Bruce and the E Street Band play their first of two nights at UBS Arena in Elmont, New York, where “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)” makes its tour debut.<br>
+**2023:** Bruce and the E Street Band play their first of two nights at UBS Arena in Elmont, New York, where “[Mary’s Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)” makes its tour debut.<br>
 
 [Watch on Youtube: MARYS PLACE- TOUR PREMIERE BRUCE SPRINGSTEEN AND THE E-STREET BAND- UBS ARENA 4/9/23](https://www.youtube.com/watch?v=7BSisqQ-oqY)

@@ -4,7 +4,7 @@ In 2012, Trevor Moss assembled a group of UK artists to mark the 30th anniversar
 
 Each track was interpreted and performed by a different artist or band, and in a nod to more modern times, Moss captured each performance on video as well.
 
-The entire album is worth listening to, but my favorite track by far is the daring reinvention of "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" by Mad Staring Eyes.
+The entire album is worth listening to, but my favorite track by far is the daring reinvention of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" by Mad Staring Eyes.
 
 [Watch on Youtube: Open All Night - Bruce Springsteen (Cover) by Mad Staring Eyes](https://www.youtube.com/watch?v=98pXrIfgyno)
 

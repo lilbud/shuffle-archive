@@ -1,6 +1,6 @@
 Some songs run deep; others float right on by.
 
-Every once in a while, Bruce writes a pure pop song like "[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)" or "[You've Got It](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)" that requires no lyrical analysis–everything we need to know is right there on the surface.
+Every once in a while, Bruce writes a pure pop song like "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" or "[You've Got It](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)" that requires no lyrical analysis–everything we need to know is right there on the surface.
 
 That was as true at the beginning as it is now. Take "Last Night in Tulsa," for example.
 

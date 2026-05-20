@@ -8,13 +8,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/medium-5.jpg.webp)
 
-**1981:** Night Two of six at the Brendan Byrne Arena’s opening stand in East Rutherford features the tour premiere of “[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)” and a guest appearance by Gary U.S. Bonds on “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)” and “[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/).”<br>
+**1981:** Night Two of six at the Brendan Byrne Arena’s opening stand in East Rutherford features the tour premiere of “[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)” and a guest appearance by Gary U.S. Bonds on “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” and “[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cTInek5e)
 
 [Watch on Youtube: Bruce Springsteen Badlands New Jersey 03/07/1981](https://www.youtube.com/watch?v=3T9Hdvi5YsA)
 
-**1985:** Bruce plays “[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)” for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/),” “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/),” and “Twist and Shout.”<br>
+**1985:** Bruce plays “[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)” for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md),” “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md),” and “Twist and Shout.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8rio31IG)
 
@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1985-0703.jpg.webp)
 
-**1988:** At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on radio stations around the world. Bruce plays “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” and “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” for the first time on the tour, and he announces his participation in the upcoming Amnesty International Human Rights Tour. Bruce performs “[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)” immediately after the announcement, and that performance will be officially released as the title track of an EP later in the year. The entire show is now available as part of the official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18398/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-3-1988-Stockholms-Stadion-Stockholm-SE.html), and listen to the original radio pre- and post-shows below) and is well worth many repeated listens.<br>
+**1988:** At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on radio stations around the world. Bruce plays “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)” and “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” for the first time on the tour, and he announces his participation in the upcoming Amnesty International Human Rights Tour. Bruce performs “[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)” immediately after the announcement, and that performance will be officially released as the title track of an EP later in the year. The entire show is now available as part of the official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18398/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-3-1988-Stockholms-Stadion-Stockholm-SE.html), and listen to the original radio pre- and post-shows below) and is well worth many repeated listens.<br>
 
 [Watch on Youtube: Bruce Springsteen - news coverage from 1988 Stockholm concert](https://www.youtube.com/watch?v=UnODpc4SXdU)
 
@@ -50,7 +50,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/2PyrKknl)
 
-**2009:** In Frankfurt, Bruce and the E Street Band pull out the Working on a Dream tour premieres of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” and “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/).”<br>
+**2009:** In Frankfurt, Bruce and the E Street Band pull out the Working on a Dream tour premieres of “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” and “[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Factory - Frankfurt 2009-07-03 CLOSEUP](https://www.youtube.com/watch?v=BoRriwJXbqw)
 

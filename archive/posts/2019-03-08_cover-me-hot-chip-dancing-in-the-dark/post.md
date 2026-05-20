@@ -1,4 +1,4 @@
-Just in case Bruce's original video for "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" isn't eighties enough for you... well, sometimes its better to just let a clip speak for itself.
+Just in case Bruce's original video for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" isn't eighties enough for you... well, sometimes its better to just let a clip speak for itself.
 
 Here's indie-EDM band Hot Chip's take on Bruce's greatest hit (with a little bit of LCD Soundsystem mashed in).
 

@@ -28,7 +28,7 @@ It was time well spent, though, because his *actual* answering machine message w
 > *I don't know when I'm coming back*<br>
 > *I don't know when I'm coming back, if you got something to say, you better spit it out, Jack*<br>
 
-While we don't know exactly when "Answering Machine" was written, the reprise of the back/Jack couplet suggests that it's a sequel–or perhaps even a prequel–to "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)." One imagines the narrator of that 1980 classic recording this outgoing message in his Baltimore home just before he goes out for his fateful ride.
+While we don't know exactly when "Answering Machine" was written, the reprise of the back/Jack couplet suggests that it's a sequel–or perhaps even a prequel–to "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)." One imagines the narrator of that 1980 classic recording this outgoing message in his Baltimore home just before he goes out for his fateful ride.
 
 Unlike "Hungry Heart," however, Bruce offers the narrator of "Answering Machine" the possibility of redemption. By leaving the metaphorical door open ("I don't know *when* I'm coming back" suggests that he might someday), Bruce waters a seed of hope for his narrator's return home after his latest Kingstown fling.
 

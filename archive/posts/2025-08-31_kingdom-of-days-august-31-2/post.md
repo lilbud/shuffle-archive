@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0831.jpg.webp)
 
-**1985:** What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of "[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)."<br>
+**1985:** What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Wly4xjwi)
 
@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1999-08-31b.png.webp)
 
-**2003:** Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of "[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)." A few songs later, "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)" makes its only tour appearance, and a full-band "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" fittingly closes the show.<br>
+**2003:** Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)." A few songs later, "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" makes its only tour appearance, and a full-band "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" fittingly closes the show.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3)
 

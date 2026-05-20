@@ -4,7 +4,7 @@ An awesome venue, an energized crowd, but the roomiest, most spacious pit I've e
 
 [Watch on Youtube: Hungry Heart Bruce Springsteen Portland March 22, 2016 Moda Center](https://www.youtube.com/watch?v=JGNMrVRl9d4)
 
-At the previous show in L.A., I was front and center in the pit. This time I was in the very back of it, but even that vantage point has close encounter potential–see my video below for the amazing close-up performance of "[Tenth Avenue Freeze-Out.](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)" (You'll also hear just how good the sound was that night.)
+At the previous show in L.A., I was front and center in the pit. This time I was in the very back of it, but even that vantage point has close encounter potential–see my video below for the amazing close-up performance of "[Tenth Avenue Freeze-Out.](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" (You'll also hear just how good the sound was that night.)
 
 [Watch on Youtube: Bruce Springsteen - Close up in Portland 2016](https://www.youtube.com/watch?v=yxvhFFRasGA)
 

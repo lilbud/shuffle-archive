@@ -32,7 +32,7 @@ The take goes on:
 
 The theme of the song is immediately established, and the car as metaphor for life drives it home: the singer bought into the whole concept–the wife, the family, the nice car–but can't maintain it. On the surface, it's about a car that's too expensive to keep; below the surface, it's his life that's exacting a price.
 
-(The melody, too, is reminiscent of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)," which Bruce had already debuted by this time, and I wonder if that's accidental, deliberate, or that thematically similar song's lingering presence in his subconsciousness.)
+(The melody, too, is reminiscent of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," which Bruce had already debuted by this time, and I wonder if that's accidental, deliberate, or that thematically similar song's lingering presence in his subconsciousness.)
 
 Let's move on and listen to take #2, which runs from about 1:20 to 3:16 in the video below.
 
@@ -44,7 +44,7 @@ Let's move on and listen to take #2, which runs from about 1:20 to 3:16 in the v
 > *Did you ever think in the end your kids you would never believe*
 > *That if you wouldn't leave this old town, that it would leave me*
 
-Too bad Bruce discarded that last line–it's brilliant. But if that verse sounds vaguely familiar, compare it to "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)," which wouldn't surface for another five years:
+Too bad Bruce discarded that last line–it's brilliant. But if that verse sounds vaguely familiar, compare it to "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," which wouldn't surface for another five years:
 
 > *Now Main Street's whitewashed windows and vacant stores*
 > *Seems like there ain't nobody wants to come down here no more*

@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 1978; review for 2008; new entry for 2024*<br>
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to Philadelphia for the first of two nights at The Spectrum. Gary Busey joins the band for the final two encores of "[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)" and "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)."<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to Philadelphia for the first of two nights at The Spectrum. Gary Busey joins the band for the final two encores of "[Rave On](../2019-03-25_matr-bruce-springsteen-and-gary-busey-rave-on/post.md)" and "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)."<br>
 
 [Watch on Youtube: Special Guest Gary Busey w/ Bruce Springsteen - Rave On (Live) 8/18/78](https://www.youtube.com/watch?v=O0Lao3wtYhk)
 
@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-18c.png.webp)
 
-**1992:** Bruce and his new touring band play their second night at The Palace of Auburn Hills on World Tour 1992, tour premiering a cover of "[Ramblin' Gamblin' Man](https://estreetshuffle.com/index.php/2020/04/14/cover-me-ramblin-gamblin-man/)," a one-off for the tour. David Weiss of Was (Not Was) is at the show tonight, but he doesn't perform.<br>
+**1992:** Bruce and his new touring band play their second night at The Palace of Auburn Hills on World Tour 1992, tour premiering a cover of "[Ramblin' Gamblin' Man](../2020-04-14_cover-me-ramblin-gamblin-man/post.md)," a one-off for the tour. David Weiss of Was (Not Was) is at the show tonight, but he doesn't perform.<br>
 
 [Watch on Youtube: Bruce Springsteen - Ramblin' Gamblin' Man - 1992-08-18, Auburn Hills](https://www.youtube.com/watch?v=BFFi5wbLcTg)
 
@@ -34,15 +34,15 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-18c.png.webp)
 
-**2001:** Bruce makes a surprise afternoon appearance at the annual Clearwater Festival in Asbury Park, playing six songs (including the first ever acoustic performance of "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)"). The video footage below is unintentionally hilarious at times: first, a local news reporter tries multiple times to do a "guess who that is over there" intro, but an oblivious Bruce fails to cooperate; later, a group performance of "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" is, let's say, ragtag. And that poor ASL interpreter–how hard must it be to sign *that* song?<br>
+**2001:** Bruce makes a surprise afternoon appearance at the annual Clearwater Festival in Asbury Park, playing six songs (including the first ever acoustic performance of "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)"). The video footage below is unintentionally hilarious at times: first, a local news reporter tries multiple times to do a "guess who that is over there" intro, but an oblivious Bruce fails to cooperate; later, a group performance of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" is, let's say, ragtag. And that poor ASL interpreter–how hard must it be to sign *that* song?<br>
 
 [Watch on Youtube: Bruce Springsteen - Clearwater Festival (Asbury Park) , 2001-08-18](https://www.youtube.com/watch?v=RABT8memYGI)
 
-Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on stage for four songs, including "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" and "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)..."
+Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on stage for four songs, including "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" and "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)..."
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2001-0818a.jpg.webp)
 
-...and because that *still* wasn't enough for one day, he stuck around to join John Eddie on stage for "[Suspicious Minds](https://estreetshuffle.com/index.php/2019/03/09/matr-bruce-springsteen-john-eddie-and-friends-suspicious-minds/)."
+...and because that *still* wasn't enough for one day, he stuck around to join John Eddie on stage for "[Suspicious Minds](../2019-03-09_matr-bruce-springsteen-john-eddie-and-friends-suspicious-minds/post.md)."
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2001-0818b.jpg.webp)
 
@@ -52,7 +52,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2001-08-18c.png.webp)
 
-**2002:** After four identical shows, Bruce finally changes up the Rising Tour setlist (barely) at his stop at the Thomas & Mack Center in Las Vegas, adding a tour one-off of "[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)" to the encores. In attendance tonight: Leonardo DiCaprio, Robert Downey Jr., Juliette Lewis, Christina Applegate, Lara Flynn Boyle, Cindy Crawford, Chris Kattan, Rose McGowan, Fred Durst, and more.<br>
+**2002:** After four identical shows, Bruce finally changes up the Rising Tour setlist (barely) at his stop at the Thomas & Mack Center in Las Vegas, adding a tour one-off of "[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md)" to the encores. In attendance tonight: Leonardo DiCaprio, Robert Downey Jr., Juliette Lewis, Christina Applegate, Lara Flynn Boyle, Cindy Crawford, Chris Kattan, Rose McGowan, Fred Durst, and more.<br>
 
 [Watch on Youtube: Viva Las Vegas Bruce Springsteen 8/18/2002](https://www.youtube.com/watch?v=CTFBqCPufKI)
 
@@ -60,7 +60,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/The_Province_2002_08_21_27.jpg.webp)
 
-**2008:** Bruce and the E Street Band take the Magic Tour into its final week with a show at the Coliseum in Richmond. Bruce opens the encores with the long lost "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)" (played for the first time in 28 years), followed by the tour premiere of "Quarter to Three."<br>
+**2008:** Bruce and the E Street Band take the Magic Tour into its final week with a show at the Coliseum in Richmond. Bruce opens the encores with the long lost "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" (played for the first time in 28 years), followed by the tour premiere of "Quarter to Three."<br>
 
 [Watch on Youtube: Bruce Springsteen - Crush On You - (8-18-08)](https://www.youtube.com/watch?v=GG57M4yVa4g)
 
@@ -68,7 +68,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg.webp)
 
-**2012:** Bruce wraps up a three-night Boston stadium stand with a show at Gillette Stadium in Foxborough. Bruce tour debuts "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" (played in the Seeger Sessions swing arrangement) as well as the first performance of "[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)" in 28 years.<br>
+**2012:** Bruce wraps up a three-night Boston stadium stand with a show at Gillette Stadium in Foxborough. Bruce tour debuts "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" (played in the Seeger Sessions swing arrangement) as well as the first performance of "[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)" in 28 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Drift Away - (Full Version)](https://www.youtube.com/watch?v=ckwC2U4gn-Q)
 
@@ -88,7 +88,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 **2023:** Bruce's scheduled show at Citizens Bank Park in Philadelphia is postponed by more than a year due to illness.<br>
 
-**2024:** Night Two in Pittsburgh features a rare outing for "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" and a customary guest appearance by Joe and Johnny Grushecky.<br>
+**2024:** Night Two in Pittsburgh features a rare outing for "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)" and a customary guest appearance by Joe and Johnny Grushecky.<br>
 
 [Watch on Youtube: If I Was The Priest Springsteen in Pittsburgh 8/18/2024](https://www.youtube.com/watch?v=Gc5QxmfH49Q)
 

@@ -62,7 +62,7 @@ It's also a plea: thanks to you, I didn't retreat inside myself and miss out on 
 
 Perhaps that's in part due to Bruce's own seeming ambivalence to the song. Although he played it a handful of times in the earliest shows of the *Working on a Dream* tour in late March and early April, he inexplicably dropped it from his setlists just as the song started to climb the Billboard chart. By the time he brought it back in early June, the song had almost vanished off the charts and would be entirely gone within a matter of days.
 
-Bruce's first live performance of "My Lucky Day" was in the tour's very first public rehearsal show. Following on the heels of opener "[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)," "My Lucky Day" was like an injection of rocket fuel to the crowd, and the show was off to a roar. Watching this great performance (featuring–as on the studio track–great *River-*esque harmonies from Steve), along with the follow-up from a few months later in Stockholm, it's mind-boggling why the song didn't cement itself with fans.
+Bruce's first live performance of "My Lucky Day" was in the tour's very first public rehearsal show. Following on the heels of opener "[Outlaw Pete](../2021-12-29_roll-of-the-dice-outlaw-pete/post.md)," "My Lucky Day" was like an injection of rocket fuel to the crowd, and the show was off to a roar. Watching this great performance (featuring–as on the studio track–great *River-*esque harmonies from Steve), along with the follow-up from a few months later in Stockholm, it's mind-boggling why the song didn't cement itself with fans.
 
 [Watch on Youtube: Bruce Springsteen - My Lucky Day](https://www.youtube.com/watch?v=ChJzpKOCIt4)
 

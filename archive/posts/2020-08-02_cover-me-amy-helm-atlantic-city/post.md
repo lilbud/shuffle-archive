@@ -1,6 +1,6 @@
 Now here's a cover Bruce would certainly approve.
 
-Amy Helm has been covering "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" for years–which isn't surprising, considering how many times she must have heard her dad's version of it while growing up.
+Amy Helm has been covering "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" for years–which isn't surprising, considering how many times she must have heard her dad's version of it while growing up.
 
 Amy's father, Levon, recorded one of the best and definitive Springsteen covers with The Band; their cover of "Atlantic City" was released on their 1993 album, *Jericho*.
 

@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1983-0108.jpg.webp)
 
-**1984:** Bruce stops by the Stone Pony in Asbury Park for amateur comedy night. The crowd coaxes him onstage to participate and then promptly boos him off after he bombs. Later that night, he returns to his comfort zone, hopping back onstage to join Cats on a Smooth Surface for covers of "Lucille" and "[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)."<br>
+**1984:** Bruce stops by the Stone Pony in Asbury Park for amateur comedy night. The crowd coaxes him onstage to participate and then promptly boos him off after he bombs. Later that night, he returns to his comfort zone, hopping back onstage to join Cats on a Smooth Surface for covers of "Lucille" and "[Carol](../2022-02-17_cover-me-carol/post.md)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/USA_Today_1984_01_12_30-scaled.jpg.webp)
 
@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Indianapolis_Star_1985_01_11_Page_22-scaled.jpg.webp)
 
-**1996:** Bruce plays a solo acoustic show at Massey Hall in Toronto, his one and only appearance at this venue. "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)" makes its tour debut.<br>
+**1996:** Bruce plays a solo acoustic show at Massey Hall in Toronto, his one and only appearance at this venue. "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" makes its tour debut.<br>
 
 [Watch on Youtube: Bruce Springsteen - News coverage from concert in Toronto, 1996-01-08](https://www.youtube.com/watch?v=Yt1DXqtpIoM)
 

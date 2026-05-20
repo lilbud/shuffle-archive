@@ -1,6 +1,6 @@
 For a cast-off outtake from a poorly-received album buried on the fourth disc of a box set and only ever performed live once, "Sad Eyes" sure generates a lot of discussion among fans.
 
-I have many friends who regard "Sad Eyes" as a deeply romantic song and a few who view it more platonically in a "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" vein. I've read interpretations that argue a theme of acceptance, and others that posit patience.
+I have many friends who regard "Sad Eyes" as a deeply romantic song and a few who view it more platonically in a "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" vein. I've read interpretations that argue a theme of acceptance, and others that posit patience.
 
 Me? I suspect I'm in the minority (though I've never taken a poll), but I'm of the firm belief that "Sad Eyes" is one seriously cruel and twisted song.
 

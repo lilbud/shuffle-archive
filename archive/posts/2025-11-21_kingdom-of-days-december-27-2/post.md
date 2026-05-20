@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/33668147698_f6fa581767_o.jpg.webp)
 
-**1992:** Bruce joins Southside Johnny and The Asbury Jukes on stage at The Stone Pony for “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)” and (with Jon Bon Jovi as well) “It’s Been a Long Time” and “[Having a Party](https://estreetshuffle.com/index.php/2021/12/31/matr-bruce-springsteen-and-southside-johnny-having-a-party/).”<br>
+**1992:** Bruce joins Southside Johnny and The Asbury Jukes on stage at The Stone Pony for “[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)” and (with Jon Bon Jovi as well) “It’s Been a Long Time” and “[Having a Party](../2021-12-31_matr-bruce-springsteen-and-southside-johnny-having-a-party/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen & Southside Johnny - "The Fever" - Asbury Park, 1992-12-27](https://www.youtube.com/watch?v=ftWhs8awKcU)
 

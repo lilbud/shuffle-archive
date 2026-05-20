@@ -4,7 +4,7 @@ How is it possible that Bruce has never released "Ballad of the Self-Loading Pis
 
 Longtime readers of this blog know that I frequently dive deeply into the well to spotlight Bruce's castoffs. Admittedly, many of those were lost for good reason.
 
-But just take a listen to this gorgeous, fully realized ballad, recorded just after the release of [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)and then suggest one good reason why Bruce would let this gem languish in obscurity. Because I sure as heck can't.
+But just take a listen to this gorgeous, fully realized ballad, recorded just after the release of [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)and then suggest one good reason why Bruce would let this gem languish in obscurity. Because I sure as heck can't.
 
 [Watch on Youtube: Bruce Springsteen - Ballad Of The Self-Loading Pistol](https://www.youtube.com/watch?v=UuwErcjTX0Y)
 
@@ -13,7 +13,7 @@ I can't figure it out. Maybe it's because Bruce wrote the song after his first a
 There's so much to appreciate about "Ballad of the Self-Loading Pistol":
 
 - The extremely ear-friendly melody that's not only catchier than half of *Greetings from Asbury Park* (IMO, at least), it also bears a remarkable resemblance to Little Steven's much later enduring classic, "I Am a Patriot" — so much so that I can't help but wonder if "Ballad of the Self-Loading Pistol" had truly been forgotten.
-- The story line that presages Bruce's songwriting twenty years down the line. "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)" is essentially a more mature, nuanced, and cinematic rewrite of "Ballad of a Self-Loading Pistol." Both songs center around protagonists who are lured by lust into situations for which they're unprepared and which end tragically. But compare Bruce's 1973 lyric "*There was a robbery, there was a holdup, there was a shootout, and there was a killing, and there's blood on my hands*" with "*I had a gun, you know the rest–money on the floorboards, shirt was covered in blood and she was crying*." I'm not sure there's a better example of how Bruce honed his storytelling craft over the years.
+- The story line that presages Bruce's songwriting twenty years down the line. "[Highway 29](../2018-03-23_roll-of-the-dice-highway-29/post.md)" is essentially a more mature, nuanced, and cinematic rewrite of "Ballad of a Self-Loading Pistol." Both songs center around protagonists who are lured by lust into situations for which they're unprepared and which end tragically. But compare Bruce's 1973 lyric "*There was a robbery, there was a holdup, there was a shootout, and there was a killing, and there's blood on my hands*" with "*I had a gun, you know the rest–money on the floorboards, shirt was covered in blood and she was crying*." I'm not sure there's a better example of how Bruce honed his storytelling craft over the years.
 - Turns of phrase like "an appetite for loving only a fading beauty could possess" and "the love song a bullet sings as she whistles" that a songwriter could still be proud of decades later, and that stand out here because of the uncharacteristic (for the time) restraint Bruce shows with his metaphor and rhyming dictionary.
 - The incredibly powerful vocal performance Bruce delivers, especially for a solo acoustic recording. You can feel the anguish of the son in your bones as he confesses his sins to his father.
 

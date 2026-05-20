@@ -2,7 +2,7 @@ Long before *Springsteen on Broadway* and *Born to Run* (the book), Bruce wrote 
 
 The impetus was a very special stop on his Ghost of Tom Joad solo acoustic tour, at Bruce's old grammar school, St. Rose of Lima, a benefit for the school's Hispanic community center.
 
-The show was intimate (it was literally held in the school gymnasium), familial (only residents of the borough were allowed to buy tickets), and ribald–Bruce seemed to take great pleasure in playing songs like "[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)" in front of the assembled nuns, no doubt a cathartic experience for a graduate of a repressive Catholic school education.
+The show was intimate (it was literally held in the school gymnasium), familial (only residents of the borough were allowed to buy tickets), and ribald–Bruce seemed to take great pleasure in playing songs like "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)" in front of the assembled nuns, no doubt a cathartic experience for a graduate of a repressive Catholic school education.
 
 We can only imagine what Bruce must have felt like returning to "the scene of the crime." (Bruce certainly gave us much assistance to do so in his 2016 autobiography.) As the [November 8th date approached](https://estreetshuffle.com/index.php/2018/11/08/kingdom-of-days-november-8/), Bruce decided to do more than just play a standard tour show; he invited some special guests (Patti and Soozie) to join him on stage, and tour premiered a whopping eight songs for the hometown crowd.
 

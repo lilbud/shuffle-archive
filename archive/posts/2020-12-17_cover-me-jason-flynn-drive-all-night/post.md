@@ -9,6 +9,6 @@ I have a soft spot for buskers, especially those who appreciate the music of Bru
 
 So while I don't know anything about this particular street musician to provide as background, I nevertheless encourage you to take six minutes out of your day to enjoy Jason Flynn's beautiful cover of Bruce's timeless love song, "."
 
-[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)
+[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)
 
 Flynn's rendition is more tender than Bruce's original. If Bruce's version is a powerful declaration of the lengths he'd go to for his girl, Flynn's version is a quiet but confident pledge of devotion. It's simply a beautiful performance.

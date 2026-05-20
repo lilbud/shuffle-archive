@@ -14,7 +14,7 @@ Intriguingly, though, when the E Street Band rehearsed the song, it was known as
 
 (Signal Hill is most likely a reference to Telegraph Hill, the name of Bruce's street (as well as a nearby park) where he lived from the Born to Run-era through 1981, which leads me to suspect that Bruce actually wrote the song even earlier than 1982.)
 
-The retitling appears to have been a late decision, however, because when the song was originally issued as the B-side to "[A Woman's Got the Power](https://estreetshuffle.com/index.php/2018/03/01/cover-me-a-womans-got-the-power/)" in Australia, it was actually called "Now and Forever."
+The retitling appears to have been a late decision, however, because when the song was originally issued as the B-side to "[A Woman's Got the Power](../2018-03-01_cover-me-a-womans-got-the-power/post.md)" in Australia, it was actually called "Now and Forever."
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/nowandforever.jpg.webp)
 

@@ -14,7 +14,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/5budtv00)
 
-**1980:** At the Power Station in New York City, Bruce and the E Street Band work on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”<br>
+**1980:** At the Power Station in New York City, Bruce and the E Street Band work on “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Official Audio)](https://www.youtube.com/watch?v=boJhWtw-6Gg)
 
@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1983:** In his home studio in Los Angeles, Bruce records “[County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/).” It will remain unreleased for two decades.<br>
+**1983:** In his home studio in Los Angeles, Bruce records “[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md).” It will remain unreleased for two decades.<br>
 
 [Watch on Youtube: County Fair (Studio Outtake - 1983)](https://www.youtube.com/watch?v=yltKgMyWLH0)
 
@@ -34,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1995-0324.jpg.webp)
 
-**2008:** Bruce plays “[You’ll Be Comin’ Down](https://estreetshuffle.com/index.php/2018/09/03/roll-of-the-dice-youll-be-comin-down/)” for the first and only time when the Magic Tour stops at the Value City Arena in Columbus, Ohio. The set list also features the tour premieres of “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” and “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/).”<br>
+**2008:** Bruce plays “[You’ll Be Comin’ Down](../2018-09-03_roll-of-the-dice-youll-be-comin-down/post.md)” for the first and only time when the Magic Tour stops at the Value City Arena in Columbus, Ohio. The set list also features the tour premieres of “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” and “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - You'll Be Comin Down - Columbus- March 24, 2008](https://www.youtube.com/watch?v=xp71N3OTQ4g)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2008-03-24.jpg.webp)
 
-**2009:** The second and final rehearsal show for the Working on a Dream Tour features the live premiere of “[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)” at Asbury Park’s Convention Hall.<br>
+**2009:** The second and final rehearsal show for the Working on a Dream Tour features the live premiere of “[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)” at Asbury Park’s Convention Hall.<br>
 
 [Watch on Youtube: Kingdom Of Days - Asbury Park 2009](https://www.youtube.com/watch?v=aHGw8t9zoGM)
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Something In The Night - Bruce Springsteen - Rod Laver Arena - 24-03-2013](https://www.youtube.com/watch?v=G6RuCkjsUR4)
 
-**2016:** The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/).” Eddie Vedder joins Bruce for “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” in the encores. For more highlights, see my [*Where the Band Was* report for this show.](https://estreetshuffle.com/index.php/2018/03/24/where-the-band-was-seattle-march-24-2016/)<br>
+**2016:** The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md).” Eddie Vedder joins Bruce for “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” in the encores. For more highlights, see my [*Where the Band Was* report for this show.](../2018-03-24_where-the-band-was-seattle-march-24-2016/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen and Eddie Vedder- Bobby Jean, Key Arena, Seattle, WA, March 24, 2016](https://www.youtube.com/watch?v=TuyXZLdfSCQ)
 
@@ -66,6 +66,6 @@
 
 [Watch on Youtube: New Jersey Pandemic Relief Fund launch](https://www.youtube.com/watch?v=uHGGh5mFJng)
 
-**2021:** Bruce sends a video message out to remember Austalian promotor Michael Gudiski, who passed away on March 2nd, and dedicates “[I’ll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)” to him.<br>
+**2021:** Bruce sends a video message out to remember Austalian promotor Michael Gudiski, who passed away on March 2nd, and dedicates “[I’ll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)” to him.<br>
 
 [Watch on Youtube: Michael Gudinski's state memorial was a celebration of 50 years of passion | ABC News](https://www.youtube.com/watch?v=n_MP_Iq5uGo)

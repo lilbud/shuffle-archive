@@ -18,7 +18,7 @@ Here’s their finished title track, with Bruce on lead guitar and paired vocals
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SHqPgYvDaNo)
 
-Unlike *American Babylon*, which features Springsteen on almost every track, Bruce only appears on four tracks on *A Good Life* and only sings on three. One of those tracks was their co-authored “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/),” which would have been a great thematic fit on *American Babylon.*
+Unlike *American Babylon*, which features Springsteen on almost every track, Bruce only appears on four tracks on *A Good Life* and only sings on three. One of those tracks was their co-authored “[Code of Silence](../2018-08-27_codeofsilence/post.md),” which would have been a great thematic fit on *American Babylon.*
 
 But the other two were polar opposites from their previous work together: “Is She the One” and “A Good Life” are bright, happy songs (“*uncharacteristically* happy,” Joe notes with a laugh).
 

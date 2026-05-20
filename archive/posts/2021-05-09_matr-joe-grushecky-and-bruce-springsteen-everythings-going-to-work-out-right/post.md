@@ -4,7 +4,7 @@ Bruce Springsteen co-wrote four songs on Joe Grushecky's 1998 album, *Coming Hom
 
 [Watch on Youtube: Everything's Going To Work Out Right](https://www.youtube.com/watch?v=om6WqPrOTUA)
 
-It's also more than a little unjustly ironic, because it's Joe's first track following the artistic success but commercial failure of *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/).* One can't help but reflect that everything *didn't* work out right, which makes the opening verse and chorus by this teacher-by-day/rocker-by-night all the more meaningful:
+It's also more than a little unjustly ironic, because it's Joe's first track following the artistic success but commercial failure of *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md).* One can't help but reflect that everything *didn't* work out right, which makes the opening verse and chorus by this teacher-by-day/rocker-by-night all the more meaningful:
 
 > *Don't ever lose your faith in me*<br>
 > *Because I will never let you down*<br>

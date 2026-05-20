@@ -4,11 +4,11 @@ If there's a song in Bruce's catalog that we all need right now, it's "Across th
 
 [Watch on Youtube: Across the Border](https://www.youtube.com/watch?v=LuJjiD8j6fQ)
 
-Almost certainly inspired by Freddy Fender's "[Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)" (written by John Hiatt, Jim Dickinson, and Ry Cooder from the 1982 film *The Border*, Bruce's song takes a far more hopeful approach to the tale of a would-be Mexican immigrant preparing to make the dangerous and desperate journey northward.
+Almost certainly inspired by Freddy Fender's "[Across the Borderline](../2022-03-26_matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/post.md)" (written by John Hiatt, Jim Dickinson, and Ry Cooder from the 1982 film *The Border*, Bruce's song takes a far more hopeful approach to the tale of a would-be Mexican immigrant preparing to make the dangerous and desperate journey northward.
 
 [Watch on Youtube: Across the Borderline](https://www.youtube.com/watch?v=tECEpWlOWgY)
 
-The optimistic bent of "Across the Border" is intentional. In the March/April 1996 issue of *Mother Jones*, Bruce told interviewer David Corn, "I got to the end of the [[*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)] record, and there had been a lot of mayhem. I wanted to leave the door open, so I wrote ‘Across the Border.' That song is a beautiful dream. It's the kind of dream you would have before you fall asleep, where you live in a world where beauty is still possible. And in the possibility of beauty there is hope."
+The optimistic bent of "Across the Border" is intentional. In the March/April 1996 issue of *Mother Jones*, Bruce told interviewer David Corn, "I got to the end of the [[*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)] record, and there had been a lot of mayhem. I wanted to leave the door open, so I wrote ‘Across the Border.' That song is a beautiful dream. It's the kind of dream you would have before you fall asleep, where you live in a world where beauty is still possible. And in the possibility of beauty there is hope."
 
 And that's why "Across the Border" endures as one of Bruce's most sublime songs: it's about our ability to stubbornly cling to faith and hope even when our brain tells us the odds are almost hopelessly stacked against us.
 
@@ -74,7 +74,7 @@ And then comes the final stanzas, featuring what is surely one of Bruce's finest
 > *I know love and fortune will be mine*<br>
 > *Somewhere across the border*<br>
 
-Bruce's final words are heartbreaking: *somewhere* across the border. Note the change from the definitive *there* he uses to close each AABA stanza pattern until this point. The songwriter's deliberate switch from *there* to *somewhere* betrays a crack in the narrator's emotional armor–not enough to weaken the song's power, but enough to remind us that faith isn't the same thing as naivete and that hope rhymes with bravery. These notions are important–both here and especially in the song's sequel, "[Matamoros Banks](https://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/)."
+Bruce's final words are heartbreaking: *somewhere* across the border. Note the change from the definitive *there* he uses to close each AABA stanza pattern until this point. The songwriter's deliberate switch from *there* to *somewhere* betrays a crack in the narrator's emotional armor–not enough to weaken the song's power, but enough to remind us that faith isn't the same thing as naivete and that hope rhymes with bravery. These notions are important–both here and especially in the song's sequel, "[Matamoros Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)."
 
 Soozie, Patti Scialfa, and Lisa Lowell provide wordless backing vocals during these last stanzas, a heavenly choir whose voices are the last we hear. Bruce takes a second harmonica solo–this time strong and confident, in sharp contrast with his mid-song solo–with Soozie and Danny providing almost ethereal accompaniment.
 
@@ -88,7 +88,7 @@ Post-Joad performances of "Across the Border" have been rare, but when they happ
 
 [Watch on Youtube: Bruce Springsteen - Across The Border (w/ Bruce Hornsby) - Norfolk-11/11/05 [Slideshow]](https://www.youtube.com/watch?v=PUnYtG8vvF4)
 
-…or this rare E Street Band performance from 2003, performed as a duet with Emmylou Harris, who memorably [covered "Across the Border" with Linda Ronstadt and Neil Young](https://estreetshuffle.com/index.php/2018/08/29/cover-me-linda-ronstadt-emmylou-harris-and-neil-young-across-the-border/) in 1999.
+…or this rare E Street Band performance from 2003, performed as a duet with Emmylou Harris, who memorably [covered "Across the Border" with Linda Ronstadt and Neil Young](../2018-08-29_cover-me-linda-ronstadt-emmylou-harris-and-neil-young-across-the-border/post.md) in 1999.
 
 [Watch on Youtube: Across The Border Bruce Springsteen 8/30/2003 Giants Stadium NJ](https://www.youtube.com/watch?v=yi7DO6uBlXM)
 

@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Toronto (1/21/1981)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CY8lZmxi5bYYm_HCKVCEGQ)
 
-**1987**: At the second Rock and Roll Hall of Fame ceremonies, Bruce inducts Roy Orbison and performs with him on “[Oh, Pretty Woman](https://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/).”<br>
+**1987**: At the second Rock and Roll Hall of Fame ceremonies, Bruce inducts Roy Orbison and performs with him on “[Oh, Pretty Woman](../2019-08-25_matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen inducts Roy Orbison into the Rock and Roll Hall of Fame 1987](https://www.youtube.com/watch?v=NEZ5TRBE49M)
 
@@ -26,7 +26,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/lH6SiNVz)
 
-**2006:** Bruce assembles the Seeger Sessions band for a final recording session, capturing “[Eyes on the Prize](https://estreetshuffle.com/index.php/2021/11/01/cover-me-eyes-on-the-prize/),” “[Jacob’s Ladder](https://estreetshuffle.com/index.php/2019/04/18/rotd-cover-me-jacobs-ladder/),” “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/),” “[How Can I Keep From Singing](https://estreetshuffle.com/index.php/2019/11/21/cover-me-how-can-i-keep-from-singing/)” “[Bring ’em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/)” and “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/).” Of these, only “American Land” remains unreleased from this session. (Bruce re-recorded it for *Wrecking Ball*.)<br>
+**2006:** Bruce assembles the Seeger Sessions band for a final recording session, capturing “[Eyes on the Prize](../2021-11-01_cover-me-eyes-on-the-prize/post.md),” “[Jacob’s Ladder](../2019-04-18_rotd-cover-me-jacobs-ladder/post.md),” “[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md),” “[How Can I Keep From Singing](../2019-11-21_cover-me-how-can-i-keep-from-singing/post.md)” “[Bring ’em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md)” and “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md).” Of these, only “American Land” remains unreleased from this session. (Bruce re-recorded it for *Wrecking Ball*.)<br>
 
 [Watch on Youtube: Eyes on the Prize](https://www.youtube.com/watch?v=I7lnBLLn7wA)
 

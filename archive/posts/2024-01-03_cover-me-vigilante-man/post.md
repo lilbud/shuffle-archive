@@ -1,6 +1,6 @@
 In late 1987, Bruce signed on to a Woody Guthrie tribute project called *Folkways: A Vision Shared*, produced by the late Harold Leventhal, who managed Guthrie along with Pete Seeger, Joan Baez, Judy Collins, and many other great folk artists.
 
-Bruce contributed not one but two songs to the project: We looked at the first one ("[I Ain't Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)") a few years ago. Today we take a listen to the second–a reworking of Woody's "Vigilante Man."
+Bruce contributed not one but two songs to the project: We looked at the first one ("[I Ain't Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)") a few years ago. Today we take a listen to the second–a reworking of Woody's "Vigilante Man."
 
 [Watch on Youtube: Vigilante Man - Woody Guthrie](https://www.youtube.com/watch?v=EcKbeSPE-uA)
 

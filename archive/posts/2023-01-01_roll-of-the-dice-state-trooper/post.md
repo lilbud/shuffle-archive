@@ -2,7 +2,7 @@
 
 In 1981, Bruce Springsteen was listening to a lot of Suicide, the punk pairing of Alan Vega and Martin Rev.
 
-Almost a quarter of a century later, Suicide would inspire "[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)," one of Bruce's most optimistic covers and one of only a handful Bruce ever recorded in the studio. But long before that, they inspired the most harrowing song in Bruce's catalog, the spine-tingling, hair-raising "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)."
+Almost a quarter of a century later, Suicide would inspire "[Dream Baby Dream](../2020-04-02_cover-me-dream-baby-dream/post.md)," one of Bruce's most optimistic covers and one of only a handful Bruce ever recorded in the studio. But long before that, they inspired the most harrowing song in Bruce's catalog, the spine-tingling, hair-raising "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)."
 
 [Watch on Youtube: State Trooper](https://www.youtube.com/watch?v=wpvXfLlcHwc)
 
@@ -32,7 +32,7 @@ But it gradually dawns on us that the reason he's hoping against hope not to mee
 
 Bruce makes sure we know his narrator lacks the social connections that we know (because he'd much later explicitly confess to us) kept the songwriter himself from falling into the abyss.
 
-(In one of Bruce's lesser-known released songs, he'd someday write "*In the days of despair you can grow hard, 'til you close your mind and empty your heart. If you find yourself staring in the abyss, hold tight to your loved ones and remember this: This shield will protect your secret heart; the sword will defend from what comes in the dark. Should you grow weary on the battlefield, do not despair: our love is real.*" "[This is Your Sword](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)" is basically the antidote to "State Trooper.")
+(In one of Bruce's lesser-known released songs, he'd someday write "*In the days of despair you can grow hard, 'til you close your mind and empty your heart. If you find yourself staring in the abyss, hold tight to your loved ones and remember this: This shield will protect your secret heart; the sword will defend from what comes in the dark. Should you grow weary on the battlefield, do not despair: our love is real.*" "[This is Your Sword](../2021-02-04_roll-of-the-dice-this-is-your-sword/post.md)" is basically the antidote to "State Trooper.")
 
 As the song builds to its climax, the recording levels climb into the red zone. I've always wondered whether that was an intentional decision on Bruce's part, and I've chosen to believe so–because the distortion that appears at this point builds throughout the remainder of the song, and it's a perfect metaphor for the narrator's rapidly decreasing clarity of thought.
 
@@ -51,7 +51,7 @@ As he nears his fatal destination, Bruce's night driver sends out one last plea 
 
 …but we know that no such relief is coming, until he delivers it for and to himself.
 
-(Bruce would use that last line (slightly transformed) in two other songs as well: "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" and "[Living on the Edge of the World](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)." The concept of being trapped in one's own life, one's own head, must have been haunting him at the time.)
+(Bruce would use that last line (slightly transformed) in two other songs as well: "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" and "[Living on the Edge of the World](../2018-10-18_roll-of-the-dice-living-on-the-edge-of-the-world/post.md)." The concept of being trapped in one's own life, one's own head, must have been haunting him at the time.)
 
 The primal whoops and screams that lead the song off into the endless night are as terrifying as anything Bruce has ever put down on record (although nowhere near as blood-curdling as Vega's "Frankie Teardrop" vocals).
 

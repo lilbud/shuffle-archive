@@ -28,11 +28,11 @@ But oh, that wailing guitar solo finish by 22-year-old Bruce... those final two 
 
 [Watch Video Highlight](https://videopress.com/embed/iKPVOvfb)
 
-If you're not already duly impressed by that performance, then consider this: just two months later, Bruce was already writing and recording the songs that would appear not long after on [*Greetings From Asbury Park, N.J*.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)
+If you're not already duly impressed by that performance, then consider this: just two months later, Bruce was already writing and recording the songs that would appear not long after on [*Greetings From Asbury Park, N.J*.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)
 
 The Bruce Springsteen Band era has such a distinctly different sound than that of the E Street Band that it's easy to assume they were separated by years.
 
-But it was only a matter of weeks between those smoky Back Door performances and the creation of Springsteen originals like "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" and "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" that we know and love today.
+But it was only a matter of weeks between those smoky Back Door performances and the creation of Springsteen originals like "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" and "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)" that we know and love today.
 
 **Sitting on Top of the World**<br>
 **First performed:** February 4, 1972 (Richmond, VA)*<br>

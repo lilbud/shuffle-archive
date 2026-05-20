@@ -18,7 +18,7 @@ The cars themselves represent the golden age of the American automobile; buried 
 
 In "Cadillac Ranch" the song, Bruce leaps behind the wheel of that metaphor and takes it on a manic, gleeful joyride before eventually driving it even deeper into the ground than the actual Cadillacs themselves.
 
-Whenever Bruce refers to a Cadillac, he speaks of Death. (In this song, at least. In his other Caddy song, "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)," it represents a vagina. Make of that what you will.)
+Whenever Bruce refers to a Cadillac, he speaks of Death. (In this song, at least. In his other Caddy song, "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)," it represents a vagina. Make of that what you will.)
 
 So when Bruce sings…
 
@@ -81,13 +81,13 @@ And there's probably a message in that, too: time doesn't stop for grief. Pullin
 
 ---
 
-Even by critics who do understand the song, "Cadillac Ranch" is often lumped into the same category as "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" and "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" — songs where Bruce's lyrics are belied by the backing track.
+Even by critics who do understand the song, "Cadillac Ranch" is often lumped into the same category as "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" — songs where Bruce's lyrics are belied by the backing track.
 
-But that's an unfair classification for "Cadillac Ranch," because it's hard to imagine the song working in any arrangement other than the one Bruce went with for the studio track. Trust me–Bruce has on rare occasion tried a different arrangement. It usually does not go well, like in this 2005 solo acoustic arrangement inexplicably interchanged with "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" on the tour.
+But that's an unfair classification for "Cadillac Ranch," because it's hard to imagine the song working in any arrangement other than the one Bruce went with for the studio track. Trust me–Bruce has on rare occasion tried a different arrangement. It usually does not go well, like in this 2005 solo acoustic arrangement inexplicably interchanged with "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" on the tour.
 
 [Watch on Youtube: 22. Cadillac Ranch (Bruce Springsteen - Live In Copenhagen 6-22-2005)](https://www.youtube.com/watch?v=Lp-kAScF8Kc)
 
-Or in this 2006 Seeger Sessions arrangement, where Bruce mashes up "Cadillac Ranch" with a cover of "[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)," which is actually brilliant from a lyrical point of view but never quite lives up to its potential. (It pains me to write that, because I loved that tour so very much.)
+Or in this 2006 Seeger Sessions arrangement, where Bruce mashes up "Cadillac Ranch" with a cover of "[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)," which is actually brilliant from a lyrical point of view but never quite lives up to its potential. (It pains me to write that, because I loved that tour so very much.)
 
 [Watch on Youtube: Bruce Springsteen with The SSB -Cadillac Ranch/Mistery Train](https://www.youtube.com/watch?v=mYeiOaOluqU)
 

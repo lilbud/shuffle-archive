@@ -6,7 +6,7 @@ There's a lot of worship going on here, but it's not clear to me whether the nar
 
 [Watch on Youtube: I'll Work for Your Love](https://www.youtube.com/watch?v=WkWluPIMviE)
 
-Seriously, there must be almost as much religious imagery here as in "[Jesus Was an Only Son](https://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/)," and at least there it was all literal. In "I'll Work For Your Love," the metaphor starts in the second line and never stops.
+Seriously, there must be almost as much religious imagery here as in "[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md)," and at least there it was all literal. In "I'll Work For Your Love," the metaphor starts in the second line and never stops.
 
 The setting is pure Springsteen: a nameless bar where an anonymous patron fantasizes about Theresa, who is presumably the bartender, judging from the opening line:
 
@@ -44,7 +44,7 @@ But working for her love is gonna take a lot more (or a lot less) than driving a
 
 Am I a Valentine's buzzkill? Well, let me fix that:
 
-When Bruce performs this song live, there's no question that he delivers it as a love song–in fact, he dedicates it specifically *to* the lovers in the room almost every time he plays it. In true Springsteen fashion, the chorus of the song has more power than the verses, but Bruce seems happier to embrace that here than he does for, say, "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"
+When Bruce performs this song live, there's no question that he delivers it as a love song–in fact, he dedicates it specifically *to* the lovers in the room almost every time he plays it. In true Springsteen fashion, the chorus of the song has more power than the verses, but Bruce seems happier to embrace that here than he does for, say, "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
 
 [Watch on Youtube: MULTICAM-I'll work for your love-Bruce Springsteen (Stockholm 2007) BEST AUDIO.flv](https://www.youtube.com/watch?v=hFcMchbqny4)
 

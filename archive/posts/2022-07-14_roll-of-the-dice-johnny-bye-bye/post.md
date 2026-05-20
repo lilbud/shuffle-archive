@@ -8,7 +8,7 @@ He'd been on the road non-stop for six months, and he needed a break. He'd compl
 
 Atypically, he cancelled almost three weeks worth of shows and retreated to his home in Colts Neck, New Jersey to rest. And because he's Bruce Springsteen, he wrote.
 
-He had an outtake from his previous record called "[Come On (Let's Go Tonight)](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)" that didn't make either *Darkness on the Edge of Town* or *The River–*most likely because its melody (and a few of its lyrics) gave way to "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)."
+He had an outtake from his previous record called "[Come On (Let's Go Tonight)](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)" that didn't make either *Darkness on the Edge of Town* or *The River–*most likely because its melody (and a few of its lyrics) gave way to "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j_LBQD2nghw)
 
@@ -26,7 +26,7 @@ It was a stronger song, and one that showed considerable promise. When he return
 
 "Johnny Bye Bye" featured a contemplative, almost pensive melody, but its lyrics ran the gamut from wistfully romantic to brutally tragic.
 
-To understand (let alone appreciate) "Johnny Bye Bye," we first have to understand a little bit of rock and roll history. In 1960, the legendary Chuck Berry recorded a follow-up to his smash hit 1958 single, "[Johnny B. Goode](https://estreetshuffle.com/index.php/2018/01/22/meeting-across-the-river-check-berry-bruce-springsteen-and-the-e-street-band/)." In fact, it was more than a follow-up–"[Bye Bye Johnny](https://estreetshuffle.com/index.php/2018/08/18/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-bye-bye-johnny/)" was a direct sequel.
+To understand (let alone appreciate) "Johnny Bye Bye," we first have to understand a little bit of rock and roll history. In 1960, the legendary Chuck Berry recorded a follow-up to his smash hit 1958 single, "[Johnny B. Goode](../2018-01-22_meeting-across-the-river-check-berry-bruce-springsteen-and-the-e-street-band/post.md)." In fact, it was more than a follow-up–"[Bye Bye Johnny](../2018-08-18_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-bye-bye-johnny/post.md)" was a direct sequel.
 
 One of the most recognizable and most covered songs in rock history, "Johnny B. Goode" was the story of a country boy with uncanny musical talent who (with his mother's encouragement) dreams of making it big.
 
@@ -85,7 +85,7 @@ In early 1983, however, Bruce made another attempt, once again recasting the mus
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VK2l94VDFkU)
 
-That version of "Johnny Bye Bye" appeared on the B-side of the single for "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)," and Bruce played it throughout the fall and winter of 1984-1985.
+That version of "Johnny Bye Bye" appeared on the B-side of the single for "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," and Bruce played it throughout the fall and winter of 1984-1985.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MQ6hQ2iHD2g)
 

@@ -10,7 +10,7 @@ With due respect to the author, I think he misdirects a bit. "Somewhere North of
 
 [Watch on Youtube: Bruce Springsteen - Somewhere North of Nashville (Official Audio)](https://www.youtube.com/watch?v=FC3_D4PVlF8)
 
-At one minute and fifty-two seconds, "Somewhere North of Nashville" is the shortest song on *Western Stars* and one of his shortest in his entire catalog. But as with "[Camilla Horn](https://estreetshuffle.com/index.php/2022/06/07/roll-of-the-dice-camilla-horn/)" a couple of days ago (short songs seem to be our theme this week), Bruce demonstrates that it needn't take more than two minutes to bring a character to life.
+At one minute and fifty-two seconds, "Somewhere North of Nashville" is the shortest song on *Western Stars* and one of his shortest in his entire catalog. But as with "[Camilla Horn](../2022-06-07_roll-of-the-dice-camilla-horn/post.md)" a couple of days ago (short songs seem to be our theme this week), Bruce demonstrates that it needn't take more than two minutes to bring a character to life.
 
 The narrator of "Somewhere North of Nashville" is an itinerant musician who prioritized his career above his love life… not unlike a certain songwriter during his early years. Thinking he could have both, he made a go of it in Nashville, making the rounds of the clubs and making a home with his love.
 

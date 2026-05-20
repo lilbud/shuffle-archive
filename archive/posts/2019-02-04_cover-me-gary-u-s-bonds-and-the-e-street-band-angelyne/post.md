@@ -8,7 +8,7 @@ Gary U.S. Bonds' cover of Bruce's "Angelyne" falls into an odd third category, h
 
 How in the world did this come about? We can thank Columbia Records for that.
 
-Although there seems to be no definitive chronicle or sequence of events, it appears that Bruce and the E Street Band first recorded "Angelyne" on February 1, 1980 during the River sessions. (Interestingly, the song kicks off with "party noises" similar to those in "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)," which Bruce would record later that same month. Bruce gave "Angelyne" to Bonds, who likely recorded his vocals over the backing track, turning the song into a duet with Bruce.
+Although there seems to be no definitive chronicle or sequence of events, it appears that Bruce and the E Street Band first recorded "Angelyne" on February 1, 1980 during the River sessions. (Interestingly, the song kicks off with "party noises" similar to those in "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)," which Bruce would record later that same month. Bruce gave "Angelyne" to Bonds, who likely recorded his vocals over the backing track, turning the song into a duet with Bruce.
 
 And that's where Columbia enters the picture: Although they apparently had no objection to Bruce participating in Bonds' previous album, *Dedication*, they took issue with Bruce's vocals being used on the follow-up. So even though Bruce co-produced the album and wrote a whopping seven of the eleven tracks on the album, Bruce was forced to remove his vocals from all of the recorded tracks (although I swear I can hear his unmistakable whoop at around the 1:53 mark).
 
@@ -16,7 +16,7 @@ That didn't pose a problem for most of the album, since Bruce was singing very m
 
 (Footnote: the original version with Bruce is still in the vault somewhere, it seems: in 1993, Bruce compiled an early prototype of *Tracks*, on which "Angelyne" was the second-to-last of 25 tracks. Several of the songs on that album remain unreleased to this day and continue to tantalize collectors.)
 
-As for the song itself: let's start with the title, because it holds some significance: it was the working title of the song that would eventually become "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)." Take a listen to this early pre-Mary demo:
+As for the song itself: let's start with the title, because it holds some significance: it was the working title of the song that would eventually become "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)." Take a listen to this early pre-Mary demo:
 
 [Watch on Youtube: Bruce Springsteen Angelyne #1 Acoustic Demo](https://www.youtube.com/watch?v=APldzhXlBIE)
 

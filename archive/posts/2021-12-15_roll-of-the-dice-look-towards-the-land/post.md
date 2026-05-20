@@ -36,7 +36,7 @@ But in the two other recorded performances of this song (from the previous year)
 > *Keep an eye on the land*<br>
 > *And an eye on the sea*<br>
 
-I have to admit: I had to look up Donald McKay to verify if he was a real person, and indeed he was. McKay was a famous clipper shipbuilder, and the fact that Bruce knew this and namechecked him–combined with the fact that Bruce has made references to [dreams of clipper ships in other songs](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)–implies that Bruce had a genuine fascination with clippers, and that this isn't just a piece of colorful detail for a song.
+I have to admit: I had to look up Donald McKay to verify if he was a real person, and indeed he was. McKay was a famous clipper shipbuilder, and the fact that Bruce knew this and namechecked him–combined with the fact that Bruce has made references to [dreams of clipper ships in other songs](../2018-11-30_roll-of-the-dice-garden-state-parkway-blues/post.md)–implies that Bruce had a genuine fascination with clippers, and that this isn't just a piece of colorful detail for a song.
 
 A lovely Clapton-esque guitar solo follows, and then we continue:
 

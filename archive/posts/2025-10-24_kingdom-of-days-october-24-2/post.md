@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 4th Of July, Asbury Park (Sandy) - Richmond-10/24/05 [Slideshow]](https://www.youtube.com/watch?v=evlvN2qZym8)
 
-**2006:** The Seeger Sessions Tour arrives in Barcelona, where Bruce tour premieres "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" to open the encores. "[Love of the Common People](https://estreetshuffle.com/index.php/2020/10/21/cover-me-love-of-the-common-people/)" is recorded and will be released on *Live in Dublin.*<br>
+**2006:** The Seeger Sessions Tour arrives in Barcelona, where Bruce tour premieres "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" to open the encores. "[Love of the Common People](../2020-10-21_cover-me-love-of-the-common-people/post.md)" is recorded and will be released on *Live in Dublin.*<br>
 
 [Watch on Youtube: SPRINGSTEEN: BARCELONA BROADCAST TOUR 2006](https://www.youtube.com/watch?v=c5yRchGeZCY)
 

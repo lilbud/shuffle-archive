@@ -1,16 +1,16 @@
 ***New for 2025:** Video for 2014*<br>
 
-**1976:** The second of two nights in Cleveland on the Chicken Scratch Tour features the last “[When You Walk in the Room](https://estreetshuffle.com/index.php/2020/10/08/cover-me-when-you-walk-in-the-room/)” for 33 years.<br>
+**1976:** The second of two nights in Cleveland on the Chicken Scratch Tour features the last “[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)” for 33 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-08 Allen Theatre, Cleveland, OH](https://www.youtube.com/watch?v=rij7NJhcmoI)
 
-**1984:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: “Proud Mary,” “[Dirty Water,](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)” “[I’m Bad, I’m Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/),” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”<br>
+**1984:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: “Proud Mary,” “[Dirty Water,](../2022-03-18_cover-me-dirty-water/post.md)” “[I’m Bad, I’m Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md),” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”<br>
 
 [Watch on Youtube: Bruce Springsteen and Cats on a Smooth Surface - Stone Pony - 1984-04-08](https://www.youtube.com/watch?v=E0nGuxZTSNo)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1984-04-08.jpg.webp)
 
-**1993:** At the second of two shows in Zurich, Bruce plays “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” for the first and only time this year and tour debuts “Rockin’ All Over the World.”<br>
+**1993:** At the second of two shows in Zurich, Bruce plays “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” for the first and only time this year and tour debuts “Rockin’ All Over the World.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D126GX2S)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Springsteen at Honda Center - 2008-04-08](https://www.youtube.com/watch?v=ZNgu0Ai-5CU)
 
-**2009:** The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” and “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/).”<br>
+**2009:** The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)” and “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/).”<br>
 
 [Watch on Youtube: Bruce Springsteen Houston 2009 04 08 Badlands, Outlaw Pete and No Surrender](https://www.youtube.com/watch?v=iLs5BY-Ih94)
 

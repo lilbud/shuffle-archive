@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1974-0813.jpg.webp)
 
-**1975:** Bruce’s legendary stand at the Bottom Line in New York City begins here, on Night One of a five-night/ten-show residency, during which 25% of all tickets are distributed by Columbia Records to journalists and employees, establishing high stakes for Bruce and the E Street Band throughout the stand. The early show is mostly undocumented but known to feature Bruce’s first performance of “[When You Walk in the Room](https://estreetshuffle.com/index.php/2020/10/08/cover-me-when-you-walk-in-the-room/)” and only the second-ever performance of “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/).” The late show features the first ever performance of “[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)” and the last recorded “New York City Serenade” until the Reunion Tour almost a quarter-century later.<br>
+**1975:** Bruce’s legendary stand at the Bottom Line in New York City begins here, on Night One of a five-night/ten-show residency, during which 25% of all tickets are distributed by Columbia Records to journalists and employees, establishing high stakes for Bruce and the E Street Band throughout the stand. The early show is mostly undocumented but known to feature Bruce’s first performance of “[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)” and only the second-ever performance of “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md).” The late show features the first ever performance of “[Night](../2019-10-31_roll-of-the-dice-night/post.md)” and the last recorded “New York City Serenade” until the Reunion Tour almost a quarter-century later.<br>
 
 [Watch on Youtube: New York (8/13/1975)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CLkG-HsMGH8NAjlqyweKD5)
 
@@ -32,13 +32,13 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1992-08-13b.png.webp)
 
-**2003:** The Rising Tour’s stadium leg moves on to U.S. Cellular Field in Chicago, where Bruce opens with “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” and plays a rare “[Where the Bands Are.](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)”<br>
+**2003:** The Rising Tour’s stadium leg moves on to U.S. Cellular Field in Chicago, where Bruce opens with “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)” and plays a rare “[Where the Bands Are.](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iuSfc17q)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2003-08-13.png.webp)
 
-**2005:[https://estreetshuffle.com/index.php/2018/08/13/where-the-band-was-vancouver-august-13-2005/](https://estreetshuffle.com/index.php/2018/08/13/where-the-band-was-vancouver-august-13-2005/)**Bruce wraps up his solo “summer extravaganza” at GM Place in Vancouver, BC, tour premiering “Because the Night” and giving “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” a rare outing. Fore more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/08/13/where-the-band-was-vancouver-august-13-2005/).<br>
+**2005:[../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md)**Bruce wraps up his solo “summer extravaganza” at GM Place in Vancouver, BC, tour premiering “Because the Night” and giving “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” a rare outing. Fore more highlights from this show, see my [*Where the Band Was* report](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - Living Proof on Pump Organ, August 13, 2005](https://www.youtube.com/watch?v=PxtqtXjKuSo)
 

@@ -6,13 +6,13 @@ His shows had reached and passed the four-hour mark (intermissions included), an
 
 For Bruce, though, resting up included more songwriting, and several home demos recorded during Bruce's month-long respite escaped into the wild.
 
-Just a few months later, Bruce's songwriting would turn dark, leading him to his next landmark album, *Nebraska.* But in the spring of 1981, Bruce was still very much in River mode, and several of the songs he wrote are surprisingly light and poppy. (See "[Riding Horse](https://estreetshuffle.com/index.php/2019/07/12/roll-of-the-dice-riding-horse/)," for example.)
+Just a few months later, Bruce's songwriting would turn dark, leading him to his next landmark album, *Nebraska.* But in the spring of 1981, Bruce was still very much in River mode, and several of the songs he wrote are surprisingly light and poppy. (See "[Riding Horse](../2019-07-12_roll-of-the-dice-riding-horse/post.md)," for example.)
 
 Perhaps the most charming song-that-never-was from this period is a confection known as "My Heart Is an Open Book."
 
 [Watch Video Highlight](https://videopress.com/embed/tOMgmcPc)
 
-Employing a similar conceit to Bruce's much-much-later composition "[Seven Angels,](https://estreetshuffle.com/index.php/2018/06/07/roll-of-the-dice-seven-angels/)" "My Heart Is an Open Book" contrasts a transparently steadfast lover with the inscrutable object of his affection.
+Employing a similar conceit to Bruce's much-much-later composition "[Seven Angels,](../2018-06-07_roll-of-the-dice-seven-angels/post.md)" "My Heart Is an Open Book" contrasts a transparently steadfast lover with the inscrutable object of his affection.
 
 > *You won't say what you need*<br>
 > *You won't say what you want*<br>

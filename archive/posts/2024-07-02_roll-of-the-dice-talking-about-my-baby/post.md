@@ -63,7 +63,7 @@ Lyrically, he made his baby a femme fatale–ultimately no more substantial than
 
 "Talking About My Baby" is a terrific song, suited and arranged perfectly for Springsteen's new band. So why did it disappear so quickly? We may never know. (I doubt Bruce would even remember the song if we asked him about it.) But musically, at least, its legacy lives on.
 
-Some months after that one-and-only documented performance of "Talking About My Baby," Bruce lifted and adapted his melody for a new song called "[Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)." You can hear it most obviously in the opening couplets of the latter song's verses.
+Some months after that one-and-only documented performance of "Talking About My Baby," Bruce lifted and adapted his melody for a new song called "[Janey Needs a Shooter](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md)." You can hear it most obviously in the opening couplets of the latter song's verses.
 
 [Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter](https://www.youtube.com/watch?v=AuoD-d0jblk)
 

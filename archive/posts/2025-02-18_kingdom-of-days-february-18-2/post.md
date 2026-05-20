@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Bruce Springsteen Born to Run Atlanta 2/18/16](https://www.youtube.com/watch?v=Qkdr9goDgJ8)
 
-**2017:** Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of "[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)" and "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)."<br>
+**2017:** Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)" and "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)."<br>
 
 [Watch on Youtube: I Fought The Law (Live at Hope Estate Winery, Hunter Valley, AU - 02/18/17 - Official Audio)](https://www.youtube.com/watch?v=IVuIXL30OC4)
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road - Hunter Valley 18th February 2017](https://www.youtube.com/watch?v=jZWSzzVzzWU)
 
-**2023:** Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during "[Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)."<br>
+**2023:** Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Ghosts - Kansas City, 2/18/2023](https://www.youtube.com/watch?v=dQaRy0bGWMc)
 

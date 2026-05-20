@@ -1,4 +1,4 @@
-Bruce may have written it for a completely different context, but for my money there's no song more suitable to serve as the anthem for 2021 than "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)."
+Bruce may have written it for a completely different context, but for my money there's no song more suitable to serve as the anthem for 2021 than "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)."
 
 Dutch band Krezip recognized that from the start when they covered it for their New Years Eve performance a few months back on the television show *Matthijs Gaat Door*.
 

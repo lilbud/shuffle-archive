@@ -6,6 +6,6 @@ To the best of my knowledge, though, no recording (or even a set list) has surfa
 
 But fear not, THATH/Springsteen fans: late last year, The Head and The Heart paid homage to Bruce once again, and this time their performance was not only captured on audio–it was streamed as part of a special 70th birthday tribute show.
 
-Here's that performance: a lovely and aptly-chosen cover of Bruce's "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)."
+Here's that performance: a lovely and aptly-chosen cover of Bruce's "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."
 
 [https://estreetshuffle.com/wp-content/uploads/2020/02/head-heart-hungry.mp3](https://estreetshuffle.com/wp-content/uploads/2020/02/head-heart-hungry.mp3)

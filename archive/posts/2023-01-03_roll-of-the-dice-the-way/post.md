@@ -10,13 +10,13 @@ Sometimes tracks were hidden because they didn't fit the theme or sound of the a
 
 In the 1990s glory days of the compact disc, it seemed everyone was releasing discs with hidden tracks: Nirvana, Green Day, Beck, Nine Inch Nails, Guns and Roses, Dr. Dre, and a host of other popular artists all took part in the practice.
 
-Bruce Springsteen, however, avoided it completely until his 2007 album *Magic*, which included an unlisted track called "[Terry's Song.](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)"
+Bruce Springsteen, however, avoided it completely until his 2007 album *Magic*, which included an unlisted track called "[Terry's Song.](../2018-07-30_roll-of-the-dice-terrys-song/post.md)"
 
 [Watch on Youtube: Terry's Song](https://www.youtube.com/watch?v=jo9tv7J0HR8)
 
 That track wasn't hidden so much as as unacknowledged; it was a late addition to the album after Bruce wrote and recorded it as a tribute for the late Terry Magovern, Bruce's friend and assistant, after Magovern passed away just weeks before the album's release. The album had already been completed, and in fact early copies of it didn't include the extra track at all.
 
-Three years later, though, Bruce released an album with a track that was hidden in the truest sense: At the end of the second disc of *The Promise*, a compilation of Darkness-era outtakes, Bruce appended a song called "The Way" to the album's final track ("[City of Night](https://estreetshuffle.com/index.php/2020/06/28/roll-of-the-dice-city-of-night/)") after a twenty-second pause.
+Three years later, though, Bruce released an album with a track that was hidden in the truest sense: At the end of the second disc of *The Promise*, a compilation of Darkness-era outtakes, Bruce appended a song called "The Way" to the album's final track ("[City of Night](../2020-06-28_roll-of-the-dice-city-of-night/post.md)") after a twenty-second pause.
 
 Bruce was so determined to hide the song that he didn't even make it a separate track. Even today, the only way to listen to an official recording of it is to play through the first three minutes or so of "City at Night" until "The Way" kicks in.
 
@@ -30,7 +30,7 @@ So why did he bury "The Way" so deeply?
 
 Bruce knew that fans had a soft spot for the outtake (especially his former producer Jimmy Iovine, who "lobbied for it in '78 like he was gonna keel over") thanks to a bootleg version that had been circulating for years, but he thought its proper home would have been "in a David Lynch film over a sexually perverse scene."
 
-He booted "The Way" off of[*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) not long before the album's release (replacing it with the similarly paced but more dour "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)"). He rejected it from *Tracks* in 1998. He even scratched it from the bonus disc that came with *The Essential Bruce Springsteen* in 2003, after initially slotting it in the leadoff position.
+He booted "The Way" off of[*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) not long before the album's release (replacing it with the similarly paced but more dour "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)"). He rejected it from *Tracks* in 1998. He even scratched it from the bonus disc that came with *The Essential Bruce Springsteen* in 2003, after initially slotting it in the leadoff position.
 
 Perhaps sensing the fan uproar that would have ensued had he left it off his definitive Darkness outtake collection in 2010 (or simply the tongue-lashing he would have and did receive from Iovine, who called Bruce up after *The Promise* was released, only to be playfully chided for not listening to the album all the way through), Bruce finally relented and let his long locked-away creation out into the world.
 
@@ -71,7 +71,7 @@ And with that realization, the song starts to get a little bit creepy:
 
 Wait, what? Who wants to lock their lover away from the world until the end of time? Suddenly Bruce's David Lynch comment seems like not that much of an imaginative stretch.
 
-Bruce reels us back into less questionable territory for the final verse, which includes a couplet that would someday appear in [a song that he'd think much more highly of](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/):
+Bruce reels us back into less questionable territory for the final verse, which includes a couplet that would someday appear in [a song that he'd think much more highly of](../2021-03-04_roll-of-the-dice-the-river/post.md):
 
 > *Sometimes at night I lie awake*<br>
 > *I pull you close and feel each breath you take*<br>

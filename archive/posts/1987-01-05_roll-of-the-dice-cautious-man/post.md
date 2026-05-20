@@ -47,7 +47,7 @@ It's not coincidence that Bruce introduces his character as "Bill" in the first 
 
 Here's the introduction of that iconic movie imagery we discussed above. It's not clear whether Bruce intends us to take that couplet literally or not. I've always considered it purely metaphorical. Either way, though, it's symbolic of the main character trying to keep his self-destructive tendencies in check.
 
-Did I forget to mention that Bruce wrote "Cautious Man" when he was not-that-long married to his first wife? As with much of *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*, Bruce was clearly working through some issues through song.
+Did I forget to mention that Bruce wrote "Cautious Man" when he was not-that-long married to his first wife? As with much of *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*, Bruce was clearly working through some issues through song.
 
 There's a brief musical interlude here, as Bruce introduces dreamy keyboards to convey the passage of idyllic time.
 
@@ -58,7 +58,7 @@ There's a brief musical interlude here, as Bruce introduces dreamy keyboards to 
 
 Although they allowed the newlyweds a honeymoon phase, Billy's demons have started to reassert themselves. He's not meant for domesticity, and the road (and its temptations) call to him. He does his best to resist, but he knows it's only a matter of time.
 
-There's a bridge here that evokes the final verse from "[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)," but rather than taking comfort from the presence of his wife, Billy feels distant. The road calls to him.
+There's a bridge here that evokes the final verse from "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)," but rather than taking comfort from the presence of his wife, Billy feels distant. The road calls to him.
 
 > *One night Billy awoke from a terrible dream calling his wife's name*
 > *She lay breathing beside him in a peaceful sleep, a thousand miles away*
@@ -80,7 +80,7 @@ For cautious men, there's no ending, just a long road.
 
 "Cautious Man" is more than a quiet song–it's a delicate one. Bruce's phrasing and instrumentation are intimate and very deliberate, which is likely why Bruce has so rarely performed it in concert.
 
-In fact, "Cautious Man" only made a single stage appearance in the first seventeen years since its studio release. At his Bloomington stop on the *Tunnel of Love Express* Tour, Bruce premiered it following "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," a sequence that hints at a likely reason why Bruce chose that night to debut it. (See my entry for "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" for a much bigger hint.)
+In fact, "Cautious Man" only made a single stage appearance in the first seventeen years since its studio release. At his Bloomington stop on the *Tunnel of Love Express* Tour, Bruce premiered it following "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," a sequence that hints at a likely reason why Bruce chose that night to debut it. (See my entry for "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" for a much bigger hint.)
 
 [Watch on Youtube: Bruce Springsteen - CAUTIOUS MAN 1988 (audio)](https://www.youtube.com/watch?v=4VtfZH44nqk)
 

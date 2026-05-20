@@ -4,7 +4,7 @@ What can Bruce Springsteen do on a month-or-two deadline?
 
 As it turns out, he can deliver a pair of brand-new original songs tailor-suited for Darlene Love's powerful voice and trademark Spector-ish production.
 
-We took a look at one of those songs–"[Night Closing In](https://estreetshuffle.com/index.php/2020/01/31/cover-me-darlene-love-night-closing-in/)"–a couple of years ago. (Check out that entry for the backstory on Darlene's years-in-the-making, Van Zandt-produced debut solo album.) Today, we'll listen to the other one, "Just Another Lonely Mile."
+We took a look at one of those songs–"[Night Closing In](../2020-01-31_cover-me-darlene-love-night-closing-in/post.md)"–a couple of years ago. (Check out that entry for the backstory on Darlene's years-in-the-making, Van Zandt-produced debut solo album.) Today, we'll listen to the other one, "Just Another Lonely Mile."
 
 [Watch on Youtube: Just Another Lonely Mile](https://www.youtube.com/watch?v=V8hGfuOJF1I)
 

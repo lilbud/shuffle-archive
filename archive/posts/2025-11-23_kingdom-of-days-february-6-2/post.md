@@ -16,22 +16,22 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-06.png.webp)
 
-**1998:** Bruce makes a guest appearance with Steve Earle and the Dukes at Tradewinds in Sea Bright, New Jersey. The setlist features Bruce’s only performances to date of “[Johnny Come Lately](https://estreetshuffle.com/index.php/2019/01/04/matr-steve-earle-and-bruce-springsteen-johnny-come-lately/)” “[I Ain’t Ever Satisfied](https://estreetshuffle.com/index.php/2019/07/06/matr-steve-earle-and-bruce-springsteen-i-aint-ever-satisfied/),” “[Guitar Town](https://estreetshuffle.com/index.php/2020/11/28/matr-steve-earle-and-bruce-springsteen-guitar-town/),” and The Rolling Stones’ “[Sweet Virginia](https://estreetshuffle.com/index.php/2018/07/12/meeting-across-the-river-steve-earle-and-the-dukes-with-bruce-springsteen-sweet-virginia/)” and “[Dead Flowers](https://estreetshuffle.com/index.php/2020/01/25/matr-steve-earle-and-bruce-springsteen-dead-flowers/).”<br>
+**1998:** Bruce makes a guest appearance with Steve Earle and the Dukes at Tradewinds in Sea Bright, New Jersey. The setlist features Bruce’s only performances to date of “[Johnny Come Lately](../2019-01-04_matr-steve-earle-and-bruce-springsteen-johnny-come-lately/post.md)” “[I Ain’t Ever Satisfied](../2019-07-06_matr-steve-earle-and-bruce-springsteen-i-aint-ever-satisfied/post.md),” “[Guitar Town](../2020-11-28_matr-steve-earle-and-bruce-springsteen-guitar-town/post.md),” and The Rolling Stones’ “[Sweet Virginia](../2018-07-12_meeting-across-the-river-steve-earle-and-the-dukes-with-bruce-springsteen-sweet-virginia/post.md)” and “[Dead Flowers](../2020-01-25_matr-steve-earle-and-bruce-springsteen-dead-flowers/post.md).”<br>
 
 [Watch on Youtube: Steve Earle and Bruce Springsteen - Sea Bright - 1998-02-06](https://www.youtube.com/watch?v=0TMcYy7c8d8)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/Citizens__Voice_Thu__Feb_12__1998_-scaled.jpg.webp)
 
-**2006**: Bruce covers James Taylor’s “[Millworker](https://estreetshuffle.com/index.php/2020/01/12/cover-me-millworker/)” at the annual MusiCares benefit.<br>
+**2006**: Bruce covers James Taylor’s “[Millworker](../2020-01-12_cover-me-millworker/post.md)” at the annual MusiCares benefit.<br>
 
 [Watch on Youtube: MILLWORKER by Bruce Springsteen](https://www.youtube.com/watch?v=1lNNMb_7qcE)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Star_Ledger_2006_02_08_36-scaled.jpg.webp)
 
-**2015:** Bruce and Tom Morello perform at the MusiCares Person of the Year tribute to Bob Dylan. You can see snippets of their performance of “[Knocking on Heaven’s Door](https://estreetshuffle.com/index.php/2019/02/18/matr-bruce-springsteen-and-wolfgang-niedecken-knockin-on-heavens-door/)” below.<br>
+**2015:** Bruce and Tom Morello perform at the MusiCares Person of the Year tribute to Bob Dylan. You can see snippets of their performance of “[Knocking on Heaven’s Door](../2019-02-18_matr-bruce-springsteen-and-wolfgang-niedecken-knockin-on-heavens-door/post.md)” below.<br>
 
 [Watch on Youtube: Bob Dylan: 2015 MusiCares Person Of The Year | GRAMMYs](https://www.youtube.com/watch?v=scjD7h6v2Zc)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/2015-02-06.jpg.webp)
 
-**2024:** Bruce performs “[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)” at his mother’s funeral service at St. Rose of Lima in Freehold.<br>
+**2024:** Bruce performs “[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)” at his mother’s funeral service at St. Rose of Lima in Freehold.<br>

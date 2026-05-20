@@ -40,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1988-0228.jpg.webp)
 
-**1995:** Bruce's *Greatest Hits* album is released, featuring four new songs recorded for this collection: "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)," "[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)," "[Blood Brothers,](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)" and "This Hard Land."<br>
+**1995:** Bruce's *Greatest Hits* album is released, featuring four new songs recorded for this collection: "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)," "[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)," "[Blood Brothers,](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)" and "This Hard Land."<br>
 
 [Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=1glxaEB5G7I)
 
@@ -54,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/Manchester_Evening_News_Thu__Feb_29__1996_-scaled.jpg.webp)
 
-**2000:** The Reunion Tour resumes with a show at Penn State University, featuring the U.S. debut of "[Lion's Den](https://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)" in honor of the Nittany Lions.<br>
+**2000:** The Reunion Tour resumes with a show at Penn State University, featuring the U.S. debut of "[Lion's Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)" in honor of the Nittany Lions.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YNMmA6Ua)
 
@@ -72,7 +72,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Thunder Road (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=6O3MO2y30fU)
 
-**2008:** The Magic Tour resumes at the Hartford Civic Center with the tour premiere of "So Young and in Love." The set also features rare outings for "[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)" and "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)."<br>
+**2008:** The Magic Tour resumes at the Hartford Civic Center with the tour premiere of "So Young and in Love." The set also features rare outings for "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - So Young and In Love [Live] Hartford ´08](https://www.youtube.com/watch?v=Qau5lULCMgE)
 
@@ -88,7 +88,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2008-02-28.jpg.webp)
 
-**2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after almost a month-long break. Patti is absent with a back injury, so Bruce plays the B-set ("[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" stand in for the two duets).<br>
+**2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after almost a month-long break. Patti is absent with a back injury, so Bruce plays the B-set ("[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" stand in for the two duets).<br>
 
 **2020:** When a local third-grader profiles Bruce for her biography assignment at school, Bruce surprises her class by attending in person.<br>
 

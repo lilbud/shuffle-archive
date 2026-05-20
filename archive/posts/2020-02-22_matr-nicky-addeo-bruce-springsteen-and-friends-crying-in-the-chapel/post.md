@@ -18,7 +18,7 @@ As for Bruce Springsteen, he never "officially" covered "Crying in the Chapel" i
 
 At a special concert event at the Wonder Bar celebrating the music of Asbury Park's west side, Nicky Addeo assembled a house band for the evening that included Vini Lopez, Ed Manion and Billy Ryan, along with vocalists like Southside Johnny, Bobby Thomas, and Addeo.
 
-Oh, and one more local legend: In the background for the first set, at the fore during the second, Bruce took the lead on a few songs that night ("[What's Your Name](https://estreetshuffle.com/index.php/2018/02/18/matr-bruce-springsteen-and-nicky-addeo-the-night-owls-whats-your-name/)," for example), but for "Crying in the Chapel" he was content to provide backing guitar for Bobby Thomas' lead vocals. Keep an eye out in the video below during the artists' soulful performance, and you'll see Bruce a few times lurking behind Southside.
+Oh, and one more local legend: In the background for the first set, at the fore during the second, Bruce took the lead on a few songs that night ("[What's Your Name](../2018-02-18_matr-bruce-springsteen-and-nicky-addeo-the-night-owls-whats-your-name/post.md)," for example), but for "Crying in the Chapel" he was content to provide backing guitar for Bobby Thomas' lead vocals. Keep an eye out in the video below during the artists' soulful performance, and you'll see Bruce a few times lurking behind Southside.
 
 [Watch on Youtube: Crying In The Chapel ~ Bobby Thomas @ Wonder Bar 4/2/11 ~ Video by Rose A Montana](https://www.youtube.com/watch?v=qX8G_fiYklY)
 

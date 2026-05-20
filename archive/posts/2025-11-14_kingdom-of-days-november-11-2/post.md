@@ -14,11 +14,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/The_Miami_Herald_1975_11_13_232.jpg.webp)
 
-**1977:** At a recording session at the Record Plant in New York City, Bruce and the E Street Band record an early take of a song that has gone by both "[Don't Say No](https://estreetshuffle.com/index.php/2019/10/15/roll-of-the-dice-dont-say-no/)" and "[I Want to Be Wild](https://estreetshuffle.com/index.php/2021/03/07/roll-of-the-dice-i-want-to-be-wild/)" on bootlegs. It has yet to surface in a released form.<br>
+**1977:** At a recording session at the Record Plant in New York City, Bruce and the E Street Band record an early take of a song that has gone by both "[Don't Say No](../2019-10-15_roll-of-the-dice-dont-say-no/post.md)" and "[I Want to Be Wild](../2021-03-07_roll-of-the-dice-i-want-to-be-wild/post.md)" on bootlegs. It has yet to surface in a released form.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Lf5GkdWj)
 
-**1980:** The original River Tour stops at Louisiana State University in Baton Rouge, where Bruce plays a rare acoustic arrangement of "[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)."<br>
+**1980:** The original River Tour stops at Louisiana State University in Baton Rouge, where Bruce plays a rare acoustic arrangement of "[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YDiXLTVu)
 
@@ -44,13 +44,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2003-11-11.png.webp)
 
-**2005:** Bruce plays a special Veteran's Day setlist at his Devils & Dust solo acoustic show at Old Dominion University in Norfolk, opening the show with "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" and tour premiering "[The Wall](https://estreetshuffle.com/index.php/2024/09/04/roll-of-the-dice-the-wall/)" (in its first "regular" concert performance). To close the main set, Bruce broke with tour tradition, replacing "[Matamoras Banks](https://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/)" with "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)," on which he is joined by Bruce Hornsby.<br>
+**2005:** Bruce plays a special Veteran's Day setlist at his Devils & Dust solo acoustic show at Old Dominion University in Norfolk, opening the show with "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and tour premiering "[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)" (in its first "regular" concert performance). To close the main set, Bruce broke with tour tradition, replacing "[Matamoras Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)" with "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)," on which he is joined by Bruce Hornsby.<br>
 
 [Watch on Youtube: Across the Border (Live)- Bruce Sprigsteen (with Bruce Hornsby)](https://www.youtube.com/watch?v=rpl89W4z6lg)
 
 [Watch on Youtube: Bruce Springsteen - You Can Look (w/ Hornsby) - Norfolk - 11/11/05 [Slideshow]](https://www.youtube.com/watch?v=1ZPbt5TQ5tQ)
 
-**2006:** Just four days after the Democrats recaptured Congress in the midterm U.S. elections, Bruce debuts a cautionary new song. It won't be released until the following year, and it will be shortened and dramatically rearranged by then. That makes this one-off performance and world debut particularly special. Take a moment to watch this unique version of "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" from his Seeger Sessions show at Wembley Arena in London. This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25181/Bruce-Springsteen-mp3-flac-download-11-11-2006-Wembley-Arena-London-UK.html).<br>
+**2006:** Just four days after the Democrats recaptured Congress in the midterm U.S. elections, Bruce debuts a cautionary new song. It won't be released until the following year, and it will be shortened and dramatically rearranged by then. That makes this one-off performance and world debut particularly special. Take a moment to watch this unique version of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" from his Seeger Sessions show at Wembley Arena in London. This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25181/Bruce-Springsteen-mp3-flac-download-11-11-2006-Wembley-Arena-London-UK.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - Long Walk Home](https://www.youtube.com/watch?v=2eoJSvYLgMM)
 
@@ -60,7 +60,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Independent_Sun__Nov_19__2006_-scaled.jpg.webp)
 
-**2007:** The Magic Tour stops in Washington DC for the first of two nights at the Verizon Center, where Bruce tour premieres "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," and Frank Bruno makes a guest appearance on the show-closing "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)."<br>
+**2007:** The Magic Tour stops in Washington DC for the first of two nights at the Verizon Center, where Bruce tour premieres "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," and Frank Bruno makes a guest appearance on the show-closing "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)."<br>
 
 [Watch on Youtube: Growin' Up Bruce Springsteen 11/11/2007 Washington D.C.](https://www.youtube.com/watch?v=08eTLmDAM5g)
 
@@ -72,13 +72,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-11-11b.png.webp)
 
-**2010:** Bruce makes a guest appearance on "[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)" with Timepiece (Patti's brother's band) at Woody's Roadside Tavern in Farmingdale, New Jersey.<br>
+**2010:** Bruce makes a guest appearance on "[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)" with Timepiece (Patti's brother's band) at Woody's Roadside Tavern in Farmingdale, New Jersey.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN WITH TIMEPIECE ~ "MUSTANG SALLY" ~ Video by Rose A Montana](https://www.youtube.com/watch?v=-Q0MZJ6jQk8)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Asbury_Park_Press_Sun__Nov_28__2010_.jpg.webp)
 
-**2012:** The Wrecking Ball Tour arrives in St. Paul for a two-night stand at the Xcel Energy Center. At this first show, Bruce and the E Street Band debut "[Savin' Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)" and tour premiere a full-band arrangement of "Long Walk Home."<br>
+**2012:** The Wrecking Ball Tour arrives in St. Paul for a two-night stand at the Xcel Energy Center. At this first show, Bruce and the E Street Band debut "[Savin' Up](../2018-05-14_roll-of-the-dice-cover-me-clarence-clemons-savin-up/post.md)" and tour premiere a full-band arrangement of "Long Walk Home."<br>
 
 [Watch on Youtube: Bruce Springsteen & ESB - Savin' Up (St. Paul 2012-11-11) [dubbed]](https://www.youtube.com/watch?v=KPGAvThf8ys)
 
@@ -88,7 +88,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2012-11-11b.png.webp)
 
-**2014:** Bruce performs at a special Veteran's Day concert at the National Mall in Washington, DC, playing three acoustic songs solo and joining Dave Grohl and the Zac Brown Band on "[Fortunate Son](https://estreetshuffle.com/index.php/2019/11/09/matr-john-fogerty-and-bruce-springsteen-fortunate-son/)."<br>
+**2014:** Bruce performs at a special Veteran's Day concert at the National Mall in Washington, DC, playing three acoustic songs solo and joining Dave Grohl and the Zac Brown Band on "[Fortunate Son](../2019-11-09_matr-john-fogerty-and-bruce-springsteen-fortunate-son/post.md)."<br>
 
 [Watch on Youtube: Springsteen, Grohl, Brown - Fortunate Son](https://www.youtube.com/watch?v=BXTMhDJD3vk)
 

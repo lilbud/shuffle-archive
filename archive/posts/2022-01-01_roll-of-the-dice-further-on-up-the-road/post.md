@@ -38,7 +38,7 @@ And no matter where we are on that road, we are always moving forward, ever forw
 > *I got a song to sing to keep me out of the cold*<br>
 > *And I'll meet you further on up the road*<br>
 
-That's a great first couplet–so great that Bruce used it verbatim in "[Maria's Bed](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/)" as well. Our narrator is telling us he's not afraid of death. He knows it's out there waiting for him, and he's ready for it whenever it comes. In the meantime, he's got a life to live, a song to sing (a neat metaphor that works particularly well for those inclined to read a personal statement into Bruce's lyrics). Because if you're living, you're not dying.
+That's a great first couplet–so great that Bruce used it verbatim in "[Maria's Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md)" as well. Our narrator is telling us he's not afraid of death. He knows it's out there waiting for him, and he's ready for it whenever it comes. In the meantime, he's got a life to live, a song to sing (a neat metaphor that works particularly well for those inclined to read a personal statement into Bruce's lyrics). Because if you're living, you're not dying.
 
 The chorus is where Bruce gets explicit, acknowledging the inevitability of death. But even here, listen carefully to what he sings:
 
@@ -50,7 +50,7 @@ The chorus is where Bruce gets explicit, acknowledging the inevitability of deat
 
 One day I will die, but death is not the end. We will rise and meet again, further up the road–in the afterlife, if you're so inclined to believe, or in your dreams.
 
-That chorus, by the way, is borrowed from Bobby "Blue" Bland's 1957 song by a similar name, "[Farther Up the Road](https://estreetshuffle.com/index.php/2021/04/06/matr-bruce-springsteen-and-the-shots-farther-up-the-road/)." It's a completely different song lyrically, but if you listen to the refrain, you'll hear a hook and groove too similar to be coincidence.
+That chorus, by the way, is borrowed from Bobby "Blue" Bland's 1957 song by a similar name, "[Farther Up the Road](../2021-04-06_matr-bruce-springsteen-and-the-shots-farther-up-the-road/post.md)." It's a completely different song lyrically, but if you listen to the refrain, you'll hear a hook and groove too similar to be coincidence.
 
 https://www.youtube.com/watch?v=QTkJO_qq7hM
 
@@ -67,7 +67,7 @@ The desert is metaphor as well: our search for meaning and purpose in a world th
 
 Bruce ends with his refrain, his reminder that while the road is dark, there's a sunny morning at the end of it where our loved ones await. It's a notion that must have given Bruce great comfort as he reached the age where loved ones start to take unexpected off-ramps.
 
-Exactly twenty years further up the road, Bruce revisited his theme. He was a lot closer to that sunny morning by then, with a lot more miles of blood and gold behind him. When he re-wrote "Further On (Up the Road)" as "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)," he infused it with the kind of urgency and defiance that 70 brings but 50 can only hear off in the distance. But thankfully, even in his seventies, Bruce has miles to go, road to burn, and a song to sing.
+Exactly twenty years further up the road, Bruce revisited his theme. He was a lot closer to that sunny morning by then, with a lot more miles of blood and gold behind him. When he re-wrote "Further On (Up the Road)" as "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)," he infused it with the kind of urgency and defiance that 70 brings but 50 can only hear off in the distance. But thankfully, even in his seventies, Bruce has miles to go, road to burn, and a song to sing.
 
 Recognizing the miles as they pass helps us make the most of the ones that remain before us. So as we start this new year, may we all make the most of the miles we'll travel together.
 

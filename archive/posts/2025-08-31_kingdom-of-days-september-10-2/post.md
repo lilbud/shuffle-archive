@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Mr. Outside (Studio Outtake - 1980)](https://www.youtube.com/watch?v=PLa8TaCNM28)
 
-**1981:** At Night Two on the River Tour at Chicago’s Rosemont Horizon, Bruce and the E Street Band play the one and only tour performance of “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/),” its last appearance for almost seven years.<br>
+**1981:** At Night Two on the River Tour at Chicago’s Rosemont Horizon, Bruce and the E Street Band play the one and only tour performance of “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md),” its last appearance for almost seven years.<br>
 
 [Watch on Youtube: Bruce Springsteen - MONA SHE'S THE ONE 1981 (audio)](https://www.youtube.com/watch?v=zHxCBO7yzCI)
 
@@ -54,7 +54,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ntJl0t6p)
 
-**2003:** One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of “[My Ride’s Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/).”<br>
+**2003:** One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of “[My Ride’s Here](../2022-03-24_cover-me-my-rides-here/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - My Ride's Here SkyDome 9/10/03](https://www.youtube.com/watch?v=SMKLoE5uUu0)
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Soundcheck Bruce Springsteen en Chile!](https://www.youtube.com/watch?v=LA-yNDJDNOM)
 
-**2020:** Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, “[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/).”<br>
+**2020:** Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, “[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 

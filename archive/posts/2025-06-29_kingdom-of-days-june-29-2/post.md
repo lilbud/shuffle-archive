@@ -12,7 +12,7 @@
 
 **1974:** A scheduled E Street Band gig in Memphis is cancelled.<br>
 
-**1975:** Bruce and the E Street Band record "[Linda Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)" at the Record Plant in New York City. It won't be released for another 23 years.<br>
+**1975:** Bruce and the E Street Band record "[Linda Let Me Be the One](../2021-03-27_roll-of-the-dice-linda-let-me-be-the-one/post.md)" at the Record Plant in New York City. It won't be released for another 23 years.<br>
 
 [Watch on Youtube: Linda Let Me Be The One (Studio Outtake - 1975)](https://www.youtube.com/watch?v=G4yx0JdiKfo)
 
@@ -22,11 +22,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1978-0629.jpg.webp)
 
-**1983:** Bruce and the E Street Band record "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)" at The Hit Factory in New York City.<br>
+**1983:** Bruce and the E Street Band record "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" at The Hit Factory in New York City.<br>
 
 [Watch on Youtube: My Hometown](https://www.youtube.com/watch?v=KrGi8ODOWR0)
 
-**1984:** A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.S.A. Tour kicks off at the St. Paul Civic Center Arena, with Nils and Patti making their official debuts as full-fledged members of the band. Film director Brian De Palma is on hand to film Bruce's performance (twice!) of "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" for the now classic music video, and fan [Sandi Pederson is front and center](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/). This is also Courtney Cox's debut–as most people know, she's the "lucky fan" pulled out of the audience to dance with Bruce on-stage.<br>
+**1984:** A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.S.A. Tour kicks off at the St. Paul Civic Center Arena, with Nils and Patti making their official debuts as full-fledged members of the band. Film director Brian De Palma is on hand to film Bruce's performance (twice!) of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" for the now classic music video, and fan [Sandi Pederson is front and center](../2019-06-28_where-the-band-was-st-paul-june-28-1984/post.md). This is also Courtney Cox's debut–as most people know, she's the "lucky fan" pulled out of the audience to dance with Bruce on-stage.<br>
 
 Watch footage from the video premiere below, and then listen to a never-before-circulated soundboard recording of Bruce's first-ever public concert performance of "Dancing in the Dark." (Sorry about those drum machines...)
 
@@ -38,7 +38,7 @@ Watch footage from the video premiere below, and then listen to a never-before-c
 
 [Watch on Youtube: St Paul 29/06/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zAEeAs19HVKihUHhbpsNF26)
 
-In the setlist, a couple of notable moments: Bruce covers "[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/)" for the first time, and "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" makes its debut as well, the latter song in a short-lived arrangement with an extended instrumental ending and a new final verse.
+In the setlist, a couple of notable moments: Bruce covers "[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/)" for the first time, and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" makes its debut as well, the latter song in a short-lived arrangement with an extended instrumental ending and a new final verse.
 
 [Watch on Youtube: Bruce Springsteen - No Surrender (Live 1984)](https://www.youtube.com/watch?v=_VQiGVKbLok)
 
@@ -60,11 +60,11 @@ In the setlist, a couple of notable moments: Bruce covers "[Street Fighting Man]
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Herald_News_1985_07_01_10.jpg.webp)
 
-Meanwhile, "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)," Bruce's latest single, climbs the charts and is profiled on *American Top 40*.
+Meanwhile, "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)," Bruce's latest single, climbs the charts and is profiled on *American Top 40*.
 
 [Watch Video Highlight](https://videopress.com/embed/bjCt8eEl)
 
-**1988:** Night Two in Rotterdam on the Tunnel of Love Tour features the first performances of "[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)" and "[Paradise by the 'C'](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)" in a decade.<br>
+**1988:** Night Two in Rotterdam on the Tunnel of Love Tour features the first performances of "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" and "[Paradise by the 'C'](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)" in a decade.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ewosTtgL)
 
@@ -74,11 +74,11 @@ Meanwhile, "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Asbury_Park_Press_1989_07_09_Page_135-scaled.jpg.webp)
 
-**1990:** Bruce records "[Seven Angels](https://estreetshuffle.com/index.php/2018/06/07/roll-of-the-dice-seven-angels/)" at Oceanway Studios in Los Angeles.<br>
+**1990:** Bruce records "[Seven Angels](../2018-06-07_roll-of-the-dice-seven-angels/post.md)" at Oceanway Studios in Los Angeles.<br>
 
 [Watch on Youtube: Seven Angels (Studio Outtake - 1990)](https://www.youtube.com/watch?v=SWUXK4D7F-E)
 
-**1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" and "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" share a common character.<br>
+**1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" share a common character.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 
@@ -106,7 +106,7 @@ Meanwhile, "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of
 
 [https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3)
 
-**2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of "[Burning Love](https://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)." Elliot Murphy and his son guest-star on "Born to Run," and Bruce tour premieres "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" in the opening pack.<br>
+**2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of "[Burning Love](../2018-05-01_cover-me-burning-love/post.md)." Elliot Murphy and his son guest-star on "Born to Run," and Bruce tour premieres "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" in the opening pack.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucille - Stade de France - Paris - 29.06.2013](https://www.youtube.com/watch?v=RPNgL3dOTpM)
 
@@ -128,6 +128,6 @@ Meanwhile, "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/2021-06-29.jpg.webp)
 
-**2024:** Bruce and the E Street Band tour debut "[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)" on Night Two in Nijmegen in The Netherlands. Stream or buy this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-goffertpark-nijmegen-netherlands-06-29-2024-mp3-flac-or-online-music-streaming/35855.html).<br>
+**2024:** Bruce and the E Street Band tour debut "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)" on Night Two in Nijmegen in The Netherlands. Stream or buy this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-goffertpark-nijmegen-netherlands-06-29-2024-mp3-flac-or-online-music-streaming/35855.html).<br>
 
 [Watch on Youtube: Bruce Springsteen, 7 Nights To Rock, Nijmegen, June 29, 2024](https://www.youtube.com/watch?v=9ZdNyvVTDXQ)

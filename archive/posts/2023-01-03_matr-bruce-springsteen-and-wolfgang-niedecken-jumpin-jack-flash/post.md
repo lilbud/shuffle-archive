@@ -20,7 +20,7 @@ His second performance came barely a month later–and while it was at a true Sp
 
 Bruce's third and final "Jumpin' Jack Flash" performance was also a team-up, in a Berlin club called Cafe Eckstein in the summer of 1995.
 
-In town to record a new version of "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" for an upcoming EP release, Bruce joined his friend Wolfgang Niedecken and his Leopardefellband for six(!) run-throughs of Bruce's 1981 single. In between takes, Bruce and Wolfgang's band treated the crowd to a selection of Dylan and Stones covers, the last of which was "Jumpin' Jack Flash."
+In town to record a new version of "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" for an upcoming EP release, Bruce joined his friend Wolfgang Niedecken and his Leopardefellband for six(!) run-throughs of Bruce's 1981 single. In between takes, Bruce and Wolfgang's band treated the crowd to a selection of Dylan and Stones covers, the last of which was "Jumpin' Jack Flash."
 
 By this point in the proceedings, the crowd had been worked up to a frenzy, and while the band's performance might have been a tad too slow to recreate the magic of the Stones' original, the audience made up for any lack of energy with genuine enthusiasm.
 

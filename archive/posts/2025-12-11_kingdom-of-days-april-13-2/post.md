@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1979-0413.jpg.webp)
 
-**1984:** At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The Red Bank Rockers midway through their encore of “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” and stays for “Rockin’ All Over the World.” Listen to the moment the crowd realizes who’s there.<br>
+**1984:** At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The Red Bank Rockers midway through their encore of “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)” and stays for “Rockin’ All Over the World.” Listen to the moment the crowd realizes who’s there.<br>
 
 [Watch on Youtube: Clarence Clemons and Bruce Springsteen - Philadelphia - 1984-04-13](https://www.youtube.com/watch?v=XlPAOjsEc9c)
 

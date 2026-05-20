@@ -2,15 +2,15 @@ The Bruce Springsteen Band morphed into the E Street Band so naturally that for 
 
 But while the band's personnel might have moved seamlessly to E Street, the same can't be said of their repertoire. When Bruce dissolved his eponymous band, he left behind almost the entire catalog of songs he'd written and tailored to their funky, bluesy, and often brassy sound.
 
-It's almost impossible to find songs from the Bruce Springsteen Band era that crossed over to E Street, and the few that did didn't last long. Long-time fans might be familiar with "[You Mean So Much to Me](https://estreetshuffle.com/index.php/2020/01/13/roll-of-the-dice-you-mean-so-much-to-me/)," which made several appearances throughout Bruce's first two album tours. Beyond that, we'd have to scavenge set lists for the occasional one- or two-off cameos of early relics like "[Funk Song](https://estreetshuffle.com/index.php/2018/05/02/roll-of-the-dice-funk-song/)."
+It's almost impossible to find songs from the Bruce Springsteen Band era that crossed over to E Street, and the few that did didn't last long. Long-time fans might be familiar with "[You Mean So Much to Me](../2020-01-13_roll-of-the-dice-you-mean-so-much-to-me/post.md)," which made several appearances throughout Bruce's first two album tours. Beyond that, we'd have to scavenge set lists for the occasional one- or two-off cameos of early relics like "[Funk Song](../2018-05-02_roll-of-the-dice-funk-song/post.md)."
 
 And then there's "Secret to the Blues."
 
 [Watch on Youtube: Bruce Springsteen & the E-Street Band-Secret to the Blues (live)](https://www.youtube.com/watch?v=7cpSujTLZ9s)
 
-Now you could argue that "Secret to the Blues" isn't technically a crossover, as its three known performances were all in 1973. But you could also argue that it's essentially the same song as "[The Band's Just Bopping the Blues,](https://estreetshuffle.com/index.php/2021/01/19/roll-of-the-dice-the-bands-just-boppin-the-blues/)" which was played twice (that we know of) by the BSB in 1971-72.
+Now you could argue that "Secret to the Blues" isn't technically a crossover, as its three known performances were all in 1973. But you could also argue that it's essentially the same song as "[The Band's Just Bopping the Blues,](../2021-01-19_roll-of-the-dice-the-bands-just-boppin-the-blues/post.md)" which was played twice (that we know of) by the BSB in 1971-72.
 
-It's a tough call. They certainly share the same melody, arrangement, and lyrical conceit, so at the very least "Secret to the Blues" is an evolution of its predecessor in the same way "So Young and in Love" shares DNA with "A Love So Fine" and "[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)."
+It's a tough call. They certainly share the same melody, arrangement, and lyrical conceit, so at the very least "Secret to the Blues" is an evolution of its predecessor in the same way "So Young and in Love" shares DNA with "A Love So Fine" and "[Action in the Streets](../2022-06-27_roll-of-the-dice-action-in-the-streets/post.md)."
 
 In any event, both "Bopping" and "Secret" are essentially excuses for the as-yet-unnamed E Street Band to keep their blues muscle from atrophying. "Secret" is leaner and tighter than "Bopping," an apt comparison for the two bands as well.
 

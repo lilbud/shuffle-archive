@@ -6,7 +6,7 @@ But I didn't. In fact, as time passed, I only felt worse.
 
 When "Letter to You" debuted as the first single and title track for Bruce's new album, the novelty of having new Springsteen music carried me for a few days. But even at first listen, I knew something was off, and as time went on I felt indifference turn to dislike, to the point where I even edited the song out of my playlist and skipped the track whenever I played the CD.
 
-"Letter to You" became the first Springsteen track since "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" to leave me stone cold.
+"Letter to You" became the first Springsteen track since "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" to leave me stone cold.
 
 [Watch on Youtube: Letter To You](https://www.youtube.com/watch?v=4wtHDwDzVtQ)
 
@@ -16,7 +16,7 @@ a) I'm incredibly grateful to have *any* new music from Bruce at all right now
 
 b) I'm genuinely moved by the sentiment he conveys in the song
 
-c) I really enjoy the album–it's just this one track I don't like. The lazy rhymes, the musical recycling (am I the only one who hears Max playing "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" the entire time?), the vocals strained to overwrought…
+c) I really enjoy the album–it's just this one track I don't like. The lazy rhymes, the musical recycling (am I the only one who hears Max playing "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" the entire time?), the vocals strained to overwrought…
 
 Yeah, I wasn't kind in my original essay.
 
@@ -26,7 +26,7 @@ And I fell instantly in love.
 
 You'd think after three years of examining Bruce's catalog song by song, I'd be attuned to how changing just one ingredient can completely alter the outcome of the recipe, but I was still dumbfounded at how tender and beautiful I found "Letter to You" when it was stripped of its bombast.
 
-It was as much of a revelation to me as "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)" was when I first heard its magnificent original Christic version many years after I dismissed it as one of the weakest songs in Bruce's catalog. In other words, I had to relearn a lesson that should have been obvious to me by now: the song and the track are two different things, and it's possible to love the former while disliking the latter.
+It was as much of a revelation to me as "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)" was when I first heard its magnificent original Christic version many years after I dismissed it as one of the weakest songs in Bruce's catalog. In other words, I had to relearn a lesson that should have been obvious to me by now: the song and the track are two different things, and it's possible to love the former while disliking the latter.
 
 That's the position I found myself in with "Letter to You."
 
@@ -42,7 +42,7 @@ Let's take a listen (acoustic version!) so we can appreciate Bruce's heartfelt l
 
 [Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
 
-It's actually a challenge to analyze most of the new songs on *[Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)—*not because they're laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
+It's actually a challenge to analyze most of the new songs on *[Letter to You](../2023-07-10_album-companion-letter-to-you/post.md)—*not because they're laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
 
 "Letter to You," the album's title track, barely even calls for that. The word *summational* can be overused in music journalism and criticism (present blog included), but it truly applies here. Heck, it almost sounds *final.*
 
@@ -89,7 +89,7 @@ Lyrically, this is the only verse that impresses in "Letter to You." Each remain
 
 There's nothing really that I can add to the verses and bridges above as far as analysis goes. It's pretty much all there on the surface.
 
-Lyrically, "Letter to You" reminds me of "[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)" — a simple but heartfelt and unpretentious sentiment. I think the reason the album arrangement turned me off is that rather than pairing his lyrics to a simple arrangement, he tried to transform it into a rocker. The full-band arrangement is so powerful that it stomps Bruce's sentimental message into the dirt.
+Lyrically, "Letter to You" reminds me of "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" — a simple but heartfelt and unpretentious sentiment. I think the reason the album arrangement turned me off is that rather than pairing his lyrics to a simple arrangement, he tried to transform it into a rocker. The full-band arrangement is so powerful that it stomps Bruce's sentimental message into the dirt.
 
 There's no better point of comparison than the bridges. Take a listen to the album version, and how Brue stretches out "In my l-ehhhhhhhhhh-ter to you…" for no real reason or effect that I can discern. It distracts more than it underlines. (It's probably the element of the song that turns me off the most.)
 

@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1978, 1979, 1996, and 2008*<br>
 
-**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for “[Darkness on the Edge of Town.](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)”<br>
+**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for “[Darkness on the Edge of Town.](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)”<br>
 
 [Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/watch?v=0LpdEyGhNxM)
 

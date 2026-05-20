@@ -5,12 +5,12 @@ Quite a bit, actually:
 - They're both singer/songwriters with vast catalogs that span decades.
 - They're both known for their wildly unpredictable setlists and fervent fan bases.
 - They both have a encyclopedic appreciation of rock and are known for their inspired cover interpretations
-- They each have a great song entitled "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)."
+- They each have a great song entitled "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)."
 - They both have borderline obsessive fans who analyze virtually every lyric they ever wrote.
 
 And as it turns out, all of the above serve as context for explaining why this *Cover Me* installment is very different from the rest of this series.
 
-Efrain and David, the hosts of the "Drive All Night: The Songs of Tori Amos" podcast, recently invited me to be a guest on their show during a two-hour(!) episode devoted entirely to Tori's cover of Bruce's "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."
+Efrain and David, the hosts of the "Drive All Night: The Songs of Tori Amos" podcast, recently invited me to be a guest on their show during a two-hour(!) episode devoted entirely to Tori's cover of Bruce's "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."
 
 [Watch on Youtube: Tori Amos - "I'm On Fire" (cover)](https://www.youtube.com/watch?v=3k83xsEAFig)
 

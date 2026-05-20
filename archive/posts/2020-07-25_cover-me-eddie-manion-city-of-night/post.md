@@ -4,7 +4,7 @@ That's okay, though: if anyone's entitled to claim a Springsteen rarity, it woul
 
 All in all, Manion has performed with Bruce over 350 times across five decades, so yeah... he's pretty familiar with Bruce's catalog.
 
-On *Nightlife*, not only does Eddie give us a superb instrumental cover of Bruce's "[City of Night](https://estreetshuffle.com/index.php/2020/06/28/roll-of-the-dice-city-of-night/)" (which even Bruce hasn't performed live), he's mashed it seamlessly with King Curtis' "Soul Serenade" for a superb pairing.
+On *Nightlife*, not only does Eddie give us a superb instrumental cover of Bruce's "[City of Night](../2020-06-28_roll-of-the-dice-city-of-night/post.md)" (which even Bruce hasn't performed live), he's mashed it seamlessly with King Curtis' "Soul Serenade" for a superb pairing.
 
 [Watch on Youtube: Eddie Manion - City of night ( Bruce Springsteen Cover)/ Soul serenade (King Curtis cover)](https://www.youtube.com/watch?v=_60c1TkRT-0)
 

@@ -1,6 +1,6 @@
-It was one of the very first songs Bruce recorded for *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*, and it was the last song to be cut.
+It was one of the very first songs Bruce recorded for *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*, and it was the last song to be cut.
 
-At one point it closed the album, at another it kicked off Side Two. Early on, it was the second track on Side One, inheriting and building the out-of-the-gate momentum from "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)."
+At one point it closed the album, at another it kicked off Side Two. Early on, it was the second track on Side One, inheriting and building the out-of-the-gate momentum from "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)."
 
 It should have been a hit, and judging by fan reaction when Bruce played it in concert (he actually wrote it and performed it several times during his 1977 "Lawsuit Tour") it probably *would* have been a hit had Bruce released it in 1978 instead of 1998.
 
@@ -30,7 +30,7 @@ Compare that with Bruce's last pre-Reunion era performance of "Don't Look Back,"
 
 [Watch on Youtube: Bruce Springsteen - DON'T LOOK BACK 1977 (audio)](https://www.youtube.com/watch?v=s_cwfe-0E8w)
 
-In fact, one of the more curious facets of "Don't Look Back" is how it served as a spawning ground for key lyrical elements that would find their way to other songs. The dynamo from the debut performance above would of course end up in "P[rove It All Night.](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)" By the end of the month, Bruce was opening the third verse with "Tonight we'll wash our sins off down in the sea," a line that would migrate to "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)."
+In fact, one of the more curious facets of "Don't Look Back" is how it served as a spawning ground for key lyrical elements that would find their way to other songs. The dynamo from the debut performance above would of course end up in "P[rove It All Night.](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" By the end of the month, Bruce was opening the third verse with "Tonight we'll wash our sins off down in the sea," a line that would migrate to "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)."
 
 Even in June, just weeks before Bruce recorded the final version that would appear two decades later on *Tracks*, Bruce was still tinkering with the lyrics. Here's an early take:
 

@@ -98,7 +98,7 @@ It's enough to make us all frustrated.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Murder Incorporated (Live in New York City)](https://www.youtube.com/watch?v=hJhULVsCctI)
 
-**Bonus #2:** "Murder Incorporated" actually made its proper public concert debut not with the E Street Band or even solo but with Joe Grushecky and the Houserockers. Bruce, Joe, and the band played it several times during the 1995 mini-tour for [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/), which featured Bruce as an honorary Houserocker.<br>
+**Bonus #2:** "Murder Incorporated" actually made its proper public concert debut not with the E Street Band or even solo but with Joe Grushecky and the Houserockers. Bruce, Joe, and the band played it several times during the 1995 mini-tour for [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md), which featured Bruce as an honorary Houserocker.<br>
 
 Bruce would continue to perform "Murder Incorporated" many times with the Houserockers over the years that followed. Here's one such great performance from Light of Day 2010.
 

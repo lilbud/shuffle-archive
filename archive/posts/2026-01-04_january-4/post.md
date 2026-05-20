@@ -4,7 +4,7 @@ For information about ebook and printed book options, please see the afterword a
 
 **New for 2026:** *New entry for 1983*<br>
 
-**1973:** Bruce and his unnamed band kick off a four-night/eight-show stand at The Main Point in Bryn Mawr, Pennsylvania, where "[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)" receives its debut performance.<br>
+**1973:** Bruce and his unnamed band kick off a four-night/eight-show stand at The Main Point in Bryn Mawr, Pennsylvania, where "[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md)" receives its debut performance.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/1973-01-03.jpg.webp)
 
@@ -22,7 +22,7 @@ For information about ebook and printed book options, please see the afterword a
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/01/Richmond_Times_Dispatch_Sat__Jan_5__1985_.jpg.webp)
 
-**1994:** Bruce and Patti make an appearance at the Hollywood premiere of *Philadelphia.* Bruce wrote "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" for the movie, for which he will go on to earn an Oscar. Check out the news coverage from the event.<br>
+**1994:** Bruce and Patti make an appearance at the Hollywood premiere of *Philadelphia.* Bruce wrote "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" for the movie, for which he will go on to earn an Oscar. Check out the news coverage from the event.<br>
 
 [Watch on Youtube: Bruce Springsteen at the premiere of "Philadelphia" - 1994-01-04](https://www.youtube.com/watch?v=3ScFkSlJb4w)
 

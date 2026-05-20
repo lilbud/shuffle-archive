@@ -24,7 +24,7 @@ One of the final songs recorded at the March 14, 1972 rehearsal session was "Com
 
 [Watch Video Highlight](https://videopress.com/embed/fBhdBSB6)
 
-Bruce wrote "Coming Home" at a time when the nation and his generation were inescapably influenced by the ongoing conflict in Vietnam, but while most of Bruce's earlier war songs dripped with pathos, rage, or cynicism, "Coming Home" is much more subtle in its commentary–a listener encountering it for the first time today might mistake it for a "[Born to Be Wild](https://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)"-style road song.
+Bruce wrote "Coming Home" at a time when the nation and his generation were inescapably influenced by the ongoing conflict in Vietnam, but while most of Bruce's earlier war songs dripped with pathos, rage, or cynicism, "Coming Home" is much more subtle in its commentary–a listener encountering it for the first time today might mistake it for a "[Born to Be Wild](../2020-05-20_cover-me-born-to-be-wild/post.md)"-style road song.
 
 Bruce's narrator in "Coming Home" lives on the poor side of town. Looking for a life of adventure, he falls sway to the army's recruitment pitch, and before long they put a rifle in his hand and ship him off to a foreign land.
 
@@ -65,7 +65,7 @@ We never learn whether he makes it home, though–the song leaves our soldier wi
 
 While "Coming Home" never saw the light of day (officially), it wouldn't be the last time Bruce would write about a returning Vietnam veteran.
 
-But in 1972, [that story](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/) was still burning ten years down the road.
+But in 1972, [that story](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md) was still burning ten years down the road.
 
 **Coming Home**<br>
 **Recorded** March 14, 1972<br>

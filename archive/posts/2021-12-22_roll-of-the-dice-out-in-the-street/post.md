@@ -32,7 +32,7 @@ Bruce gives his characters only the barest of backstories: he's a dockworker (an
 > *And Monday when the foreman calls time*<br>
 > *I've already got Friday on my mind*<br>
 
-That hat-tip was deliberate. "When I wrote ["Out in the Street"]," Bruce told interviewer Molly Meldum in 1995, "I was trying to copy one of my all time favorite songs, [‘Friday On My Mind](https://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)‘ by the Easybeats. I have always loved that song. The structure on that is just incredible, and it had that unbelievable exhilaration when they broke into the chorus. You know, its Friday and you are out of school or out of work and you're just *out there*!"
+That hat-tip was deliberate. "When I wrote ["Out in the Street"]," Bruce told interviewer Molly Meldum in 1995, "I was trying to copy one of my all time favorite songs, [‘Friday On My Mind](../2019-06-07_cover-me-friday-on-my-mind/post.md)‘ by the Easybeats. I have always loved that song. The structure on that is just incredible, and it had that unbelievable exhilaration when they broke into the chorus. You know, its Friday and you are out of school or out of work and you're just *out there*!"
 
 But the blank canvas characterization is deliberate, too. If his characters don't sound like anybody, then they can be *everybody*. And that's the magic trick at work in "Out in the Street": by the time we reach the build toward the first chorus, *we* are the narrator, and we feel that explosion of freedom and joy as if it's our own. We are *out there!*
 

@@ -366,7 +366,7 @@ You can send me anything you want. [laughs] I’d be glad to have it.
 
 **Cool. I’m curious though: so you guys definitely have some reliables that you play together, both from your catalog and his. Who chooses the Springsteen songs that you include, you or him? Do you have favorite songs that you guys like to play?**<br>
 
-Well I try to… I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he’ll say, “Well, let’s do *this* one.” That’s why we started to do [singing] [*save my love for you*](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/). We started doing that one.
+Well I try to… I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he’ll say, “Well, let’s do *this* one.” That’s why we started to do [singing] [*save my love for you*](../2019-07-16_roll-of-the-dice-save-my-love/post.md). We started doing that one.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dptZn4uH4iA)
 

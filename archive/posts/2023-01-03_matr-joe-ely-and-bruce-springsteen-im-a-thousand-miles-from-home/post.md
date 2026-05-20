@@ -1,8 +1,8 @@
-[*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) wasn't Bruce's only collaboration with a singer-songwriter named Joe in 1995.
+[*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) wasn't Bruce's only collaboration with a singer-songwriter named Joe in 1995.
 
 Around the same time he and Joe Grushecky were putting the finishing touches on Grushecky's landmark album (which was just released as a 25th anniversary edition, and you should really [check it out](https://orcd.co/JoeGrusheckyAmericanBabylon25)), Bruce also made a side trip to Austin, where he contributed his vocal and keyboard talents to the opening and closing tracks of Joe Ely's album, *Letter to Laredo*.
 
-It's the opening track that gets all the attention, and it's hard to argue that "[All Just to Get to You](https://estreetshuffle.com/index.php/2022/02/23/matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/)" isn't deserving of it. (We'll take a listen to that track sometime in the next year.) But the undeservedly overlooked final track merits some love, too.
+It's the opening track that gets all the attention, and it's hard to argue that "[All Just to Get to You](../2022-02-23_matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/post.md)" isn't deserving of it. (We'll take a listen to that track sometime in the next year.) But the undeservedly overlooked final track merits some love, too.
 
 "I'm a Thousand Miles From Home" is everything "All Just to Get to You" isn't: slow, simple, meditative, and world-weary.
 

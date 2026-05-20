@@ -1,12 +1,12 @@
 In the summer of 1995, Bruce joined Joe Grushecky on stage at Tradewinds on the Jersey Shore, where they debuted much of Joe's upcoming Bruce-produced *American Babylon* album.
 
-*American Babylon* featured two songs co-written by Joe and Bruce–Joe sent Bruce his lyrics for "[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)" and "Dark and Bloody Ground," and Bruce set them to music. (See my [in-depth interview with Joe](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) for more background on their *American Babylon* collaboration.)
+*American Babylon* featured two songs co-written by Joe and Bruce–Joe sent Bruce his lyrics for "[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)" and "Dark and Bloody Ground," and Bruce set them to music. (See my [in-depth interview with Joe](../2020-10-17_american-babylon-a-retrospective/post.md) for more background on their *American Babylon* collaboration.)
 
 Proving themselves adept at collaborating remotely, Bruce and Joe decide to try their hand at it in person, holing up in Bruce's home studio and writing in the same room for the first time.
 
-Having found their groove with *American Babylon*, Joe wrote lyrics for "[Cheap Motel,](https://estreetshuffle.com/index.php/2020/01/11/spare-parts-joe-grushecky-and-the-houserockers-cheap-motel/)" "[I'm Not Sleeping](https://estreetshuffle.com/index.php/2022/01/28/rotd-matr-joe-grushecky-and-bruce-springsteen-im-not-sleeping/)," and a terrific biting rocker called "Idiot's Delight."
+Having found their groove with *American Babylon*, Joe wrote lyrics for "[Cheap Motel,](../2020-01-11_spare-parts-joe-grushecky-and-the-houserockers-cheap-motel/post.md)" "[I'm Not Sleeping](../2022-01-28_rotd-matr-joe-grushecky-and-bruce-springsteen-im-not-sleeping/post.md)," and a terrific biting rocker called "Idiot's Delight."
 
-In a similar lyrical vein to "[Talking to the King](https://estreetshuffle.com/index.php/2020/06/12/matr-joe-grushecky-and-bruce-springsteen-talking-to-the-king/)," Joe imagines a conversation with Saint Peter, who's too busy marveling at humanity's stupidity to focus on his duties. (The message is clear: no matter how ideal a situation we're handed, never underestimate our collective ability to screw it up.) Bruce set Joe's lyrics to music, but unlike their earlier collaborations, they didn't record a version of "Idiot's Delight" together.
+In a similar lyrical vein to "[Talking to the King](../2020-06-12_matr-joe-grushecky-and-bruce-springsteen-talking-to-the-king/post.md)," Joe imagines a conversation with Saint Peter, who's too busy marveling at humanity's stupidity to focus on his duties. (The message is clear: no matter how ideal a situation we're handed, never underestimate our collective ability to screw it up.) Bruce set Joe's lyrics to music, but unlike their earlier collaborations, they didn't record a version of "Idiot's Delight" together.
 
 They did, however, record it separately.
 

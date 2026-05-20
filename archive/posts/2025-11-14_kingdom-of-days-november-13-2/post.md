@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-11-13.png.webp)
 
-**2005:** Bruce plays a solo acoustic show on the Atlantic City Boardwalk (well, in Boardwalk Hall, at least), where rarities such as "[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)," "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)," "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/), "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)," and "[Janey Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" make an appearance.<br>
+**2005:** Bruce plays a solo acoustic show on the Atlantic City Boardwalk (well, in Boardwalk Hall, at least), where rarities such as "[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md)," "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)," "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md), "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)," and "[Janey Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" make an appearance.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/26A6xG2D)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Press_of_Atlantic_City_2005_11_14_20.jpg.webp)
 
-**2009:** The Working on a Dream Tour arrives in Detroit for a show at The Palace of Auburn Hills, but someone forgets to tell Bruce: he greets the crowd with a hearty "Good evening, Ohio!," prompting much sheepish hilarity and worldwide news coverage (must have been a slow news day). Bruce performs the entire *Born to Run* album in sequence and covers "[Ramblin' Gamblin' Man](https://estreetshuffle.com/index.php/2020/04/14/cover-me-ramblin-gamblin-man/)" for the first time in seventeen years.<br>
+**2009:** The Working on a Dream Tour arrives in Detroit for a show at The Palace of Auburn Hills, but someone forgets to tell Bruce: he greets the crowd with a hearty "Good evening, Ohio!," prompting much sheepish hilarity and worldwide news coverage (must have been a slow news day). Bruce performs the entire *Born to Run* album in sequence and covers "[Ramblin' Gamblin' Man](../2020-04-14_cover-me-ramblin-gamblin-man/post.md)" for the first time in seventeen years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Detroit - Backstreets - 11/13/2009](https://www.youtube.com/watch?v=qarqIUFmcgY)
 

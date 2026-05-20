@@ -34,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2000-06-04.jpg.webp)
 
-**2005:** The Devils & Dust solo acoustic tour moves on to Italy, where this first show in Bologna is highlighted by the tour premiere of "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)."<br>
+**2005:** The Devils & Dust solo acoustic tour moves on to Italy, where this first show in Bologna is highlighted by the tour premiere of "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)."<br>
 
 [Watch on Youtube: My Father's House (solo acoustic) Bruce Springsteen June 4, 2005 Bologna, ITA](https://www.youtube.com/watch?v=daRsdZKxBlU)
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Bologna, Italy - June 4, 2005 [audio]](https://www.youtube.com/watch?v=v65zWmgyt9A)
 
-**2009:** Night One of three in Stockholm opens with the tour premiere of "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)" and features the final performance to date of "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)."<br>
+**2009:** Night One of three in Stockholm opens with the tour premiere of "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" and features the final performance to date of "[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)."<br>
 
 [Watch on Youtube: Springsteen - Who'll Stop the Rain - Stockholm Sweden June 4, 2009](https://www.youtube.com/watch?v=kg5hvBT3Ef0)
 

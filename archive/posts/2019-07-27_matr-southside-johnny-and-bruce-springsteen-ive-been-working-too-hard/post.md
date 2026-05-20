@@ -8,7 +8,7 @@ Let's just call it a reunion album, because eight of the eleven tracks on Souths
 
 The song became a minor, regional hit for Southside, and a crowd-pleaser in concert.
 
-As for Bruce, while he did contribute a song of his own ("[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)") to *Better Days*, along with his vocal talents on "It's Been a Long Time," Bruce's stamp is nowhere to be found on "I've Been Working Too Hard."
+As for Bruce, while he did contribute a song of his own ("[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)") to *Better Days*, along with his vocal talents on "It's Been a Long Time," Bruce's stamp is nowhere to be found on "I've Been Working Too Hard."
 
 But that didn't stop him from performing it with Southside in concert on two occasions, both at the Stone Pony in Asbury Park.
 

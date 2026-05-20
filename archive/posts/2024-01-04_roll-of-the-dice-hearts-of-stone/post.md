@@ -4,7 +4,7 @@ In part, that's due to its provenance: there are two very different official stu
 
 And also, neither can.
 
-Bruce first recorded "Hearts of Stone" with the E Street Band during the *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*sessions in a less adorned take (Clarence Clemons was the only horn player present) than would ever see official light of day. Upon deeming it unsuitable for the album that was taking shape, Bruce donated the track to his friend Southside Johnny Lyon.
+Bruce first recorded "Hearts of Stone" with the E Street Band during the *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*sessions in a less adorned take (Clarence Clemons was the only horn player present) than would ever see official light of day. Upon deeming it unsuitable for the album that was taking shape, Bruce donated the track to his friend Southside Johnny Lyon.
 
 Not the song, mind you, but *the entire studio track*.
 

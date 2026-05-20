@@ -2,15 +2,15 @@
 
 It's more accurate to say that "Book of Dreams" is a song about wedding eves than wedding days, but that's a nit not worth picking with the songwriter.
 
-What's more interesting to me is the presence of both "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" and "Book of Dreams" on the same album. The two songs are so very close in style, content and sentiment that one can almost imagine them as an exchange of wedding vows, the former from her to him, the latter from him to her.
+What's more interesting to me is the presence of both "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" and "Book of Dreams" on the same album. The two songs are so very close in style, content and sentiment that one can almost imagine them as an exchange of wedding vows, the former from her to him, the latter from him to her.
 
 Or perhaps they're both from the groom-to-be. "If I Should Fall Behind" sounds like it takes place a few days before the wedding; "Book of Dreams" is mere hours away.
 
 Regardless, both songs reveal the significance of Bruce's second wedding day to him as both songwriter and a husband.
 
-Rewind to the aftermath of Bruce's first wedding, and we find songs like "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" and "[The Wish,](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)" where Bruce's focus is on his parents, as if he chose to settle down at least in part for their approval.
+Rewind to the aftermath of Bruce's first wedding, and we find songs like "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" and "[The Wish,](../2018-06-23_roll-of-the-dice-the-wish/post.md)" where Bruce's focus is on his parents, as if he chose to settle down at least in part for their approval.
 
-We also find "[The Honeymooners,](https://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/)" very similar in structure to "Book of Dreams," but with a narrator who sees marriage as at least a lark and at best a fairy tale.
+We also find "[The Honeymooners,](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)" very similar in structure to "Book of Dreams," but with a narrator who sees marriage as at least a lark and at best a fairy tale.
 
 In "Book of Dreams," however, recorded mere months if not weeks after Bruce's second and final wedding day, the narrator fully feels the weight of what's taking place around him. One can almost imagine that it's the same groom from "The Honeymooners," a bit older and a lot wiser.
 
@@ -41,7 +41,7 @@ Bruce's new story begins in verse number two, and it begins very similarly to "T
 
 That third verse is important. Taking place after the guests have gone home and the lovers retire to the bedroom, the singer is no longer an observer. He is both physically and emotionally connected to his bride-to-be, and the fact that he suddenly loses his vivid powers of observation that characterized the song up until this point is very, very significant. The groom is all in, Bruce is telling us, and his journey from here on out takes us places the eye can't see.
 
-In the final verse, the wedding day has arrived, and Bruce fully recognizes its power and mystery. As he previously wrote in "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and would someday warn in "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)," he knows there are parts of themselves that they'll never truly share or see, but that's part of what makes their pact so significant. He embraces it rather than fears it.
+In the final verse, the wedding day has arrived, and Bruce fully recognizes its power and mystery. As he previously wrote in "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and would someday warn in "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)," he knows there are parts of themselves that they'll never truly share or see, but that's part of what makes their pact so significant. He embraces it rather than fears it.
 
 The penultimate lines of the song are a callback to "If I Should Fall Behind" (if you can call it a callback when the preceding song is on the flip side of the same album), further cementing the notion that both songs are about the same characters:
 

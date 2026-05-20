@@ -20,7 +20,7 @@ His Broadway show had ended in December, and no tour was on the horizon. It had 
 
 He reached for the closest guitar, which happened to be one gifted to him by an anonymous Italian fan as he exited the Walter Kerr Theater one night. It was a fine guitar, and Bruce was intrigued by its quality and mysterious origin. He kept it in his living room, where it sat neglected until the moment that inspiration struck.
 
-With his mystery guitar, Springsteen wrote "[Last Man Standing](https://estreetshuffle.com/index.php/2022/11/19/roll-of-the-dice-last-man-standing/)," the song that serves as the emotional centerpiece of his current world tour. That one song broke the logjam that had blocked his songwriting for years.
+With his mystery guitar, Springsteen wrote "[Last Man Standing](../2022-11-19_roll-of-the-dice-last-man-standing/post.md)," the song that serves as the emotional centerpiece of his current world tour. That one song broke the logjam that had blocked his songwriting for years.
 
 Over the next ten days, the story goes, he wrote the collection of songs that became *Letter to You* and recorded them with the E Street Band during an even shorter period of time that autumn.
 
@@ -30,12 +30,12 @@ That's the legend. And as the saying goes (to quote one of Bruce's favorite movi
 
 Springsteen didn't write *Letter to You* in a burst of creativity any more than *Nebraska* was recorded on a single day in January 1982. In fact, a full six of the twelve songs that make up *Letter to You* had been around long before... in some cases for decades.
 
-- "[One Minute You're Here](https://estreetshuffle.com/index.php/2021/05/30/roll-of-the-dice-one-minute-youre-here/)," the metaphysical musing that opens the album, sounds like a holdover from *Western Stars* but dates possibly as early as 2004.
-- "[Burnin' Train](https://estreetshuffle.com/index.php/2022/01/14/roll-of-the-dice-burnin-train/)," the raging, "[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)"-ish rocker, was first demoed in 1993 and was likely recorded long before the *Letter to You* sessions.
-- "[Rainmaker](https://estreetshuffle.com/index.php/2021/02/12/roll-of-the-dice-rainmaker/)" dates back to the *Rising* era; the track itself is likely from the *Magic* sessions. It fits tonally with either album and is as good or better than anything on them. It's also a contender for best track on *Letter to You*, even though it sticks out like a thematically sore thumb.
-- "[Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)" has the most storied history of any track on the album. Originally recorded for *The Wild, The Innocent & The E Street Shuffle, Born to Run*, and briefly a contender for *The River*, it also inspired a classic Warren Zevon song.
-- "[If I was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" is one of Bruce's earliest "epic" songs, and although it aspires to greater heights than it achieves, it's a remarkable composition for so young a songwriter, and it deserved an official release (somewhere).
-- "[Song for Orphans](https://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)" is probably the least of these six tracks that cried out for an official release. Also dating back to the early 1970s, It's nowhere near as finely constructed as its contemporaneous album-mates.
+- "[One Minute You're Here](../2021-05-30_roll-of-the-dice-one-minute-youre-here/post.md)," the metaphysical musing that opens the album, sounds like a holdover from *Western Stars* but dates possibly as early as 2004.
+- "[Burnin' Train](../2022-01-14_roll-of-the-dice-burnin-train/post.md)," the raging, "[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)"-ish rocker, was first demoed in 1993 and was likely recorded long before the *Letter to You* sessions.
+- "[Rainmaker](../2021-02-12_roll-of-the-dice-rainmaker/post.md)" dates back to the *Rising* era; the track itself is likely from the *Magic* sessions. It fits tonally with either album and is as good or better than anything on them. It's also a contender for best track on *Letter to You*, even though it sticks out like a thematically sore thumb.
+- "[Janey Needs a Shooter](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md)" has the most storied history of any track on the album. Originally recorded for *The Wild, The Innocent & The E Street Shuffle, Born to Run*, and briefly a contender for *The River*, it also inspired a classic Warren Zevon song.
+- "[If I was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)" is one of Bruce's earliest "epic" songs, and although it aspires to greater heights than it achieves, it's a remarkable composition for so young a songwriter, and it deserved an official release (somewhere).
+- "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)" is probably the least of these six tracks that cried out for an official release. Also dating back to the early 1970s, It's nowhere near as finely constructed as its contemporaneous album-mates.
 
 [Watch on Youtube: Tim McGraw & Bruce Springsteen: 'Letter To You' Documentary and E Street Band's Legacy | Apple Music](https://www.youtube.com/watch?v=7OMTyppnWLM?start=45)
 
@@ -43,7 +43,7 @@ There's nothing wrong with a mix of vintages per se. Springsteen's more obsessiv
 
 But there *is* a problem with *Letter to You*, one that has everything to do with its song selection and sequencing.
 
-Bruce's best albums are thematically tight and powerful: *Western Stars, Nebraska, Tunnel of Love, [Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/).* Even *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)—*which long-time readers know I find the least enjoyable in Bruce's catalog–is undeniably an artistically great album.
+Bruce's best albums are thematically tight and powerful: *Western Stars, Nebraska, Tunnel of Love, [Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md).* Even *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)—*which long-time readers know I find the least enjoyable in Bruce's catalog–is undeniably an artistically great album.
 
 Cohesion doesn't always have to be lyrical. *The River* succeeds as a work of high art in its ability to conjure the cadence and emotional ride of a live E Street Band show, even while its tracks run the gamut in style, theme, and tone.
 
@@ -61,12 +61,12 @@ Let's experiment. If you care to indulge me, try listening to a playlist of just
 
 [Watch on Youtube: Bruce Springsteen 'Letter To You' Album](https://www.youtube.com/playlist?list=PLr7gpDHqxU8Aa8Bb5AJeLQmDeFyRmOii2)
 
-- "[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)" opens the set, but it's also a summation statement for Bruce's entire body of work.
-- "[Last Man Standing](https://estreetshuffle.com/index.php/2022/11/19/roll-of-the-dice-last-man-standing/)" gives the album its origin and heart...
-- .... and "[The Power of Prayer](https://estreetshuffle.com/index.php/2021/09/29/roll-of-the-dice-the-power-of-prayer/)" gives it its soul. Perhaps it's not a coincidence that they're musical sound-alikes.
-- "[House of a Thousand Guitars](https://estreetshuffle.com/index.php/2021/04/23/roll-of-the-dice-house-of-a-thousand-guitars/)" is Springsteen's mission statement and invitation to his concert audience...
-- ...while "[Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)" is his on-stage reckoning with the ticking clock.
-- "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" is a parting benediction, a fitting bookend not only to the title track but to each and every one of the five songs above.
+- "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)" opens the set, but it's also a summation statement for Bruce's entire body of work.
+- "[Last Man Standing](../2022-11-19_roll-of-the-dice-last-man-standing/post.md)" gives the album its origin and heart...
+- .... and "[The Power of Prayer](../2021-09-29_roll-of-the-dice-the-power-of-prayer/post.md)" gives it its soul. Perhaps it's not a coincidence that they're musical sound-alikes.
+- "[House of a Thousand Guitars](../2021-04-23_roll-of-the-dice-house-of-a-thousand-guitars/post.md)" is Springsteen's mission statement and invitation to his concert audience...
+- ...while "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)" is his on-stage reckoning with the ticking clock.
+- "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" is a parting benediction, a fitting bookend not only to the title track but to each and every one of the five songs above.
 
 [Watch on Youtube: Bruce Springsteen - Spiritual Songwriting & "Letter to You" | The Daily Social Distancing Show](https://www.youtube.com/watch?v=QZuBEO-ilg4?start=13)
 

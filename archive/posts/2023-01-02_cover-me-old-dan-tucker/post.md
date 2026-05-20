@@ -2,7 +2,7 @@ The "Seeger Sessions" that yielded Bruce Springsteen's 2006 album were actually 
 
 The project started with a simple request by Appleseed Records for a single cover track they could include in an upcoming Pete Seeger tribute album. Bruce convened a recording session at his home with The Gotham Playboys, a group of musicians he'd met through Soozie Tyrell, who joined the players along with Patti Scialfa and the Miami Horns.
 
-In all, there were twelve musicians there that day, and never before had they all played together. And yet they clicked, recording not just "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)" (which ended up as Bruce's contribution for the tribute album) but also "[My Oklahoma Home](https://estreetshuffle.com/index.php/2020/03/04/cover-me-my-oklahoma-home/)," "[Jesse James](https://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/)," and two songs that remain unreleased to this day.
+In all, there were twelve musicians there that day, and never before had they all played together. And yet they clicked, recording not just "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)" (which ended up as Bruce's contribution for the tribute album) but also "[My Oklahoma Home](../2020-03-04_cover-me-my-oklahoma-home/post.md)," "[Jesse James](../2019-07-10_roll-of-the-dice-cover-me-jesse-james/post.md)," and two songs that remain unreleased to this day.
 
 In recent years, Bruce has become much freer in his recording style (most notably recording *Letter To You* in four days), but at the time this was pretty much unprecedented.
 

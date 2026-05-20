@@ -1,4 +1,4 @@
-The first time I heard Steve Earle's "Johnny Come Lately," I thought to myself: this sounds like a companion piece to "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"
+The first time I heard Steve Earle's "Johnny Come Lately," I thought to myself: this sounds like a companion piece to "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
 
 [Watch on Youtube: Steve Earle - Johnny Come Lately](https://www.youtube.com/watch?v=xVaPwdgezWI)
 

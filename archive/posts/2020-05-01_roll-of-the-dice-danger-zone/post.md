@@ -8,7 +8,7 @@ Written and recorded during the Nebraska era, "Danger Zone" is tender, warm, and
 
 [Watch Video Highlight](https://videopress.com/embed/ovwt7ZtQ)
 
-If there's a through line to be drawn from "Danger Zone," it might be one that threads through "Child Bride" on the way to "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)."
+If there's a through line to be drawn from "Danger Zone," it might be one that threads through "Child Bride" on the way to "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."
 
 Those latter two songs–one still unreleased, the other now a classic–center around a romantic relationship between their protagonist and an underage girl.
 
@@ -40,7 +40,7 @@ Note: there's another brief section after the tape stops, but although it circul
 
 It's easy to see why Bruce wouldn't have released "Danger Zone" on *Nebraska* even if he had finished the song (and there's no indication he ever did). "Danger Zone" is gentle, sensitive, tender, and a far cry from the dark themes that would typify his next album.
 
-But the thing I find most fascinating about "Danger Zone" is that it's so unlike anything he'd written before or since. We could perhaps consider "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" a distant cousin for its warm melody and like-a-big-brother narrator, but even that would be a stretch.
+But the thing I find most fascinating about "Danger Zone" is that it's so unlike anything he'd written before or since. We could perhaps consider "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" a distant cousin for its warm melody and like-a-big-brother narrator, but even that would be a stretch.
 
 We'll very likely never know how "Danger Zone" might have turned out, and that's too bad. I suspect it would have been a beautiful and unique addition to his catalog.
 

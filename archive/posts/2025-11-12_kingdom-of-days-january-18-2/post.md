@@ -22,11 +22,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/greensboro85.jpg.webp)
 
-**1986:** On *American Top 40,* host Casey Kasem introduces “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” with the story of the first show Bruce and Clarence ever played together.<br>
+**1986:** On *American Top 40,* host Casey Kasem introduces “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” with the story of the first show Bruce and Clarence ever played together.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3)
 
-**1989**: Bruce joins the Rolling Stones, the Temptations, Tina Turner, Stevie Wonder, Pete Townshend, and more on stage for the all-star jam at the fourth annual Rock and Roll Hall of Fame induction ceremony. Bruce takes lead vocals on Roy Orbison’s “[Crying](https://estreetshuffle.com/index.php/2022/05/06/cover-me-crying/)” and plays guitar throughout the rest of the jam.<br>
+**1989**: Bruce joins the Rolling Stones, the Temptations, Tina Turner, Stevie Wonder, Pete Townshend, and more on stage for the all-star jam at the fourth annual Rock and Roll Hall of Fame induction ceremony. Bruce takes lead vocals on Roy Orbison’s “[Crying](../2022-05-06_cover-me-crying/post.md)” and plays guitar throughout the rest of the jam.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/F1pnPZMx)
 
@@ -40,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1985-01-18b.png.webp)
 
-**1992:** At A&M Studios in Los Angeles, Bruce records “[Happy](https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/),” the final song in his *Lucky Town* sessions. It will stay in the vault until 1998, when it will be released on *Tracks*.<br>
+**1992:** At A&M Studios in Los Angeles, Bruce records “[Happy](../2019-07-28_roll-of-the-dice-happy/post.md),” the final song in his *Lucky Town* sessions. It will stay in the vault until 1998, when it will be released on *Tracks*.<br>
 
 [Watch on Youtube: Happy (Studio Outtake - 1992)](https://www.youtube.com/watch?v=wmr6oj84sxM)
 
@@ -48,11 +48,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/hqPvtH4u)
 
-**2009**: Bruce performs “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” and “[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)” at the We Are One concert in honor of Barack Obama’s inauguration as the 44th President of the United States of America.<br>
+**2009**: Bruce performs “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)” and “[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)” at the We Are One concert in honor of Barack Obama’s inauguration as the 44th President of the United States of America.<br>
 
 [Watch on Youtube: the rising - bruce springsteen](https://www.youtube.com/watch?v=f5e1WlOyr1U)
 
-**2014:** Bruce makes a guest appearance at Light of Day, playing a song each with Jesse Malin and Willie Nile before a full set with Joe Grushecky and the Houserockers that includes the first ever performance of “[Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/).”<br>
+**2014:** Bruce makes a guest appearance at Light of Day, playing a song each with Jesse Malin and Willie Nile before a full set with Joe Grushecky and the Houserockers that includes the first ever performance of “[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md).”<br>
 
 [Watch on Youtube: Frankie Fell in Love - Bruce Springsteen, Joe Grushecky Light of Day 2014](https://www.youtube.com/watch?v=n9WRVSukj6M)
 
@@ -68,7 +68,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2020:** Bruce makes his last public appearance before the great pandemic of 2020 cancels live music for the year. At Light of Day 20 in Asbury Park, Bruce joins Jesse Malin for “[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)” and “[Meet Me at the End of the World,](https://estreetshuffle.com/index.php/2021/01/14/matr-jesse-malin-and-bruce-springsteen-meet-me-at-the-end-of-the-world/)” Willie Nile for “[One Guitar](https://estreetshuffle.com/index.php/2018/05/16/meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/),” and Joe Grushecky & The Houserockers for a ten-song set that includes a rare “[Savin’ Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/).”<br>
+**2020:** Bruce makes his last public appearance before the great pandemic of 2020 cancels live music for the year. At Light of Day 20 in Asbury Park, Bruce joins Jesse Malin for “[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md)” and “[Meet Me at the End of the World,](../2021-01-14_matr-jesse-malin-and-bruce-springsteen-meet-me-at-the-end-of-the-world/post.md)” Willie Nile for “[One Guitar](../2018-05-16_meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/post.md),” and Joe Grushecky & The Houserockers for a ten-song set that includes a rare “[Savin’ Up](../2018-05-14_roll-of-the-dice-cover-me-clarence-clemons-savin-up/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen and Jesse Malin](https://www.youtube.com/watch?v=k-FNvVGPgYs)
 

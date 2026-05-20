@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/1973-01-10.jpg.webp)
 
-**1974:** Bruce and the band play The Joint in the Woods in Parsippany, New Jersey–notable for ultra-rare covers of "[Ring of Fire](https://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)" and "[634-5789](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)." (The latter will become a staple of the Wrecking Ball tour, however.)<br>
+**1974:** Bruce and the band play The Joint in the Woods in Parsippany, New Jersey–notable for ultra-rare covers of "[Ring of Fire](../2019-07-19_cover-me-ring-of-fire/post.md)" and "[634-5789](../2018-08-14_cover-me-634-5789-soulsville-u-s-a/post.md)." (The latter will become a staple of the Wrecking Ball tour, however.)<br>
 
 [Watch on Youtube: Bruce Springsteen RING OF FIRE 1974](https://www.youtube.com/watch?v=SmNh7gGOQ0U)
 
@@ -18,13 +18,13 @@
 
 **1975:** Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunner to Southside Johnny and the Asbury Jukes.<br>
 
-**1982:** Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage at the Royal Manor North in North Brunswick, New Jersey, for covers of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" and "[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)." This is the earliest known performance of Bruce and Nils together.<br>
+**1982:** Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage at the Royal Manor North in North Brunswick, New Jersey, for covers of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" and "[Carol](../2022-02-17_cover-me-carol/post.md)." This is the earliest known performance of Bruce and Nils together.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VjV3L0Je)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1982-01-12a.png.webp)
 
-**1984:** At The Hit Factory in New York City, Bruce and the E Street Band record "[Man at the Top](https://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)" and "[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/)." Both songs will remain in the vault until 1998.<br>
+**1984:** At The Hit Factory in New York City, Bruce and the E Street Band record "[Man at the Top](../2019-05-10_roll-of-the-dice-man-at-the-top/post.md)" and "[Rockaway the Days](../2021-03-15_roll-of-the-dice-rockaway-the-days/post.md)." Both songs will remain in the vault until 1998.<br>
 
 [Watch on Youtube: Man At The Top (Studio Outtake - 1984)](https://www.youtube.com/watch?v=IWXqPv9JY8k)
 
@@ -40,11 +40,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1993-01-12.png.webp)
 
-**1995:** Bruce records "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" at The Hit Factory in New York City.<br>
+**1995:** Bruce records "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" at The Hit Factory in New York City.<br>
 
 [Watch on Youtube: Back In Your Arms (Studio Outtake - 1995)](https://www.youtube.com/watch?v=9FBVo0LqhYQ)
 
-**1996:** Bruce plays Stambaugh Auditorium in Youngstown, Ohio, inspiration (of course) for his song, "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)."<br>
+**1996:** Bruce plays Stambaugh Auditorium in Youngstown, Ohio, inspiration (of course) for his song, "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen: YOUNGSTOWN (live in Youngstown!)](https://www.youtube.com/watch?v=Smddcs5n0H0)
 
@@ -62,6 +62,6 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/2018-01-12.jpg.webp)
 
-**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First hand reports from fans listening at the stage door (including this blogger) confirm the addition of "Nightshift" and the return of "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" as the show opener (a position it will hold throughout most of the tour) as the setlist begins to take shape.<br>
+**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First hand reports from fans listening at the stage door (including this blogger) confirm the addition of "Nightshift" and the return of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" as the show opener (a position it will hold throughout most of the tour) as the setlist begins to take shape.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/2023-01-12.jpg.webp)

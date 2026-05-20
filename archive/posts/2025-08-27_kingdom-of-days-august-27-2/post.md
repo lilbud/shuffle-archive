@@ -2,7 +2,7 @@
 
 **1970:** Steel Mill rehearses in Wanamassa, New Jersey for their upcoming appearance in Nashville.<br>
 
-**1979:** Bruce and his studio team work on the mix for "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" at the Power Station in New York City.<br>
+**1979:** Bruce and his studio team work on the mix for "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" at the Power Station in New York City.<br>
 
 **1981:** Bruce and the E Street Band play their fifth show of a six-night stand at the Los Angeles Memorial Sports Arena.<br>
 
@@ -16,7 +16,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/LRMoo2CB)
 
-**1987:** Bruce joins Cats on a Smooth Surface at their gig at Tradewinds in Sea Bright, playing "[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)" and a selection of covers including "Proud Mary," "[Fortunate Son](https://estreetshuffle.com/index.php/2019/11/09/matr-john-fogerty-and-bruce-springsteen-fortunate-son/)," "If You Need Me," "[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)," and "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."<br>
+**1987:** Bruce joins Cats on a Smooth Surface at their gig at Tradewinds in Sea Bright, playing "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)" and a selection of covers including "Proud Mary," "[Fortunate Son](../2019-11-09_matr-john-fogerty-and-bruce-springsteen-fortunate-son/post.md)," "If You Need Me," "[Around and Around](../2020-02-26_cover-me-around-and-around/post.md)," and "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."<br>
 
 **1999:** Bruce and the reunited E Street Band wrap their five-night stand at Boston's Fleet Center, tour debuting "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" in the encores with Peter Wolf.<br>
 

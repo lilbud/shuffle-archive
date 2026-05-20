@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Philadelphia_Daily_News_1976_11_17_Page_31-scaled.jpg.webp)
 
-**1980:** Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sports Arena, where Flo and Eddie contribute guest backing vocals to “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”<br>
+**1980:** Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sports Arena, where Flo and Eddie contribute guest backing vocals to “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen (feat. Flo & Eddie), "Hungry Heart" Los Angeles, 1980-10-30](https://www.youtube.com/watch?v=mARXAqjapMc)
 
@@ -28,11 +28,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/33582182768_17f5871a49_o.jpg.webp)
 
-**1984:** Bruce releases the latest single, the [title track](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/) from his mega-hit *Born in the U.S.A.* album.<br>
+**1984:** Bruce releases the latest single, the [title track](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md) from his mega-hit *Born in the U.S.A.* album.<br>
 
 [Watch on Youtube: Born in the U.S.A.](https://www.youtube.com/watch?v=tRx212PUa4g)
 
-**1987:** Bruce premieres the video for his latest single, “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” the first single from *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/).* Watch the video and news coverage below.<br>
+**1987:** Bruce premieres the video for his latest single, “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” the first single from *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* Watch the video and news coverage below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
@@ -52,7 +52,7 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1992-10-30b.png.webp)
 
-**2005:** Bruce’s solo acoustic show at the TD Banknorth Garden in Boston is filmed but will remain unreleased with one exception: a video for “[Matamoros Banks](https://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/)” that Bruce will release fourteen years later in support of Project Adelante. In the encores, Bruce tour premieres “[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)” as a Boston special. In attendance tonight: Senator John Kerry.<br>
+**2005:** Bruce’s solo acoustic show at the TD Banknorth Garden in Boston is filmed but will remain unreleased with one exception: a video for “[Matamoros Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)” that Bruce will release fourteen years later in support of Project Adelante. In the encores, Bruce tour premieres “[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)” as a Boston special. In attendance tonight: Senator John Kerry.<br>
 
 [Watch on Youtube: Project Adelante](https://www.youtube.com/watch?v=T5hpk4taBZY)
 
@@ -60,13 +60,13 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2005-10-30.png.webp)
 
-**2006:** Bruce and the Sessions Band complete their Scandinavian leg with a show at the Globe Arena in Stockholm, where Bruce tour premieres “[Jesus Was an Only Son](https://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/).”<br>
+**2006:** Bruce and the Sessions Band complete their Scandinavian leg with a show at the Globe Arena in Stockholm, where Bruce tour premieres “[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md).”<br>
 
 [Watch on Youtube: Stockholm 30/10/2006](https://www.youtube.com/playlist?list=PLJTyL9twk3zDomyuC3EcOwtaHX3Jno-iX)
 
 [Watch on Youtube: Bruce Springsteen, The River, Seeger Sessions, Stockholm 30/10/06](https://www.youtube.com/watch?v=l3DkvDa6LIw)
 
-**2007:** At Night Two in Los Angeles on the Magic Tour, Bruce celebrates Halloween a day early, once again (as in Halloweens past) emerging from a coffin to start the show. Bruce also tour premieres “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” during the encores.<br>
+**2007:** At Night Two in Los Angeles on the Magic Tour, Bruce celebrates Halloween a day early, once again (as in Halloweens past) emerging from a coffin to start the show. Bruce also tour premieres “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)” during the encores.<br>
 
 [Watch on Youtube: HALLOWEEN EVE / RADIO NOWHERE - BRUCE SPRINGSTEEN©](https://www.youtube.com/watch?v=YweY5JtFZH4)
 

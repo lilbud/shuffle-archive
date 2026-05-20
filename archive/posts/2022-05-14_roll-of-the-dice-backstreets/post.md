@@ -4,11 +4,11 @@ We may never know the true story of the friendship between Bruce Springsteen and
 
 Some claim to know, like Bruce's former agent Mike Appel, who minced few words about it in his 1992 sensational book with author Marc Eliot. Others demur, pointing to Lahav's marriage and Bruce's committed relationship that spanned Lahav's brief tenure with the E Street Band as evidence that nothing untoward was going on. And still others simply decline to comment.
 
-What we do know is that Lahav made her first appearance on the Springsteen scene in 1973, when a children's choir no-showed for Bruce's recording sessions and Suki was drafted to be a one-woman choir for "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" and "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)." (Suki's husband Louis recorded overdub after overdub to get his wife to sound like a choir.)
+What we do know is that Lahav made her first appearance on the Springsteen scene in 1973, when a children's choir no-showed for Bruce's recording sessions and Suki was drafted to be a one-woman choir for "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" and "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)." (Suki's husband Louis recorded overdub after overdub to get his wife to sound like a choir.)
 
 By 1974, Bruce had begun writing in a more romantic vein, and over the summer he decided to add a warm violin to the band's sound to heighten his more tender songs. "Louis sent me along to audition," Suki told *The Jerusalem Post* in 2007. "There were others. Surprisingly, he took me. I didn't think I was very good… You have to practice for hours a day. I was never a big practicer. But maybe I did have my own thing."
 
-Suki made her E Street Band stage debut at Avery Fisher Hall in New York City on October 4, 1974–the same night Bruce premiered a work-in-progress "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)."
+Suki made her E Street Band stage debut at Avery Fisher Hall in New York City on October 4, 1974–the same night Bruce premiered a work-in-progress "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)."
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3)
 

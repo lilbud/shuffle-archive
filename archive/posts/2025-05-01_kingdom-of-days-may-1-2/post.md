@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1973-05-01.jpg.webp)
 
-**1981:** Bruce plays in Denmark for the first time–as a guest (his first time guesting in Europe) with local band Malurt on "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)."<br>
+**1981:** Bruce plays in Denmark for the first time–as a guest (his first time guesting in Europe) with local band Malurt on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
 [Watch on Youtube: Malurt & Bruce Springsteen: Hungry Heart](https://www.youtube.com/watch?v=YSkr1fneJkc)
 
@@ -48,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/medium.jpg.webp)
 
-**2014:** On International Workers' Day, Bruce opens his Tampa High Hopes show with "[Joe Hill](https://estreetshuffle.com/index.php/2019/05/01/cover-me-joe-hill/)" and continues a streak of unpredictable tour premieres with "[Brothers Under the Bridge](https://www.youtube.com/watch?v=QjudCSZ7TC4)," "[Gloria](https://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)," and warm-up performances of "[Jesse James](https://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/)" and "[O Mary Don't You Weep](https://estreetshuffle.com/index.php/2022/07/15/cover-me-o-mary-dont-you-weep/)" for the band's upcoming Jazz Fest gig. During the encores, Bruce forgets that his microphone stand isn't bolted down, leading to an embarrassingly awkward backbend attempt on "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)." This show is available as part of Bruce's official archive series. Buy or stream it [here](https://live.brucespringsteen.net/live-music/0,11387/Bruce-Springsteen-mp3-flac-download-5-1-2014-MidFlorida-Credit-Union-Amphitheatre-Tampa-FL.html).<br>
+**2014:** On International Workers' Day, Bruce opens his Tampa High Hopes show with "[Joe Hill](../2019-05-01_cover-me-joe-hill/post.md)" and continues a streak of unpredictable tour premieres with "[Brothers Under the Bridge](https://www.youtube.com/watch?v=QjudCSZ7TC4)," "[Gloria](../2018-03-16_cover-me-gloria/post.md)," and warm-up performances of "[Jesse James](../2019-07-10_roll-of-the-dice-cover-me-jesse-james/post.md)" and "[O Mary Don't You Weep](../2022-07-15_cover-me-o-mary-dont-you-weep/post.md)" for the band's upcoming Jazz Fest gig. During the encores, Bruce forgets that his microphone stand isn't bolted down, leading to an embarrassingly awkward backbend attempt on "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." This show is available as part of Bruce's official archive series. Buy or stream it [here](https://live.brucespringsteen.net/live-music/0,11387/Bruce-Springsteen-mp3-flac-download-5-1-2014-MidFlorida-Credit-Union-Amphitheatre-Tampa-FL.html).<br>
 
 [Watch on Youtube: Bruce Springsteen- "Joe Hill" (Tampa, FL 05/01/14)](https://www.youtube.com/watch?v=T2UF8yw89yE)
 
@@ -77,6 +77,6 @@
 >
 > [A post shared by Bruce Springsteen (@springsteen)](https://www.instagram.com/p/BiPvyFEnTwm/?utm_source=ig_embed&utm_campaign=loading)
 
-**2020:** Dion releases a video single for his remake of "[Hymn to Him](https://estreetshuffle.com/index.php/2021/04/26/matr-dion-bruce-springsteen-and-patti-scialfa-hymn-to-him/)," featuring backing vocals by Patti Scialfa and Bruce on guitar.<br>
+**2020:** Dion releases a video single for his remake of "[Hymn to Him](../2021-04-26_matr-dion-bruce-springsteen-and-patti-scialfa-hymn-to-him/post.md)," featuring backing vocals by Patti Scialfa and Bruce on guitar.<br>
 
 [Watch on Youtube: Dion - "Hymn To Him" featuring Patti Scialfa & Bruce Springsteen - Official Music Video](https://www.youtube.com/watch?v=7BJ4Kg3Dl_4)

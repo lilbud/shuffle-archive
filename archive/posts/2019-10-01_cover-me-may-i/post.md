@@ -16,7 +16,7 @@ When it was showtime, the E Street Band took the stage without Bruce. It was act
 
 [Watch on Youtube: Bill Deal & The Rhondels "May I"](https://www.youtube.com/watch?v=9veL_TPu_yg)
 
-But as it turns out, "Bill Deal" wasn't the original recording artist for "May I." That honor goes to Maurice Williams and the Zodiacs (of "[Stay](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)" fame), who released the song in 1966 to little notice.
+But as it turns out, "Bill Deal" wasn't the original recording artist for "May I." That honor goes to Maurice Williams and the Zodiacs (of "[Stay](../2018-07-22_meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/post.md)" fame), who released the song in 1966 to little notice.
 
 [Watch on Youtube: Maurice Williams And The Zodiacs - May I (The Village Square)](https://www.youtube.com/watch?v=HLGnH42Cb7c)
 

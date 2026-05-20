@@ -20,13 +20,13 @@
 
 **1983:** Bruce and the E Street Band work on "King's Highway" at The Hit Factory in New York City. It hasn't surfaced in any form to this day.<br>
 
-**1985:** Director John Sayles films background footage at Maxwell's in Hoboken, New Jersey, for Bruce's "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)" video.<br>
+**1985:** Director John Sayles films background footage at Maxwell's in Hoboken, New Jersey, for Bruce's "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" video.<br>
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 
-**1993:** Before leaving the U.K., Bruce sings karaoke ("[Jumpin' Jack Flash](https://estreetshuffle.com/index.php/2021/09/01/matr-bruce-springsteen-and-wolfgang-niedecken-jumpin-jack-flash/)") at the Stanhope Arms pub in London.<br>
+**1993:** Before leaving the U.K., Bruce sings karaoke ("[Jumpin' Jack Flash](../2021-09-01_matr-bruce-springsteen-and-wolfgang-niedecken-jumpin-jack-flash/post.md)") at the Stanhope Arms pub in London.<br>
 
-**2003:** At a rainy Rising show in Saint-Denis, France, Bruce plays an acoustic pre-show, opens with "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)" and tour debuts "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)," "[Be True,](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" and "[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)."<br>
+**2003:** At a rainy Rising show in Saint-Denis, France, Bruce plays an acoustic pre-show, opens with "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" and tour debuts "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)," "[Be True,](../2020-12-02_roll-of-the-dice-be-true/post.md)" and "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)."<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN 3 HOURS BEFORE HIS CONCERT OF PARIS IN MAY 2003](https://www.youtube.com/watch?v=xpCBRXh2lmM)
 

@@ -2,7 +2,7 @@ Bruce's connection with Dion DiMucci goes way back to 1975 (even further if you 
 
 The two have performed together on stage in every decade since the 1970s, so it was perhaps only a matter of time before Dion tried his hand at covering one or two of Bruce's songs.
 
-Dion first covered Bruce in 1992 in a [doo-wop version](https://estreetshuffle.com/index.php/2018/09/07/cover-me-dion-if-i-should-fall-behind/) of Bruce's 1992 standard "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)." His second cover came eight years later on his *Deja Nu* album, with a loving reading of his former cover's album-mate, "[Book of Dreams](https://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/)."
+Dion first covered Bruce in 1992 in a [doo-wop version](../2018-09-07_cover-me-dion-if-i-should-fall-behind/post.md) of Bruce's 1992 standard "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)." His second cover came eight years later on his *Deja Nu* album, with a loving reading of his former cover's album-mate, "[Book of Dreams](../2019-06-04_roll-of-the-dice-book-of-dreams/post.md)."
 
 In a 2000 NPR interview, Dion explained why "Book of Dreams" was so special to him:
 

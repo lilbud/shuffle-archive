@@ -10,7 +10,7 @@
 
 **1974:** Bruce hires Roy Bittan and Max Weinberg as new members of the E Street Band. Max and Roy responded to [Bruce's ad in the Village Voice](https://estreetshuffle.com/index.php/2018/08/08/kingdom-of-days-august-8/) and tried out during audition sessions in mid-August. The band immediately kicks off intense rehearsal days (up to ten hours a day) lasting for two weeks.<br>
 
-**1975:** Bruce and the E Street Band wrap up their three-night stand at Alex Cooley's Electric Ballroom in Atlanta. The setlist includes "[Then She Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)" in its last appearance for 33 years to the day (see below).<br>
+**1975:** Bruce and the E Street Band wrap up their three-night stand at Alex Cooley's Electric Ballroom in Atlanta. The setlist includes "[Then She Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)" in its last appearance for 33 years to the day (see below).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Atlanta, GA 1975-08-23 (Soundboard)](https://www.youtube.com/watch?v=xYG03nqdFqE)
 
@@ -26,9 +26,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0823.jpg.webp)
 
-**1979:** Bruce and the band work on "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)" during a recording session at the Power Station in New York City.<br>
+**1979:** Bruce and the band work on "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" during a recording session at the Power Station in New York City.<br>
 
-**1981:** At Night Three of six River Tour shows at the L.A. Sports Arena, Bruce and the E Street Band play a tour one-off cover of "[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)."<br>
+**1981:** At Night Three of six River Tour shows at the L.A. Sports Arena, Bruce and the E Street Band play a tour one-off cover of "[Rave On](../2019-03-25_matr-bruce-springsteen-and-gary-busey-rave-on/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/SgmxFmy4)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1999-08-23.jpg.webp)
 
-**2008:** Bruce and the E Street Band play what is widely (and personally) considered to be one of his best shows ever, certainly of the Reunion era, in St. Louis. Four tour premieres at this penultimate Magic Tour show, including two ("Then She Kissed Me" and "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)") not played for 33 years (to the very day for one of them), along with performances of three epics ("[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)," "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)," and "Jungleland") all in one show. The show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,16077/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-23-2008-Scottrade-Center-St-Louis-MO.html). For more highlights from this stunner of a show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/08/23/where-the-band-was-st-louis-august-23-2008/)<br>
+**2008:** Bruce and the E Street Band play what is widely (and personally) considered to be one of his best shows ever, certainly of the Reunion era, in St. Louis. Four tour premieres at this penultimate Magic Tour show, including two ("Then She Kissed Me" and "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)") not played for 33 years (to the very day for one of them), along with performances of three epics ("[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)," "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)," and "Jungleland") all in one show. The show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,16077/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-23-2008-Scottrade-Center-St-Louis-MO.html). For more highlights from this stunner of a show, see my [*Where the Band Was* report.](../2018-08-23_where-the-band-was-st-louis-august-23-2008/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - When You Walk In The Room | Rehearsal- St. Louis 2008| audio](https://www.youtube.com/watch?v=6L4kMZsy6-E)
 
@@ -52,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-23.png.webp)
 
-**2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "[Independence Day,](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" followed by an instrumental "[(Love is Like a) Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "[American Land.](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)"<br>
+**2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)" followed by an instrumental "[(Love is Like a) Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen "Independence Day" Mansfield 8-23-09](https://www.youtube.com/watch?v=vJTpQPqjBU4)
 
@@ -64,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen "Hang on Sloopy" into "Growin' Up" Mansfield 8-23-09](https://www.youtube.com/watch?v=2GYEcPsBumI)
 
-**2016:** Bruce and the E Street Band kick off the ten-show "victory lap" leg of what really shouldn't be called the River Tour anymore, with the first of three shows at MetLife Stadium in East Rutherford. Right away, it's clear that this leg is going to be special: the show opens with "New York City Serenade," featuring an eight-piece string section led by Sam Bardfeld of the Sessions Band. The strings return later in the show for the tour premiere of "[Jack of All Trades,](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)" but these are far from the only highlights: Bruce is reflective tonight, in fresh storytelling mode, perhaps in anticipation of the release of his autobiography. "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" is played by request, and "[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)" is played as a duet with Patti. A final encore of "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" accompanied by fireworks caps off the third longest show Bruce has ever played in the USA... but it will drop several notches before the tour ends. For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/08/23/where-the-band-was-east-rutherford-august-23-2016/)<br>
+**2016:** Bruce and the E Street Band kick off the ten-show "victory lap" leg of what really shouldn't be called the River Tour anymore, with the first of three shows at MetLife Stadium in East Rutherford. Right away, it's clear that this leg is going to be special: the show opens with "New York City Serenade," featuring an eight-piece string section led by Sam Bardfeld of the Sessions Band. The strings return later in the show for the tour premiere of "[Jack of All Trades,](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" but these are far from the only highlights: Bruce is reflective tonight, in fresh storytelling mode, perhaps in anticipation of the release of his autobiography. "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" is played by request, and "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" is played as a duet with Patti. A final encore of "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" accompanied by fireworks caps off the third longest show Bruce has ever played in the USA... but it will drop several notches before the tour ends. For more highlights from this show, see my [*Where the Band Was* report.](../2018-08-23_where-the-band-was-east-rutherford-august-23-2016/post.md)<br>
 
 [Watch on Youtube: New York City Serenade (with strings) - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=jl1BSehj5Ss)
 

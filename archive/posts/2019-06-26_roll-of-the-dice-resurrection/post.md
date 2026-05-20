@@ -1,6 +1,6 @@
 Even casual Springsteen listeners quickly realize that Bruce's music is replete with religious themes and imagery.
 
-Sometimes Bruce addresses religion directly (for example, "[Jesus Was an Only Son](https://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/)"), but more often than not he employs its vocabulary and mythology to comment on more earthly matters. Either way, though, when Bruce writes about religion, he tends to do so thoughtfully and respectfully.
+Sometimes Bruce addresses religion directly (for example, "[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md)"), but more often than not he employs its vocabulary and mythology to comment on more earthly matters. Either way, though, when Bruce writes about religion, he tends to do so thoughtfully and respectfully.
 
 And then there's "Resurrection."
 

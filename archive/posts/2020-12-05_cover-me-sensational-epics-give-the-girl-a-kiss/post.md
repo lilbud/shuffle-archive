@@ -6,6 +6,6 @@ If you’re not familiar with the Epics, here’s a vintage reel of a performanc
 
 In 2002, the Sensational Epics released their *Been There, Ain’t Done Yet* album, and their lead-off track was an obscure Springsteen song buried deep in the heart of Disc One of *Tracks.*
 
-Stop what you’re doing, turn the volume up, and don’t try to resist the urge to sing and dance along to the Sensational Epics performing Bruce’s “[Give the Girl a Kiss.](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)”
+Stop what you’re doing, turn the volume up, and don’t try to resist the urge to sing and dance along to the Sensational Epics performing Bruce’s “[Give the Girl a Kiss.](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)”
 
 [Watch on Youtube: The Sensational Epics, "Give the Girl a Kiss"](https://www.youtube.com/watch?v=i7iun6y_hHc)

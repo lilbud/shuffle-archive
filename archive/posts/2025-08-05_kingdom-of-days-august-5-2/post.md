@@ -8,7 +8,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/P8BHqSd0)
 
-**1977:** Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on "[The Way,](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/)" "[Talk to Me,](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)" and "After Dinner"–none of which will make the album.<br>
+**1977:** Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on "[The Way,](../2021-08-06_roll-of-the-dice-the-way/post.md)" "[Talk to Me,](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" and "After Dinner"–none of which will make the album.<br>
 
 **1978:** Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce loses his place early on during "Rosalita (Come Out Tonight)" and the band vamps until Bruce remembers where he was.<br>
 
@@ -42,7 +42,7 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-08-05c.png.webp)
 
-**1985:** Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of "[Man at the Top](https://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)," the first U.S. performance of "[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)," and the first time Bruce closes a show with "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)."<br>
+**1985:** Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of "[Man at the Top](../2019-05-10_roll-of-the-dice-man-at-the-top/post.md)," the first U.S. performance of "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)," and the first time Bruce closes a show with "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Man At The Top](https://www.youtube.com/watch?v=rm49wginqwo)
 
@@ -66,6 +66,6 @@ Because this show marks Bruce's return to the U.S. and the first time playing to
 
 [Watch on Youtube: East Rutherford 05/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv)
 
-**2006:** Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)."<br>
+**2006:** Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2006-0805.jpg.webp)

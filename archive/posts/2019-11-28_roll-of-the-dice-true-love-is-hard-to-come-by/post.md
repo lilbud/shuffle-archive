@@ -17,7 +17,7 @@ Yep, those lines:
 > *Til the sun is torn from the sky*<br>
 > *Til every river, baby, it runs dry.*<br>
 
-are the genetic ancestor of "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)." The last lines of that song are:
+are the genetic ancestor of "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)." The last lines of that song are:
 
 > *‘Til every river, baby, it runs dry*<br>
 > *Until the sun, honey, is torn from the sky*<br>

@@ -8,7 +8,7 @@ No deep analysis today; it's all there on the surface. And besides: this song's 
 
 [Watch on Youtube: Janey Don't You Lose Heart (Single B-Side - 1985)](https://www.youtube.com/watch?v=kKIPdOVWTjU)
 
-From "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" to "[Queen of the Supermarket](https://estreetshuffle.com/index.php/2018/10/04/roll-of-the-dice-queen-of-the-supermarket/)," Bruce delivers most of his love songs with an intense earnestness that straddles (and sometimes leap over) the line between intense devotion and obsession.
+From "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" to "[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md)," Bruce delivers most of his love songs with an intense earnestness that straddles (and sometimes leap over) the line between intense devotion and obsession.
 
 Not so here. If I had to sum up Bruce's vocal in "Janey, Don't You Lose Heart" with one word, it would be *compassion.*
 
@@ -50,7 +50,7 @@ But go back and listen again, and this time notice how the onset of Clarence's s
 > *Is gone tumbling down into the sea*<br>
 > *Listen to me*<br>
 
-That's an unshakable friend right there. In fact, by the end of the song we notice that not once during the entire song has Bruce offered to solve Janey's problems for her. He's offered to share her emotional burden, but he's made it clear that he believes in her own power to lift herself up. In that regard, "Janey, Don't You Lose Heart" is like a more intimate, more selfless "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)."
+That's an unshakable friend right there. In fact, by the end of the song we notice that not once during the entire song has Bruce offered to solve Janey's problems for her. He's offered to share her emotional burden, but he's made it clear that he believes in her own power to lift herself up. In that regard, "Janey, Don't You Lose Heart" is like a more intimate, more selfless "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)."
 
 As the final chorus returns, Bruce employs one final device, and it's a joke on us: Bruce has the E Street Band hold the chorus and build on the chord, a time-tested tactic that almost always signals the band is about to take it up a notch for a powerful ending.
 
@@ -72,7 +72,7 @@ Perhaps it was a way of welcoming Nils to the band (Nils joined just prior to th
 
 Bruce recorded "Janey, Don't You Lose Heart" in 1983 during the recording sessions for what would become *Born in the U.S.A.* Although it obviously didn't make the final album, it very nearly did–in fact, at one point it was slated to be the last song on the album, which would have ended the album on a much more uplifting note.
 
-Bruce couldn't lock her completely away, though–he actually released "Janey" as the B-side to "[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)" in the summer of 1985, and he surprised fans a live performance shortly thereafter.
+Bruce couldn't lock her completely away, though–he actually released "Janey" as the B-side to "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" in the summer of 1985, and he surprised fans a live performance shortly thereafter.
 
 Janey made her stage debut during the final stand of the Born in the USA Tour, introduced without ceremony as the penultimate encore of the night. It was a strange place in the setlist to introduce a new song, but it wouldn't be the only time Janey would show up at the end of a show. Thankfully, that debut performance was filmed (and was just yesterday released on an official archive series release), so we can watch it all these decades later. Bruce chose to give Roy the solo spotlight that night instead of Clarence, but otherwise it's a faithful first outing.
 
@@ -104,7 +104,7 @@ Whatever form she takes, a setlist appearance by "Janey, Don't You Lose Heart" i
 
 [Watch on Youtube: Bruce Springsteen Every Day & Every Night](https://www.youtube.com/watch?v=RqX7_Qi-zGQ)
 
-…and some very familiar lyrics and melody in a song called "[True Love Is Hard to Come By](https://estreetshuffle.com/index.php/2018/05/19/roll-of-the-dice-true-love-is-hard-to-come-by/)" from early 1982.
+…and some very familiar lyrics and melody in a song called "[True Love Is Hard to Come By](../2018-05-19_roll-of-the-dice-true-love-is-hard-to-come-by/post.md)" from early 1982.
 
 [Watch on Youtube: Bruce Springsteen True Love Is Hard To Come By #3](https://www.youtube.com/watch?v=XhDDJqIJGBQ)
 

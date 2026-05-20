@@ -2,7 +2,7 @@ One of Bruce Springsteen's underappreciated talents is the construction of an al
 
 If that sounds like a lame thing to classify as a "talent," then just consider: on Bruce's landmark "9/11" album, *The Rising*, only half the album was actually written post-9/11.
 
-A full seven songs (possibly eight–the jury's still out on "[Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)") were written at earlier times in different contexts, and yet so skillful is Bruce in arranging *The Rising* that he's able to place unrelated songs in close enough proximity to convince you that they couldn't be about anything *but* that tragic day in American history.
+A full seven songs (possibly eight–the jury's still out on "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)") were written at earlier times in different contexts, and yet so skillful is Bruce in arranging *The Rising* that he's able to place unrelated songs in close enough proximity to convince you that they couldn't be about anything *but* that tragic day in American history.
 
 Nowhere is that skill more on display than in "Nothing Man," the oldest song on *The Rising*, dating all the way back to a solo recording in 1994.
 

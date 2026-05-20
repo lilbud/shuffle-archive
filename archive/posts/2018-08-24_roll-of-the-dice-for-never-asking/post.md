@@ -1,6 +1,6 @@
-It's time for another visit to the "[1968 Notebook](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)," where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don't appear on any bootlegs.
+It's time for another visit to the "[1968 Notebook](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)," where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don't appear on any bootlegs.
 
-(Previous entries: "[Turn Around,](https://estreetshuffle.com/index.php/2018/07/09/roll-of-the-dice-turn-around/)" "[Crystal](https://estreetshuffle.com/index.php/2018/05/11/roll-of-the-dice-crystal/),' and "[Until the Rain Comes](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)."
+(Previous entries: "[Turn Around,](../2018-07-09_roll-of-the-dice-turn-around/post.md)" "[Crystal](../2018-05-11_roll-of-the-dice-crystal/post.md),' and "[Until the Rain Comes](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)."
 
 Today's entry, "For Never Asking" is at least believed to have been played publicly in the spring of 1968 at one of Bruce's solo gigs at the Off Broad Street Coffee House in Red Bank.
 

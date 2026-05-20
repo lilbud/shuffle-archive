@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 1975; new entry for 1983; video for 2016*<br>
 
-**1944:** Bobby King, backing vocalist on "[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)" and "[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)" and throughout World Tour 1992 and World Tour 1993, is born in Lake Charles, Louisiana.<br>
+**1944:** Bobby King, backing vocalist on "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)" and "[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)" and throughout World Tour 1992 and World Tour 1993, is born in Lake Charles, Louisiana.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/bobby.jpg.webp)
 
@@ -14,13 +14,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1974-0728.jpg.webp)
 
-**1975:** A rainy night plagues Bruce's performance at the Carter Barron Amphitheater in Washington DC's Rock Creek Park. Heavy rain delays the start of the show by two hours, and lingering moisture disrupts Bruce's guitar throughout the show, causing additional mid-show delays. Still, the performance is great, and the crowd is hot. Listen to the rare instrumental "[Funk Song](https://estreetshuffle.com/index.php/2018/05/02/roll-of-the-dice-funk-song/)" below.<br>
+**1975:** A rainy night plagues Bruce's performance at the Carter Barron Amphitheater in Washington DC's Rock Creek Park. Heavy rain delays the start of the show by two hours, and lingering moisture disrupts Bruce's guitar throughout the show, causing additional mid-show delays. Still, the performance is great, and the crowd is hot. Listen to the rare instrumental "[Funk Song](../2018-05-02_roll-of-the-dice-funk-song/post.md)" below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/PjwQpbMI)
 
 [Watch on Youtube: Bruce Springsteen Live Concert - 7/28/75 Washington, DC](https://www.youtube.com/watch?v=1SF6X8x3aEw)
 
-**1978:** Bruce's cover of "[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)" makes its debut in his Darkness Tour show in Miami.<br>
+**1978:** Bruce's cover of "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)" makes its debut in his Darkness Tour show in Miami.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9mruPo23)
 
@@ -36,11 +36,11 @@
 
 [Watch on Youtube: Bobby Jean](https://www.youtube.com/watch?v=iGR_Rk74tOk)
 
-**1992:** Night Four of eleven in East Rutherford on World Tour 1992 sees the tour premieres of "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)" and "[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)."<br>
+**1992:** Night Four of eleven in East Rutherford on World Tour 1992 sees the tour premieres of "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" and "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8RRTltYG)
 
-**2005:** Bruce brings his solo Devils and Dust Tour to Pittsburgh, where local boy Joe Grushecky makes his customary guest appearance, dueting with Bruce on "[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)" in the encores. This show also features the tour premiere of "[One Step Up.](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)"<br>
+**2005:** Bruce brings his solo Devils and Dust Tour to Pittsburgh, where local boy Joe Grushecky makes his customary guest appearance, dueting with Bruce on "[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)" in the encores. This show also features the tour premiere of "[One Step Up.](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/LAEopDEc)
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen Sevilla "Cuando sube al niño del público" Waitin' On A Sunny Day 28 07 2009](https://www.youtube.com/watch?v=rmJkagLEOzE)
 
-**2012:** Night Two in Gothenburg culminates in the return of "Jungleland," performed for the first time since the passing of Clarence Clemons. A visibly emotional Jake does his uncle proud. The show also features the tour premieres of "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)," "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)," and "[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)." This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24593/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-28-2012-Ullevi-Gothenburg-SE.html).<br>
+**2012:** Night Two in Gothenburg culminates in the return of "Jungleland," performed for the first time since the passing of Clarence Clemons. A visibly emotional Jake does his uncle proud. The show also features the tour premieres of "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)," "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," and "[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)." This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24593/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-28-2012-Ullevi-Gothenburg-SE.html).<br>
 
 [Watch on Youtube: Jungleland - 2012-07-28 - ULLEVI, GOTHENBURG, SWEDEN](https://www.youtube.com/watch?v=E3xjS8MHufQ)
 
@@ -70,13 +70,13 @@
 
 [Watch on Youtube: Bruce Springsteen "Where The Bands Are" Ullevi Stadium, Gothenburg, Sweden July 28, 2012](https://www.youtube.com/watch?v=cqHBazBq51s)
 
-**2013:** Bruce wraps up the European Wrecking Ball Tour with a second show in Kilkenny. Another full album is in store–this time *Born to Run*–along with a triplet of tour premieres: "[Wild Billy's Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)," "[Man at the Top](https://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)" (played for only the third time ever), and "[When You Walk in the Room](https://estreetshuffle.com/index.php/2020/10/08/cover-me-when-you-walk-in-the-room/)."<br>
+**2013:** Bruce wraps up the European Wrecking Ball Tour with a second show in Kilkenny. Another full album is in store–this time *Born to Run*–along with a triplet of tour premieres: "[Wild Billy's Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md)," "[Man at the Top](../2019-05-10_roll-of-the-dice-man-at-the-top/post.md)" (played for only the third time ever), and "[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)."<br>
 
 [Watch on Youtube: This Hard Land (Kilkenny 07/28/13)](https://www.youtube.com/watch?v=4BDBWv3RYRY)
 
 [Watch on Youtube: Bruce Springsteen - 2013-07-28 Kilkenny - Man At The Top (European debut)](https://www.youtube.com/watch?v=cWtMBPfVCEE)
 
-**2016:** The European leg of the River Tour nears its end with this show in Oslo. Early arrivals are treated to a pre-show acoustic "[Working on the Highway,](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" but everyone gets to enjoy a full album performance of *The River*, played in full for the final time.<br>
+**2016:** The European leg of the River Tour nears its end with this show in Oslo. Early arrivals are treated to a pre-show acoustic "[Working on the Highway,](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" but everyone gets to enjoy a full album performance of *The River*, played in full for the final time.<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band, PRE SHOW, 2016-07-28, Frognerparken, Oslo, Norway](https://www.youtube.com/watch?v=gjuUefoThoM)
 

@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1973-0826.jpg.webp)
 
-**1977:** Bruce and the band work on “[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)” during a recording session in New York City.<br>
+**1977:** Bruce and the band work on “[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)” during a recording session in New York City.<br>
 
 **1978:** The Darkness Tour descends on Rhode Island, for a show at the Providence Civic Center.<br>
 
@@ -14,11 +14,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1978-08-26.jpg.webp)
 
-**1979:** Bruce and the E Street Band record “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” at the Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band record “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)” at the Power Station in New York City.<br>
 
 [Watch on Youtube: The River](https://www.youtube.com/watch?v=BjSsFvrrh7g)
 
-**1984:** Bruce and the E Street Band play their second of two nights at Washington DC’s Capital Center in Largo, where they play “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” for the very first time.<br>
+**1984:** Bruce and the E Street Band play their second of two nights at Washington DC’s Capital Center in Largo, where they play “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)” for the very first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live debut of "Be True" - 1984-08-26 (Largo)](https://www.youtube.com/watch?v=E5Dis2XlJ4A)
 
@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-26b.png.webp)
 
-**1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/),” “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” and “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” Afterwards, he zips over to The Columns in Avon, where he performs “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” and “[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)” with The Cherubs.<br>
+**1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md),” “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” and “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” Afterwards, he zips over to The Columns in Avon, where he performs “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” and “[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)” with The Cherubs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2cGZrAWC)
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: In Concert/MTV Plugged](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT)
 
-**1999:** Bruce and the reunited E Street Band play their fourth of five shows at Boston’s Fleet Center. Anyone know what was going on during “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)?”<br>
+**1999:** Bruce and the reunited E Street Band play their fourth of five shows at Boston’s Fleet Center. Anyone know what was going on during “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)?”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/weH542fm)
 
@@ -76,7 +76,7 @@
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.<br>
 
-**2023:** Bruce and the E Street Band play their second of two shows at Gillette Stadium in Foxborough, where “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” and “[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)” make their tour debuts.<br>
+**2023:** Bruce and the E Street Band play their second of two shows at Gillette Stadium in Foxborough, where “[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)” and “[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)” make their tour debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Lonesome Day - Foxborough 26/08/2023](https://www.youtube.com/watch?v=YFAvCqHqE2M)
 

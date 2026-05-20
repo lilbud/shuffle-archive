@@ -28,7 +28,7 @@ It was shortly after the release of *Born to Run* in the summer of 1975 that Bru
 
 Bruce became outspokenly anti-marriage–not so much against the institution itself but against the incompatibility of it with the dreams and aspirations of a budding rock star. He'd discuss it in interviews, and tell gently mocking stories from the stage like the one in the pull-quote above (completely oblivious to the fact that he'd already met the woman who would one day change his attitude toward matrimony).
 
-All the while, though, his music grew increasingly romantic. It wasn't love Bruce had an issue with, after all, just marriage. Throughout the Born to Run Tour, Bruce dusted his set lists with classic romantic covers like "[Then She Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)," "[When You Walk in the Room](https://estreetshuffle.com/index.php/2020/10/08/cover-me-when-you-walk-in-the-room/)," and "[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)"–all songs of new love, not enduring.
+All the while, though, his music grew increasingly romantic. It wasn't love Bruce had an issue with, after all, just marriage. Throughout the Born to Run Tour, Bruce dusted his set lists with classic romantic covers like "[Then She Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)," "[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)," and "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)"–all songs of new love, not enduring.
 
 But there was one cover in particular that stuck around the set list that year, one that did tiptoe up to the topic of matrimony: Ike & Tina Turner's 1961 hit, "It's Gonna Work Out Fine."
 

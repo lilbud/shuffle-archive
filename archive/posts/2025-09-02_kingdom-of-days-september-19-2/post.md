@@ -40,7 +40,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 [Watch on Youtube: Bruce Springsteen on Channel 4 news, NY sept 19 1978](https://www.youtube.com/watch?v=3XdMBdnqy1k)
 
-**1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. The cover-filled set includes “[Ready Teddy,](https://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)” “[Come On, Let’s Go](https://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/),” “[Come on Over to My Place](https://estreetshuffle.com/index.php/2018/04/12/matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/),” “[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/),” and more.<br>
+**1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. The cover-filled set includes “[Ready Teddy,](../2018-02-01_cover-me-ready-teddy/post.md)” “[Come On, Let’s Go](../2018-10-19_cover-me-come-on-lets-go/post.md),” “[Come on Over to My Place](../2018-04-12_matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/post.md),” “[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md),” and more.<br>
 
 **1984:** At a re-election campaign stop in Hammonton, New Jersey, President Ronald Reagan name-checks Bruce, who is at the height of his popularity with *Born in the U.S.A.*<br>
 
@@ -68,7 +68,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1988-09-19d.jpg.webp)
 
-**1996:** New song alert! At his solo acoustic stop in Providence, Bruce debuts “[There Will Never Be Any Other For Me But You](https://estreetshuffle.com/index.php/2019/08/23/roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/),” dedicated to a friend about to get married.<br>
+**1996:** New song alert! At his solo acoustic stop in Providence, Bruce debuts “[There Will Never Be Any Other For Me But You](../2019-08-23_roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/post.md),” dedicated to a friend about to get married.<br>
 
 [Watch on Youtube: Bruce Springsteen - "There Will Never Be Any Other for Me But You" - 1996-09-19](https://www.youtube.com/watch?v=cl0yvRaAOm8)
 
@@ -76,7 +76,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 **2006:** Bruce rehearses with the Sessions Band for their upcoming European tour.<br>
 
-**2012:** Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLife Stadium in East Rutherford, surprising early arrivals with a pre-show of “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” and “[For You.](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” The set list features the tour premiere of “[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/),” and Vini Lopez makes guest appearances in both the main set and the encores.<br>
+**2012:** Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLife Stadium in East Rutherford, surprising early arrivals with a pre-show of “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” and “[For You.](../2022-01-08_roll-of-the-dice-for-you/post.md)” The set list features the tour premiere of “[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md),” and Vini Lopez makes guest appearances in both the main set and the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen, Growin' Up / For You, MetLife Stadium, 09/19/12](https://www.youtube.com/watch?v=uU4HFVGbvrY)
 

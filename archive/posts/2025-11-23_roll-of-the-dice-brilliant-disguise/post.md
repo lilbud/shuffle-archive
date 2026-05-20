@@ -4,7 +4,7 @@ That's the single greatest last line of any rock song ever (IMO, anyway).
 
 If you asked me to name my favorite Bruce Springsteen songs, the list would vary by the year, week, or even day. But "Brilliant Disguise" would *always* be on the list: the lyrics remain among the most powerful he's ever written, his vocals emotional and soulful, and that video…
 
-"Brilliant Disguise" arrested me from the moment I first heard it on October 3, 1987, the day it was released as the lead-off single for the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) album—mostly because of that last line.
+"Brilliant Disguise" arrested me from the moment I first heard it on October 3, 1987, the day it was released as the lead-off single for the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) album—mostly because of that last line.
 
 I was nineteen, and while I knew that line was significant, I had no idea what it meant. I obsessed over the paradox of it and turned it endlessly in my mind as I listened to the song over and over in those first few weeks.
 
@@ -22,7 +22,7 @@ The whispered words are probably innocuous: "I love you," most likely. Or maybe 
 
 And now the mystery deepens. What was she doing out there late at night? For that matter, what was *he* doing? Does the couple really share as much as they think they do?
 
-(Literary device note: did you catch the "edge of town" reference? It's a sly callback to "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
+(Literary device note: did you catch the "edge of town" reference? It's a sly callback to "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
 
 > *So tell me what I see when I look in your eyes*<br>
 > *Is that you baby or just a brilliant disguise*
@@ -39,14 +39,14 @@ The imagery is significant in its intimacy: if his wife is seeing someone else, 
 > *Well I've tried so hard baby but I just can't see*<br>
 > *What a woman like you is doing with me*
 
-…and now we have the final ingredient in this doubt cocktail: insecurity. He's married out of his league and realize that [with every wish, there comes a curse](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/).
+…and now we have the final ingredient in this doubt cocktail: insecurity. He's married out of his league and realize that [with every wish, there comes a curse](../2018-01-18_roll-of-the-dice-with-every-wish/post.md).
 
 > *Now look at me baby, struggling to do everything right*<br>
 > *And then it all falls apart oh when out go the lights*
 
 There's frustration and resentment building, but towards whom? Her? Himself?
 
-What happens when the lights go out? (It's possible we find out years later in "[When the Lights Go Out](https://estreetshuffle.com/index.php/2021/01/23/roll-of-the-dice-when-the-lights-go-out/)," written not long after "Brilliant Disguise.") Has the couple drifted apart? Has the bedroom heat cooled? Or is that all that's left? It's unclear, but it doesn't matter: it's the lack of recognition that haunts the protagonist.
+What happens when the lights go out? (It's possible we find out years later in "[When the Lights Go Out](../2021-01-23_roll-of-the-dice-when-the-lights-go-out/post.md)," written not long after "Brilliant Disguise.") Has the couple drifted apart? Has the bedroom heat cooled? Or is that all that's left? It's unclear, but it doesn't matter: it's the lack of recognition that haunts the protagonist.
 
 > *I'm just a lonely pilgrim, I walk this world in wealth*<br>
 
@@ -110,7 +110,7 @@ If there's a live performance, I'd recommend, it'd be this one from 1990—the f
 
 **Brilliant Disguise**<br>
 **Recorded:** Early 1987<br>
-**Released:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)(1987), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
+**Released:** [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)(1987), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
 **First Performed:** October 31, 1987 (Sea Bright, NJ)<br>
 **Last** **Performed:** November 22, 2024 (Vancouver, BC)<br>
 

@@ -10,7 +10,7 @@ Check it out and see what I mean:
 
 [Watch on Youtube: Living On The Edge Of The World (Studio Outtake - 1979)](https://www.youtube.com/watch?v=_sU7VAP2GU4)
 
-I'm gonna give myself a hall pass on analyzing the lyrics, because a) they almost all turn up in other officially released Springsteen songs, and b) content-wise, "Living on the Edge of the World" from 1979 is essentially the same song as "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" from 1982's *Nebraska* — even when the lyrics differ.
+I'm gonna give myself a hall pass on analyzing the lyrics, because a) they almost all turn up in other officially released Springsteen songs, and b) content-wise, "Living on the Edge of the World" from 1979 is essentially the same song as "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" from 1982's *Nebraska* — even when the lyrics differ.
 
 Both songs focus on the same poor schmo, stuck working the night shift while his girl works the days at a roadside diner two hours away (in "Living on the Edge of the World" it's a HoJo at Exit 24; in "Open All Night" it's the Bob's Big Boy on Route 60). Each morning before dawn, our hero races back to his girl, racing down a deserted New Jersey turnpike across a state so quiet and empty it's "like a lunar landscape."
 
@@ -65,7 +65,7 @@ and
 > *In the wee wee hours my mind gets hazy*
 > *Relay towers, won't you lead me to my baby*
 
-appear in "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)" as well, along with references to radio stations jammed with gospel ("Living") or talk show ("State Trooper") stations.
+appear in "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" as well, along with references to radio stations jammed with gospel ("Living") or talk show ("State Trooper") stations.
 
 But even *that's* not all–check out this 1981 home demo of "Living on the Edge of the World." (yes, Bruce was *still* working on the song two years later, although by now it had a new name, "Open All Night," which makes the latter song arguably the "finished" version of the former (I prefer to think of them as different songs, though)).
 
@@ -90,7 +90,7 @@ But "Living on the Edge of the World" has only been performed once*–when Bruce
 
 *Technically, Bruce has only performed "Living on the Edge" that one time in 2012… at least that's the only time he's played it in full with its own melody.
 
-But here's a bonus: check out this genuine one-off historical curiosity. It's a performance of "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" from a couple of months into the River Tour, on November 28, 1980–a full year after Bruce recorded the take of "Living on the Edge of the World" that's included on *Tracks* and *The Ties That Bind.*
+But here's a bonus: check out this genuine one-off historical curiosity. It's a performance of "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" from a couple of months into the River Tour, on November 28, 1980–a full year after Bruce recorded the take of "Living on the Edge of the World" that's included on *Tracks* and *The Ties That Bind.*
 
 Listen carefully to the performance, especially around the 3:40 mark, and you'll see the Bruce clearly hadn't forgotten about his "lost" song.
 

@@ -1,4 +1,4 @@
-"[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" was always rockabilly, so it shouldn't be surprising that the Nitty Gritty Dirt Band covered it frequently in concert. They actually released live recordings of it twice, in 1984 and 1991.
+"[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" was always rockabilly, so it shouldn't be surprising that the Nitty Gritty Dirt Band covered it frequently in concert. They actually released live recordings of it twice, in 1984 and 1991.
 
 Here's the 1984 version...
 

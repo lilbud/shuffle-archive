@@ -16,7 +16,7 @@ It's The Blossoms we hear on the studio recording of "He's a Rebel," even though
 
 So it was only fitting for Darlene to perform "He's a Rebel" at her Hall of Fame induction. The surprise was that it turned out to be a duet.
 
-After Love performed "[Zip-a-Dee-Doo-Dah](https://estreetshuffle.com/index.php/2018/08/28/meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/)" and "[(Today I Met) The Boy I'm Gonna Marry](https://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/)," Bette Midler returned to the stage to join Darlene in a faithful rendition of her greatest and only #1 hit, backed by Paul Shaffer and the CBS Orchestra. Oh, and a guest guitarist from New Jersey.
+After Love performed "[Zip-a-Dee-Doo-Dah](../2018-08-28_meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/post.md)" and "[(Today I Met) The Boy I'm Gonna Marry](https://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/)," Bette Midler returned to the stage to join Darlene in a faithful rendition of her greatest and only #1 hit, backed by Paul Shaffer and the CBS Orchestra. Oh, and a guest guitarist from New Jersey.
 
 [Watch Video Highlight](https://videopress.com/embed/CDn5snuF)
 

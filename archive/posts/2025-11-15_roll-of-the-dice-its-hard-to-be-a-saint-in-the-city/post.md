@@ -107,7 +107,7 @@ For my money the song still works best acoustically. I haven't been lucky enough
 
 **It's Hard to Be a Saint in the City**<br>
 **Recorded** June-October 1972<br>
-**Released:** *[Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*(1973), *Tracks* (1998) (Demo version)<br>
+**Released:** *[Greetings from Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*(1973), *Tracks* (1998) (Demo version)<br>
 **First performed:** May 2, 1972 (New York City, NY)<br>
 **Last performed:** April 3, 2023 (Brooklyn, NY)<br>
 

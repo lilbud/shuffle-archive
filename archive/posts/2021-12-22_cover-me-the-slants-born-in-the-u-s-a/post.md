@@ -24,7 +24,7 @@ It would take a few more years and a worldwide social uprising, but the Washingt
 
 Not long before the Supreme Court handed The Slants their hard-fought legal victory, the guys stopped by the national office of the American Civil Liberties Union and sat down with the staff to performe a few songs.
 
-The last song they performed that day was an acoustic cover of "[Born in the U.S.A.,](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" appropriate for the venue as a social protest song, but particularly powerful when sung by an Asian American band. The band knew it, too–watch them drive home a key line to full effect.
+The last song they performed that day was an acoustic cover of "[Born in the U.S.A.,](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" appropriate for the venue as a social protest song, but particularly powerful when sung by an Asian American band. The band knew it, too–watch them drive home a key line to full effect.
 
 [Watch on Youtube: Born in the USA - Bruce Springsteen cover by The Slants performed at ACLU](https://www.youtube.com/watch?v=kXsOjwZmpjA)
 

@@ -4,7 +4,7 @@ Ultimately, Bruce paid Appel what amounted to a hefty severance fee and won back
 
 His entire catalog, that is, except for a half-dozen songs that Appel wanted to keep for himself.
 
-"[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)" was one of those songs–an early showstopper that Bruce would release on *Tracks* in 1998. "[Song for Orphans](https://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)" was another; Bruce wouldn't release that one until 2020.
+"[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" was one of those songs–an early showstopper that Bruce would release on *Tracks* in 1998. "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)" was another; Bruce wouldn't release that one until 2020.
 
 "Cherokee Queen" was a third.
 

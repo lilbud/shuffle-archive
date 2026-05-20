@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1980-12-15.png.webp)
 
-**1995:** Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Boston, where he plays every song from [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) for the last time to date.<br>
+**1995:** Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Boston, where he plays every song from [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md) for the last time to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8xw9PMw0)
 
@@ -50,7 +50,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/The_Daily_Telegraph_Mon__Dec_17__2007_.jpg.webp)
 
-**2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for “[Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/).”<br>
+**2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for “[Tumbling Dice](../2022-08-17_matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/post.md).”<br>
 
 [Watch on Youtube: Lady Gaga, Bruce Springsteen and the Black Keys rehearse with the Rolling Stones](https://www.youtube.com/watch?v=1MDytQVZb34)
 

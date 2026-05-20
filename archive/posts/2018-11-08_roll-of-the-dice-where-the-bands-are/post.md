@@ -41,11 +41,11 @@ The second verse makes it clear that this song isn't just about the music, thoug
 > *I wanna have to shout it out loud (shout it out loud)*
 > *Shout it out loud*
 
-That "heart of stone" isn't a throwaway metaphor–it's verbatim link to a song that *did* make it on *The River* that's also about connection: "[Two Hearts.](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)"
+That "heart of stone" isn't a throwaway metaphor–it's verbatim link to a song that *did* make it on *The River* that's also about connection: "[Two Hearts.](../2018-05-28_roll-of-the-dice-two-hearts/post.md)"
 
 Is Bruce asking his girl out because he thinks the music will free her inhibitions, or because he knows it will free his own? The answer is yes to both. (I'm sure it's no coincidence that they're headed down to *Union* Street.)
 
-(Side note: Bruce ironically repurposed the first two lines of that carefree verse and used them in one of his least carefree songs: "[Jackson Cage.](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" The songs are so substantively different that I'd wager most fans never notice the self-plagiarism.)
+(Side note: Bruce ironically repurposed the first two lines of that carefree verse and used them in one of his least carefree songs: "[Jackson Cage.](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" The songs are so substantively different that I'd wager most fans never notice the self-plagiarism.)
 
 "Where the Bands Are" was recorded in 1979, but fans didn't get to hear it (officially, at least) for almost two decades–until it was finally released on *Tracks* in late 1998.
 

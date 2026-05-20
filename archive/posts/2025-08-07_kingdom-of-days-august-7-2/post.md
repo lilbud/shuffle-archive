@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1971-0807.jpg.webp)
 
-**1973:** A scheduled show at Uncle Al's Erlton Theatre Lounge in Cherry Hill is likely postponed (no record exists of this show having taken place) to the following week. Instead, Bruce works on overdubs and mixing for "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)," "New York City Serenade," and "Zero and Blind Terry."<br>
+**1973:** A scheduled show at Uncle Al's Erlton Theatre Lounge in Cherry Hill is likely postponed (no record exists of this show having taken place) to the following week. Instead, Bruce works on overdubs and mixing for "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," "New York City Serenade," and "Zero and Blind Terry."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Courier_Post_1973_07_21_Page_25-scaled.jpg.webp)
 
@@ -24,7 +24,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/0KQVFFpL)
 
-**1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)" in the middle of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)." (Skip to the 21 minute-mark below to hear it.)<br>
+**1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" in the middle of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)." (Skip to the 21 minute-mark below to hear it.)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9dFjGaHk)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1985:** The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Municipal Stadium, where Bruce tour debuts "[This Land is Your Land.](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)"<br>
+**1985:** The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Municipal Stadium, where Bruce tour debuts "[This Land is Your Land.](../2023-07-04_cover-me-this-land-is-your-land/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Vu6tENsx)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1985-0807.jpg.webp)
 
-**1992:** At the penultimate show of World Tour 1992's eleven-night stand at the Meadowlands, Bruce and Roy play a tour one-off, an intimate "[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)." "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" is also a tour one-off, and Southside Johnny guest-stars on "[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)."<br>
+**1992:** At the penultimate show of World Tour 1992's eleven-night stand at the Meadowlands, Bruce and Roy play a tour one-off, an intimate "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)." "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" is also a tour one-off, and Southside Johnny guest-stars on "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MZxl9BXf)
 
@@ -54,7 +54,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/Xl1kGK8C)
 
-**1999:** Bruce stuns fans at the Meadowlands when he opens Night Twelve (of fifteen) with the first "[Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)" in 22 years. Bruce also plays "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" for only the third time ever.<br>
+**1999:** Bruce stuns fans at the Meadowlands when he opens Night Twelve (of fifteen) with the first "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)" in 22 years. Bruce also plays "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" for only the third time ever.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MBTGYj28)
 
@@ -66,7 +66,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2002-0807.jpg.webp)
 
-**2005:** Bruce opens his solo acoustic show at Milwaukee's Bradley Center with the tour premiere (and tour one-off) of "[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)" and follow up shortly thereafter with the tour premiere of "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)."<br>
+**2005:** Bruce opens his solo acoustic show at Milwaukee's Bradley Center with the tour premiere (and tour one-off) of "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)" and follow up shortly thereafter with the tour premiere of "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen performs "Shut Out the Light" 2005](https://www.youtube.com/watch?v=Xbni_yrA3EE)
 
@@ -74,7 +74,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-08-07b.png.webp)
 
-**2019:** Bruce attends the premiere of *Blinded by the Light* at Convention Hall in Asbury Park. Following the show, Bruce, Patti, and Lisa Lowell join Southside Johnny and The Asbury Jukes on stage at the after-party for four songs, including "[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)" and "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)."<br>
+**2019:** Bruce attends the premiere of *Blinded by the Light* at Convention Hall in Asbury Park. Following the show, Bruce, Patti, and Lisa Lowell join Southside Johnny and The Asbury Jukes on stage at the after-party for four songs, including "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" and "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Southside. 634-5789](https://www.youtube.com/watch?v=F-k1OtyJF5Y)
 

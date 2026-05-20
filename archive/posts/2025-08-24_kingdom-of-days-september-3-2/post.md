@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1971-0903.jpg.webp)
 
-**1978:** Bruce debuts his cover of “[Hang Up My Rock and Roll Shoes](https://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)” at his Darkness show in Saginaw.<br>
+**1978:** Bruce debuts his cover of “[Hang Up My Rock and Roll Shoes](../2018-05-13_cover-me-hang-up-my-rock-and-roll-shoes/post.md)” at his Darkness show in Saginaw.<br>
 
 [Watch on Youtube: Bruce Springsteen- I Don't Wanna Hang Up My Rock and Roll Shoes Live 1978](https://www.youtube.com/watch?v=m38R-VSgAVc)
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Bruce Springsteen with Brian Kirk and the Jirks- "Tenth Avenue Freeze Out"](https://www.youtube.com/watch?v=g-cAs0PgBd0)
 
-**2012:** Night Two at Philadelphia’s Citizens Bank Park was a Labor Day special, opening with an acoustic tour premiere of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” as part of a five-song [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)mini-set. The show stayed intense all the way through, which may be why Bruce omitted setlisted gems like “[Ain’t Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/),” “Love Train,” “[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/),” “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” and “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/).” What a show *that* would have been!<br>
+**2012:** Night Two at Philadelphia’s Citizens Bank Park was a Labor Day special, opening with an acoustic tour premiere of “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” as part of a five-song [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)mini-set. The show stayed intense all the way through, which may be why Bruce omitted setlisted gems like “[Ain’t Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md),” “Love Train,” “[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/),” “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” and “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md).” What a show *that* would have been!<br>
 
 [Watch on Youtube: Factory - Citizens Bank Park - Sept 3, 2012 - Bruce Springsteen](https://www.youtube.com/watch?v=9BaJ4KRkFcA)
 
@@ -80,7 +80,7 @@
 
 [Watch on Youtube: Addicted to Romance (Bruce Springsteen)](https://www.youtube.com/watch?v=FPM0gG2ueV8)
 
-**2023:** Featuring the tour premiere of “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” and rarities like “Jungleland” and “[Jersey Gir](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)l,” the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band’s last show of the year.<br>
+**2023:** Featuring the tour premiere of “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” and rarities like “Jungleland” and “[Jersey Gir](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)l,” the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band’s last show of the year.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Two Hearts - East Rutherford, NJ - 03/09/2023](https://www.youtube.com/watch?v=khQVExmECY0)
 

@@ -18,7 +18,7 @@ To see a full performance, however, we'll have to travel a bit further back in t
 
 What was Bruce doing in Berlin in 1995? In one of his stranger career moves, Bruce decided to shoot an official video for his 1980 single "Hungry Heart," but instead of recording it with the E Street Band, he joined German rocker and friend Wolfgang Niedecken's Leopardefellband instead. Which would have been odd enough on its own, but in the actual released video, Bruce decided not to use any of the German band's backing track–he reverted to the original E Street Band backing track instead.
 
-So now the official video for "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" has Bruce's 1995 vocals layered on top of the 1980 E Street Band, all while Wolfgang and his band rock out silently on screen before an audience of lucky radio listeners who heard the open call for a free mini-concert earlier that day.
+So now the official video for "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" has Bruce's 1995 vocals layered on top of the 1980 E Street Band, all while Wolfgang and his band rock out silently on screen before an audience of lucky radio listeners who heard the open call for a free mini-concert earlier that day.
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Berlin '95 Version)](https://www.youtube.com/watch?v=0My2AqPFpFg)
 

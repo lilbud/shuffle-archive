@@ -12,7 +12,7 @@ So sooner or later (sorry), they were bound to take a crack at it. It might not 
 
 The 1988 tour is famous among fans for generating some unique soundcheck covers, and the night of March 23rd was a prime example. Bruce was in a Van Morrison mood that night (covering three of his songs), and he delved into the catalogs of Sam Cooke, The Animals, and Manfred Mann as well.
 
-Toward the end of the rehearsal, Bruce turned his attention to Dylan, opening his songbook to "[Just Like a Woman](https://estreetshuffle.com/index.php/2018/05/08/cover-me-just-like-a-woman/)" and following up with "One of Us Must Know" (a telling selection given what was going on in his personal life at the moment).
+Toward the end of the rehearsal, Bruce turned his attention to Dylan, opening his songbook to "[Just Like a Woman](../2018-05-08_cover-me-just-like-a-woman/post.md)" and following up with "One of Us Must Know" (a telling selection given what was going on in his personal life at the moment).
 
 [Watch on Youtube: ONE OF US MUST KNOW SOONER OR LATER ( cover Bob Dylan )](https://www.youtube.com/watch?v=z-4XXv_gTHo)
 

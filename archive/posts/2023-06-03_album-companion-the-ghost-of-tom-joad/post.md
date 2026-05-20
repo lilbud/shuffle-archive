@@ -24,7 +24,7 @@ If you've never listened to *The Ghost of Tom Joad* in a darkened room with over
 
 [Watch on Youtube: The Ghost of Tom Joad](https://www.youtube.com/watch?v=CumZ9dugKKU?list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8)
 
-This is also one of Springsteen's most thematically cohesive albums. At the time of its release in 1995, only *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)* rivaled it for focus.
+This is also one of Springsteen's most thematically cohesive albums. At the time of its release in 1995, only *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)* rivaled it for focus.
 
 The most obvious comparisons, however, are to *Western Stars* in setting and *Nebraska* in tone. (Bruce admitted in his autobiography that in writing the album he picked up where *Nebraska* left off.)*The Ghost of Tom Joad* is a collection of sober, somber and lonely songs about disaffected and alienated characters in the American West.
 
@@ -32,29 +32,29 @@ But that's not the album's only thematic through-line: almost every track on the
 
 Some are based on actual people, places, and events:
 
-- "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)" and "[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)"– both inspired by the work of journalists Dale Maharidge and Michael Williamson and their reporting on the new American underclass.
-- "[Sinaloa Cowboys](https://estreetshuffle.com/index.php/2022/01/04/roll-of-the-dice-sinaloa-cowboys/)" — a three-act tragedy drawn from a 1995 exposé of a Mexican drug cartel by reporters Mark Arax and Tom Gorman.
-- "[Balboa Park](https://estreetshuffle.com/index.php/2020/03/16/roll-of-the-dice-balboa-park/)" — a (barely) musical adaptation of a heartbreaking *Los Angeles Times* article by Sebastian Rotella chronicling the plight of young, homeless illegal immigrants who turn to prostitution and drugs to survive.
-- "[Galveston Bay](https://estreetshuffle.com/index.php/2020/06/22/roll-of-the-dice-galveston-bay/)" — a lightly fictionalized dramatization of the simmering racism that boiled over into tragedy for a Vietnamese fishing community on August 3, 1979.
+- "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" and "[The New Timer](../2018-07-13_roll-of-the-dice-the-new-timer/post.md)"– both inspired by the work of journalists Dale Maharidge and Michael Williamson and their reporting on the new American underclass.
+- "[Sinaloa Cowboys](../2022-01-04_roll-of-the-dice-sinaloa-cowboys/post.md)" — a three-act tragedy drawn from a 1995 exposé of a Mexican drug cartel by reporters Mark Arax and Tom Gorman.
+- "[Balboa Park](../2020-03-16_roll-of-the-dice-balboa-park/post.md)" — a (barely) musical adaptation of a heartbreaking *Los Angeles Times* article by Sebastian Rotella chronicling the plight of young, homeless illegal immigrants who turn to prostitution and drugs to survive.
+- "[Galveston Bay](../2020-06-22_roll-of-the-dice-galveston-bay/post.md)" — a lightly fictionalized dramatization of the simmering racism that boiled over into tragedy for a Vietnamese fishing community on August 3, 1979.
 
 And then there are the songs drawn not from the newspapers but from the fiction shelves and movie theaters:
 
-- "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)," which draws on John Steinbeck's characters, imagery, and dialogue to question the empathy and character of modern America.
-- "[Straight Time,](https://estreetshuffle.com/index.php/2022/12/05/roll-of-the-dice-straight-time/)" based loosely on the 1978 film starring Dustin Hoffman as an ex-con doing his best to keep his nose clean and make ends meet, while temptation constantly beckons.
-- "[My Best Was Never Good Enough](https://estreetshuffle.com/index.php/2021/08/22/roll-of-the-dice-my-best-was-never-good-enough/)," based on one of the darkest and most harrowing crime novels ever written, Jim Thompson's 1952 thriller, *The Killer Inside Me.*
+- "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)," which draws on John Steinbeck's characters, imagery, and dialogue to question the empathy and character of modern America.
+- "[Straight Time,](../2022-12-05_roll-of-the-dice-straight-time/post.md)" based loosely on the 1978 film starring Dustin Hoffman as an ex-con doing his best to keep his nose clean and make ends meet, while temptation constantly beckons.
+- "[My Best Was Never Good Enough](../2021-08-22_roll-of-the-dice-my-best-was-never-good-enough/post.md)," based on one of the darkest and most harrowing crime novels ever written, Jim Thompson's 1952 thriller, *The Killer Inside Me.*
 
-We can add another entry to the list if we squint a bit: "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)" is the most *Nebraska*-esque track on the album. That makes sense when we realize it's a rewrite of a 1982 outtake called "[Losin' Kind](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/)," that itself was based (according to Bruce) on the crime stories and films of James M. Cain.
+We can add another entry to the list if we squint a bit: "[Highway 29](../2018-03-23_roll-of-the-dice-highway-29/post.md)" is the most *Nebraska*-esque track on the album. That makes sense when we realize it's a rewrite of a 1982 outtake called "[Losin' Kind](../2021-01-15_roll-of-the-dice-losin-kind/post.md)," that itself was based (according to Bruce) on the crime stories and films of James M. Cain.
 
 Two of the remaining three tracks are based not on written works but musical ones:
 
-- "[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)," melodically based on Bob Dylan's "Love Minus Zero" and a spiritual sequel to *Nebraska's* "Highway Patrolman."
-- "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)," the album's most uplifting track, based on Ry Cooder's soundtrack to the 1982 film *The Border*.
+- "[The Line](../2018-08-08_roll-of-the-dice-the-line/post.md)," melodically based on Bob Dylan's "Love Minus Zero" and a spiritual sequel to *Nebraska's* "Highway Patrolman."
+- "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)," the album's most uplifting track, based on Ry Cooder's soundtrack to the 1982 film *The Border*.
 
-"[Dry Lightning](https://estreetshuffle.com/index.php/2020/10/16/roll-of-the-dice-dry-lightning/)" stands alone as the album's only non-homage track, but it serves as precursor to *Western Stars* and a direct prequel to "[Chasin' Wild Horses](https://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)."
+"[Dry Lightning](../2020-10-16_roll-of-the-dice-dry-lightning/post.md)" stands alone as the album's only non-homage track, but it serves as precursor to *Western Stars* and a direct prequel to "[Chasin' Wild Horses](../2020-01-26_roll-of-the-dice-chasin-wild-horses/post.md)."
 
 Although *Western Stars* and *Nebraska* are the most obvious companion pieces to *The Ghost of Tom Joad*, there's one other album in Bruce's catalog that feels almost like a sibling at times: *Devils & Dust*.
 
-Even though a full decade separated the albums in the marketplace, Bruce recorded them (or most of them at least) contemporaneously. That's probably why songs like "[Black Cowboys](https://estreetshuffle.com/index.php/2021/09/03/roll-of-the-dice-black-cowboys/)," "The Hitter," "[Matamoras Banks](https://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/)," and "[Silver Palomino](https://estreetshuffle.com/index.php/2021/11/13/roll-of-the-dice-silver-palomino/)" sound like they'd be right at home on the earlier album.
+Even though a full decade separated the albums in the marketplace, Bruce recorded them (or most of them at least) contemporaneously. That's probably why songs like "[Black Cowboys](../2021-09-03_roll-of-the-dice-black-cowboys/post.md)," "The Hitter," "[Matamoras Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)," and "[Silver Palomino](../2021-11-13_roll-of-the-dice-silver-palomino/post.md)" sound like they'd be right at home on the earlier album.
 
 I realize we've drawn a sprawling map of the themes and lineage of *The Ghost of Tom Joad.* It's unavoidable, because the album sits at the intersection of several of Springsteen's most prominent songwriting lodes: isolation and alienation, the American West, social and economic injustice, the reckoning of aging, and the role of the successful artist in society. (As Bruce posed it, "Where does a rich man belong?")
 

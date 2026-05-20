@@ -4,7 +4,7 @@ We've listened to early prototypes of familiar songs, partially bluffed outtakes
 
 Almost all of those tracks are from the 1970s and 1980s, though. Almost never do we hear anything from the nineties forward, and especially not with the E Street Band.
 
-So that's what makes today's entry special. "I'm Going Back" (which almost certainly is not the title Bruce had in mind, if he ever even got that far) dates back to the January 1995 Greatest Hits sessions that yielded "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)," "[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)," and "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)."
+So that's what makes today's entry special. "I'm Going Back" (which almost certainly is not the title Bruce had in mind, if he ever even got that far) dates back to the January 1995 Greatest Hits sessions that yielded "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)," "[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)," and "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)."
 
 Almost every song from those sessions has been released in some fashion or other, but "I'm Going Back" is an exception.
 

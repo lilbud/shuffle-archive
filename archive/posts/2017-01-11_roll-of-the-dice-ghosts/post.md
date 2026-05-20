@@ -46,7 +46,7 @@ We don't hear it immediately, though. As "Ghosts" opens, Bruce speaks to his fal
 > *I need you by my side*
 > *Your love and I'm alive*
 
-It's territory Bruce has trod elsewhere–even on the same album, in fact. "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" is essentially a song-length expansion of the first verse of "Ghosts." The notion of ghosts as friendly companions has been part of his private and public musings since at least the passing of Clarence Clemons in 2011.
+It's territory Bruce has trod elsewhere–even on the same album, in fact. "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" is essentially a song-length expansion of the first verse of "Ghosts." The notion of ghosts as friendly companions has been part of his private and public musings since at least the passing of Clarence Clemons in 2011.
 
 "When you're young, you're taught that ghosts are frightening," Bruce explained to his Vancouver audience in 2012. "But as you get older, you realize that ghosts and spirits of your lost friends… have imprinted themselves on your heart. They've become an indelible part of your life. You carry them with you, good spirits everywhere you go."
 

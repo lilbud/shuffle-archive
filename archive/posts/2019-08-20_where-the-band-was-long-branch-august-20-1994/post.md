@@ -22,7 +22,7 @@ Joe Grushecky and the Houserockers played the Marz series on June 25th, and we r
 
 About 6:00 pm on August 20th, I arrive at Marz. Joe comes over and says, "I got Bruce over here and we'd like to get up and soundcheck." Our friend and loud sound guy, the late George Iocca, didn't have mics set up yet. But Joe and Bruce wanted to go so they got going. George was cranky but hey…
 
-So, we were expecting Joe Grushecky songs and some traditional covers. Instead, for the ten of us in the house: the rehearsal included "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)," "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)," "Glory Days" and "[Born on the Bayou](https://estreetshuffle.com/index.php/2021/04/19/matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/)" (a Creedence cover). We were pretty amazed.
+So, we were expecting Joe Grushecky songs and some traditional covers. Instead, for the ten of us in the house: the rehearsal included "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)," "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," "Glory Days" and "[Born on the Bayou](../2021-04-19_matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/post.md)" (a Creedence cover). We were pretty amazed.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/Bruce-Marz-8-20-94-Living-Proofwm-2.jpg.webp)
 
@@ -36,7 +36,7 @@ The venue fit about 450. We actually probably only had 380, which worked, becaus
 
 There was a moment backstage when Joe was on that I was alone with Bruce. My friend, Dan Feuerstein, was getting married the next day and was a big fan. (Side note: Dan is cousins with his look-alike, film and TV actor Mark Feuerstein.) Anyway, Bruce was kind enough to sign a "Congrats" note to Dan and his bride which I presented the next day in upstate New York.
 
-Bruce ultimately was far more than a finale guest. He joined Joe and the Houserockers for most of their long set. Then, they had John Eddie up to do "[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)" and Dion up to do "[The Wanderer](https://estreetshuffle.com/index.php/2019/05/08/cover-me-the-wanderer/)" to close it.
+Bruce ultimately was far more than a finale guest. He joined Joe and the Houserockers for most of their long set. Then, they had John Eddie up to do "[Around and Around](../2020-02-26_cover-me-around-and-around/post.md)" and Dion up to do "[The Wanderer](../2019-05-08_cover-me-the-wanderer/post.md)" to close it.
 
 [Watch Video Highlight](https://videopress.com/embed/u8yCOevT?hd=1&cover=1)
 
@@ -46,7 +46,7 @@ It was about as epic an experience as one could hope for. And my own photo with 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/terry-and-bruce.jpg.webp)
 
-While Joe and Bruce had a friendship and history, after this night, Bruce really dove in to produce Joe's landmark record, [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). And from there? Well, Bob was diagnosed with Parkinson's after the Marz series wrapped. He had become Joe's manager, and he and Tony Pallagrosi founded the Light of Day Foundation for Parkinson's Disease research and awareness. Joe and Bruce became a fairly steady centerpiece of the annual Light of Day series in Asbury Park over the next twenty years.
+While Joe and Bruce had a friendship and history, after this night, Bruce really dove in to produce Joe's landmark record, [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md). And from there? Well, Bob was diagnosed with Parkinson's after the Marz series wrapped. He had become Joe's manager, and he and Tony Pallagrosi founded the Light of Day Foundation for Parkinson's Disease research and awareness. Joe and Bruce became a fairly steady centerpiece of the annual Light of Day series in Asbury Park over the next twenty years.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/Bruce-8-20-94-Marz-2-Urbish.jpg.webp)
 

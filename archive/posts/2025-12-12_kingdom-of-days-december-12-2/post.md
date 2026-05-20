@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-12-10.png.webp)
 
-**1975:** Bruce and the E Street Band take the Born to Run Tour to C.W. Post College in Greenvale, New York, where Bruce debuts his cover of "[It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)," apparently (according to Max) played as an audible with no prior rehearsal. The band's encore performance of "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" is recorded and officially released–it's the version you'll hear on the radio at least once this month. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28028/Bruce-Springsteen-mp3-flac-download-12-12-1975-Post-Dome-CW-Post-College-Greenvale-NY.html).<br>
+**1975:** Bruce and the E Street Band take the Born to Run Tour to C.W. Post College in Greenvale, New York, where Bruce debuts his cover of "[It's My Life](../2021-11-23_cover-me-its-my-life/post.md)," apparently (according to Max) played as an audible with no prior rehearsal. The band's encore performance of "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" is recorded and officially released–it's the version you'll hear on the radio at least once this month. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28028/Bruce-Springsteen-mp3-flac-download-12-12-1975-Post-Dome-CW-Post-College-Greenvale-NY.html).<br>
 
 [Watch on Youtube: Santa Claus Is Comin' to Town (Live at C.W. Post College, Greenvale, NY - December 1975)](https://www.youtube.com/watch?v=fLI-vMZ4HEw)
 
@@ -64,7 +64,7 @@
 
 **2008:** Bruce takes his daughter Jessica and friends to the Z100 Jingle Ball at Madison Square Garden and meets Lady Gaga for the first time backstage.<br>
 
-**2012:** Bruce and the E Street Band join a line-up of stellar talent at Madison Square Garden for a benefit show to help the Robin Hood Relief Fund for Hurricane Sandy victims in the tri-state area. The show is televised and streamed, starting with Bruce's opening four-song set (including "Born to Run" with a Jon Bon Jovi guest appearance) and Bruce's guest-star turn with Bon Jovi (on "[Who Says You Can't Go Home](https://estreetshuffle.com/index.php/2019/06/22/matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/)") during his set.<br>
+**2012:** Bruce and the E Street Band join a line-up of stellar talent at Madison Square Garden for a benefit show to help the Robin Hood Relief Fund for Hurricane Sandy victims in the tri-state area. The show is televised and streamed, starting with Bruce's opening four-song set (including "Born to Run" with a Jon Bon Jovi guest appearance) and Bruce's guest-star turn with Bon Jovi (on "[Who Says You Can't Go Home](../2019-06-22_matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/post.md)") during his set.<br>
 
 [Watch on Youtube: Bon Jovi / Bruce Springsteen - Who Says You Can't Go Home 2012 Live](https://www.youtube.com/watch?v=NQWFklgKA_E)
 
@@ -86,7 +86,7 @@
 
 **2018:** *Springsteen on Broadway* enters the final week of its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Bruce Willis and Billy Joel.<br>
 
-**2020:** Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform "[Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)" and "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" on *Saturday Night Live*.<br>
+**2020:** Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)" and "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" on *Saturday Night Live*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2OZScE6v)
 

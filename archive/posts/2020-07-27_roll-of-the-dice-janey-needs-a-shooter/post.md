@@ -1,4 +1,4 @@
-**Updated 10/23/20:** If you'd told me when I first published this essay that we'd seen an officially released, brand new recording of "Janey Needs a Shooter" within ninety days, I'd have thought you were nuts. And yet, here we are: Bruce's new album, [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/), is available and includes–at long, long last–a fully realized version of "Janey Needs a Shooter," and it is glorious.<br>
+**Updated 10/23/20:** If you'd told me when I first published this essay that we'd seen an officially released, brand new recording of "Janey Needs a Shooter" within ninety days, I'd have thought you were nuts. And yet, here we are: Bruce's new album, [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md), is available and includes–at long, long last–a fully realized version of "Janey Needs a Shooter," and it is glorious.<br>
 
 [Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter (Official Audio)](https://www.youtube.com/watch?v=A_BRCRkAkAE)
 
@@ -10,13 +10,13 @@ Today we take a look at an outtake from *The Wild, The Innocent & The E Street S
 
 It's an unusual story that takes place over a full decade, so let's dive in.
 
-In the autumn of 1971, The Bruce Springsteen Band performed a song called "[Talking About My Baby](https://estreetshuffle.com/index.php/2024/07/02/roll-of-the-dice-talking-about-my-baby/)" during their show at Virginia Commonwealth University.
+In the autumn of 1971, The Bruce Springsteen Band performed a song called "[Talking About My Baby](../2024-07-02_roll-of-the-dice-talking-about-my-baby/post.md)" during their show at Virginia Commonwealth University.
 
 "Talking About My Baby" is a beautiful song that we'll delve into in greater detail someday, but for now just take a listen, enjoy, and note the melody for comparison purposes.
 
 [Watch Video Highlight](https://videopress.com/embed/Ce3a1tdd)
 
-We have no records to indicate if Bruce ever played "Talking About My Baby" other than that one time, but at least we know he didn't forget about the song entirely. Bruce wrote a new song called "Janey Needs a Shooter" the following year and recorded it at 914 Sound Studios just weeks after the release of *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*in January 1973.
+We have no records to indicate if Bruce ever played "Talking About My Baby" other than that one time, but at least we know he didn't forget about the song entirely. Bruce wrote a new song called "Janey Needs a Shooter" the following year and recorded it at 914 Sound Studios just weeks after the release of *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*in January 1973.
 
 "Janey Needs a Shooter" lifts and adapts the melody from "Talking About My Baby"–we can hear the direct echoes in the opening couplet of each verse–but since "Janey" broods where "Talking" soars, Bruce tethered the melody to keep the mood serious.
 
@@ -128,7 +128,7 @@ Warren proudly played his work-in-progress for Bruce in 1979 during a break in t
 
 Knowing that he had Bruce on the hook, Zevon reeled in his fish and the two of them ended up writing the remainder of the verses together, with Bruce generously donating his unused chorus.
 
-The result was "[Jeannie Needs a Shooter](https://estreetshuffle.com/index.php/2020/10/23/spare-parts-warren-zevon-jeannie-needs-a-shooter/)," which leads off Side Two of Zevon's 1980 album, *Bad Luck Streak in Dancing School*.
+The result was "[Jeannie Needs a Shooter](../2020-10-23_spare-parts-warren-zevon-jeannie-needs-a-shooter/post.md)," which leads off Side Two of Zevon's 1980 album, *Bad Luck Streak in Dancing School*.
 
 [Watch on Youtube: Jeannie Needs a Shooter](https://www.youtube.com/watch?v=53WwqdrUtvQ)
 

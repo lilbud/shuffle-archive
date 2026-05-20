@@ -8,7 +8,7 @@ And that's too bad, because "The Man Who Got Away" is an absolutely fantastic so
 
 [Watch on Youtube: The Man Who Got Away (Studio Outtake - 1979)](https://www.youtube.com/watch?v=Xqc_s3sOOUE)
 
-Often compared to "[Be True,](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" its sibling outtake, because of its Hollywood imagery, the two songs couldn't be more different. "Be True" ranks among Bruce's best romantic pop songs, but in a different arrangement, "The Man Who Got Away" would have been at home on *Nebraska*.
+Often compared to "[Be True,](../2020-12-02_roll-of-the-dice-be-true/post.md)" its sibling outtake, because of its Hollywood imagery, the two songs couldn't be more different. "Be True" ranks among Bruce's best romantic pop songs, but in a different arrangement, "The Man Who Got Away" would have been at home on *Nebraska*.
 
 "The Man Who Got Away" is one big fake-out: we *think* we know what the song is about as Bruce unreels the first verse–it seems like we're listening to one of Bruce's trademarked ordinary working Joes engaging in a bit of Hollywood escapism.
 

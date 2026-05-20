@@ -8,7 +8,7 @@ But it took the prompting of Joe Ely, another artist prone to covering Guthrie i
 
 [Watch Video Highlight](https://videopress.com/embed/vptz9Cqt)
 
-Bruce and Joe became fast friends that night, and before long Bruce invited Joe to join him at a benefit concert the following month in New Jersey. They played a few songs together that night, including Joe's "[Settle For Love](https://estreetshuffle.com/index.php/2020/04/22/matr-bruce-springsteen-and-joe-ely-settle-for-love/)" and Guthrie's "[I Ain't Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)," which Bruce had covered earlier that year.
+Bruce and Joe became fast friends that night, and before long Bruce invited Joe to join him at a benefit concert the following month in New Jersey. They played a few songs together that night, including Joe's "[Settle For Love](../2020-04-22_matr-bruce-springsteen-and-joe-ely-settle-for-love/post.md)" and Guthrie's "[I Ain't Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)," which Bruce had covered earlier that year.
 
 But toward the end of a marathon encore set, Bruce and Joe decided to reprise their duet in Dublin on "Blowin' Down This Road." Perhaps that was a spur-of-the-moment decision though, or at the very least under-rehearsed, because it seems Joe's vision for how to start the song differed from Bruce's. In the recording below, you can hear Bruce start off at a brisk pace, only to slow down when he realizes that Joe intends to slow-walk the first verse. The performance is a bit sloppy overall ("A for effort," Bruce remarks at the end), but the band finds its footing and turns in a decent performance.
 

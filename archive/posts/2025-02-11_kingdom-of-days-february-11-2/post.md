@@ -4,19 +4,19 @@
 
 **1990:** Sting assembles a band for a benefit show for the Rainforest Foundation. The band includes Bruce, Paul Simon, Don Henley, Bruce Hornsby, Herbie Hancock, Brandford Marsalis, Paulinho Da Costa, and Sting. The all-star band meets for a second day of rehearsals in Beverly Hills.<br>
 
-**1997:** During his fourth of five nights at Sydney's Capitol Theater, Bruce plays "[Freehold](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/)" outside of Freehold for the first time.<br>
+**1997:** During his fourth of five nights at Sydney's Capitol Theater, Bruce plays "[Freehold](../2018-12-03_roll-of-the-dice-freehold/post.md)" outside of Freehold for the first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/sg2KPvkP)
 
-**2002:** Bruce joins Philadelphia band Marah in the studio to play lead guitar and provide background vocals on "[Float Away](https://estreetshuffle.com/index.php/2020/08/11/matr-marah-and-bruce-springsteen-float-away/)."<br>
+**2002:** Bruce joins Philadelphia band Marah in the studio to play lead guitar and provide background vocals on "[Float Away](../2020-08-11_matr-marah-and-bruce-springsteen-float-away/post.md)."<br>
 
 [Watch on Youtube: Marah - Float Away](https://www.youtube.com/watch?v=cLN9gixVL4U)
 
-**2007:** Bruce wins two Grammy Awards: Best Traditional Folk Album (for [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)) and Best Long Form Music Video (for *Wings for Wheels: The Making of Born to Run*)<br>
+**2007:** Bruce wins two Grammy Awards: Best Traditional Folk Album (for [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md)) and Best Long Form Music Video (for *Wings for Wheels: The Making of Born to Run*)<br>
 
 [Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU?list=OLAK5uy_kLnnZP0WkflWP_7pxkwgEnpQcwdOoEE1o)
 
-**2014:** The first night of two in Adelaide kicks off with a party-time cover of "[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)" and an audibled "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)." The show also features a rare outing of "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)." Also tour premiering tonight: "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)," "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)," "[Mary's Place,](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)" and "[If I Should Fall Behind.](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)"<br>
+**2014:** The first night of two in Adelaide kicks off with a party-time cover of "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)" and an audibled "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)." The show also features a rare outing of "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)." Also tour premiering tonight: "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," "[Mary's Place,](../2022-03-25_roll-of-the-dice-marys-place/post.md)" and "[If I Should Fall Behind.](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)"<br>
 
 [Watch on Youtube: "Highway to Hell" (Adelaide, 02/11/14)](https://www.youtube.com/watch?v=Z3AzXGXnGcs)
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Prove It All Night ('78 Intro) - Adelaide, 11 February 2014](https://www.youtube.com/watch?v=or7WYLS2HOM)
 
-**2017:** The Summer 2017 Tour makes a stop at Hanging Rock in Macedon, Australia, opening with a solo acoustic "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and a full band "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)." "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" makes its tour premiere tonight as well.<br>
+**2017:** The Summer 2017 Tour makes a stop at Hanging Rock in Macedon, Australia, opening with a solo acoustic "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and a full band "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)." "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" makes its tour premiere tonight as well.<br>
 
 [Watch on Youtube: The Promised Land (acoustic) - Bruce Springsteen - Hanging Rock - 11th February 2017](https://www.youtube.com/watch?v=ZlmnwhzTEzo)
 

@@ -1,4 +1,4 @@
-Now *this* is The Bruce Springsteen Band. Remember that heavy recording of “[Do It With a Feeling](https://estreetshuffle.com/index.php/2021/08/28/roll-of-the-dice-do-it-with-a-feeling/)” we listened to yesterday? Compare that with this gorgeous stereo recording of the blues standard “C.C. Rider.”
+Now *this* is The Bruce Springsteen Band. Remember that heavy recording of “[Do It With a Feeling](../2021-08-28_roll-of-the-dice-do-it-with-a-feeling/post.md)” we listened to yesterday? Compare that with this gorgeous stereo recording of the blues standard “C.C. Rider.”
 
 [Watch Video Highlight](https://videopress.com/embed/hrH99RUi)
 

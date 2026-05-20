@@ -8,7 +8,7 @@ And she wrote it in a half-hour at the age of fifteen.
 
 "Royals" made the Billboard Top 20 for *both* 2013 and 2014, so it was still flying high when Bruce surprised and delighted his Auckland audience by opening his High Hopes shows with it in March 2014.
 
-By that point in the tour, Bruce had taken to paying tribute to local hero artists at each stop along the tour, turning in tour de force covers of "Highway to Hell," "[Stayin' Alive](https://estreetshuffle.com/index.php/2020/09/01/cover-me-stayin-alive/)," "[Friday on My Mind](https://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)," and more while in Australia.
+By that point in the tour, Bruce had taken to paying tribute to local hero artists at each stop along the tour, turning in tour de force covers of "Highway to Hell," "[Stayin' Alive](../2020-09-01_cover-me-stayin-alive/post.md)," "[Friday on My Mind](../2019-06-07_cover-me-friday-on-my-mind/post.md)," and more while in Australia.
 
 But Bruce's cover of "Royals" was no mere hat tip–that written-by-a-teenage-girl song obviously spoke to and resonated with the 64-year-old rock legend.
 

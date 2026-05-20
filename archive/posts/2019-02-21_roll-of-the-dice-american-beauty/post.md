@@ -2,21 +2,21 @@ What are we to make of "American Beauty?"
 
 [Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=4lYz9yibNuA)
 
-On one hand, it appears to be a musical melange, with a melody lifted from "[Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)…"
+On one hand, it appears to be a musical melange, with a melody lifted from "[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)…"
 
 [Watch on Youtube: Frankie Fell in Love](https://www.youtube.com/watch?v=u1bqwTMW55Q)
 
-…layered on the backing track for "[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)…"
+…layered on the backing track for "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)…"
 
 [Watch on Youtube: My Lucky Day](https://www.youtube.com/watch?v=M9Y7VXtVLeU)
 
-…with lyrics lifted liberally from "[Down in the Hole](https://estreetshuffle.com/index.php/2022/07/01/roll-of-the-dice-down-in-the-hole/)."
+…with lyrics lifted liberally from "[Down in the Hole](../2022-07-01_roll-of-the-dice-down-in-the-hole/post.md)."
 
 [Watch on Youtube: Down in the Hole](https://www.youtube.com/watch?v=eAS1zdocVwI)
 
-Even its imagery is drawn from Bruce's recent musical past: the clicking boot heels from "Livin' in the Future" make an appearance here, and its album-mate "[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)" contributes a recurring "white line" motif.
+Even its imagery is drawn from Bruce's recent musical past: the clicking boot heels from "Livin' in the Future" make an appearance here, and its album-mate "[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" contributes a recurring "white line" motif.
 
-And then there's the video for "American Beauty," a live E Street Band performance filmed in an empty arena before Bruce's [2014 concert in Charlotte](https://estreetshuffle.com/index.php/2018/04/19/where-the-band-was-charlotte-april-19-2014/) but inexplicably dubbed with the studio recording featuring different musicians. (No live performance audio has ever surfaced.)
+And then there's the video for "American Beauty," a live E Street Band performance filmed in an empty arena before Bruce's [2014 concert in Charlotte](../2018-04-19_where-the-band-was-charlotte-april-19-2014/post.md) but inexplicably dubbed with the studio recording featuring different musicians. (No live performance audio has ever surfaced.)
 
 [Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=JYMc4FkSObM)
 
@@ -28,7 +28,7 @@ There's something *there*.
 
 "American Beauty" may have been a *High Hopes* outtake, but Bruce is on record citing the song as hailing from his time working with Brendan O'Brien, and it shows.
 
-"American Beauty" sounds and *feels* like everything Bruce was reaching for on *Magic.* That album has some wonderful songs that work simultaneously as intimate relationship songs and pointed political commentary. "[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)" is probably the best example from that group of multi-faceted songs.
+"American Beauty" sounds and *feels* like everything Bruce was reaching for on *Magic.* That album has some wonderful songs that work simultaneously as intimate relationship songs and pointed political commentary. "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" is probably the best example from that group of multi-faceted songs.
 
 But "American Beauty" takes it even a step further. Listen to (or read) the lyrics closely:
 

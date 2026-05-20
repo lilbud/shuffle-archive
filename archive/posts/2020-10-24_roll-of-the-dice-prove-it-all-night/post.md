@@ -3,7 +3,7 @@
 
 There are many accounts of what inspired Bruce to write "Prove It All Night," and they're probably all apocryphal. On any given night during the Darkness Tour, Bruce introduced the album's lead single by selecting from a grab bag of origin stories, sometimes contradicting himself on back-to-back nights at the same venue (always with full sincerity).
 
-But even if none of his stories were authoritative, they were still 100% true, because "Prove It All Night" is more than just rock's most ferocious wedding song; it's a credo that runs throughout the entire [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) album.
+But even if none of his stories were authoritative, they were still 100% true, because "Prove It All Night" is more than just rock's most ferocious wedding song; it's a credo that runs throughout the entire [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) album.
 
 [Watch on Youtube: Prove It All Night](https://www.youtube.com/watch?v=ZvAaviGi0Xs)
 
@@ -13,7 +13,7 @@ If "Prove It All Night" mines the same earth as the rest of its album-mates, it 
 
 It's been remarked by more than one fan that "Prove It All Night" could be Bruce's theme song; I agree, for more reasons than might be immediately apparent.
 
-But before we delve into the lyrics, let's talk about the music for a moment, because "Prove It All Night" is one of those songs where the music came first. The origin of "Prove It All Night" begins with a recording we never heard before 2010. On *The Promise*, Bruce's alternate-universe, what-might-have-been double album of outtakes deemed too thematically distant from the darkness of *Darkness*, there's a song called "[It's a Shame.](https://estreetshuffle.com/index.php/2022/10/15/roll-of-the-dice-its-a-shame/)"
+But before we delve into the lyrics, let's talk about the music for a moment, because "Prove It All Night" is one of those songs where the music came first. The origin of "Prove It All Night" begins with a recording we never heard before 2010. On *The Promise*, Bruce's alternate-universe, what-might-have-been double album of outtakes deemed too thematically distant from the darkness of *Darkness*, there's a song called "[It's a Shame.](../2022-10-15_roll-of-the-dice-its-a-shame/post.md)"
 
 "It's a Shame" was recorded in 1977, but Bruce kept it locked in the vault (it didn't even escape via bootleg) for more than three decades. It's one of those hybrid tracks that features modern vocals and horn section overdubs, against a backing track that curiously features some E Street stand-ins. (Max and Garry were absent for the session, so Bob Chirmside (Bruce's road manager) and Jon Landau (Bruce's manager) sat in on bass and drums, respectively. In fact, the original session log titled the recording as "Jon's Jam.")
 
@@ -27,7 +27,7 @@ Bruce never got around to finishing "It's a Shame" that year. but he held on to 
 
 [Watch on Youtube: Bruce Springsteen Prove it All Night With different lyrics](https://www.youtube.com/watch?v=PBl2lcy_b2Q)
 
-The borrowed lyrics from "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)" were almost certainly intended to be a placeholder, but that didn't stop Landau from pointing out that Bruce might be overusing a certain metaphor. And even though the final lyrics hadn't been written, Bruce's response tells us all we need to know to understand the finished song:
+The borrowed lyrics from "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" were almost certainly intended to be a placeholder, but that didn't stop Landau from pointing out that Bruce might be overusing a certain metaphor. And even though the final lyrics hadn't been written, Bruce's response tells us all we need to know to understand the finished song:
 > "During the record, I think Jon said, ‘What's all this about these cars?' I think we were doing ‘Prove It All Night,' and it had a different first verse. But… the action is not the imagery, you know. The heart of the action is beneath all that stuff." — Bruce Springsteen to Paul Nelson, *Rolling Stone*, July 13 1978
 
 Let's look beneath all that stuff.
@@ -40,7 +40,7 @@ On the surface, "Prove It All Night" is a wedding song, or at least a proposal s
 > *Baby just one kiss will get these things for you*<br>
 > *A kiss to seal our fate tonight*<br>
 
-I could write an entire blog post around the repeated metaphors throughout *Darkness on the Edge of Town*, and the washing of hands would certainly be one of them. "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" spells it out, but in "Prove It All Night," Bruce trusts the listener to realize that our narrator is doing more than just cleaning himself up for his proposal–he's also trying his best to get himself on the straight and narrow, to atone for past sins, and to build a good life for himself and his future wife.
+I could write an entire blog post around the repeated metaphors throughout *Darkness on the Edge of Town*, and the washing of hands would certainly be one of them. "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" spells it out, but in "Prove It All Night," Bruce trusts the listener to realize that our narrator is doing more than just cleaning himself up for his proposal–he's also trying his best to get himself on the straight and narrow, to atone for past sins, and to build a good life for himself and his future wife.
 
 The road is another common metaphor from that period (*any* Springsteen period, really). It represents a lifespan, in this case the shared life journey our two lovers will hopefully embark on together.
 
@@ -96,7 +96,7 @@ In fact, we never even find out whether these two make it to the altar, whether 
 
 For the next few years, Bruce would dwell on this theme almost to obsession, writing in one of his most memorable lines, *Is a dream a lie if it don't come true, or is it something worse?* It would take many more years before Bruce allowed himself to realize and express through his work that it could actually be something *better*.
 
-Even if we never reach our destination, there's satisfaction in the journey itself; even if it never comes true, there's fulfillment to be found while [working on a dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/). (Bruce's 2009 title track is very much a sequel (or possibly an answer) to "Prove It All Night.")
+Even if we never reach our destination, there's satisfaction in the journey itself; even if it never comes true, there's fulfillment to be found while [working on a dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md). (Bruce's 2009 title track is very much a sequel (or possibly an answer) to "Prove It All Night.")
 
 So whether in reference to love or ambition, we renew our dedication each day and we prove it through the night, just so that we can have a chance to do it again the next day and the day after that. If we're lucky, we go a little further and we grow a little stronger each day; and if not, we just keep at it.
 

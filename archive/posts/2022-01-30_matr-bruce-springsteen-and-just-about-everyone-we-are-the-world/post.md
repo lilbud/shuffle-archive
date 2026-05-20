@@ -18,7 +18,7 @@ But a few weeks before the scheduled recording session, Landau called Kragen and
 
 [Watch on Youtube: Bruce records "We Are the World"](https://www.youtube.com/watch?v=tSlsjEk8VgQ)
 
-There was no after-party at the AMAs that night; instead, the artists shuttled over to the studio in their limos or private cars. All except Bruce Springsteen, that is, who had just flown into town, rented a car for himself, drove to the studio, and exclaimed excitedly as he walked inside to [all who could hear](https://estreetshuffle.com/index.php/2021/01/29/where-the-band-was-los-angeles-january-28-29-1985-clydes-story/), "I just got a great parking spot!"
+There was no after-party at the AMAs that night; instead, the artists shuttled over to the studio in their limos or private cars. All except Bruce Springsteen, that is, who had just flown into town, rented a car for himself, drove to the studio, and exclaimed excitedly as he walked inside to [all who could hear](../2021-01-29_where-the-band-was-los-angeles-january-28-29-1985-clydes-story/post.md), "I just got a great parking spot!"
 
 While the starstruck artists assembled and greeted each other (many had never met each other before), the song itself was still coming together. Jackson and Richie and only just completed writing it one week earlier to the day, and even as the artists were reading their music, they were making spot changes, like swapping in "better day" for "brighter day." It was almost midnight, and they hadn't yet begun to record.
 

@@ -4,7 +4,7 @@ The Mavericks may be a country music band, but they weren't always. They started
 
 Their influences draw from a wide spectrum of artists and styles, a net that includes Bruce Springsteen.
 
-On the band's third studio album, *What a Crying Shame* (what a great name for a country album), their fifth single was a cover of Bruce's beautiful *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*ballad and tour set piece, "[All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)."
+On the band's third studio album, *What a Crying Shame* (what a great name for a country album), their fifth single was a cover of Bruce's beautiful *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*ballad and tour set piece, "[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)."
 
 [Watch on Youtube: All That Heaven Will Allow](https://www.youtube.com/watch?v=z06IMSuctlQ)
 

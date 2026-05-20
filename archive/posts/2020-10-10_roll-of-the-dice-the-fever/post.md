@@ -1,6 +1,6 @@
 Sometimes the dice are kind to me.
 
-After the thesis-worthy "[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)" the other day, I'm grateful for a song that isn't about the lyrics at all.
+After the thesis-worthy "[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" the other day, I'm grateful for a song that isn't about the lyrics at all.
 
 "The Fever" isn't about the lyrics, and it's only partially about the music, which simmers and smolders for most of its seven-and-half minutes.
 
@@ -45,7 +45,7 @@ At night, his memory takes over, and loss becomes need becomes hunger. Neither t
 
 The narrator has more words to say, but no additional content. Like the narrator's fever for the girl, Bruce's lyrics and vocals build in intensity without ever being granted the gift of relief. (Speaking of, that last line of the chorus is one of Bruce's most delightful double entendres on record, even if Bruce steps on it the first time.)
 
-We also have to note Clarence's essential contributions. In my opinion, "when he's got the fever for a girl" edges out "[kid, you better get the picture](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)" for Clarence's best cameo vocal. But oh, that mid-song solo… "Jungleland" and "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" deservedly get the love, but Clarence's performance in "The Fever" is sorely under-appreciated.
+We also have to note Clarence's essential contributions. In my opinion, "when he's got the fever for a girl" edges out "[kid, you better get the picture](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" for Clarence's best cameo vocal. But oh, that mid-song solo… "Jungleland" and "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" deservedly get the love, but Clarence's performance in "The Fever" is sorely under-appreciated.
 
 > *Well I can remember coming home*
 > *See you standing at the stove*

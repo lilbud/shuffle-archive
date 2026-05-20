@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1976-1022.jpg.webp)
 
-**1984:** At their second of two nights at the Oakland Coliseum on the Born in the U.S.A. Tour, Bruce and the band tour premiere “Stolen Car” and play their very first performance of “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/).” Bruce brings his sister Pam on stage for “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”<br>
+**1984:** At their second of two nights at the Oakland Coliseum on the Born in the U.S.A. Tour, Bruce and the band tour premiere “Stolen Car” and play their very first performance of “[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md).” Bruce brings his sister Pam on stage for “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NN0O68Cw)
 
@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-22a.png.webp)
 
-**1992:** Bruce and his new band play their second of two nights at Mountain View’s Shoreline Amphitheater, featuring the last performance to date of “[The Long Goodbye](https://estreetshuffle.com/index.php/2021/12/05/roll-of-the-dice-the-long-goodbye/).”<br>
+**1992:** Bruce and his new band play their second of two nights at Mountain View’s Shoreline Amphitheater, featuring the last performance to date of “[The Long Goodbye](../2021-12-05_roll-of-the-dice-the-long-goodbye/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen, "The Long Goodbye" Mountain View, 1992-10-22](https://www.youtube.com/watch?v=pLyZ1hHJHd8)
 
@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1996-10-22.png.webp)
 
-**2002:** Bruce tour premieres “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” in a new solo guitar arrangement at his Rising Tour stop in Rotterdam. “[Countin’ on a Miracle](https://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/)” also receives a new arrangement, with Nils debuting a beautiful new acoustic introduction.<br>
+**2002:** Bruce tour premieres “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)” in a new solo guitar arrangement at his Rising Tour stop in Rotterdam. “[Countin’ on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md)” also receives a new arrangement, with Nils debuting a beautiful new acoustic introduction.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The River" Rotterdam, 2002-10-22](https://www.youtube.com/watch?v=ajedDx-Bi3c)
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen Rotterdam 22/10/2002 Full Concert](https://www.youtube.com/watch?v=0sj9eO-6KDs)
 
-**2006:** When the Seeger Sessions Tour comes to Granada, Bruce opens the encores with a tour debut, an acoustic “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/).”<br>
+**2006:** When the Seeger Sessions Tour comes to Granada, Bruce opens the encores with a tour debut, an acoustic “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/buHbTTAH)
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: Bruce Springsteen-Thunder Road Chicago 10/22/07](https://www.youtube.com/watch?v=YNJyEjbmNwk)
 
-**2011:** Bruce (along with Roy, Max, Bobby Bandiera’s band and a horn section) plays a benefit show for Boston College at The Stone Pony in Asbury Park, featuring Bruce’s first “[A Woman’s Got the Power](https://estreetshuffle.com/index.php/2018/03/01/cover-me-a-womans-got-the-power/)” in 27 years.<br>
+**2011:** Bruce (along with Roy, Max, Bobby Bandiera’s band and a horn section) plays a benefit show for Boston College at The Stone Pony in Asbury Park, featuring Bruce’s first “[A Woman’s Got the Power](../2018-03-01_cover-me-a-womans-got-the-power/post.md)” in 27 years.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2011-10-22.jpg.webp)
 

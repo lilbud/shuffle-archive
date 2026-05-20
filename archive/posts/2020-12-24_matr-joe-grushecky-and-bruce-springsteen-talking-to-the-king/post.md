@@ -2,7 +2,7 @@
 
 That's how many years and how many times Bruce Springsteen and Joe Grushecky have performed together.
 
-It's easy to understand why they enjoy working together so much: their songwriting sensibilities are pretty similar. From dark noir like "[Broken Wheel](https://estreetshuffle.com/index.php/2019/09/29/matr-joe-grushecky-bill-deasy-and-bruce-springsteen-broken-wheel/)" to political statements like "[That's What Makes Us Great](https://estreetshuffle.com/index.php/2018/06/25/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-thats-what-makes-us-great/)" to arena anthems like "[Pumping Iron](https://estreetshuffle.com/index.php/2018/11/03/meeting-across-the-river-bruce-springsteen-and-joe-grushecky-pumping-iron/)" and "[Rebel Music](https://estreetshuffle.com/index.php/2020/03/25/matr-joe-grushecky-and-bruce-springsteen-rebel-music/)," there's a Grushecky analogue for just about every type of song in Bruce's catalog, and vice versa.
+It's easy to understand why they enjoy working together so much: their songwriting sensibilities are pretty similar. From dark noir like "[Broken Wheel](../2019-09-29_matr-joe-grushecky-bill-deasy-and-bruce-springsteen-broken-wheel/post.md)" to political statements like "[That's What Makes Us Great](../2018-06-25_meeting-across-the-river-joe-grushecky-and-bruce-springsteen-thats-what-makes-us-great/post.md)" to arena anthems like "[Pumping Iron](../2018-11-03_meeting-across-the-river-bruce-springsteen-and-joe-grushecky-pumping-iron/post.md)" and "[Rebel Music](https://estreetshuffle.com/index.php/2020/03/25/matr-joe-grushecky-and-bruce-springsteen-rebel-music/)," there's a Grushecky analogue for just about every type of song in Bruce's catalog, and vice versa.
 
 And then there are the songs that are just plain fun, and no Grushecky song brings the smiles like "Talking to the King," the lead-off track from Joe's 1992 album *End of the Century.*
 
@@ -31,7 +31,7 @@ At its big heart, "Talking to the King" is a song of acceptance and appreciation
 
 We'll leave aside the irony of Joe performing a "Thank goodness I didn't make it big and end up like Elvis" song with a man who made it big but ended up just fine, because Bruce is the very definition of an edge case.
 
-Instead, let's just enjoy these longtime friends playing "Talking to the King" in one of their earliest performances together, back on the October Assault mini-tour for [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) in 1995.
+Instead, let's just enjoy these longtime friends playing "Talking to the King" in one of their earliest performances together, back on the October Assault mini-tour for [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) in 1995.
 
 [Watch Video Highlight](https://videopress.com/embed/a5fl9cA4)
 

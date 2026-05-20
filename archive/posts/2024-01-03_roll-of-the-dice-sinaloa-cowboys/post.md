@@ -28,7 +28,7 @@ Arax shared what he could and then promptly forgot about the conversation–unti
 
 But Arax and Gorman weren't the only inspiration for Bruce's tale. "A song like ‘Sinaloa Cowboys' came from a lot of places," Bruce told Will Percy in *DoubleTake* in 1998. "I'd met a guy in the Arizona desert when I happened to be on a trip with some friends of mine, and he had a younger brother who died in a motorcycle accident. There's something abut conversations with people–people you've met once and you'll never see again–that always stays with me."
 
-Something about his transient friend's intimately personal tragedy combined with the backdrop of a larger epidemic fused in Bruce's mind, and the result was the quiet short story/folk song that Bruce included on his 1995 album, [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).
+Something about his transient friend's intimately personal tragedy combined with the backdrop of a larger epidemic fused in Bruce's mind, and the result was the quiet short story/folk song that Bruce included on his 1995 album, [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).
 
 [Watch on Youtube: Sinaloa Cowboys](https://www.youtube.com/watch?v=zOVHCOOqJyo)
 

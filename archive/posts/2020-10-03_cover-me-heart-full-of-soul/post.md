@@ -6,7 +6,7 @@ The Yardbirds released their first post-Clapton, with-Beck single in the summer 
 
 [Watch on Youtube: The Yardbirds - Heart Full Of Soul](https://www.youtube.com/watch?v=pM1qZBFiOLU)
 
-We know that The Castiles had an affinity for The Yardbirds (we have a recording of them performing "[Jeff's Boogie](https://estreetshuffle.com/?p=17364)"), and we know they were intrigued enough by Indian-influenced rock to cover The Kinks' "[See My Friends](https://estreetshuffle.com/index.php/2020/04/30/cover-me-see-my-friends/)."
+We know that The Castiles had an affinity for The Yardbirds (we have a recording of them performing "[Jeff's Boogie](https://estreetshuffle.com/?p=17364)"), and we know they were intrigued enough by Indian-influenced rock to cover The Kinks' "[See My Friends](../2020-04-30_cover-me-see-my-friends/post.md)."
 
 So with "Heart Full of Soul" riding high on the charts that summer (it peaked at #9 on the Billboard Hot 100), it's not a stretch to imagine that The Castiles might have indeed covered it on many an undocumented occasion back in the mid-to-late sixties. But there's no record–and certainly no circulating recording–of Bruce covering it in concert across his more than five decades of performing.
 

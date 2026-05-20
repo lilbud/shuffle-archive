@@ -1,4 +1,4 @@
-Bruce is no stranger to Jimmy Cliff’s catalog: his cover of “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” has been a fan favorite for decades, and “[Many Rivers to Cross](https://estreetshuffle.com/index.php/2018/07/28/cover-me-many-rivers-to-cross/)” was a setlist staple during World Tour 1993.
+Bruce is no stranger to Jimmy Cliff’s catalog: his cover of “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” has been a fan favorite for decades, and “[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)” was a setlist staple during World Tour 1993.
 
 But “Time Will Tell” is on the obscure side.
 

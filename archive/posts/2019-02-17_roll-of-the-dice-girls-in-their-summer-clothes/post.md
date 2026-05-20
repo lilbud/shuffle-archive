@@ -2,7 +2,7 @@
 
 Coming from any other artist, under any other circumstances, that line might sound just a bit too coy.
 
-But Bruce Springsteen had been having quite the month: four weeks earlier, he picked up a Golden Globe Award for his new song, "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)." Three weeks earlier, he performed at newly elected President Obama's inauguration. Two weeks earlier, he released his new album, *Working on a Dream* and filmed the video for "The Wrestler." And of course one week prior, he performed before the eyes of the world at the half-time show for Super Bowl XLIII.
+But Bruce Springsteen had been having quite the month: four weeks earlier, he picked up a Golden Globe Award for his new song, "[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)." Three weeks earlier, he performed at newly elected President Obama's inauguration. Two weeks earlier, he released his new album, *Working on a Dream* and filmed the video for "The Wrestler." And of course one week prior, he performed before the eyes of the world at the half-time show for Super Bowl XLIII.
 
 So it's completely plausible that Bruce didn't realize that he'd been nominated for a Grammy (much less won one) for a song he'd released a year-and-a-half ago and that just barely cracked the Billboard Hot 100 at #95.
 

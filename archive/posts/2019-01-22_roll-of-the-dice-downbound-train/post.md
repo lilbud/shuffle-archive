@@ -14,13 +14,13 @@ Sometimes, "cinematic" songwriting refers to something more sophisticated–the 
 > *And she was cryin', her and me we headed south*
 > *On highway twenty nine*
 
-In "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)" the central event that drives the narrative is never actually described, and yet we have it vividly in our mind. Bruce takes advantage of our familiarity with film tropes to trust that if he sets the stage, plants the prop, and skips to the outcome, we'll do the job of filling in the story.
+In "[Highway 29](../2018-03-23_roll-of-the-dice-highway-29/post.md)" the central event that drives the narrative is never actually described, and yet we have it vividly in our mind. Bruce takes advantage of our familiarity with film tropes to trust that if he sets the stage, plants the prop, and skips to the outcome, we'll do the job of filling in the story.
 
 And sometimes, "cinematic" simply refers to the telling of a tale through song, focusing solely on the story with no thought to a hook or a chorus:
 
 > *Rainey Williams' playground was the Mott Haven streets, where he ran past melted candles and flower wreaths, names and photos of young black faces, whose death and blood consecrated these places. Rainey's mother said, "Rainey stay at my side, for you are my blessing you are my pride. It's your love here that keeps my soul alive. I want you to come home from school and stay inside."*
 
-Bruce's catalog is filled with cinematic songs that fit one or more of the above descriptions. But to me, there's no song in Bruce's catalog more cinematic than "Downbound Train" (although "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)" shares the podium with it).
+Bruce's catalog is filled with cinematic songs that fit one or more of the above descriptions. But to me, there's no song in Bruce's catalog more cinematic than "Downbound Train" (although "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)" shares the podium with it).
 
 "Downbound Train" fits all of the above definitions: it's narrative-driven, filled with imagery, and enlists the listener to act as cinematographer. But "Downbound Train" goes a step further: it uses the backing track to heighten the emotion and tension of the song in the same way that a movie soundtrack would.
 
@@ -58,7 +58,7 @@ Cinematic technique #2: the opening verse that frames the scene:
 > *Where all it ever does is rain*
 > *Don't you feel like you're a rider on a downbound train*
 
-That opening line–"I had a job, I had a girl"–is so good, [Bruce would use it again years later](https://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/). Look at how much Bruce conveys with such economy of language: in eight syllables, we've learned that our narrator once had everything he needed.
+That opening line–"I had a job, I had a girl"–is so good, [Bruce would use it again years later](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md). Look at how much Bruce conveys with such economy of language: in eight syllables, we've learned that our narrator once had everything he needed.
 
 We don't even really need the next two lines to tell us what happened–we already know. He lost his job, and although it's not yet clear what the status is on the romantic front, it's clear things are troubled there, too.
 
@@ -96,7 +96,7 @@ The percussion, guitar, and bass that carried us this far fades away, leaving us
 
 This may be my single most favorite passage from any song in Bruce's catalog. Every time I hear it, I marvel at the way Bruce takes us deep into the dream, using meter and melody and language and octave to heighten the tension. The repetitively short phrasing sounds like the main character panting as he runs through the woods, escalating simultaneously in key and in desperation.
 
-And oh, the pathos: his wife (we've just learned that they were married–see how Bruce cleverly snuck that piece of info in there?) yearns for him, waits for him, so he runs–through the woods, across the highway, through his yard, up the stairs, into their bedroom–only to find it empty. And that damn whistle–it torments him endlessly, reminding him over and over again of his loss. His hopes dashed, our hero descends once more into despair. We can visualize this entire scene as if in a movie. Bruce is the director, our mind the camera. It's interesting to note the similarity to the pivotal scene in the contemporaneous "[My Father's House,](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" which also features a dreamlike journey to a shining house. It seems Bruce was captivated by this notion. (Thanks to reader Mike Thompson for pointing out the parallelism!)
+And oh, the pathos: his wife (we've just learned that they were married–see how Bruce cleverly snuck that piece of info in there?) yearns for him, waits for him, so he runs–through the woods, across the highway, through his yard, up the stairs, into their bedroom–only to find it empty. And that damn whistle–it torments him endlessly, reminding him over and over again of his loss. His hopes dashed, our hero descends once more into despair. We can visualize this entire scene as if in a movie. Bruce is the director, our mind the camera. It's interesting to note the similarity to the pivotal scene in the contemporaneous "[My Father's House,](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)" which also features a dreamlike journey to a shining house. It seems Bruce was captivated by this notion. (Thanks to reader Mike Thompson for pointing out the parallelism!)
 
 (Update: after this article was originally posted, Mark Loughney clued me in to a very cool historical footnote. On August 7, 1982, Bruce performed at Big Man's West with Beaver Brown. In the middle of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," Bruce segued into a work-in-progress song he called "On the Prowl." But if you listen carefully to the lyrics of that new song, they sound awfully familiar.
 
@@ -128,7 +128,7 @@ Still, these are fine and unusual performances and worth watching (even if Bruce
 
 [Watch on Youtube: Bruce Springsteen - Downbound Train [subita]](https://www.youtube.com/watch?v=wvAC9Q4gpJo)
 
-"Downbound Train" continues to be a favorite of both fans and artists (it's covered with some frequency–see [here](https://estreetshuffle.com/index.php/2018/12/21/cover-me-kurt-vile-downbound-train/) and [here](https://estreetshuffle.com/index.php/2018/02/13/cover-me-the-smithereens-downbound-train/) for a couple of great ones), a rarity within reach of most fans, and a song that holds its power both in stadiums and theaters.
+"Downbound Train" continues to be a favorite of both fans and artists (it's covered with some frequency–see [here](../2018-12-21_cover-me-kurt-vile-downbound-train/post.md) and [here](../2018-02-13_cover-me-the-smithereens-downbound-train/post.md) for a couple of great ones), a rarity within reach of most fans, and a song that holds its power both in stadiums and theaters.
 
 **Downbound Train**<br>
 **Recorded:** April 27 – May 6, 1982<br>

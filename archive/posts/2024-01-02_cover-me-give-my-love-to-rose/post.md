@@ -4,7 +4,7 @@ Bruce Springsteen was among the artists represented, and his contribution was a 
 
 [Watch on Youtube: Give My Love To Rose](https://www.youtube.com/watch?v=APIuWzCKwto)
 
-A haunting romantic ballad about an ailing ex-convict desperately trying to reunite with his love before he dies, "Give My Love to Rose" sounds exactly like a song Bruce might have written for [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) or *Nebraska.*
+A haunting romantic ballad about an ailing ex-convict desperately trying to reunite with his love before he dies, "Give My Love to Rose" sounds exactly like a song Bruce might have written for [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md) or *Nebraska.*
 
 [Watch on Youtube: Give My Love to Rose](https://www.youtube.com/watch?v=Vv39doDa7n4)
 

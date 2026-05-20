@@ -10,7 +10,7 @@ And before long, he had the instrumental track in almost final form (the bridge 
 
 All he needed now was some lyrics.
 
-"Badlands" is such an iconic Springsteen song, so true in its musical and lyrical embodiment of defiance and persistence, that it's almost unimaginable that it started life as a purely instrumental track–a spirit in search of a host. But once pointed out, it's obvious: like "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)," (whose lyrics were grafted onto an existing instrumental known simply as "[The Fast Song](https://estreetshuffle.com/index.php/2021/01/30/roll-of-the-dice-the-fast-song/)"), the backing track for "Badlands" sounds elemental, as if the idea of accompanying lyrics hadn't even occurred to Springsteen, because the track already said everything without them.
+"Badlands" is such an iconic Springsteen song, so true in its musical and lyrical embodiment of defiance and persistence, that it's almost unimaginable that it started life as a purely instrumental track–a spirit in search of a host. But once pointed out, it's obvious: like "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," (whose lyrics were grafted onto an existing instrumental known simply as "[The Fast Song](../2021-01-30_roll-of-the-dice-the-fast-song/post.md)"), the backing track for "Badlands" sounds elemental, as if the idea of accompanying lyrics hadn't even occurred to Springsteen, because the track already said everything without them.
 
 But "Badlands" was never intended to be an instrumental, and so Bruce set out to craft a story.
 
@@ -125,7 +125,7 @@ All of this, of course, is just to serve as a build-up for the song's climax. Br
 
 **Badlands**<br>
 **Recorded** Late 1977<br>
-**Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*(1978), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
+**Released:** *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*(1978), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
 **First performed:** May 19, 1978 (Asbury Park, NJ)<br>
 **Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 

@@ -4,7 +4,7 @@
 
 **2018:** *Springsteen on Broadway* wraps up the winter “leg” of its theatrical run at the Walter Kerr Theater in New York City. Bruce will take the rest of the month off, resuming performances on February 28th.<br>
 
-**2023:** On night two of their first tour in six years, Bruce and the E Street Band tour debut “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)” and “Thunder Road” in Atlanta.<br>
+**2023:** On night two of their first tour in six years, Bruce and the E Street Band tour debut “[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)” and “Thunder Road” in Atlanta.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Darlington County LIVE - Atlanta, GA 2/3/23](https://www.youtube.com/watch?v=SsrrPXL25wM)
 

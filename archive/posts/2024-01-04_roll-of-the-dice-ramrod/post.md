@@ -1,4 +1,4 @@
-> "This guy, he's there, but he's really *not* there no more. He's the guy in ‘[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)‘–either guy, actually. But he's also the guy, in the end, who says, ‘I'll give you the word, now, sugar, we'll go ramrodding forever more.' I don't know, that's a real sad line to me, sometimes."
+> "This guy, he's there, but he's really *not* there no more. He's the guy in ‘[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)‘–either guy, actually. But he's also the guy, in the end, who says, ‘I'll give you the word, now, sugar, we'll go ramrodding forever more.' I don't know, that's a real sad line to me, sometimes."
 >
 > — Bruce Springsteen to Dave Marsh, *Musician*, February 1981
 
@@ -14,7 +14,7 @@ It's a sex song.
 
 [Watch on Youtube: Ramrod](https://www.youtube.com/watch?v=BEhmiGQvjOY)
 
-"Ramrod" is as deep as its sister song, "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)." Both are laced liberally with double entendre, both are built on car-as-metaphor-for-genitalia chassis, and both are impossible to resist on record and in concert.
+"Ramrod" is as deep as its sister song, "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)." Both are laced liberally with double entendre, both are built on car-as-metaphor-for-genitalia chassis, and both are impossible to resist on record and in concert.
 
 And come on: even if you didn't know Bruce is singing about his character's penis, you *kind of* knew, didn't you? Especially if you've seen him perform it live:
 

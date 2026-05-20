@@ -1,4 +1,4 @@
-It's time for another edition of *Cover Me Round-Up*, featuring six fresh takes on Bruce Springsteen's most covered song, "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."
+It's time for another edition of *Cover Me Round-Up*, featuring six fresh takes on Bruce Springsteen's most covered song, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."
 
 Today's cover crop is our most stylistically diverse one yet, with artists from around the globe translating "I'm on Fire" into genres and arrangements far afield from Bruce's original Top 10 single.
 

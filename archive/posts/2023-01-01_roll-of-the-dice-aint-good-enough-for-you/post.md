@@ -8,13 +8,13 @@ We're so used to Bruce taking his music so seriously that it's almost jarring to
 
 But "Ain't Good Enough For You" was never meant to be taken seriously.
 
-Bruce wrote literally dozens of songs for the sessions that yielded [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/), and while Bruce ultimately curated a dark, serious selection of tracks for the album, he still gave his lighter side an outlet, writing and recording a pile of fun, even goofy, pop songs that he wisely preserved in his vault until he was ready to release them to the world on *Tracks* in 1998 and *The Promise* in 2010.
+Bruce wrote literally dozens of songs for the sessions that yielded [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md), and while Bruce ultimately curated a dark, serious selection of tracks for the album, he still gave his lighter side an outlet, writing and recording a pile of fun, even goofy, pop songs that he wisely preserved in his vault until he was ready to release them to the world on *Tracks* in 1998 and *The Promise* in 2010.
 
 "Ain't Good Enough For You" was one of those songs.
 
 [Watch on Youtube: Bruce Springsteen - Ain't Good Enough for You (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=kPg6ZZC3AcY)
 
-Set against a backing track that features the E Street Band at their most ebullient (Roy in particular gets a workout on this track, Clarence carries the tune on his sauntering sax, and the entire band provides raucous party rock backing vocals a la "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)"), "Ain't Good Enough For You" is about a shallow a song as we'll find in Bruce's catalog. The lyrics essentially amount to: *get off my case, woman.*
+Set against a backing track that features the E Street Band at their most ebullient (Roy in particular gets a workout on this track, Clarence carries the tune on his sauntering sax, and the entire band provides raucous party rock backing vocals a la "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)"), "Ain't Good Enough For You" is about a shallow a song as we'll find in Bruce's catalog. The lyrics essentially amount to: *get off my case, woman.*
 
 > *Well you don't like, don't like the way I walk*<br>
 > *And you don't like, don't like the way I talk*<br>
@@ -72,7 +72,7 @@ He's still a loser, mind you, but for the first time in the song, we can at leas
 
 So "Ain't Good Enough For You" is actually a great song, almost entirely by accident and coincidence.
 
-We can forgive Bruce for not realizing it early on (although he must have known he was on to something, because he transplanted the melody on to "[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)"), but once he rescued it from obscurity and released it on *The Promise* in 2010, what excuse does he have for playing it so rarely ever since?
+We can forgive Bruce for not realizing it early on (although he must have known he was on to something, because he transplanted the melody on to "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)"), but once he rescued it from obscurity and released it on *The Promise* in 2010, what excuse does he have for playing it so rarely ever since?
 
 Because "Ain't Good Enough For You" is more than just a great pop song, it's a great *live* song. But very few of us are fortunate enough to have heard it.
 
@@ -82,7 +82,7 @@ If you were lucky enough to have been among the sixty fans present for Bruce's p
 
 Despite the fun that Bruce, the band, and the fans were obviously having with it, that was the one and only outing for "Ain't Good Enough For You" in the United States.
 
-European fans have been a bit more fortunate: Bruce played the song three times on the European Wrecking Ball Tour. [I was lucky enough to have been there](https://estreetshuffle.com/index.php/2018/06/26/where-the-band-was-gijon-june-26-2013/) for its last performance to date, in Gijon, Spain, in July 2013. Bruce played "Ain't Good Enough For You" by request in the opening pack (which may have been my favorite opening string of songs ever), and I might have been the only one in the stadium more surprised than Bruce that *everyone* present seemed to know the song by heart and sang along to every note. It was one of my all-time favorite moments at a Springsteen concert:
+European fans have been a bit more fortunate: Bruce played the song three times on the European Wrecking Ball Tour. [I was lucky enough to have been there](../2018-06-26_where-the-band-was-gijon-june-26-2013/post.md) for its last performance to date, in Gijon, Spain, in July 2013. Bruce played "Ain't Good Enough For You" by request in the opening pack (which may have been my favorite opening string of songs ever), and I might have been the only one in the stadium more surprised than Bruce that *everyone* present seemed to know the song by heart and sang along to every note. It was one of my all-time favorite moments at a Springsteen concert:
 
 [Watch on Youtube: Bruce Springsteen - Ain't Good Enough For You - Gijón 26 June 2013](https://www.youtube.com/watch?v=F-KC2fdEwHE)
 

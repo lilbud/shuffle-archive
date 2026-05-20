@@ -22,7 +22,7 @@ When John decided to include "When Will I Be Loved" on his new Blue Ridge Ranger
 
 John and his backing band recorded the basic tracks in October 2008, but John held off on the vocals, hoping he'd be able to secure Bruce's participation. It was Julie who broached the subject with Bruce, who immediately agreed to do it.
 
-John and Julie flew to New Jersey shortly in the early days of 2009, and somehow during a chain of events that included Bruce accepting a Golden Globe award for "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)," performing "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" at the inauguration of President Obama, releasing a new album, and playing the Super Bowl half-time show, Bruce found time to record duet vocals with John for "When Will I Be Loved" at his home in Colts Neck.
+John and Julie flew to New Jersey shortly in the early days of 2009, and somehow during a chain of events that included Bruce accepting a Golden Globe award for "[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)," performing "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" at the inauguration of President Obama, releasing a new album, and playing the Super Bowl half-time show, Bruce found time to record duet vocals with John for "When Will I Be Loved" at his home in Colts Neck.
 
 Bruce's vocals are unmistakable on the track. John let him fly solo on a verse, but the high key of the chorus proved a challenge for Bruce's range. As John remarked in an interview, however, "He got it done. He didn't complain; he didn't wimp out. It sounds great. It was remarkable how much of a chance he would take."
 

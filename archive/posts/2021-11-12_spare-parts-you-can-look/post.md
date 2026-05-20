@@ -1,6 +1,6 @@
 Just one more day until our regular programming resumes, but as promised, I thought I'd share a few more souvenirs from my week on the road.
 
-Let's start at the end: Last night, Joe Grushecky and The Houserockers played a special live 25th Anniversary concert for their *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*album, streamed live on Facebook by *Little Steven's Underground Garage.*
+Let's start at the end: Last night, Joe Grushecky and The Houserockers played a special live 25th Anniversary concert for their *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*album, streamed live on Facebook by *Little Steven's Underground Garage.*
 
 Joe and the band played a scorching set, and I was grateful to catch it in person. But I was downright stunned when they asked me to introduce them shortly before they took the stage–stunned and honored. It was a total adrenaline rush to be up there on stage with the guys, and that rush lasted through the entire set. If you missed it, you can watch the entire performance [here,](https://fb.watch/9dC_DRlINT/) and don't forget to catch Joe and Bruce together on Apple Music this evening at 5pm Eastern.
 

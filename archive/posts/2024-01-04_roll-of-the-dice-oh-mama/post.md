@@ -22,7 +22,7 @@ And yet, "Oh Mama" is still historically significant, and if you paid close atte
 > *I never took my homework on that old dark road*<br>
 > *This car, it ran out of gas*<br>
 
-That opening couplet grabbed your attention, didn't it? Yep, "Oh Mama" is basically an early version of "[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)" (there's even a "boss man" reference later in the song), written by a kid whose frame of reference was still closer to that of a student than a blue-collar laborer.
+That opening couplet grabbed your attention, didn't it? Yep, "Oh Mama" is basically an early version of "[Night](../2019-10-31_roll-of-the-dice-night/post.md)" (there's even a "boss man" reference later in the song), written by a kid whose frame of reference was still closer to that of a student than a blue-collar laborer.
 
 "Oh Mama" isn't anywhere near as romantic as "Night," though. It's pretty much the polar opposite in fact: Bruce spends the whole song complaining about his daily drudge while his girl busts his chops.
 

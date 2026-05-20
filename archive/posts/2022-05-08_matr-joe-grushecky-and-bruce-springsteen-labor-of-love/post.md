@@ -1,4 +1,4 @@
-"[[*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)] is sort of a dark record," Joe Grushecky told me when we talked about his milestone album a couple of summers ago, "but I did purposely try to put in some lighter moments in."
+"[[*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md)] is sort of a dark record," Joe Grushecky told me when we talked about his milestone album a couple of summers ago, "but I did purposely try to put in some lighter moments in."
 
 One of those lighter moments was "Labor of Love," and even if it didn't fit the theme of the album, it became one of Joe's best-loved (*Billboard* editor Thom Duffy named it one of the ten best singles of 1995) and most-played songs, showing up in almost every show.
 
@@ -8,7 +8,7 @@ As he did with the rest of the album, Bruce Springsteen produced the ebullient t
 
 And speaking of that *very* familiar (to anyone in E Street Nation) mandolin riff…
 
-"That was just his bit to begin with," Joe told me when I asked him if he gave Bruce his blessing to lift it for "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)." "Bruce played that part on guitar and mandolin… we trade ideas back and forth, so we both used it."
+"That was just his bit to begin with," Joe told me when I asked him if he gave Bruce his blessing to lift it for "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)." "Bruce played that part on guitar and mandolin… we trade ideas back and forth, so we both used it."
 
 Appearing on vinyl and CD more than four years before Bruce debuted his own song in public, that riff makes "Labor of Love" more than just a terrific pop song, it also marks the musical genesis of one of Bruce's best songs, too. (It's not as overt as the identical riff, but the first four lines of each verse also bear a certain musical similarity between the two songs.)
 

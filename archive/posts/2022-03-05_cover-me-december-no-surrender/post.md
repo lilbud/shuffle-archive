@@ -1,6 +1,6 @@
 Glasgow-based indie-rock band December just released their latest single, and it couldn't be more timely.
 
-Their cover of "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" is terrific–nostalgic but fresh, moody but brash, and most importantly as defiant and determined as Bruce's original.
+Their cover of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" is terrific–nostalgic but fresh, moody but brash, and most importantly as defiant and determined as Bruce's original.
 
 [Watch on Youtube: December - No surrender (Springsteen cover)](https://www.youtube.com/watch?v=AckPcOAkhjk)
 

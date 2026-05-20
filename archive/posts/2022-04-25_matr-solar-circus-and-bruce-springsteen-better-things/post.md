@@ -14,7 +14,7 @@ Taking in the show from the bar was a certain famous local musician.
 
 "We were lucky enough to find Bruce sitting in the back of the bar," recalled Solar Circus vocalist and lead guitarist Mark Diomede, so he asked Bruce to join them. "He got this faraway look in his eye for a second, then he agreed to do a couple songs."
 
-In true Springsteen fashion, a couple of songs turned into five; in true Dead fashion, those five songs kept Bruce on stage for more than an hour. They played three covers together ("[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)," "[All Along the Watchtower,](https://estreetshuffle.com/index.php/2020/08/13/matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/)" and "[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)"), and they played two Solar Circus originals, including "[Stems and Seeds](https://estreetshuffle.com/index.php/2021/03/22/matr-solar-circus-and-bruce-springsteen-stems-and-seeds/)" and a new song from their upcoming *Daybreak* album called “Better Things.”
+In true Springsteen fashion, a couple of songs turned into five; in true Dead fashion, those five songs kept Bruce on stage for more than an hour. They played three covers together ("[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)," "[All Along the Watchtower,](../2020-08-13_matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/post.md)" and "[Not Fade Away](../2020-06-24_cover-me-not-fade-away/post.md)"), and they played two Solar Circus originals, including "[Stems and Seeds](../2021-03-22_matr-solar-circus-and-bruce-springsteen-stems-and-seeds/post.md)" and a new song from their upcoming *Daybreak* album called “Better Things.”
 
 Usually–in fact almost always–I include the original version of a song in these essays for comparison with the live performance. “Better Things” turned out to be too elusive, however, so I offer my apologies.
 
@@ -24,7 +24,7 @@ And even if it wasn’t: you’d know Bruce was on stage just from the taper/bou
 
 [Watch Video Highlight](https://videopress.com/embed/Ub94o55O)
 
-If you’re looking for more definitive evidence of Bruce’s on-stage contribution, check out this video clip from that performance. Only the last three-and-a-half minutes or so were captured, but there’s a pretty great “[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)” at the end of it (with Bruce’s vocals) as a bonus.
+If you’re looking for more definitive evidence of Bruce’s on-stage contribution, check out this video clip from that performance. Only the last three-and-a-half minutes or so were captured, but there’s a pretty great “[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)” at the end of it (with Bruce’s vocals) as a bonus.
 
 [Watch on Youtube: Solar Circus - 8/10/95- with Bruce Springsteen, Better Things, Mustang Sally](https://www.youtube.com/watch?v=Cq5tE0a3m-M)
 

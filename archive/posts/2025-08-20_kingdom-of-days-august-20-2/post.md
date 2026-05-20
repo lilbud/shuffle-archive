@@ -4,11 +4,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1973-0820.jpg.webp)
 
-**1979:** Bruce records "[Dollhouse](https://estreetshuffle.com/index.php/2020/08/15/roll-of-the-dice-dollhouse/)" with the E Street Band at The Power Station in New York City. It will remain in the vault for almost two decades.<br>
+**1979:** Bruce records "[Dollhouse](../2020-08-15_roll-of-the-dice-dollhouse/post.md)" with the E Street Band at The Power Station in New York City. It will remain in the vault for almost two decades.<br>
 
 [Watch on Youtube: Dollhouse (Studio Outtake - 1979)](https://www.youtube.com/watch?v=HpF_i71cqVQ)
 
-**1981:** Bruce and the boys play one of their most legendary, emotional and impassioned shows: a benefit for the Vietnam Veterans of America Foundation at the Sports Arena in Los Angeles, the first show of a six-night stand. Opening with "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)" (played here because of its actual content rather than its literal title), this show also features Bruce's only known performance of "[Ballad of Easy Rider](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/)" and a beautiful, emotional rendition of "[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)"<br>
+**1981:** Bruce and the boys play one of their most legendary, emotional and impassioned shows: a benefit for the Vietnam Veterans of America Foundation at the Sports Arena in Los Angeles, the first show of a six-night stand. Opening with "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" (played here because of its actual content rather than its literal title), this show also features Bruce's only known performance of "[Ballad of Easy Rider](../2021-01-04_cover-me-ballad-of-easy-rider/post.md)" and a beautiful, emotional rendition of "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - BALLAD OF EASY RIDER (audio)](https://www.youtube.com/watch?v=KYg_CB7AElA)
 
@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1981-08-20c.png.webp)
 
-**1984:** Yet another of the all-time great shows performed on this date–this time across the country at the Meadowlands, where Bruce and the band wrap up their ten-night Born in the U.S.A. stand. Steve Van Zandt makes his triumphant return to the E Street Band stage for the tour premiere of "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" and the live debut of a powerful "[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)." The show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,19087/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-20-1984-Brendan-Byrne-Arena-East-Rutherford-NJ.html)), where you can hear the strength of the bond between Bruce and Steve across the years. The Miami Horns also guest-star at this show, and the horn-fueled "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)" will be released in the *Live 1975-85* box set.<br>
+**1984:** Yet another of the all-time great shows performed on this date–this time across the country at the Meadowlands, where Bruce and the band wrap up their ten-night Born in the U.S.A. stand. Steve Van Zandt makes his triumphant return to the E Street Band stage for the tour premiere of "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" and the live debut of a powerful "[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)." The show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,19087/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-20-1984-Brendan-Byrne-Arena-East-Rutherford-NJ.html)), where you can hear the strength of the bond between Bruce and Steve across the years. The Miami Horns also guest-star at this show, and the horn-fueled "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" will be released in the *Live 1975-85* box set.<br>
 
 [Watch on Youtube: Spirit In The Night (Live at Brendan Byrne Arena, East Rutherford, NJ - 08/20/1984 - Of...](https://www.youtube.com/watch?v=wh94fFrW9pI)
 
@@ -40,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/The_Herald_News_1984_08_24_41.jpg.webp)
 
-**1994:** Bruce makes a guest appearance with Joe Grushecky and the Houserockers (the first of what will become a long series across many years) at Marz American Style in Long Branch, New Jersey, playing an eclectic set with the band that includes Bruce originals, Joe originals, and classic covers. John Eddie and Dion DiMucci join for the encores. Listen to the entire fun set below, and for more highlights, see today's [*Where the Band Was* report](https://estreetshuffle.com/index.php/2019/08/20/where-the-band-was-long-branch-august-20-1994/) from guest blogger Terry Camp.<br>
+**1994:** Bruce makes a guest appearance with Joe Grushecky and the Houserockers (the first of what will become a long series across many years) at Marz American Style in Long Branch, New Jersey, playing an eclectic set with the band that includes Bruce originals, Joe originals, and classic covers. John Eddie and Dion DiMucci join for the encores. Listen to the entire fun set below, and for more highlights, see today's [*Where the Band Was* report](../2019-08-20_where-the-band-was-long-branch-august-20-1994/post.md) from guest blogger Terry Camp.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/u8yCOevT)
 
@@ -50,7 +50,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1994-08-20c.png.webp)
 
-**2002:** In Portland, Oregon, Bruce starts to loosen up the main set of the Rising Tour, tour premiering both "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" and "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)."<br>
+**2002:** In Portland, Oregon, Bruce starts to loosen up the main set of the Rising Tour, tour premiering both "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/POy7Bo4x)
 
@@ -60,4 +60,4 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2002-08-20b.png.webp)
 
-**2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. Patti is absent tonight, resulting in an audience singalong to "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" and an omitted "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."<br>
+**2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. Patti is absent tonight, resulting in an audience singalong to "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and an omitted "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."<br>

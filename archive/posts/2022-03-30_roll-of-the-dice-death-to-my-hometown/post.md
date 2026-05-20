@@ -1,10 +1,10 @@
 No, it's not a coincidence.
 
-Just as its name implies, "Death to My Hometown" is a direct sequel to "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)"–certainly thematically, and a strong argument could be made for literally as well.
+Just as its name implies, "Death to My Hometown" is a direct sequel to "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)"–certainly thematically, and a strong argument could be made for literally as well.
 
 Both songs are narrated by fathers passing along life lessons to their sons; both are set in towns ravaged by economic downturns; both feature two verses told in flashback, a revelatory bridge, and a torch-passing final verse.
 
-But whereas the narrator of Bruce's 1985 Top Ten single passively and nostalgically accepted his town's fate, the narrator of his 2012 [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/) track isn't about to accept a damn thing.
+But whereas the narrator of Bruce's 1985 Top Ten single passively and nostalgically accepted his town's fate, the narrator of his 2012 [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md) track isn't about to accept a damn thing.
 
 [Watch on Youtube: Death To My Hometown](https://www.youtube.com/watch?v=0mgZZR9ApqI)
 

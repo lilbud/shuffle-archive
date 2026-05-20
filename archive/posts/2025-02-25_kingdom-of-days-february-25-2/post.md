@@ -1,4 +1,4 @@
-**1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of "[Down to the Riverside](https://estreetshuffle.com/index.php/2021/10/15/roll-of-the-dice-down-to-the-riverside/)."<br>
+**1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of "[Down to the Riverside](../2021-10-15_roll-of-the-dice-down-to-the-riverside/post.md)."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)
 
@@ -20,11 +20,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/The_Memphis_Press_Scimitar_Thu__Feb_26__1981_-scaled.jpg.webp)
 
-**1986:** Grammy-nominated "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" loses the Record of the Year award to "[We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)" (which at least features Bruce's vocals).<br>
+**1986:** Grammy-nominated "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" loses the Record of the Year award to "[We Are the World](../2022-01-30_matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/post.md)" (which at least features Bruce's vocals).<br>
 
 [Watch on Youtube: U.S.A. For Africa - We Are the World](https://www.youtube.com/watch?v=9AjkUyX0rVw)
 
-**1988:** The Tunnel of Love Express Tour kicks off in Worcester, Massachusetts. Most *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*songs receive their first concert airings, and old standards are played with new arrangements. Unheard outtakes and covers round out a tightly thematic set list and a very different Springsteen show than most fans have ever heard. The Miami Horns join the E Street Band for this tour, temporarily renamed The Horns of Love.<br>
+**1988:** The Tunnel of Love Express Tour kicks off in Worcester, Massachusetts. Most *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*songs receive their first concert airings, and old standards are played with new arrangements. Unheard outtakes and covers round out a tightly thematic set list and a very different Springsteen show than most fans have ever heard. The Miami Horns join the E Street Band for this tour, temporarily renamed The Horns of Love.<br>
 
 Listen in on the soundcheck...
 
@@ -60,13 +60,13 @@ Listen in on the soundcheck...
 
 **2000:** Four New York City police officers are acquitted of all charges in the shooting death of Amadou Diallo, an immigrant from West Africa who was shot at 41 times by the police even though he was unarmed. Bruce will shortly write a song about it and perform it to much controversy in New York at the end of the Reunion Tour.<br>
 
-**2005:** Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for "[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)."<br>
+**2005:** Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for "[Code of Silence](../2018-08-27_codeofsilence/post.md)."<br>
 
 [Watch on Youtube: Code of Silence (Live at Madison Square Garden, New York, NY - June 2000)](https://www.youtube.com/watch?v=qmliFFBFQAQ)
 
 **2008:** Bruce and the E Street Band rehearse for the next leg of the Magic Tour at Convention Hall in Asbury Park.<br>
 
-**2012:** Bruce makes a surprise appearance at an Asbury Park benefit concert in memory of his personal trainer Tony Strollo, who died earlier that month; at the show he plays guitar while Tony's brother Michael sings "[Could Die Young Tonight](https://estreetshuffle.com/index.php/2020/06/01/matr-michael-strollo-and-bruce-springsteen-could-die-young-tonight/)..."<br>
+**2012:** Bruce makes a surprise appearance at an Asbury Park benefit concert in memory of his personal trainer Tony Strollo, who died earlier that month; at the show he plays guitar while Tony's brother Michael sings "[Could Die Young Tonight](../2020-06-01_matr-michael-strollo-and-bruce-springsteen-could-die-young-tonight/post.md)..."<br>
 
 [Watch on Youtube: "Could Die Young Tonight" by Michael Strollo Feat. Bruce Springsteem @ The Press Room](https://www.youtube.com/watch?v=d9Lw3sUj-Q8)
 
@@ -100,7 +100,7 @@ Listen in on the soundcheck...
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road (acoustic) - Auckland, NZ - 25 02 2017](https://www.youtube.com/watch?v=lDwzH92dZhI)
 
-**2023:** The E Street Choir is short-handed tonight, with both Lisa Lowell and Curtis King down for the count with COVID-19. Still, Bruce and the band deliver a great show at the Moda Center in Portland, tour premiering "[I'm on Fire.](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)"<br>
+**2023:** The E Street Choir is short-handed tonight, with both Lisa Lowell and Curtis King down for the count with COVID-19. Still, Bruce and the band deliver a great show at the Moda Center in Portland, tour premiering "[I'm on Fire.](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm On Fire, Portland OR, 2/25/2023 Live](https://www.youtube.com/watch?v=rLY9_P57_kE)
 

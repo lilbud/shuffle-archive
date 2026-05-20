@@ -1,4 +1,4 @@
-"[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" is one of Bruce's loveliest and most versatile ballads. Bruce has treated us to many interpretations since its 1992 debut, so it's unsurprising that its beauty and malleability would attract other artists to cover it as well.
+"[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" is one of Bruce's loveliest and most versatile ballads. Bruce has treated us to many interpretations since its 1992 debut, so it's unsurprising that its beauty and malleability would attract other artists to cover it as well.
 
 One of the best covers of "If I Should Fall Behind" is also the very first: Dion DiMucci (of Dion and the Belmonts) included it as the lead-off track on his *Dream on Fire* album, released mere months after Bruce's original debuted on *Lucky Town*.
 

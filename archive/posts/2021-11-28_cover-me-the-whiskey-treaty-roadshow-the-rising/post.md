@@ -22,9 +22,9 @@ In January 2020, weeks before the pandemic shut down the world, The Treaty relea
 
 And then the world stopped.
 
-But the Treaty kept going. As 2020 gave way to 2021, the band live-streamed a benefit concert for the Berkshire Community Action Council that replaced income lost by local service industry professionals during the pandemic. The event's theme was *Recovered*, and the set featured a collection of well-known rock classics from "The Sound of Silence" to "[Keep the Car Running](https://estreetshuffle.com/index.php/2020/04/01/matr-bruce-springsteen-and-arcade-fire-keep-the-car-running/)," recast in the band's own style, streamed live with wonderful production values.
+But the Treaty kept going. As 2020 gave way to 2021, the band live-streamed a benefit concert for the Berkshire Community Action Council that replaced income lost by local service industry professionals during the pandemic. The event's theme was *Recovered*, and the set featured a collection of well-known rock classics from "The Sound of Silence" to "[Keep the Car Running](../2020-04-01_matr-bruce-springsteen-and-arcade-fire-keep-the-car-running/post.md)," recast in the band's own style, streamed live with wonderful production values.
 
-One of the songs on the set list that night was a beautiful banjo-inflected cover of Bruce Springsteen's "[The Rising.](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" In an affecting performance, each of the five singers gets a turn in the spotlight, and each makes the most of it while the others harmonize as the song builds towards its climax.
+One of the songs on the set list that night was a beautiful banjo-inflected cover of Bruce Springsteen's "[The Rising.](../2020-11-21_roll-of-the-dice-the-rising/post.md)" In an affecting performance, each of the five singers gets a turn in the spotlight, and each makes the most of it while the others harmonize as the song builds towards its climax.
 
 [Watch on Youtube: The Whiskey Treaty Roadshow - "The Rising" (Bruce Springsteen cover) | 'Recovered' Live Benefit](https://www.youtube.com/watch?v=ex1MopAsPuw)
 

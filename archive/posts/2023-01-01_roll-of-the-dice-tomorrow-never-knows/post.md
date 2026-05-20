@@ -2,7 +2,7 @@ It's easy to forget about "Tomorrow Never Knows." Bruce has never performed it l
 
 Bruce wrote "Tomorrow Never Knows" during the mixing stages of *Magic–*in fact, it was one of the very first songs written for the album that would become *Working on a Dream.*
 
-That first group of songs also included "[What Love Can Do](https://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/)," "This Life," "[Life Itself](https://estreetshuffle.com/index.php/2018/03/26/roll-of-the-dice-life-itself/)," and "[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)," and together with "Tomorrow Never Knows," it's clear that Bruce was beginning to come to terms with aging in a way that he really hadn't addressed before.
+That first group of songs also included "[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)," "This Life," "[Life Itself](../2018-03-26_roll-of-the-dice-life-itself/post.md)," and "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)," and together with "Tomorrow Never Knows," it's clear that Bruce was beginning to come to terms with aging in a way that he really hadn't addressed before.
 
 *Working on a Dream* would develop into a fascinating document of an artist taking stock of his life, love, family, friends and body of work. It's the gateway to all of his later work, both musically and lyrically–and "Tomorrow Never Knows" is one of the plainest yet loveliest examples.
 
@@ -47,7 +47,7 @@ Bruce has said on more than one occasion that most of his songs hide a single li
 
 > *"He who waits for the day's riches will be lost in the whispering tide."*<br>
 
-That line is significant, because without it, "Tomorrow Never Knows" would be lyrically indistinguishable from "[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)" on the same album.
+That line is significant, because without it, "Tomorrow Never Knows" would be lyrically indistinguishable from "[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)" on the same album.
 
 In both songs, Bruce addresses his life partner, but where the latter song is time suspended, "Tomorrow Never Knows" seizes the day. "Kingdom of Days" revels in the richness of a lifelong love; "Tomorrow Never Knows" recognizes that even as our love grows deeper, we move ever closer to its end.
 

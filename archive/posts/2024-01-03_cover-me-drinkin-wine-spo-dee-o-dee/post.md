@@ -79,7 +79,7 @@ I know, I know… where's the Bruce Springsteen connection, right?
 
 Well, in the summer of 2014, Bruce was on tour in Australia, and a week earlier he'd kickstarted a nightly bit where he played a locally inspired cover, typically a song by an artist who hailed from that region. But when the E Street Band found themselves playing a pair of shows at the Hope Estate Winery in Hunter Valley, the opportunity to play a pair of oenological covers was too rich to resist.
 
-On Night Two, Bruce and the band opened with a slow burn cover of "[Spill the Wine](https://estreetshuffle.com/index.php/2018/03/15/cover-me-spill-the-wine/)" by Eric Burdon and War, but on Night One, they barreled out of the gate with a Seeger Sessions-esque arrangement of "Drinkin' Wine Spo-Dee-O-Dee" that took the audience back to the big band era, with a big, big swinging arrangement that ranks among the highlights of that tour.
+On Night Two, Bruce and the band opened with a slow burn cover of "[Spill the Wine](../2018-03-15_cover-me-spill-the-wine/post.md)" by Eric Burdon and War, but on Night One, they barreled out of the gate with a Seeger Sessions-esque arrangement of "Drinkin' Wine Spo-Dee-O-Dee" that took the audience back to the big band era, with a big, big swinging arrangement that ranks among the highlights of that tour.
 
 [Watch on Youtube: Drinkin' Wine, Spo-Dee-O-Deee - Bruce Springsteen - Hope Estate Hunter Valley 22-2-14](https://www.youtube.com/watch?v=UFghhh2ohI8)
 

@@ -10,7 +10,7 @@ More famously, The Rivieras covered it in 1964 and commanded the #5 spot on the 
 
 So if a New Orleans R&B singer and an Indiana-based rock band can lay claim to the last great American rock hit before the British Invasion swept the country, why not a New Jersey rock icon?
 
-Bruce Springsteen flirted with "California Sun" a few times over the years, quoting it upon occasion (the occasions being California concerts) in "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" or "[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)."
+Bruce Springsteen flirted with "California Sun" a few times over the years, quoting it upon occasion (the occasions being California concerts) in "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" or "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)."
 
 But he's only played it properly in concert once: with the E Street Band at the late L.A. Sports Arena on the evening of April 26, 2012.
 

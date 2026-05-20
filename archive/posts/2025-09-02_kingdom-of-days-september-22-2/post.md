@@ -50,11 +50,11 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1985-0922.jpg.webp)
 
-**1989:** Bruce joins Jimmy Cliff on stage at The Stone Pony in Asbury Park, where the two play “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” in its original arrangement.<br>
+**1989:** Bruce joins Jimmy Cliff on stage at The Stone Pony in Asbury Park, where the two play “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” in its original arrangement.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lr3uCktt)
 
-**1992:** Bruce and his new touring band perform live for *MTV Unplugged* at Warner Hollywood Studios, but after the opening “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/),” the band plugs in and rocks for the rest of the show. MTV rolls with it (“Hey, he’s Bruce Springsteen. He can do whatever he wants.”), and Bruce will release the show (in heavily edited and reassembled order) on CD and DVD as *In Concert/MTV Plugged*. However, the official releases omit several songs performed that night, including the last “[Book of Dreams](https://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/)” for 13 years. See more of the missing performances below. Most of the show is available as streaming video from Bruce’s official YouTube account.<br>
+**1992:** Bruce and his new touring band perform live for *MTV Unplugged* at Warner Hollywood Studios, but after the opening “[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md),” the band plugs in and rocks for the rest of the show. MTV rolls with it (“Hey, he’s Bruce Springsteen. He can do whatever he wants.”), and Bruce will release the show (in heavily edited and reassembled order) on CD and DVD as *In Concert/MTV Plugged*. However, the official releases omit several songs performed that night, including the last “[Book of Dreams](../2019-06-04_roll-of-the-dice-book-of-dreams/post.md)” for 13 years. See more of the missing performances below. Most of the show is available as streaming video from Bruce’s official YouTube account.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Red Headed Woman (plugged_the rehearsals; '92)](https://www.youtube.com/watch?v=djxSv0ZJpQ0)
 
@@ -66,7 +66,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-09-22.jpg.webp)
 
-**2002:** The Rising Tour resumes at the Pepsi Center in Denver after a three-week break, and from this point forward the setlists will have more variety and spontaneity. This show features the tour premieres of “[The Ties That Bind,](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/),” “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/),” and a rare “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/).”<br>
+**2002:** The Rising Tour resumes at the Pepsi Center in Denver after a three-week break, and from this point forward the setlists will have more variety and spontaneity. This show features the tour premieres of “[The Ties That Bind,](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)” “[Candy’s Room](../2022-05-02_roll-of-the-dice-candys-room/post.md),” “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md),” and a rare “[I’m a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1RKhci5I)
 
@@ -76,7 +76,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 [Watch on Youtube: The River](https://www.youtube.com/playlist?list=OLAK5uy_nQCRH689dsWcnQUgI1Tv3xx4UqJCzlHA4)
 
-**2012:** Bruce and the E Street Band wrap up the summer leg of the Wrecking Ball Tour with a third show at MetLife Stadium in East Rutherford, where Bruce tour premieres “[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/),” “[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/),” “Into the Fire,” and “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/).” The show starts late due to inclement weather, and as a result, the band is still going strong when Bruce’s 63rd birthday arrives, and Bruce’s family comes on stage to present him with his cake. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,22184/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-09-22-12-MetLife-Stadium-East-Rutherford-NJ.html).<br>
+**2012:** Bruce and the E Street Band wrap up the summer leg of the Wrecking Ball Tour with a third show at MetLife Stadium in East Rutherford, where Bruce tour premieres “[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md),” “[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md),” “Into the Fire,” and “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md).” The show starts late due to inclement weather, and as a result, the band is still going strong when Bruce’s 63rd birthday arrives, and Bruce’s family comes on stage to present him with his cake. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,22184/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-09-22-12-MetLife-Stadium-East-Rutherford-NJ.html).<br>
 
 [Watch on Youtube: Wrecking Ball (Live at MetLife Stadium, E. Rutherford, NJ - 9/22/2012)](https://www.youtube.com/watch?v=gY6SQab8oxM)
 
@@ -96,7 +96,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2012-09-22.jpg.webp)
 
-**2015:** Bruce makes a guest appearance with Jackson Browne and Teresa Williams on a show-closing “[Take It Easy](https://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/)” and “[Our Lady of the Well](https://estreetshuffle.com/index.php/2019/04/14/matr-jackson-browne-and-bruce-springsteen-our-lady-of-the-well/)” at the Count Basie Theater in Red Bank.<br>
+**2015:** Bruce makes a guest appearance with Jackson Browne and Teresa Williams on a show-closing “[Take It Easy](../2018-01-18_cover-me-take-it-easy/post.md)” and “[Our Lady of the Well](../2019-04-14_matr-jackson-browne-and-bruce-springsteen-our-lady-of-the-well/post.md)” at the Count Basie Theater in Red Bank.<br>
 
 [Watch on Youtube: Bruce Springsteen & Jackson Browne - Take It Easy / Our Lady of the Well](https://www.youtube.com/watch?v=lurjHE-G8vI)
 

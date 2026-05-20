@@ -10,7 +10,7 @@ Take "Lady of Boston" for instance–a song that Bruce only performed at these D
 
 Once we get past the jarring freestyle wind-up, the band quickly settles into a familiar Steel Mill-ish groove. (Bruce hadn't fully left that sound behind yet despite his efforts.) In fact, the body of "Lady of Boston" has such a strong Steel Mill sound to it that it's almost startling when we hear Albee Tellone's tenor sax decorating key lines.
 
-Lyrically, "Lady of Boston" underwhelms. About the only thing worth noting from a historical perspective is its thematic similarity to Bruce's later song, "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)." Both songs are odes to seductive dancers, and the second verse of the former features a line with a striking similarity to one that would show up in the latter.
+Lyrically, "Lady of Boston" underwhelms. About the only thing worth noting from a historical perspective is its thematic similarity to Bruce's later song, "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)." Both songs are odes to seductive dancers, and the second verse of the former features a line with a striking similarity to one that would show up in the latter.
 
 > *I got a lady in Boston, she's outta sight*<br>
 > *When I get up into Massachusetts, she keep me company every night*<br>

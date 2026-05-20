@@ -20,19 +20,19 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1980-1023.jpg.webp)
 
-**1987:** Bruce performs "[Forever Young](https://estreetshuffle.com/index.php/2019/09/01/matr-bob-dylan-and-bruce-springsteen-forever-young/)" acoustically at the funeral of John Hammond at St. Peter's Church in New York City.<br>
+**1987:** Bruce performs "[Forever Young](../2019-09-01_matr-bob-dylan-and-bruce-springsteen-forever-young/post.md)" acoustically at the funeral of John Hammond at St. Peter's Church in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen, "Forever Young" 1987-10-23](https://www.youtube.com/watch?v=llyGdYw3KmQ)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1987-10-23.png.webp)
 
-**1996:** Bruce plays a solo acoustic performance at the William Saroyan Theater in Fresno, where he plays "[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)" for the last time for nine years.<br>
+**1996:** Bruce plays a solo acoustic performance at the William Saroyan Theater in Fresno, where he plays "[The New Timer](../2018-07-13_roll-of-the-dice-the-new-timer/post.md)" for the last time for nine years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The New Timer" - Fresno, 1996-10-23](https://www.youtube.com/watch?v=mYVxiiFX6v8)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1996-10-23.png.webp)
 
-**1999:** At their fourth and final show in Los Angeles on the Reunion Tour, Bruce and the E Street Band tour premiere "The Promise" and play a rare "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23110/bruce-springsteen---the-e-street-band-staples-center-los-angeles-10-23-1999-mp3-flac-or-online-music-streaming.html).<br>
+**1999:** At their fourth and final show in Los Angeles on the Reunion Tour, Bruce and the E Street Band tour premiere "The Promise" and play a rare "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23110/bruce-springsteen---the-e-street-band-staples-center-los-angeles-10-23-1999-mp3-flac-or-online-music-streaming.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - incident on 57th street (full band)](https://www.youtube.com/watch?v=BjKbTI7zJcc)
 
@@ -48,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-23.png.webp)
 
-**2012:** Bruce performs solo at a re-election rally for President Obama in Charlottesville, Virginia. That night, he and the E Street Band play a Wrecking Ball show at the John Paul Jones Arena, where the fantastic set includes the tour premiere of "[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)," a rare "[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)" and "[This Depression](https://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)," and three epics: "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)," "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" and "Jungleland." Friend of the blog Bill Kenney is there and shares his first-hand review [here](https://billk128.tumblr.com/post/35088354431/live-from-the-hook-or-prelude-to-sandy).<br>
+**2012:** Bruce performs solo at a re-election rally for President Obama in Charlottesville, Virginia. That night, he and the E Street Band play a Wrecking Ball show at the John Paul Jones Arena, where the fantastic set includes the tour premiere of "[Give the Girl a Kiss](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)," a rare "[Seaside Bar Song](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)" and "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)," and three epics: "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)," "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" and "Jungleland." Friend of the blog Bill Kenney is there and shares his first-hand review [here](https://billk128.tumblr.com/post/35088354431/live-from-the-hook-or-prelude-to-sandy).<br>
 
 [Watch on Youtube: Bruce Springsteen at Charlottesville Obama For America Rally](https://www.youtube.com/watch?v=4AAxA8VYPoU)
 
@@ -68,7 +68,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2019-10-23a-scaled.jpg.webp)
 
-**2020:** At the stroke of midnight, Bruce releases his twentieth studio album, [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/), recorded in late 2019 with the E Street Band.<br>
+**2020:** At the stroke of midnight, Bruce releases his twentieth studio album, [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md), recorded in late 2019 with the E Street Band.<br>
 
 [Watch on Youtube: Bruce Springsteen - One Minute You're Here (Official Audio)](https://www.youtube.com/watch?v=s-RT3nxr3T4?list=OLAK5uy_mRFUEqt8ZfwlGoMadXECt_tR961Se-Etc)
 

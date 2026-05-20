@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1976-0416.jpg.webp)
 
-**1981:** The River Tour continues its European leg with a show in Munich, where “The Ties That Bind” receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure [here](https://estreetshuffle.com/index.php/2021/04/16/where-the-band-was-munich-april-16-1981-dans-story/).<br>
+**1981:** The River Tour continues its European leg with a show in Munich, where “The Ties That Bind” receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure [here](../2021-04-16_where-the-band-was-munich-april-16-1981-dans-story/post.md).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/r86O6U5P)
 

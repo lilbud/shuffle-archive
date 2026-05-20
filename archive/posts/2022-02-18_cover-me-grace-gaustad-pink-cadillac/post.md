@@ -1,6 +1,6 @@
 Twenty-year-old Grace Gaustad has been a Springsteen fan all her life, and her new single proves it.
 
-Released just last week, her cover of "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)" is the first cut from her upcoming *JUKEBX* EP, and you could almost call it a duet–because Gaustad shares the vocals with *her ten-year-old self*.
+Released just last week, her cover of "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" is the first cut from her upcoming *JUKEBX* EP, and you could almost call it a duet–because Gaustad shares the vocals with *her ten-year-old self*.
 
 Gaustad has been performing and recording since she was a kid. In an interview with *Los Angeles Confidential*, the L.A.-based singer-songwriter revealed that "a couple times a year, [my mom and I get on our phones, get on our computers, and we go searching for old demos, old recordings... we have just an abundance of different recordings and funny things that I did as a kid. And so more recently, we came across this cover of 'Pink Cadillac.' We played it and were like, 'Wow, this is actually pretty good.'"
 

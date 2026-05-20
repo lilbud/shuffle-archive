@@ -33,7 +33,7 @@ Remember, this is the man who only a few years earlier wrote one of the other de
 > *We swore we'd travel darlin' side by side*<br>
 > *We'd help each other stay in stride*<br>
 
-Granted, "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" is a romantic song and "Blood Brothers" a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
+Granted, "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" is a romantic song and "Blood Brothers" a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
 
 > *Now the hardness of this world slowly grinds your dreams away*<br>
 > *Making a fool's joke out of the promises we make*<br>
@@ -92,7 +92,7 @@ But the version at the top of this essay is the one that Bruce decided to releas
 
 [Watch on Youtube: Bruce Springsteen - Blood Brothers - NYC 1995](https://www.youtube.com/watch?v=h4_QjWnGhx4)
 
-Over the course of the Reunion Tour, the E Street Band re-formed their familial bonds. Fans could see the band's intimacy gel over the course of the tour, and by the time the tour came to a close, their nightly "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" closer seemed less of a re-dedication promise and more of a statement of fact.
+Over the course of the Reunion Tour, the E Street Band re-formed their familial bonds. Fans could see the band's intimacy gel over the course of the tour, and by the time the tour came to a close, their nightly "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" closer seemed less of a re-dedication promise and more of a statement of fact.
 
 But on closing night, Bruce had one more song in mind after "Land of Hope and Dreams," and while the band may have known it was coming, they were clearly not emotionally prepared for how Bruce had changed the song.
 

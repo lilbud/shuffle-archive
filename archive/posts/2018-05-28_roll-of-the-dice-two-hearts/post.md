@@ -6,7 +6,7 @@ Here, at his old high school, in front of a crowd of Freehold locals, accompanie
 
 That, right there, is one of my very favorite performances of any Bruce song ever.
 
-(Note: the official archive recording sounds even better. Go buy it, just for this song and an arrangement of "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" that will make you weep.)
+(Note: the official archive recording sounds even better. Go buy it, just for this song and an arrangement of "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" that will make you weep.)
 
 Lyrically, "Two Hearts" is a perfect song. I often excerpt and discuss just the essential lyrics when I write these essays, but here, every line, every word is essential to the story. Its message is lean and powerful, emotional and tender.
 
@@ -75,7 +75,7 @@ Here's an early outtake with a mid-song guitar solo (and some additional lyrics)
 
 Bruce eventually tightened "Two Hearts" by removing all of its ornamentation–there's not a spare note or word to be found in the final version.
 
-In concert, "Two Hearts" was a staple throughout the River Tour, and it made a few appearances on the BITUSA tour before disappearing for a decade. Once it came back in that Freehold performance above, however, it never left again. making frequent appearances in every tour (except for Seeger) since, and always as an ode to friendship and companionship: from the Reunion tour forward, "Two Hearts" became a showcase of and a testament to the fraternal love between Bruce and Steve, performing the song together at the same microphone, and finishing the song with a brief excerpt of "[It Takes Two](https://estreetshuffle.com/index.php/2020/04/03/matr-bruce-springsteen-and-patti-scialfa-it-takes-two/)" by Marvin Gaye and Kim Weston.
+In concert, "Two Hearts" was a staple throughout the River Tour, and it made a few appearances on the BITUSA tour before disappearing for a decade. Once it came back in that Freehold performance above, however, it never left again. making frequent appearances in every tour (except for Seeger) since, and always as an ode to friendship and companionship: from the Reunion tour forward, "Two Hearts" became a showcase of and a testament to the fraternal love between Bruce and Steve, performing the song together at the same microphone, and finishing the song with a brief excerpt of "[It Takes Two](../2020-04-03_matr-bruce-springsteen-and-patti-scialfa-it-takes-two/post.md)" by Marvin Gaye and Kim Weston.
 
 Here is the song's triumphant return in 1995, one of my favorite Bruce and Steve moments:
 

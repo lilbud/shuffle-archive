@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1968-0928.jpg.webp)
 
-**1973:** The Wild & Innocent Tour kicks off at Virginia's Hampden-Sydney College, where "[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)" makes its debut, featuring the band's first-ever guest artist: Albee Tellone on baritone sax.<br>
+**1973:** The Wild & Innocent Tour kicks off at Virginia's Hampden-Sydney College, where "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" makes its debut, featuring the band's first-ever guest artist: Albee Tellone on baritone sax.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1973-0928.jpg.webp)
 
@@ -40,7 +40,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/dKW1FRfa)
 
-**1999:** Night Two in Chicago on the Reunion Tour brings a "[Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)" opener and the last "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)" for the year.<br>
+**1999:** Night Two in Chicago on the Reunion Tour brings a "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)" opener and the last "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" for the year.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2kOwyH8b)
 
@@ -58,7 +58,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-09-28.jpg.webp)
 
-That evening, Bruce and the band play a benefit rehearsal show, where they debut a new rock arrangement for "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)."
+That evening, Bruce and the band play a benefit rehearsal show, where they debut a new rock arrangement for "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)."
 
 [Watch on Youtube: Reason To Believe Bruce Springsteen 9/28/2007 NJ](https://www.youtube.com/watch?v=00XApeB2Wgg)
 
@@ -76,7 +76,7 @@ That evening, Bruce and the band play a benefit rehearsal show, where they debut
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" with Patti.<br>
 
-**2019:** Bruce spends the day at his daughter's equestrian competition in New York. That evening, he stops by his hometown of Freehold to visit the opening of the Monmouth County Historical Association Museum's new exhibit, *Springsteen: His Home Town.* After touring the exhibit, Bruce surprises the assembled crowd by taking the stage with Joe Grushecky and The Houserockers for their opening number, "[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)." For more highlights from this event, see my first-hand [*Where the Band Was* report](https://estreetshuffle.com/index.php/2020/09/28/where-the-band-was-freehold-september-28-2019/).<br>
+**2019:** Bruce spends the day at his daughter's equestrian competition in New York. That evening, he stops by his hometown of Freehold to visit the opening of the Monmouth County Historical Association Museum's new exhibit, *Springsteen: His Home Town.* After touring the exhibit, Bruce surprises the assembled crowd by taking the stage with Joe Grushecky and The Houserockers for their opening number, "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)." For more highlights from this event, see my first-hand [*Where the Band Was* report](../2020-09-28_where-the-band-was-freehold-september-28-2019/post.md).<br>
 
 [Watch on Youtube: Jessica Springsteen_Longines Global Champions tour NYC 28Sept2019](https://www.youtube.com/watch?v=mR8LH8Hxsgs)
 

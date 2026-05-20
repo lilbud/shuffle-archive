@@ -4,7 +4,7 @@ One of Cooder's songs played over both the opening and end credits: a bitterswee
 
 [Watch Video Highlight](https://videopress.com/embed/9R60aGa2)
 
-"Across the Borderline" features such a lovely melody and such uplifting verses (they inspired two of Bruce's own songs, "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)" and "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)") that it's easy to miss the fact that the choruses offer a hard dose of reality.
+"Across the Borderline" features such a lovely melody and such uplifting verses (they inspired two of Bruce's own songs, "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)" and "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)") that it's easy to miss the fact that the choruses offer a hard dose of reality.
 
 > *When you reach the broken promised land*<br>
 > *Every dream slips through your hand*<br>

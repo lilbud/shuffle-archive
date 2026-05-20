@@ -4,7 +4,7 @@ In 2001, *The Chicago Tribune* opined, "Like Bruce Springsteen, Texas songwriter
 
 By then, of course, Joe and Bruce had already become fast friends. They'd met in Dublin in 1993 when their individual tours intersected, and barely two years later, Bruce was in the studio contributing backing vocals and synthesizers to two tracks on Joe's 1995 album, *Letter to Laredo.*
 
-We listened to one of those tracks, "[I'm a Thousand Miles From Home](https://estreetshuffle.com/index.php/2021/11/03/matr-joe-ely-and-bruce-springsteen-im-a-thousand-miles-from-home/)," a few months back, but the subject of today's profile is the more well-known of the pair: "All Just to Get to You."
+We listened to one of those tracks, "[I'm a Thousand Miles From Home](../2021-11-03_matr-joe-ely-and-bruce-springsteen-im-a-thousand-miles-from-home/post.md)," a few months back, but the subject of today's profile is the more well-known of the pair: "All Just to Get to You."
 
 [Watch on Youtube: Joe Ely - All Just To Get To You - Music Video 1997](https://www.youtube.com/watch?v=olOHGFa2QmA)
 

@@ -11,7 +11,7 @@ For a good long stretch, Bruce Springsteen was a searcher, starting each new alb
 
 And then something changed.
 
-When Bruce began his eighth decade on the planet, his songs stopped seeking answers. *Western Stars* and [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/), his two most recent albums, couldn't sound more different musically, but thematically they couldn't be more similar.
+When Bruce began his eighth decade on the planet, his songs stopped seeking answers. *Western Stars* and [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md), his two most recent albums, couldn't sound more different musically, but thematically they couldn't be more similar.
 
 *Western Stars* is full of lush, orchestral, finely-drawn character studies; *Letter to You* is intimate autobiography with a classic E Street sound. But both collections are keenly aware that the past holds more answers than the present, and the future is shrinking with each passing day.
 
@@ -19,11 +19,11 @@ When Bruce began his eighth decade on the planet, his songs stopped seeking answ
 
 "One Minute You're Here" has different engineering and mixing credits, too, which lends support to the theory that Bruce's vocals are 2019 overdubs on a previously recorded backing track.
 
-Regardless of its origin, "One Minute You're Here" is notable for opening a Springsteen album on a fatalistic note for the first time since "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" opened the album of the same name 36 years earlier.
+Regardless of its origin, "One Minute You're Here" is notable for opening a Springsteen album on a fatalistic note for the first time since "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" opened the album of the same name 36 years earlier.
 
 [Watch on Youtube: Bruce Springsteen - One Minute You're Here (Official Audio)](https://www.youtube.com/watch?v=s-RT3nxr3T4)
 
-It's worth noting that not only does Bruce open the album with "One Minute You're Here," he bookends it with "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" — two songs about death, the first resigned to it and the other looking forward to the reunions it offers. In between are a series of vignettes, remembrances, and celebrations that punctuate a life well lived.
+It's worth noting that not only does Bruce open the album with "One Minute You're Here," he bookends it with "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" — two songs about death, the first resigned to it and the other looking forward to the reunions it offers. In between are a series of vignettes, remembrances, and celebrations that punctuate a life well lived.
 
 Stitched together, *Letter to You* presents an artist looking back on his journey, with appreciation for the days still afforded him. But we start with a reckoning that those days are numbered.
 

@@ -12,7 +12,7 @@
 
 **1979:** Bruce joins Ellen Shipley on stage for "Twist and Shout" at The Fast Lane in Asbury Park.<br>
 
-**1980:** At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E Street Band play "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" for the very first time.<br>
+**1980:** At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E Street Band play "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" for the very first time.<br>
 
 [Watch on Youtube: Bruce Springsteen, first ever "Two Hearts" - Richfield, 1980-10-06](https://www.youtube.com/watch?v=Zv_GJ52eQf0)
 
@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-10-06d.jpg.webp)
 
-**2002:** As the first American leg of the Rising Tour starts to wind down, Bruce starts pulling out the stops. At the First Union Center in Philadelphia, Bruce tour premieres "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)," "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)," and as the show-closer, the first E Street Band performance of "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)" in 24 years. In attendance tonight: actors Tim Robbins, Susan Sarandon, MackKenzie Phillips, and Adrian Zmed, plus musician Ryan Adams.<br>
+**2002:** As the first American leg of the Rising Tour starts to wind down, Bruce starts pulling out the stops. At the First Union Center in Philadelphia, Bruce tour premieres "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)," "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)," and as the show-closer, the first E Street Band performance of "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" in 24 years. In attendance tonight: actors Tim Robbins, Susan Sarandon, MackKenzie Phillips, and Adrian Zmed, plus musician Ryan Adams.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ElTp7Vvc)
 
@@ -44,13 +44,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2002-10-06b.jpg.webp)
 
-**2005:** Bruce must have his father on his mind, as he plays "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)," "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and the tour premiere of "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" back-to-back at this solo acoustic show in Rochester.<br>
+**2005:** Bruce must have his father on his mind, as he plays "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)," "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and the tour premiere of "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)" back-to-back at this solo acoustic show in Rochester.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JgQkSLq4)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2005-10-06.jpg.webp)
 
-**2007:** It may be early in the Magic Tour, but Philadelphia still gets its special show when Bruce tour premieres "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)," "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)," "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" and "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" on Night Two. (It's hard to believe that "Dancing" was ever gone!) Also premiering at this show: a full-band arrangement of "[Town Called Heartbreak](https://estreetshuffle.com/index.php/2020/08/09/matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/)."<br>
+**2007:** It may be early in the Magic Tour, but Philadelphia still gets its special show when Bruce tour premieres "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" on Night Two. (It's hard to believe that "Dancing" was ever gone!) Also premiering at this show: a full-band arrangement of "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Radio Nowhere 2007](https://www.youtube.com/watch?v=8WuOoMztbz4)
 

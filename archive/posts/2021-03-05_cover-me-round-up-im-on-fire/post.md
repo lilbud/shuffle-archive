@@ -1,4 +1,4 @@
-So I've had this dilemma for a while now: there are just too many great covers of "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" out there.
+So I've had this dilemma for a while now: there are just too many great covers of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" out there.
 
 Over the past three years or so, I've featured no less than [sixteen covers](https://estreetshuffle.com/index.php/cover-index/) of Bruce's 1985 Top Ten single, but they keep multiplying at an accelerating pace.
 

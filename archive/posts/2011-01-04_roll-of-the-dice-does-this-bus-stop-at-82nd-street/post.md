@@ -1,6 +1,6 @@
 > "Any song… that you don't understand the meaning to is always about sex.'" *–Bruce Springsteen introducing "Does This Bus Stop on 82nd Street?", February 19, 2003*
 
-On the evening of March 23, 2012 in Tampa, early in the Wrecking Ball Tour, Bruce swapped out "[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)" for a tour premiere of "Does This Bus Stop on 82nd Street."
+On the evening of March 23, 2012 in Tampa, early in the Wrecking Ball Tour, Bruce swapped out "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" for a tour premiere of "Does This Bus Stop on 82nd Street."
 
 [Watch on Youtube: Does This Bus Stop at 82nd Street? - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=48hPyA5TGG0)
 
@@ -103,7 +103,7 @@ So until we catch that bus again, here's one more performance to enjoy–the las
 
 **Does This Bus Stop at 82nd Street?**<br>
 **Recorded** June 27-July 12, 1972<br>
-**Released:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1972), *Tracks* (demo, 1998)<br>
+**Released:** [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)(1972), *Tracks* (demo, 1998)<br>
 **First performed:** August 10, 1972 (New York City, NY)<br>
 **Last performed:** November 9, 2024 (Ottawa, Ontario)<br>
 

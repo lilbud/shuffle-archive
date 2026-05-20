@@ -71,7 +71,7 @@ All of this is setup for the extended dream sequence that is the heart of "Point
 > *You just turned and then you looked away*<br>
 > *Like just another stranger waiting to get blown away*<br>
 
-As a songwriter, Bruce uses this device sparingly, but when he does (as in "[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)") the effect is mesmerizing. Like a dream, some details are vivid; others are ignored, and the background is a blur.
+As a songwriter, Bruce uses this device sparingly, but when he does (as in "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)") the effect is mesmerizing. Like a dream, some details are vivid; others are ignored, and the background is a blur.
 
 But the details aren't important here. We're meant to focus on the foreground, but instead we fixate on Bruce's vocal as he strains mightily to maintain his composure, his emotional armor starting to buckle.
 
@@ -133,7 +133,7 @@ Interestingly, Bruce bluffed most of the lyrics beyond the familiar first verse,
 
 [https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3)
 
-Bruce found the lyrics he was looking for in "[Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/)," another song he'd written and recorded for *The River.*
+Bruce found the lyrics he was looking for in "[Party Lights](../2019-11-14_roll-of-the-dice-party-lights/post.md)," another song he'd written and recorded for *The River.*
 
 [Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)
 

@@ -13,7 +13,7 @@ But Sandy wasn't always about Bruce's adopted hometown. Although Brian Hiatt wri
 
 That's because we're fortunate enough to have an early draft of Bruce's lyrics for "Sandy," and while they are unfortunately undated, we can safely assume they date back at least some months before that early summer night.
 
-In this draft, we can see that Sandy is not yet a metaphor. Instead, she's the girl who moved away, an early prototype of "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" perhaps, or a precursor to "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)."
+In this draft, we can see that Sandy is not yet a metaphor. Instead, she's the girl who moved away, an early prototype of "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" perhaps, or a precursor to "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)."
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/4thofjulyasburypark_early_lyrics.jpg.webp)
 

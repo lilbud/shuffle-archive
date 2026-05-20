@@ -1,8 +1,8 @@
 "Two For the Road" is short (not even two minutes long) and sweet, and that's about the highest praise I can muster for it.
 
-There's nothing objectionable about "Two For the Road"–it would take a cynic to turn one's nose up at it–but it's essentially a blander version of "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)." (The two songs even share a lyric.)
+There's nothing objectionable about "Two For the Road"–it would take a cynic to turn one's nose up at it–but it's essentially a blander version of "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)." (The two songs even share a lyric.)
 
-Bruce recorded "Two For the Road" during the *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)* sessions, and he first released it as the B-side to the single version of the album's title track. That always struck me as a particularly cruel thing for Bruce to do: although thematically related, "Tunnel of Love" is such a vastly smarter, more mature and just plain superior song that "Two For the Road" underwhelms just by mere proximity.
+Bruce recorded "Two For the Road" during the *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)* sessions, and he first released it as the B-side to the single version of the album's title track. That always struck me as a particularly cruel thing for Bruce to do: although thematically related, "Tunnel of Love" is such a vastly smarter, more mature and just plain superior song that "Two For the Road" underwhelms just by mere proximity.
 
 [Watch on Youtube: Two For The Road (Single B-Side - 1987)](https://www.youtube.com/watch?v=1MIzyU5OzNM)
 

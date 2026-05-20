@@ -2,7 +2,7 @@ It's *really* hard to cover "Born to Run."
 
 It's Bruce's signature song; the track is so painstakingly crafted and layered, and Bruce's vocals are so passionate that "Born to Run" seems to stare anyone down who even considers covering it.
 
-There are a few notable exceptions, of course: [Roger Daltry](https://estreetshuffle.com/index.php/2018/09/13/cover-me-roger-daltrey-born-to-run/) gave it his all, and [Suzi Quatro](https://estreetshuffle.com/index.php/2019/03/16/cover-me-suzi-quatro-born-to-run/) gave it even more than that.
+There are a few notable exceptions, of course: [Roger Daltry](../2018-09-13_cover-me-roger-daltrey-born-to-run/post.md) gave it his all, and [Suzi Quatro](../2019-03-16_cover-me-suzi-quatro-born-to-run/post.md) gave it even more than that.
 
 But singer-songwriter Anne McCue took a different approach with her 2013 cover, eschewing the original's frenetic energy and escapist drive and finding instead an Americana arrangement that would have been right at home on the Seeger Sessions Tour.
 

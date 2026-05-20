@@ -1,4 +1,4 @@
-If you ever wondered what it sound like if Bruce crammed all of his lyrical themes from [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) into a single unreleased outtake, you've come to the right place.
+If you ever wondered what it sound like if Bruce crammed all of his lyrical themes from [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) into a single unreleased outtake, you've come to the right place.
 
 Today, we take a look at "Break Out" (also known as "All Night Long"), an early outtake from the *Darkness* sessions that has yet to see the light of day.
 
@@ -18,7 +18,7 @@ Take a listen and see how many references to other released Springsteen songs yo
 
 [Watch on Youtube: Bruce Springsteen - Break Out](https://www.youtube.com/watch?v=vk9MGJkJPoY)
 
-It's difficult to analyze "Break Out," since even this take is still a work in progress, but it's clear that Bruce is tilling similar soil as "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)" — and in fact, I'm sure you picked out some lyrics that would eventually find their way to that iconic song. So rather than cover that ground again, I'll simply annotate when we encounter a lyric that leads elsewhere.
+It's difficult to analyze "Break Out," since even this take is still a work in progress, but it's clear that Bruce is tilling similar soil as "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" — and in fact, I'm sure you picked out some lyrics that would eventually find their way to that iconic song. So rather than cover that ground again, I'll simply annotate when we encounter a lyric that leads elsewhere.
 
 Here are Bruce's lyrics, courtesy of the fine folks at SpringeteenLyrics.com. (I'm not 100% sure of their accuracy, but they match what I hear closely enough.)
 
@@ -27,7 +27,7 @@ Here are Bruce's lyrics, courtesy of the fine folks at SpringeteenLyrics.com. (I
 > *I was schooled down and dirty, signed a note getting back to town*
 > *It was there where the workers slaved all week waiting for payday to come around*
 
-The official take of "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" was completed only weeks after the second take of "Break Out" above. The phrase must have been on his mind, because it appears twice in this outtake.
+The official take of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" was completed only weeks after the second take of "Break Out" above. The phrase must have been on his mind, because it appears twice in this outtake.
 
 We'll also see some similarities to "The Promised Land" in the chorus:
 
@@ -51,7 +51,7 @@ We're listening to a track from November 1977. Just a few weeks later, that **bo
 > *Well all little queens lose their thrones tonight*
 > *All you little pretty things better learn to sleep alone tonight*
 
-This one's a bit obscure, but if that last couplet sounded familiar, it's probably because it reminds you of this passage from "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)" (even though "Frankie" was written first):
+This one's a bit obscure, but if that last couplet sounded familiar, it's probably because it reminds you of this passage from "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)" (even though "Frankie" was written first):
 
 > *Let all the finer things sleep alone tonight*
 > *Let all the minor kings lose their thrones tonight*
@@ -74,7 +74,7 @@ Let's continue:
 > *I wanna lose what ???*
 > *Prove it all night long*
 
-Song reference #4: Bruce had already written and recorded early versions of "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)" around the time of that first bluffed version of "Break Out" above, so we know that the appearance of that phrase here is almost certainly a loan.
+Song reference #4: Bruce had already written and recorded early versions of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" around the time of that first bluffed version of "Break Out" above, so we know that the appearance of that phrase here is almost certainly a loan.
 
 > *I wanna know that I got a place*
 > *I wanna go where I can see your face*

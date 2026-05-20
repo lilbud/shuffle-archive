@@ -1,6 +1,6 @@
 The irony was there at the outset.
 
-Long before "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" and "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)," Bruce Springsteen was pairing lyrics that said one thing with music that said the opposite, with a wink that conveyed confidence one wouldn't expect from a struggling 22-year-old singer-songwriter.
+Long before "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," Bruce Springsteen was pairing lyrics that said one thing with music that said the opposite, with a wink that conveyed confidence one wouldn't expect from a struggling 22-year-old singer-songwriter.
 
 We can hear it all the way back on his very first album, and we can *see* it even earlier.
 
@@ -16,7 +16,7 @@ In fact, "Growin' Up" was among the earliest songs written and recorded for *Gre
 
 It wouldn't take along for him to discard those lyrics. Although they were much in keeping with his style up until that point, Bruce was starting to write more stylistically, breaking out the rhyming dictionary and embracing staccato alliteration, internal rhymes, and clever turns of phrase that dared the listener to keep up.
 
-Some songs, like "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" were so dense with alter egos and coded circumstance that they almost seemed written solely for their cast of characters. Others, like "[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)" and "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" seemed more like "Eloise," sophisticated lyrical poetry that bordered on (some say ventured into) pretension.
+Some songs, like "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" were so dense with alter egos and coded circumstance that they almost seemed written solely for their cast of characters. Others, like "[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)" and "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" seemed more like "Eloise," sophisticated lyrical poetry that bordered on (some say ventured into) pretension.
 
 "Growin' Up" stands out for its approachability. It's no less flamboyant than any other track on *Greetings*, but Bruce shows just enough lyrical restraint for the casual listener to grok what he's singing about, if only they pay close attention.
 

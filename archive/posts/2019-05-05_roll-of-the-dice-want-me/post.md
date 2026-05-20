@@ -28,7 +28,7 @@ The lyrics are a bit tough to make out, but my best guess is below:
 > *You see the good, this big thing to do*
 > *But sometimes I get lonely and you're good to me*
 
-It's the song of a (very) young man, that's for sure. If it's rooted in real life, it's almost certainly a reflection of Bruce's determination to succeed as a musician and not be tied down by a romantic interest. (See "[Turn Around](https://estreetshuffle.com/index.php/2018/07/09/roll-of-the-dice-turn-around/)" for another early example of Bruce working through his tug-of-war between professional aspiration and romantic entanglement.
+It's the song of a (very) young man, that's for sure. If it's rooted in real life, it's almost certainly a reflection of Bruce's determination to succeed as a musician and not be tied down by a romantic interest. (See "[Turn Around](../2018-07-09_roll-of-the-dice-turn-around/post.md)" for another early example of Bruce working through his tug-of-war between professional aspiration and romantic entanglement.
 
 Maddeningly, that's all we get–there's a "(cont)" at the bottom of the page, but if there's any more to the song, it's been lost to history.
 

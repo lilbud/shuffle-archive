@@ -1,6 +1,6 @@
 On Memorial Day weekend in 1977, Bruce Springsteen finally settled his long-running legal dispute with Mike Appel that had prevented him from recording a follow up to his 1975 album *Born to Run.*
 
-Road-weary (the band had been on the road for almost two solid years) and with a solid stash of new material, it only took four days for Bruce to return to the studio and begin recording *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).*
+Road-weary (the band had been on the road for almost two solid years) and with a solid stash of new material, it only took four days for Bruce to return to the studio and begin recording *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).*
 
 The Darkness recording sessions started at Atlantic Studios in New York City, but Bruce wasn't happy with the studio's acoustics. By the end of the summer, the band had moved operations back to The Record Plant, where *Born to Run* was recorded.
 
@@ -8,7 +8,7 @@ Bruce and the band recorded at The Record Plant throughout the autumn and winter
 
 The centerpiece of *Street Hassle* was its eleven-minute title track, a dark, gritty and brutal musical monologue of a street painting. The song is composed of three vignettes, and each sounds for all the world like an alternative character's take on a Bruce Springsteen song.
 
-Chapter 1, "Waltzing Matilda" (the first three minutes or so) is sung from the point of view of a woman picking up a male prostitute that could easily be [Spanish Johnny](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/); Chapter 2, "Street Hassle," features a drug dealer disposing of the body of a woman who drank some seriously [unholy blood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/).
+Chapter 1, "Waltzing Matilda" (the first three minutes or so) is sung from the point of view of a woman picking up a male prostitute that could easily be [Spanish Johnny](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md); Chapter 2, "Street Hassle," features a drug dealer disposing of the body of a woman who drank some seriously [unholy blood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/).
 
 And then there's Chapter Three, "Slip Away," which begins at the 9-minute mark with a forty-second spoken-word guest monologue about love and pain and death that ends with the words:
 

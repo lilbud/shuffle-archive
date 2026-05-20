@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Bruce Springsten, news report, interview and live from Copenhagen, Denmark 1996](https://www.youtube.com/watch?v=_p690qQT8L0)
 
-**2004:** Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on “[Take It Easy](https://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/).”<br>
+**2004:** Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on “[Take It Easy](../2018-01-18_cover-me-take-it-easy/post.md).”<br>
 
 [Watch on Youtube: Jackson Browne and Bruce Springsteen - "Take It Easy" - 2004-03-16](https://www.youtube.com/watch?v=b7y7zEisP1k)
 
@@ -34,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2008-03-16.jpg.webp)
 
-**2013:** Night Two in Brisbane opens with the live debut of “[High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/).”<br>
+**2013:** Night Two in Brisbane opens with the live debut of “[High Hopes](../2021-08-25_cover-me-high-hopes/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - High Hopes - Brisbane March 16](https://www.youtube.com/watch?v=Z7ksWwv3GtQ)
 

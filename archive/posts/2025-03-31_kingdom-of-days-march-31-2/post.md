@@ -32,7 +32,7 @@
 
 (marketing plan and USA Today scan courtesy of reader Andy Swanson)
 
-**1993:** Bruce kicks off World Tour 1993 in Glasgow with an acoustic mini-set–a feature that distinguishes this year's tour from the one that preceded it. "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)" is filmed and broadcast the following evening on *Top of the Pops*.<br>
+**1993:** Bruce kicks off World Tour 1993 in Glasgow with an acoustic mini-set–a feature that distinguishes this year's tour from the one that preceded it. "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" is filmed and broadcast the following evening on *Top of the Pops*.<br>
 
 [Watch on Youtube: Lucky Town - Bruce Springsteen (live at the SEC Centre, Glasgow 1993)](https://www.youtube.com/watch?v=_7Cjtv2v-MM)
 
@@ -52,7 +52,7 @@ If you aren't in Denver tonight, you still have a chance to see The Boss: the mo
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2000-03-31.png.webp)
 
-**2008:** An "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" opener and very rare "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)" highlight the E Street Band's show at GM Place in Vancouver, BC on the Magic Tour. For more highlights from this show, see my [*Where the Band Was* report from this show.](https://estreetshuffle.com/index.php/2018/03/31/where-the-band-was-vancouver-march-31-2008/)<br>
+**2008:** An "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" opener and very rare "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)" highlight the E Street Band's show at GM Place in Vancouver, BC on the Magic Tour. For more highlights from this show, see my [*Where the Band Was* report from this show.](../2018-03-31_where-the-band-was-vancouver-march-31-2008/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen - Trapped](https://www.youtube.com/watch?v=nXArxxN1qKE)
 
@@ -78,7 +78,7 @@ If you aren't in Denver tonight, you still have a chance to see The Boss: the mo
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3)
 
-**2024:** At Night Two in San Francisco, Bruce and the E Street Band open their show with "[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)."<br>
+**2024:** At Night Two in San Francisco, Bruce and the E Street Band open their show with "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Chase Center San Francisco, CA 3/31/2024-Light of Day](https://www.youtube.com/watch?v=FaQGdRu2ysI)
 

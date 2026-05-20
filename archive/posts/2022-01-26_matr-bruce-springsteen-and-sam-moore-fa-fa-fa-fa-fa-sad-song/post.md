@@ -10,7 +10,7 @@ That's pronounced *faa*, mind you, not *fah.* *Faa* is the sound that a horn ma
 
 But when Bruce Springsteen and Sam Moore covered it at one of Bruce's holiday benefit shows in 2003, they kind of forgot about the horn part–which is ironic, since they had a pretty great horn section on hand.
 
-We'll forgive them, though, because holy cow is this a great arrangement! Segueing from a "Hey Bo Diddley" intro into a pretty lengthy "Fa-fa-fa-fa-fa" quote before finally landing on an extended "[I Thank You,](https://estreetshuffle.com/index.php/2020/08/20/matr-bruce-springsteen-and-sam-moore-i-thank-you/)" Sam and Bruce's team-up provided the evening with a jolt of electricity and one of my favorite moments from Bruce's entire run of holiday shows.
+We'll forgive them, though, because holy cow is this a great arrangement! Segueing from a "Hey Bo Diddley" intro into a pretty lengthy "Fa-fa-fa-fa-fa" quote before finally landing on an extended "[I Thank You,](../2020-08-20_matr-bruce-springsteen-and-sam-moore-i-thank-you/post.md)" Sam and Bruce's team-up provided the evening with a jolt of electricity and one of my favorite moments from Bruce's entire run of holiday shows.
 
 [Watch Video Highlight](https://videopress.com/embed/obk1f1vF)
 

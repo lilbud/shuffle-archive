@@ -18,7 +18,7 @@ Still, it seems highly likely that "Give the Girl a Kiss" was inspired at least 
 
 Although the songs are different in style, the similar titles and choruses ("Tell her that you love her, tell her that you need her" vs. "Tell him that I love him, tell him that I care") are a pretty unmistakable hat tip.
 
-Musically and stylistically though, "Give the Girl a Kiss" owes more to contemporary Springsteen originals like "So Young and in Love," "[Paradise by the C,](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)" and and "[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)" (which are all basically the same song anyway).
+Musically and stylistically though, "Give the Girl a Kiss" owes more to contemporary Springsteen originals like "So Young and in Love," "[Paradise by the C,](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)" and and "[Action in the Streets](../2022-06-27_roll-of-the-dice-action-in-the-streets/post.md)" (which are all basically the same song anyway).
 
 [Watch on Youtube: So Young And In Love (Studio Outtake - 1974)](https://www.youtube.com/watch?v=lyo0rHLAP8s)
 
@@ -80,7 +80,7 @@ And speaking of endearing: can we just appreciate how much fun the E Street Band
 > *Tell her that you love her*
 > *And give the girl a great big kiss*
 
-Did I mention that they recorded this song during the dour [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)sessions (except for the horns, which were added a couple of decades later)? Bruce may not remember "Give the Girl a Kiss" specifically, but he remembers using songs like it to relieve the band after long series of takes tackling darker material.
+Did I mention that they recorded this song during the dour [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)sessions (except for the horns, which were added a couple of decades later)? Bruce may not remember "Give the Girl a Kiss" specifically, but he remembers using songs like it to relieve the band after long series of takes tackling darker material.
 
 But the best part of "Give the Girl a Kiss" is still to come:
 

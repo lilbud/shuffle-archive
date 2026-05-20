@@ -1,4 +1,4 @@
-I've shared a few songs from Bruce's 1987 appearance as a member of Roy Orbison's all-star *Black and White Night* backing band (see "The Comedians," Blue Angel," "[Leah](https://estreetshuffle.com/index.php/2019/04/08/matr-roy-orbison-bruce-springsteen-and-friends-leah/)," and "Go Go Go (Down the Line)" for the others), but this one's special for two reasons.
+I've shared a few songs from Bruce's 1987 appearance as a member of Roy Orbison's all-star *Black and White Night* backing band (see "The Comedians," Blue Angel," "[Leah](../2019-04-08_matr-roy-orbison-bruce-springsteen-and-friends-leah/post.md)," and "Go Go Go (Down the Line)" for the others), but this one's special for two reasons.
 
 First, because Bruce apparently thought enough of "Dream Baby (How Long Must I Dream)" to try adapting it in a new arrangement (a la "Follow That Dream") during his *Nebraska* home recording sessions:
 

@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 1999 and 2014; video for 2014 and 2023*<br>
 
-**1966:** Bruce enters a recording studio for the very first time when The Castiles record their first two songs: "[Baby I](https://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/)" and "[That's What You Get](https://estreetshuffle.com/index.php/2019/11/30/roll-of-the-dice-thats-what-you-get/)." Both are co-written by Bruce and George Theiss. The former will be officially released on *Chapter & Verse* in 2016; the latter is still unreleased but can be heard below.<br>
+**1966:** Bruce enters a recording studio for the very first time when The Castiles record their first two songs: "[Baby I](https://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/)" and "[That's What You Get](../2019-11-30_roll-of-the-dice-thats-what-you-get/post.md)." Both are co-written by Bruce and George Theiss. The former will be officially released on *Chapter & Verse* in 2016; the latter is still unreleased but can be heard below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Baby I (2016) [Chapter and Verse]](https://www.youtube.com/watch?v=aTeJTkSJMVE)
 
@@ -8,7 +8,7 @@
 
 **1973:** Bruce cancels a scheduled performance at Michigan Technological University to make room for studio time for the Wild and Innocent sessions.<br>
 
-**1988:** Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. Bruce and the band exit to a "[New York, New York](https://estreetshuffle.com/index.php/2021/06/26/cover-me-new-york-new-york/)" instrumental.<br>
+**1988:** Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. Bruce and the band exit to a "[New York, New York](../2021-06-26_cover-me-new-york-new-york/post.md)" instrumental.<br>
 
 [Watch on Youtube: Bruce Springsteen, "New York, New York" - MSG May 18, 1988](https://www.youtube.com/watch?v=fNUAkKLceYQ)
 
@@ -36,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2002-05-18b.jpg.webp)
 
-**2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)," "Hava Nagila"(!) and "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)."<br>
+**2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)," "Hava Nagila"(!) and "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qDmdrtO6)
 
@@ -60,7 +60,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/V2qhXSoW)
 
-**2014:** The High Hopes Tour wraps with a second show at the Mohegan Sun Casino in Uncasville, Connecticut, where Bruce pulls out six tour premieres *in the first seven songs*. For more highlights from this show, see my [*Where the Band Was* report from this night.](https://estreetshuffle.com/index.php/2018/05/18/where-the-band-was-uncasville-may-18-2014/)<br>
+**2014:** The High Hopes Tour wraps with a second show at the Mohegan Sun Casino in Uncasville, Connecticut, where Bruce pulls out six tour premieres *in the first seven songs*. For more highlights from this show, see my [*Where the Band Was* report from this night.](../2018-05-18_where-the-band-was-uncasville-may-18-2014/post.md)<br>
 
 [Watch on Youtube: Leap of Faith - Bruce Springsteen & The E Street Band (5/18/14)](https://www.youtube.com/watch?v=ThhW6P23gn4)
 

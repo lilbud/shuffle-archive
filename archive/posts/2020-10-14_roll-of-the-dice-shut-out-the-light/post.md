@@ -1,4 +1,4 @@
-**Blogger's Note:** It's impossible to discuss the genesis and evolution of "Shut Out the Light" without referencing the two songs with which it's inseparably intertwined. Since I've already written about both at length, I strongly recommend that if you haven't already (or recently) read them, take a few minutes to do so now. Start with "[Vietnam](https://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/)," which has essential backstory for truly appreciating "Shut Out the Light." If you have time, review "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" to understand how that song evolved once Bruce started developing its fraternal twin.<br>
+**Blogger's Note:** It's impossible to discuss the genesis and evolution of "Shut Out the Light" without referencing the two songs with which it's inseparably intertwined. Since I've already written about both at length, I strongly recommend that if you haven't already (or recently) read them, take a few minutes to do so now. Start with "[Vietnam](../2019-08-31_roll-of-the-dice-vietnam/post.md)," which has essential backstory for truly appreciating "Shut Out the Light." If you have time, review "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" to understand how that song evolved once Bruce started developing its fraternal twin.<br>
 
 ---
 
@@ -62,7 +62,7 @@ In the remaining verse, Johnny attempts to restart his life, and during the day,
 > *His mama said, "Johnny, oh Johnny, I'm so glad to have you back with me"*
 > *His pa said he was sure they'd give him his job back down at the factory*
 
-There are at least two things worth noting in this verse. The first is the second line, which Bruce will recycle more than two decades later in "[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)," which itself bears quite a bit of thematic resemblance to "Shut Out the Light."
+There are at least two things worth noting in this verse. The first is the second line, which Bruce will recycle more than two decades later in "[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)," which itself bears quite a bit of thematic resemblance to "Shut Out the Light."
 
 The second is Johnny's pa's optimism. Because "Shut Out the Light" was paired with "Born in the U.S.A." we pretty much know from the A-side's similar line that his pa's prediction is more naivete than optimism, but I somehow suspect we'd realize that even if we'd listened to the B-side first.
 

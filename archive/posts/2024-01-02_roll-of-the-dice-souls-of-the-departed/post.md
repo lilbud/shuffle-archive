@@ -2,17 +2,17 @@ Even when Bruce is happiest with his lot in life, he grapples with the systemic 
 
 There's probably no better example of this duality at work in his music than "Souls of the Departed."
 
-"Souls of the Departed" sticks out like a sore thumb on the otherwise bright and shiny *Lucky Town*. (Yes, there's also "[The Big Muddy](https://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/)," but that song is more cautionary tale than personal confession.) It's overtly political and deeply unsettling, a far cry from the romantic love songs and self-deprecating humor that characterizes the rest of the album.
+"Souls of the Departed" sticks out like a sore thumb on the otherwise bright and shiny *Lucky Town*. (Yes, there's also "[The Big Muddy](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md)," but that song is more cautionary tale than personal confession.) It's overtly political and deeply unsettling, a far cry from the romantic love songs and self-deprecating humor that characterizes the rest of the album.
 
 Let's take a listen, and then we'll break it down:
 
 [Watch on Youtube: Souls of the Departed](https://www.youtube.com/watch?v=2t-81cQv5f8)
 
-The first thing–literally–that we notice about "Souls of the Departed" is that its musical backbone is virtually copied and pasted from the album's opening track, "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)." That's almost certainly intentional: although "[My Beautiful Reward](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)" serves as the album's epilogue, "Souls of the Departed" functions as the album's true closer, and as such "Better Days" and "Souls of the Departed" serve as bookends, mirror images–the first a confession of contentment and the last a confession of complicity.
+The first thing–literally–that we notice about "Souls of the Departed" is that its musical backbone is virtually copied and pasted from the album's opening track, "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)." That's almost certainly intentional: although "[My Beautiful Reward](../2023-02-19_roll-of-the-dice-my-beautiful-reward/post.md)" serves as the album's epilogue, "Souls of the Departed" functions as the album's true closer, and as such "Better Days" and "Souls of the Departed" serve as bookends, mirror images–the first a confession of contentment and the last a confession of complicity.
 
 Sonically, "Souls of the Departed" is as angry a rocker as the lyrics demand, so it's a shocker when we find out that the song is a *solo track–*Bruce plays every instrument that we hear except for Gary Mallaber's drums.
 
-Lyrically, the song is a triptych, a series of vignettes in the vein of "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)." We start in a far-away Iraqi battlefield, travel back to the mean streets of Compton, and finally end up in little Evan Springsteen's bedroom, a setting so unexpectedly intimate that we're completely unprepared for it after the geopolitical scale of the first two verses.
+Lyrically, the song is a triptych, a series of vignettes in the vein of "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)." We start in a far-away Iraqi battlefield, travel back to the mean streets of Compton, and finally end up in little Evan Springsteen's bedroom, a setting so unexpectedly intimate that we're completely unprepared for it after the geopolitical scale of the first two verses.
 
 > *On the road to Basra stood young Lieutenant Jimmy Bly*<br>
 > *Detailed to go through the clothes of the soldiers who died*<br>
@@ -73,7 +73,7 @@ With so much care and control exercised over the content and sound of the song, 
 
 "Souls of the Departed" was a nightly staple during both World Tour 1992 and World Tour 1993, and as is often the case, the song grew in power as the tour progressed and the band made the song their own. A few of these performances were captured professionally on video, so we can fully appreciate the power of the performance.
 
-Here are two of my favorites: first, from Bruce's appearance on *MTV Unplugged* (for which he famously refused to stay unplugged). A foreboding "[Star-Spangled Banner](https://estreetshuffle.com/index.php/2021/01/20/cover-me-the-star-spangled-banner/)" serves as the lead-in, fading out as Bruce begins the song accompanied only by a soft drone and barely perceptible percussion. The band explodes into action following the first chorus but recedes at the critically intimate final verse.
+Here are two of my favorites: first, from Bruce's appearance on *MTV Unplugged* (for which he famously refused to stay unplugged). A foreboding "[Star-Spangled Banner](../2021-01-20_cover-me-the-star-spangled-banner/post.md)" serves as the lead-in, fading out as Bruce begins the song accompanied only by a soft drone and barely perceptible percussion. The band explodes into action following the first chorus but recedes at the critically intimate final verse.
 
 [Watch on Youtube: Bruce Springsteen | Souls Of The Departed - Los Angeles - 22/09/1992](https://www.youtube.com/watch?v=UKqNP3dbF2g)
 

@@ -1,6 +1,6 @@
 Singer-songwriter David Gray stopped by the BBC Radio 2 studio recently to celebrate the 20th anniversary of his *White Ladder* album.
 
-Gray played a few songs from his milestone album live on the air, and he added a special cover as well: Bruce's award-winning "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)." It's a quiet performance that feels unplanned, and it was captured in terrific quality by the studio crew.
+Gray played a few songs from his milestone album live on the air, and he added a special cover as well: Bruce's award-winning "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)." It's a quiet performance that feels unplanned, and it was captured in terrific quality by the studio crew.
 
 [Watch on Youtube: David Gray - Streets of Philadelphia (Bruce Springsteen cover) on Radio 2 Breakfast](https://www.youtube.com/watch?v=cs6agm-IZEw)
 

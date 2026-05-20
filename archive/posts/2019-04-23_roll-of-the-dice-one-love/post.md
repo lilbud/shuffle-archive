@@ -1,24 +1,24 @@
-Bruce's recording sessions for what would become *Born in the U.S.A.* spanned more than two years. "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" (recorded in January, 1982) would end up as the earliest recorded song on the album; "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" would complete the album when it was recorded almost 25 months later.
+Bruce's recording sessions for what would become *Born in the U.S.A.* spanned more than two years. "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" (recorded in January, 1982) would end up as the earliest recorded song on the album; "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" would complete the album when it was recorded almost 25 months later.
 
 By the halfway mark in early 1983, Bruce had already written, recorded, and assembled enough material to release as an album–and he came fairly close to doing so, under a working title of *Murder Incorporated.*
 
 The track list is fascinating–it includes half of the songs that would eventually comprise *Born in the U.S.A.*, but it also included a handful of *very* strong contenders that have become fan favorites since their eventual release on *Greatest Hits* and *Tracks* years later:
 
-1. [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
-2. [Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)
-3. [Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)
+1. [Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)
+2. [Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)
+3. [Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)
 4. Glory Days
 5. This Hard Land
-6. [My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)
-7. [Johnny Bye Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)
-8. [Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)
-9. [I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)
-10. [Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
-11. [I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
+6. [My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)
+7. [Johnny Bye Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)
+8. [Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)
+9. [I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)
+10. [Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)
+11. [I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)
 
 What an album that would have been!
 
-Bruce was so far along in planning the *Murder Incorporated* album, in fact, that he even had a handful of B-sides selected for the album's first five singles. Those B-sides included two songs Bruce would eventually debut during the Born in the U.S.A. Tour ("Sugarland" and "Follow That Dream"), along with three others that still have yet to see the light of day: "[Don't Back Down](https://estreetshuffle.com/index.php/2022/01/06/roll-of-the-dice-dont-back-down/)," "[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)," and "One Love."
+Bruce was so far along in planning the *Murder Incorporated* album, in fact, that he even had a handful of B-sides selected for the album's first five singles. Those B-sides included two songs Bruce would eventually debut during the Born in the U.S.A. Tour ("Sugarland" and "Follow That Dream"), along with three others that still have yet to see the light of day: "[Don't Back Down](../2022-01-06_roll-of-the-dice-dont-back-down/post.md)," "[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)," and "One Love."
 
 When I wrote about "[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)" last spring, I wasn't very kind in my assessment. "One Love" is better (faint praise that may be), but it still suffers from an overly simple conceit, a lack of imagination, and Bruce's newfound fascination with drum machines. Take a listen:
 

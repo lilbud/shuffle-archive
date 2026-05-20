@@ -2,7 +2,7 @@ We've examined a lot of Bruce's unfinished, never-released home demos on this bl
 
 But today's roll of the dice is different: it's a song that dates back to the earliest period of the Born in the U.S.A. sessions, and even in its rough, unfinished, acoustic demo form, one can't help but immediately sense that "Your Love Is All Around Me" should have been destined for classic Springsteen status.
 
-Sporting a unique concept that Bruce wouldn't revisit until "[You're Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)," an ironic hook, and an extended vocal lead-out riff that makes it clear that Bruce sensed its live performance potential even then, we're forced to wonder: why in the world did Bruce abandon it?
+Sporting a unique concept that Bruce wouldn't revisit until "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)," an ironic hook, and an extended vocal lead-out riff that makes it clear that Bruce sensed its live performance potential even then, we're forced to wonder: why in the world did Bruce abandon it?
 
 Take a listen to this shoulda-been classic:
 
@@ -22,7 +22,7 @@ Bruce doesn't waste any time establishing the song's theme: the first verse soun
 > *Your love is all around me now*
 > *Around me now, around me now*
 
-When that first chorus comes in, we almost have to laugh: what would sound like a happy-in-love hook if quoted out of context is instead revealed to be the torment of a haunted husband who can't escape the visible reminders of an ex-wife who abandoned him. In fact, "Your Love Is All Around Me" sounds very much like a cross between "You're Missing" and "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)."
+When that first chorus comes in, we almost have to laugh: what would sound like a happy-in-love hook if quoted out of context is instead revealed to be the torment of a haunted husband who can't escape the visible reminders of an ex-wife who abandoned him. In fact, "Your Love Is All Around Me" sounds very much like a cross between "You're Missing" and "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)."
 
 In the second verse, we learn the reason why our narrator can't escape his ghost: he simply can't bring himself to toss the only reminders he has left of the love he so desperately wants to cling to:
 

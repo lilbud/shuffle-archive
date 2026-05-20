@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/33928903008_7b91ee25b6_o.jpg.webp)
 
-**1980:** A special Halloween show at the Los Angeles Memorial Sports Arena, with Bruce entering the stage in a coffin chased by ghosts and opening the show with a one-off of “[Haunted House](https://estreetshuffle.com/index.php/2021/10/30/cover-me-haunted-house/).” Special moments abound in this show: the live debut of “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)” (in an acoustic arrangement, no less), the premiere of “[Out of Limits](https://estreetshuffle.com/index.php/2021/10/14/cover-me-out-of-limits/)” and the tour premiere of “[Growin’ Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)”<br>
+**1980:** A special Halloween show at the Los Angeles Memorial Sports Arena, with Bruce entering the stage in a coffin chased by ghosts and opening the show with a one-off of “[Haunted House](../2021-10-30_cover-me-haunted-house/post.md).” Special moments abound in this show: the live debut of “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” (in an acoustic arrangement, no less), the premiere of “[Out of Limits](../2021-10-14_cover-me-out-of-limits/post.md)” and the tour premiere of “[Growin’ Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)”<br>
 
 [Watch on Youtube: Bruce Springsteen - HAUNTED HOUSE 1980 (audio)](https://www.youtube.com/watch?v=UsOUjoYIy8s)
 
@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47405496152_2e55f8097c_o.jpg.webp)
 
-**1984:** Back at the Los Angeles Sports Arena for another Halloween show, Bruce opens the show with the tour premiere of “[High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)” and plays a gorgeous, moving “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/).”<br>
+**1984:** Back at the Los Angeles Sports Arena for another Halloween show, Bruce opens the show with the tour premiere of “[High School Confidential](../2020-05-04_cover-me-high-school-confidential/post.md)” and plays a gorgeous, moving “[My Father’s House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md).”<br>
 
 [Watch on Youtube: Los Angeles 31/10/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zBZa4jga5O6SpQaGoKBkVdT)
 
@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Simi_Valley_Star_1984_11_02_21-scaled.jpg.webp)
 
-**1987:** Forbes Magazine lists Bruce as the third highest-earning American entertainer at $56 million. That night, Bruce and the E Street Band (minus Nils and Clarence) play at McLoone’s Rum Runner in Sea Bright, where they play “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)” and an acoustic “Born to Run” for the very first time.<br>
+**1987:** Forbes Magazine lists Bruce as the third highest-earning American entertainer at $56 million. That night, Bruce and the E Street Band (minus Nils and Clarence) play at McLoone’s Rum Runner in Sea Bright, where they play “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” “[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)” and an acoustic “Born to Run” for the very first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bSuRxEka)
 
@@ -52,13 +52,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1992-10-31b.png.webp)
 
-**2008:** Bruce releases a new song on his website: “[A Night with the Jersey Devil](https://estreetshuffle.com/index.php/2019/05/14/roll-of-the-dice-a-night-with-the-jersey-devil/).”<br>
+**2008:** Bruce releases a new song on his website: “[A Night with the Jersey Devil](../2019-05-14_roll-of-the-dice-a-night-with-the-jersey-devil/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - A Night with the Jersey Devil (Official Video)](https://www.youtube.com/watch?v=l6leNRGhOqA)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2008-10-31.png.webp)
 
-**2012:** Four years to the day after its release, Bruce performs “A Night With the Jersey Devil” for the very first time, opening his Wrecking Ball show with it in Rochester. Lucky fans get another live debut as well–a cover of “[Monster Mash](https://estreetshuffle.com/index.php/2019/10/29/cover-me-monster-mash/)” to observe the occasion.<br>
+**2012:** Four years to the day after its release, Bruce performs “A Night With the Jersey Devil” for the very first time, opening his Wrecking Ball show with it in Rochester. Lucky fans get another live debut as well–a cover of “[Monster Mash](../2019-10-29_cover-me-monster-mash/post.md)” to observe the occasion.<br>
 
 [Watch on Youtube: Bruce Springsteen - Night with the Jersey Devil - Rochester, NY 10-31-12](https://www.youtube.com/watch?v=I-cRhE4diyk)
 

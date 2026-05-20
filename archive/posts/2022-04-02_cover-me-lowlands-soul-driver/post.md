@@ -1,6 +1,6 @@
 Let's continue our spotlight series on covers of lesser-known Springsteen songs by turning our attention to *Human Touch* as we celebrate its 30th anniversary this week.
 
-*Human Touch* is full of overlooked gems, largely (I would argue) because its heavy-handed production tends to overpower the songs themselves. And on an album of deep cuts, "[Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)" is one of the deepest.
+*Human Touch* is full of overlooked gems, largely (I would argue) because its heavy-handed production tends to overpower the songs themselves. And on an album of deep cuts, "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)" is one of the deepest.
 
 That didn't stop Italian roots/rock band Lowlands from covering it, though. Early in their decade-long career, they contributed a terrific version of it for the Italian tribute album *For You 2.*
 

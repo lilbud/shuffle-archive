@@ -2,7 +2,7 @@
 
 If you can get past lyrics that earned Bruce his first "contains adult imagery" explicit CD warning label, you'll find one of Bruce's most beautiful songs and easily his most poignant.
 
-"Reno" has ranked among my top ten Springsteen songs since the first time I heard it, and it's one of only three of Bruce's songs that reduce me to tears each and every time I hear it. ("[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" and "[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)" are the other two, the latter of which is close to the same song as "Reno.")
+"Reno" has ranked among my top ten Springsteen songs since the first time I heard it, and it's one of only three of Bruce's songs that reduce me to tears each and every time I hear it. ("[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)" and "[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" are the other two, the latter of which is close to the same song as "Reno.")
 
 Everything about "Reno" is perfect–on the album track, at least. Bruce's live performances of the song, while admirable, have never matched the studio recording, because the music and studio production are inseparable from Bruce's powerful lyrics.
 
@@ -12,7 +12,7 @@ Let's take a close listen.
 
 There's a lot to unpack here: "Reno" is beautifully layered and meticulously detailed. It's about as finely crafted a song as Bruce has ever written, rivaled only by much of *Western Stars*.
 
-Before we jump into the lyrics, go back and take a close listen to the instrumentation, at least in the introduction. Then compare it with "[Maria's Bed](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/)," which follows three songs later on the same album. Notice the similarities, not in melody but in sound: this is important, and we'll address it directly in a little while.
+Before we jump into the lyrics, go back and take a close listen to the instrumentation, at least in the introduction. Then compare it with "[Maria's Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md)," which follows three songs later on the same album. Notice the similarities, not in melody but in sound: this is important, and we'll address it directly in a little while.
 
 "Reno" begins in a hotel room, although we don't learn this until the end of the first verse. Pay attention to the way Bruce parcels out exposition, because the master is at work:
 
@@ -64,7 +64,7 @@ Bruce only mentions Maria by name once, which is all he really had to do in orde
 
 Or did we?
 
-Go back and take a close listen to "Maria's Bed" again. Like I wrote in [this essay](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/) a couple of years ago, I believe "Maria's Bed" and "Reno" are two halves of the same story, prequel and sequel. Not only do the two songs work perfectly together, not only do they feature the same love interest, they even feature similar instrumentation. "Maria's Bed" may be jaunty compared with the aching "Reno," but they sound similar, as if the same musicians are playing the same instruments (they're not). That's probably not coincidental.
+Go back and take a close listen to "Maria's Bed" again. Like I wrote in [this essay](../2018-11-16_roll-of-the-dice-marias-bed/post.md) a couple of years ago, I believe "Maria's Bed" and "Reno" are two halves of the same story, prequel and sequel. Not only do the two songs work perfectly together, not only do they feature the same love interest, they even feature similar instrumentation. "Maria's Bed" may be jaunty compared with the aching "Reno," but they sound similar, as if the same musicians are playing the same instruments (they're not). That's probably not coincidental.
 
 The core backing track for "Reno" is believed to date back to the late 1990s; I'm pretty certain that "Maria's Bed" hails from that era as well–it shares too much lyrical DNA with "Further On (Up the Road)" to not have originated in the same period.
 

@@ -68,7 +68,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sRYp2YfbKvA)
 
-**2013:** Monchengladbach gets one of the most surprising setlists of the Wrecking Ball Tour when Bruce opens with "Jackson Cage" and plays the tour premieres of three very rare songs: "One Way Street," "[Man's](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)J[ob](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)," and "Shake, Rattle and Roll." In the encores, Jay Weinberg makes a guest appearance on "Radio Nowhere."<br>
+**2013:** Monchengladbach gets one of the most surprising setlists of the Wrecking Ball Tour when Bruce opens with "Jackson Cage" and plays the tour premieres of three very rare songs: "One Way Street," "[Man's](../2022-05-30_roll-of-the-dice-mans-job/post.md)J[ob](../2022-05-30_roll-of-the-dice-mans-job/post.md)," and "Shake, Rattle and Roll." In the encores, Jay Weinberg makes a guest appearance on "Radio Nowhere."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uTrcxhY48cM)
 

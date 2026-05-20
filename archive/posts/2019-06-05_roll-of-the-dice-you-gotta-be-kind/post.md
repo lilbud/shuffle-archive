@@ -21,9 +21,9 @@ The second verse doesn't really fit with the first:
 > *They hurt the others*<br>
 > *And they don't live on blood*<br>
 
-The reference to "Stockton" and acting "rough and tough" leads me to believe that this verse is borrowed from "[Stockton Boys](https://estreetshuffle.com/index.php/2019/01/10/roll-of-the-dice-stockton-boys/)" (which was recorded around the same time) for the purpose of working out the song (if one can borrow lines from a song that doesn't exist yet). It was probably never intended for the final product at all.
+The reference to "Stockton" and acting "rough and tough" leads me to believe that this verse is borrowed from "[Stockton Boys](../2019-01-10_roll-of-the-dice-stockton-boys/post.md)" (which was recorded around the same time) for the purpose of working out the song (if one can borrow lines from a song that doesn't exist yet). It was probably never intended for the final product at all.
 
-Bruce is known to fiddle around with lyrics, melodies and arrangements independently of each other. In the process, songs cross-pollinate, evolve, and sometimes are abandoned. This is one of the abandoned–I don't believe I've seen traces of either lyrics or melody pop up anywhere else in Bruce's work (other than an early version of "[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)" that never saw the light of day either), so we may never know what this song would have become if it had made it to vinyl.
+Bruce is known to fiddle around with lyrics, melodies and arrangements independently of each other. In the process, songs cross-pollinate, evolve, and sometimes are abandoned. This is one of the abandoned–I don't believe I've seen traces of either lyrics or melody pop up anywhere else in Bruce's work (other than an early version of "[Whitetown](../2018-04-19_roll-of-the-dice-whitetown/post.md)" that never saw the light of day either), so we may never know what this song would have become if it had made it to vinyl.
 
 **You Gotta Be Kind**<br>
 **Recorded** 1980 (demo)<br>

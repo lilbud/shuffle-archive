@@ -38,7 +38,7 @@ And that's why it was so maddening that Bruce refused to play it for the longest
 
 Bruce has referred to it more than once as one of his worst songs. He called it "the stupidest song we've ever recorded" before playing it by request (for the firs time in 28 years) in Richmond, and (sarcastically) "a masterpiece" before playing it during the full River album show in New York City in 2009. Thankfully, the 2016 River tour forced him to reclaim the song in order to fulfill his promise of start-to-finish complete album performances, and he seems to have made his peace with it.
 
-Just like with "[All or Nothin' at All,](https://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)" the song comes alive in concert and is a *ton* of fun–easily one of the highlights of the recent River anniversary tour.
+Just like with "[All or Nothin' at All,](../2018-01-30_roll-of-the-dice-all-or-nothing-at-all/post.md)" the song comes alive in concert and is a *ton* of fun–easily one of the highlights of the recent River anniversary tour.
 
 Here's an early performance from the 1980 River tour…
 

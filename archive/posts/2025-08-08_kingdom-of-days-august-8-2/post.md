@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1974-08-08.jpg.webp)
 
-**1975:** "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" is played for the first time ever, as the Born to Run Tour begins to pick up steam in Akron, Ohio. "[Then She Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)" also makes its tour premiere tonight.<br>
+**1975:** "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" is played for the first time ever, as the Born to Run Tour begins to pick up steam in Akron, Ohio. "[Then She Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)" also makes its tour premiere tonight.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D1aamrTq)
 
@@ -22,7 +22,7 @@
 
 **1978:** A planned Darkness Tour stop at Ryserson University in Toronto is cancelled.<br>
 
-**1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for seven songs, including a work-in-progress (and never released) "On the Prowl" and covers of "[Ready Teddy,](https://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)" "[Come On, Let's Go,](https://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)" and "[Come On Over to My Place](https://estreetshuffle.com/index.php/2018/04/12/matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/)."<br>
+**1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for seven songs, including a work-in-progress (and never released) "On the Prowl" and covers of "[Ready Teddy,](../2018-02-01_cover-me-ready-teddy/post.md)" "[Come On, Let's Go,](../2018-10-19_cover-me-come-on-lets-go/post.md)" and "[Come On Over to My Place](../2018-04-12_matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/GZQFnl9z)
 

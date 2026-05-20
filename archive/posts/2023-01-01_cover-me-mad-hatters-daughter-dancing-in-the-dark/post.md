@@ -1,4 +1,4 @@
-"[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" has been enjoying a bit of a renaissance these past couple of years.
+"[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" has been enjoying a bit of a renaissance these past couple of years.
 
 Once largely dismissed as a very eighties pop hit (which in fairness, it was), it seems that artists from all sorts of places and genres have lately dialed into the cry of loneliness and need for connection that lurks at the heart of Bruce's greatest hit.
 

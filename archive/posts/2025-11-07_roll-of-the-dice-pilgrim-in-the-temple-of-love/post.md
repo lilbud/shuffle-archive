@@ -12,7 +12,7 @@ For the unfamiliar, "Pilgrim in the Temple of Love" holds the distinction of bei
 
 Composed in 1996 and performed throughout that year on The Ghost of Tom Joad Tour, "Pilgrim in the Temple of Love" is the story of a chance meeting between Bruce and Santa in the unlikeliest of places: a New Jersey strip club.
 
-Now given St. Bruce's public persona, fans might find this a difficult premise to swallow. But while it may border on the apocryphal, "Pilgrim in the Temple of Love" has an air of authenticity about it, similar to "[Local Hero](https://estreetshuffle.com/index.php/2019/01/17/roll-of-the-dice-local-hero/)," with which "Pilgrim" shares its image-puncturing theme.
+Now given St. Bruce's public persona, fans might find this a difficult premise to swallow. But while it may border on the apocryphal, "Pilgrim in the Temple of Love" has an air of authenticity about it, similar to "[Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)," with which "Pilgrim" shares its image-puncturing theme.
 
 For Bruce actually is known to be an aficionado of the naked art scene–he's admitted as much on occasion, most notably on his *VH1 Storytellers* appearance in 2005.
 
@@ -67,7 +67,7 @@ Breaking the rhyme scheme that way is just the first of several ways Bruce attem
 > *But five nights a week she dances for slobs and idiots like this*<br>
 > *Uh, present company excluded*<br>
 
-We arrive at our first chorus now, but this is also an opportune time to point out what fans of The Ghost of Tom Joad Tour probably already realize: "Pilgrim in the Temple of Love" shares its melody with another song Bruce wrote and performed on that tour, "[Sell It and They Will Come](https://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)." Bruce alternated between the two songs for much of the tour, treating them both as trifles. "Pilgrim," however is the stronger song. (Bruce would actually graft the melody onto a *third* song in 2007, but [that one](https://estreetshuffle.com/index.php/2019/06/23/roll-of-the-dice-yankees-win/) was a true one-off.)
+We arrive at our first chorus now, but this is also an opportune time to point out what fans of The Ghost of Tom Joad Tour probably already realize: "Pilgrim in the Temple of Love" shares its melody with another song Bruce wrote and performed on that tour, "[Sell It and They Will Come](../2019-02-09_roll-of-the-dice-sell-it-and-they-will-come/post.md)." Bruce alternated between the two songs for much of the tour, treating them both as trifles. "Pilgrim," however is the stronger song. (Bruce would actually graft the melody onto a *third* song in 2007, but [that one](../2019-06-23_roll-of-the-dice-yankees-win/post.md) was a true one-off.)
 
 > *On Donner, on Dancer, on Comet, on Blitzen*<br>
 > *I'm lost in the valley of the super-vixens*<br>

@@ -8,11 +8,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg.webp)
 
-**1979:** Bruce works on "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" during a recording session at The Power Station in New York City.<br>
+**1979:** Bruce works on "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" during a recording session at The Power Station in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen Ramrod #1](https://www.youtube.com/watch?v=XwJp0FaZNG4)
 
-**1982:** Bruce joins Jackson Browne on stage for "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and "[Running on Empty](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)" in New York's Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man's West in Red Bank.<br>
+**1982:** Bruce joins Jackson Browne on stage for "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[Running on Empty](../2021-03-24_matr-jackson-browne-and-bruce-springsteen-running-on-empty/post.md)" in New York's Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man's West in Red Bank.<br>
 
 [Watch on Youtube: Bruce Springsteen & Jackson Browne - The Promised Land](https://www.youtube.com/watch?v=ONG5UOwbpu4)
 
@@ -32,7 +32,7 @@
 
 **1988:** Night Two in Turin on the Tunnel of Love Tour is cancelled due to low ticket sales(!)<br>
 
-**2000:** The Reunion Tour's legendary ten-night final stand kicks off at Madison Square Garden with the world premiere of "[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)." Despite the controversy that preceded the show and the mixed audience reaction tonight, Bruce plays "American Skin (41 Shots)" at this and each remaining show. You can hear just how strong the audience reaction was below.<br>
+**2000:** The Reunion Tour's legendary ten-night final stand kicks off at Madison Square Garden with the world premiere of "[Code of Silence](../2018-08-27_codeofsilence/post.md)." Despite the controversy that preceded the show and the mixed audience reaction tonight, Bruce plays "American Skin (41 Shots)" at this and each remaining show. You can hear just how strong the audience reaction was below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1stOL4ZJ)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2000-06-12.jpg.webp)
 
-**2003:** Wolfgang Niedecken guest-stars on "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" at Bruce's Rising show in Hamburg.<br>
+**2003:** Wolfgang Niedecken guest-stars on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" at Bruce's Rising show in Hamburg.<br>
 
 [Watch on Youtube: Born in the USA 12.06.2003](https://www.youtube.com/watch?v=bDfAzjmjOdc)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2011-06-12.jpg.webp)
 
-**2024:** World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering "[Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)" and "Rockin' All Over the World."<br>
+**2024:** World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering "[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)" and "Rockin' All Over the World."<br>
 
 [Watch on Youtube: Frankie fell in love - Bruce Springsteen Madrid 12 June 2024](https://www.youtube.com/watch?v=o6m7GqNENNU)
 

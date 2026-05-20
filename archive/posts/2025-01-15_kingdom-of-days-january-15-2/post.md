@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - The Rising (Live In Barcelona)](https://www.youtube.com/watch?v=A9LpsP0goJ8)
 
-**2011:** Bruce makes a traditional "surprise" appearance at Light of Day in Asbury Park, joining Jesse Malin for "[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)," Willie Nile for "[Heaven Help the Lonely,](https://estreetshuffle.com/index.php/2018/12/29/matr-willie-nile-and-bruce-springsteen-heaven-help-the-lonely/)" Alejandro Escovedo for "[Always a Friend](https://estreetshuffle.com/index.php/2020/08/31/matr-alejandro-escovedo-and-bruce-springsteen-always-a-friend/)," before launching into his own acoustic mini-set and a full set with Joe Grushecky and the Houserockers.<br>
+**2011:** Bruce makes a traditional "surprise" appearance at Light of Day in Asbury Park, joining Jesse Malin for "[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md)," Willie Nile for "[Heaven Help the Lonely,](../2018-12-29_matr-willie-nile-and-bruce-springsteen-heaven-help-the-lonely/post.md)" Alejandro Escovedo for "[Always a Friend](../2020-08-31_matr-alejandro-escovedo-and-bruce-springsteen-always-a-friend/post.md)," before launching into his own acoustic mini-set and a full set with Joe Grushecky and the Houserockers.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/sZqestDr)
 

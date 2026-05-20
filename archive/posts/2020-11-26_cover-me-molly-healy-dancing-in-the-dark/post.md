@@ -1,4 +1,4 @@
-Molly Healey is a multi-talented looping violinist, cellist, and guitarist, and she puts two of those talents (along with a terrific voice) to use on her cover of Bruce Springsteen's "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."
+Molly Healey is a multi-talented looping violinist, cellist, and guitarist, and she puts two of those talents (along with a terrific voice) to use on her cover of Bruce Springsteen's "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."
 
 I know that "Dancing in the Dark" covers are a dime a dozen these days, but trust me: you haven't seen or heard one like Molly's before.
 

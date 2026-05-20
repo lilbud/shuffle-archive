@@ -4,7 +4,7 @@ Billy Joel kicked off his 1976 *Turnstiles* album with "Say Goodbye to Hollywood
 
 [Watch on Youtube: Say Goodbye To Hollywood - Billy Joel](https://www.youtube.com/watch?v=47PtUvHIQpk)
 
-…with Spector's 1963 hit, "[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)."
+…with Spector's 1963 hit, "[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md)."
 
 [Watch on Youtube: The Ronettes - Be My Baby (Official Audio)](https://www.youtube.com/watch?v=jSPpbOGnFgk)
 

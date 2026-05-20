@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1989-06-09.jpg.webp)
 
-**2009:** Norwegian fans enjoy the tour premiere of “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)” at the first of two Working on a Dream shows in Bergen.<br>
+**2009:** Norwegian fans enjoy the tour premiere of “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)” at the first of two Working on a Dream shows in Bergen.<br>
 
 [Watch on Youtube: Bruce Springsteen - Intro & Badlands (Live Norway Bergen 2009)](https://www.youtube.com/watch?v=-qv74yl6Ye0)
 

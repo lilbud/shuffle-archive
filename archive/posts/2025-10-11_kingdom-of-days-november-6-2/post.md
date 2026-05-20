@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Interview with Richard Neer at WNEW-FM, 1976-11-06](https://www.youtube.com/watch?v=Q3KWGnZ_Nas)
 
-**1983:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for “[It’s All Over Now](https://estreetshuffle.com/index.php/2021/09/02/matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/).”<br>
+**1983:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for “[It’s All Over Now](../2021-09-02_matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/post.md).”<br>
 
 **1987:** Bruce joins The Fabulous Grease Band on stage at a concert at Rumson Country Day School. The set was recorded off the soundboard and is a great listen.<br>
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Bruce Springsteen, "Spirit in the Night" - Toronto, 1992-11-06](https://www.youtube.com/watch?v=lwaQu6w9mWE)
 
-**1999:** Bruce plays his first-ever show in North Dakota, where “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” makes its U.S. Reunion Tour premiere.<br>
+**1999:** Bruce plays his first-ever show in North Dakota, where “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” makes its U.S. Reunion Tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen - "My Hometown" Fargo, 1999-11-06](https://www.youtube.com/watch?v=mm3dke6edD4)
 
@@ -66,7 +66,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2004-11-06.png.webp)
 
-**2006:** The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in the customary guest-star slot on “[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/).”<br>
+**2006:** The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in the customary guest-star slot on “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cBIpRIw1)
 
@@ -98,6 +98,6 @@
 
 [Watch on Youtube: Bruce Springsteen Surprises 'Stand Up for Heroes' Audience](https://www.youtube.com/watch?v=oVySuoipOSU)
 
-**2024:** On a tragic U.S. Election Day, Bruce opens his show in Toronto with defiant performances of “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” and “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).”<br>
+**2024:** On a tragic U.S. Election Day, Bruce opens his show in Toronto with defiant performances of “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” and “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen](https://www.youtube.com/watch?v=AGOle36ZEaI)

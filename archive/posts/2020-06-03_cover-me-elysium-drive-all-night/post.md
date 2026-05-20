@@ -2,7 +2,7 @@ A good cover can make you hear a favorite song in a new light. Here's a powerful
 
 Elysium is an Irish cover band out of Wexford with a wide-ranging repertoire of acoustically arranged hits and deep cuts, featuring beautiful guitar melodies paired with gorgeous harmonies.
 
-A few weeks ago, they released their poignant, mesmerizing cover of Bruce's "[Drive All Night.](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" By the end of it, I was in tears.
+A few weeks ago, they released their poignant, mesmerizing cover of Bruce's "[Drive All Night.](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" By the end of it, I was in tears.
 
 [Watch on Youtube: Drive All Night by Elysium](https://www.youtube.com/watch?v=nSjfLsBerj0)
 

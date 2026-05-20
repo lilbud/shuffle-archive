@@ -22,7 +22,7 @@ Bruce doesn't waste any time establishing the song's theme: the first verse soun
 > *Your love is all around me now*<br>
 > *Around me now, around me now*<br>
 
-When that first chorus comes in, we almost have to laugh: what would sound like a happy-in-love hook if quoted out of context is instead revealed to be the torment of a haunted husband who can't escape the visible reminders of an ex-wife who abandoned him. In fact, "Your Love Is All Around Me" sounds very much like a cross between "You're Missing" and "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)."
+When that first chorus comes in, we almost have to laugh: what would sound like a happy-in-love hook if quoted out of context is instead revealed to be the torment of a haunted husband who can't escape the visible reminders of an ex-wife who abandoned him. In fact, "Your Love Is All Around Me" sounds very much like a cross between "You're Missing" and "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)."
 
 In the second verse, we learn the reason why our narrator can't escape his ghost: he simply can't bring himself to toss the only reminders he has left of the love he so desperately wants to cling to:
 

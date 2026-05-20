@@ -1,8 +1,8 @@
 Bruce Springsteen his covered the work of Woody Guthrie time and again.
 
-"[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)" was a River Tour staple; "[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/)" was a featured encore throughout the Working on a Dream Tour.
+"[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)" was a River Tour staple; "[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/)" was a featured encore throughout the Working on a Dream Tour.
 
-Bruce has covered folk classics like "[Lonesome Valley](https://estreetshuffle.com/index.php/2018/02/08/cover-me-woody-guthries-lonesome-valley/)" and "[Deportee (Plane Wreck at Los Gatos)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" in concert, and he's released a studio recording of "[I Ain't Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)."
+Bruce has covered folk classics like "[Lonesome Valley](../2018-02-08_cover-me-woody-guthries-lonesome-valley/post.md)" and "[Deportee (Plane Wreck at Los Gatos)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" in concert, and he's released a studio recording of "[I Ain't Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)."
 
 But as soon as Bruce became a parent, we knew it was only a matter of time before Guthrie's children's songs showed up in Bruce's set list, too. And really: was there ever any doubt that Woody's "Riding in My Car" (also known as "Car Song") would be the one that grabbed Bruce's attention?
 

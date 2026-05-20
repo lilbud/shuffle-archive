@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/WyvLEBBw)
 
-**1984:** As “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” moves up the charts, *American Top 40* host Casey Kasem lauds Bruce’s work ethic.<br>
+**1984:** As “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” moves up the charts, *American Top 40* host Casey Kasem lauds Bruce’s work ethic.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3](https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3)
 

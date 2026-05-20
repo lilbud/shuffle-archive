@@ -1,10 +1,10 @@
 Ever since Bruce released *Tracks* more than twenty years ago, we've become used to Bruce rescuing, tweaking, finishing, and releasing outtakes from the vault.
 
-Sometimes the changes are subtle, like when he added a horn overlay on to "[Ain't Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)" or surgically edited the bootleg of "[Mr. Outside](https://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/)." Sometimes they're jarring, like the modern vocals grafted onto the end of "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)." For *18 Tracks*, Bruce completely re-recorded "The Promise" rather than release the original recording. (We'd have to wait another decade or so to hear the original.)
+Sometimes the changes are subtle, like when he added a horn overlay on to "[Ain't Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)" or surgically edited the bootleg of "[Mr. Outside](../2019-06-10_roll-of-the-dice-mr-outside/post.md)." Sometimes they're jarring, like the modern vocals grafted onto the end of "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md)." For *18 Tracks*, Bruce completely re-recorded "The Promise" rather than release the original recording. (We'd have to wait another decade or so to hear the original.)
 
 But "Save My Love" is in a class by itself: an entirely new 2010 recording of a 1976 song that never even made it into the studio. (And calling it a "song" is pretty generous.)
 
-One hot day in the summer of '76, almost a full year before the first recording sessions for what would become [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/), Bruce Springsteen and the E Street Band rehearsed new material at his house.
+One hot day in the summer of '76, almost a full year before the first recording sessions for what would become [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md), Bruce Springsteen and the E Street Band rehearsed new material at his house.
 
 Fortunately, Barry Rebo always seemed to have a video camera with him at the right time and place; thanks to Barry, we have an astoundingly clear video of that rehearsal session, which included a musically finished but lyrically rough song that existed nowhere in Bruce's recording sessions until decades later. Take a look at the can't-believe-they-were-ever-that-young E Street Band:
 
@@ -65,7 +65,7 @@ In the final verse, whatever song is playing on the radio exerts such an intense
 
 ---
 
-Ironically, "Save My Love" made its live debut not with the E Street Band but with Joe Grushecky's band, The Houserockers. At a 15th anniversary show in Pittsburgh for Joe's Bruce-produced [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) album, Bruce premiered his "new" song:
+Ironically, "Save My Love" made its live debut not with the E Street Band but with Joe Grushecky's band, The Houserockers. At a 15th anniversary show in Pittsburgh for Joe's Bruce-produced [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) album, Bruce premiered his "new" song:
 
 [Watch on Youtube: Save My Love - Bruce Springsteen, Pittsburgh, Nov. 4, 2010](https://www.youtube.com/watch?v=ng8d_jYqEKQ)
 
@@ -79,7 +79,7 @@ Although certainly still considered a rarity, "Save My Love" has made a handful 
 
 [Watch on Youtube: Bruce Springsteen Live at Wonder Bar -- Save my Love Asbury Park NJ 07/18/2015](https://www.youtube.com/watch?v=YVqt-El6LDA)
 
-(I was fortunate enough to catch it myself the most recent time Bruce played it, [in Virginia Beach in 2016](https://estreetshuffle.com/index.php/2018/09/05/where-the-band-was-virginia-beach-september-5-2016/).)
+(I was fortunate enough to catch it myself the most recent time Bruce played it, [in Virginia Beach in 2016](../2018-09-05_where-the-band-was-virginia-beach-september-5-2016/post.md).)
 
 [Watch on Youtube: Bruce Springsteen "Save My Love" Virginia Beach 9/5/16](https://www.youtube.com/watch?v=aPFnH2a5eLY)
 

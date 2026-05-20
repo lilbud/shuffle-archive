@@ -1,4 +1,4 @@
-Ask anyone to name Bruce Springsteen's most misunderstood song, and they'll likely answer, "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"
+Ask anyone to name Bruce Springsteen's most misunderstood song, and they'll likely answer, "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
 
 But if you ask me, I'll tell you it's "Iceman."
 
@@ -8,7 +8,7 @@ But if you ask me, I'll tell you it's "Iceman."
 
 Well-known Springsteen scholars call it "spooky" and "unsettling," "chilling" and "mournful," a song of "deep despair." But with due respect to the scholars, "Iceman" is none of those things. At least not lyrically.
 
-"Iceman" is essentially a slower, sparer "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," a song of defiance and persistence in the face of what would seem to anyone like insurmountable odds, a stacked deck, a rigged game of life. To those who listen carefully, "Iceman" is a song of resilience and even optimism.
+"Iceman" is essentially a slower, sparer "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," a song of defiance and persistence in the face of what would seem to anyone like insurmountable odds, a stacked deck, a rigged game of life. To those who listen carefully, "Iceman" is a song of resilience and even optimism.
 
 Bruce actually telegraphs it in his opening verse with a lyric that would show up just weeks later in "Badlands," which end up on the album in place of "Iceman."
 
@@ -34,7 +34,7 @@ That second line above–*and I don't want no piece of this mechanical world*–
 
 With his girl at his side, he's heading for the edge of town, where he'll be on that hill with all that he's got. And yes I'm pulling liberally from the albums that "Iceman" bridges, because the song serves as connective tissue between them.
 
-On *Born to Run*, Bruce's heroes dream of escaping to a better life; on [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/), they learn to make the best of the life they've been given. In "Iceman," our lovers risk it all because they've got nothing to lose. As Bruce puts it:
+On *Born to Run*, Bruce's heroes dream of escaping to a better life; on [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md), they learn to make the best of the life they've been given. In "Iceman," our lovers risk it all because they've got nothing to lose. As Bruce puts it:
 
 > *Well it don't take no nerve when you got nothing to guard*<br>
 > *I got tombstones in my eyes and I'm running real hard*<br>

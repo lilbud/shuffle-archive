@@ -1,4 +1,4 @@
-Before "Rosalita (Come Out Tonight)" and "[Kitty's Back,](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)" before even "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)," there was "Garden State Parkway Blues" — Bruce's prototype for the epic show-stopping, song-changing, band-vamping showcase that brings his main sets to their will-it-ever-end end.
+Before "Rosalita (Come Out Tonight)" and "[Kitty's Back,](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" before even "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," there was "Garden State Parkway Blues" — Bruce's prototype for the epic show-stopping, song-changing, band-vamping showcase that brings his main sets to their will-it-ever-end end.
 
 Because its *such* a long song (thirty freaking minutes!), unrecorded and raw, it's tempting to dismiss "Garden City Parkway Blues" as early self-indulgence or an excuse for an extended jam session.
 
@@ -157,7 +157,7 @@ This is a relatively strong passage, not just for its metaphor, but for the way 
 *Oh some day you're gonna be driving a, a big **Cadillac***
 ***Oh so shiny and black***<br>
 
-I see you, "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)!" Thought you could sneak by under Bruce's breath, didn't you? But no–we caught you, making your first lyrical appearance a full decade before we'd next hear you.
+I see you, "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)!" Thought you could sneak by under Bruce's breath, didn't you? But no–we caught you, making your first lyrical appearance a full decade before we'd next hear you.
 
 > *And you'll be attending all them special business office luncheons*
 > *And have a pretty secretary to sit on your lap*
@@ -167,7 +167,7 @@ I see you, "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/rol
 > *Watch the changing of the guards at Buckingham Palace*
 > *Go on to Sweden, find out what their tanning secret is*
 
-Because we don't have a studio recording to compare it to, it's quite possible that this extended section is a semi-ad-libbed interlude a la "Sad Eyes" in "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)." It would explain the inconsistent rhyming scheme and occasional clumsy lyric ("*Sleeping on the damn cold cement floor, but no place else to sleep"*), as well as the seemingly stream-of-consciousness rambling.
+Because we don't have a studio recording to compare it to, it's quite possible that this extended section is a semi-ad-libbed interlude a la "Sad Eyes" in "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)." It would explain the inconsistent rhyming scheme and occasional clumsy lyric ("*Sleeping on the damn cold cement floor, but no place else to sleep"*), as well as the seemingly stream-of-consciousness rambling.
 
 > *You said you'll do all them things you wanted to do sometime*
 > *Well there's a young cowboy – I always wanted to be a cowboy – lives on the range*

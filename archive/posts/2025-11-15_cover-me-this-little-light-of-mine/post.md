@@ -16,7 +16,7 @@ It endures for a reason: we have it at the ready when the world challenges us to
 
 So it was a perfect candidate for inclusion on Bruce Springsteen's Seeger Sessions Tour, too, although Bruce didn't introduce it until the tour's final leg.
 
-Prior to the final European leg of the tour, Bruce had been closing most of his shows with "[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/)." Over the summer, however, Bruce had debuted and released a new song, "[American Land,](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" which in the autumn became the new show closer, ending each night on an appropriately upbeat and fiery note.
+Prior to the final European leg of the tour, Bruce had been closing most of his shows with "[When the Saints Go Marching In](../2021-03-28_cover-me-when-the-saints-go-marching-in/post.md)." Over the summer, however, Bruce had debuted and released a new song, "[American Land,](../2020-01-10_roll-of-the-dice-american-land/post.md)" which in the autumn became the new show closer, ending each night on an appropriately upbeat and fiery note.
 
 However, Bruce realized he needed a segue between the quiet "Saints" and the defiant "American Land," and "This Little Light of Mine" proved just the ticket, ramping up the energy while bridging the tone. As the final leg progressed, it also grew into a spotlight for the amazing voice of backup singer Cindy Mizelle.
 
@@ -26,7 +26,7 @@ However, Bruce realized he needed a segue between the quiet "Saints" and the def
 
 [Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - This Little Light Of Mine (show start)](https://www.youtube.com/watch?v=QW8yABgfBAc)
 
-After a few outings on the Wrecking Ball Tour, Bruce played "This Little Light of Mine" only once more: at his [second show in Cape Town](https://estreetshuffle.com/index.php/2018/01/28/where-the-band-was-cape-town-january-28-2014/), South Africa on the High Hopes Tour, closing a Sessions-heavy set list with it on the night after Pete Seeger passed away at the age of 94.
+After a few outings on the Wrecking Ball Tour, Bruce played "This Little Light of Mine" only once more: at his [second show in Cape Town](../2018-01-28_where-the-band-was-cape-town-january-28-2014/post.md), South Africa on the High Hopes Tour, closing a Sessions-heavy set list with it on the night after Pete Seeger passed away at the age of 94.
 
 Bruce may not have performed it since, but you can bet it hasn't gone unsung. With all that's going on in the world as of this writing, we can bet that someone, somewhere is singing "This Little Light of Mine" right now.
 

@@ -10,13 +10,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1971-1203.jpg.webp)
 
-**1975:** Bruce and the E Street Band play their second of two nights at Boston’s Music Hall, featuring a marathon twenty-minute(!) “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/).”<br>
+**1975:** Bruce and the E Street Band play their second of two nights at Boston’s Music Hall, featuring a marathon twenty-minute(!) “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - "Kitty's Back" - Boston, 1975-12-03](https://www.youtube.com/watch?v=A1K05Z6w1MI)
 
 [Watch on Youtube: Bruce Springsteen - Boston 12/3/75](https://www.youtube.com/watch?v=FFPOWal1TkM)
 
-**1978:** Bruce and the boys bring the Darkness Tour to Southern Illinois University in Carbondale, where they open with “[High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)” and feature “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” as part of “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for only the second and final time.<br>
+**1978:** Bruce and the boys bring the Darkness Tour to Southern Illinois University in Carbondale, where they open with “[High School Confidential](../2020-05-04_cover-me-high-school-confidential/post.md)” and feature “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” as part of “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for only the second and final time.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Detroit Medley" - Carbondale, 1978-12-03](https://www.youtube.com/watch?v=MoJ2wz8bSU8)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1982-1203.jpg.webp)
 
-**1988:** Bruce debuts two new videos (“[Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)” and “[I Ain’t Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)“) as part of a documentary, *A Vision Shared: A Tribute to Woody Guthrie and Leadbelly.*<br>
+**1988:** Bruce debuts two new videos (“[Vigilante Man](../2021-09-14_cover-me-vigilante-man/post.md)” and “[I Ain’t Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)“) as part of a documentary, *A Vision Shared: A Tribute to Woody Guthrie and Leadbelly.*<br>
 
 [Watch Video](https://www.dailymotion.com/embed/video/x74lcw)
 
@@ -54,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1996-12-03.png.webp)
 
-**2001:** Bruce hosts the first of five benefit holiday concerts supporting local charities at Convention Hall in Asbury Park. The Max Weinberg 7 serves as the house band, and they’re joined by special guests Patti Scialfa, Soozie Tyrell, Lisa Lowell, Garland Jeffreys, Southside Johnny, Nils Lofgren, and Bobby Bandiera. The setlist is filled with both holiday classics and lost Springsteen treasures: “[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)” returns after a 27-year absence, as does “[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/),” gone for even longer. Bruce pays tribute to the recently departed George Harrison, Patti previews new material, and… really, the show features too many highlights to list them all. Just do yourself a favor and listen to the show.<br>
+**2001:** Bruce hosts the first of five benefit holiday concerts supporting local charities at Convention Hall in Asbury Park. The Max Weinberg 7 serves as the house band, and they’re joined by special guests Patti Scialfa, Soozie Tyrell, Lisa Lowell, Garland Jeffreys, Southside Johnny, Nils Lofgren, and Bobby Bandiera. The setlist is filled with both holiday classics and lost Springsteen treasures: “[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)” returns after a 27-year absence, as does “[Seaside Bar Song](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md),” gone for even longer. Bruce pays tribute to the recently departed George Harrison, Patti previews new material, and… really, the show features too many highlights to list them all. Just do yourself a favor and listen to the show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AEsu394K)
 

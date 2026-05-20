@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1976-10-12.jpg.webp)
 
-**1979:** Bruce records “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)” with the E Street Band at The Power Station in New York City.<br>
+**1979:** Bruce records “[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)” with the E Street Band at The Power Station in New York City.<br>
 
 [Watch on Youtube: Crush on You](https://www.youtube.com/watch?v=zDN8pvyKYkU)
 
@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-10-12.jpg.webp)
 
-**2005:** Bruce tour premieres “Thunder Road” (in its only tour performance) and “[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)” (on autoharp), at his solo acoustic show in Minneapolis.<br>
+**2005:** Bruce tour premieres “Thunder Road” (in its only tour performance) and “[The New Timer](../2018-07-13_roll-of-the-dice-the-new-timer/post.md)” (on autoharp), at his solo acoustic show in Minneapolis.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/OSxHcFEA)
 

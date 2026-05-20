@@ -16,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1976-0428.jpg.webp)
 
-**1981:** Flo and Eddie guest-star on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” when the River Tour arrives in Rotterdam.<br>
+**1981:** Flo and Eddie guest-star on “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” when the River Tour arrives in Rotterdam.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JJqRnR4k)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=1glxaEB5G7I)
 
-**1999:** At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”<br>
+**1999:** At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen / Bon Jovi Hungry Heart Live In Lyon 28/04/1999](https://www.youtube.com/watch?v=xHFBjrH_Z0Q)
 
@@ -44,7 +44,7 @@
 
 **2003:** Bruce rehearses at the Count Basie Theater for Bobby Bandiera’s Hope Concert benefit the following day.<br>
 
-**2005:** On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)” for the first time in 17 years, and Jimmy LaFave guest-stars on “[Oklahoma Hills.](https://estreetshuffle.com/index.php/2021/05/17/matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/)” Also new to the set list tonight: “[Galveston Bay](https://estreetshuffle.com/index.php/2020/06/22/roll-of-the-dice-galveston-bay/)” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).”<br>
+**2005:** On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays “[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)” for the first time in 17 years, and Jimmy LaFave guest-stars on “[Oklahoma Hills.](../2021-05-17_matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/post.md)” Also new to the set list tonight: “[Galveston Bay](../2020-06-22_roll-of-the-dice-galveston-bay/post.md)” and “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ZDEYaKNZ)
 
@@ -56,7 +56,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2005-04-28c.jpg.webp)
 
-**2008:** Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)” and “[Don’t Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/),” before segueing to “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/),” “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/),” and “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/).” Opening packs don’t get much better than that. Also tour premiering tonight: “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25606/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-28-2008-Greensboro-Coliseum-Greensboro-NC.html).<br>
+**2008:** Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)” and “[Don’t Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md),” before segueing to “[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md),” “[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md),” and “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md).” Opening packs don’t get much better than that. Also tour premiering tonight: “[Mary’s Place](../2022-03-25_roll-of-the-dice-marys-place/post.md).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25606/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-28-2008-Greensboro-Coliseum-Greensboro-NC.html).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Greensboro 2008](https://www.youtube.com/watch?v=MpSSwm21Cjs)
 
@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-28b-scaled.jpg.webp)
 
-**2009:** Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/),” “[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/),” “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” and “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/).” For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/04/28/where-the-band-was-philadelphia-april-28-2009/) from this date.<br>
+**2009:** Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of “[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md),” “[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md),” “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)” and “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/).” For more highlights from this show, see my [Where the Band Was report](../2018-04-28_where-the-band-was-philadelphia-april-28-2009/post.md) from this date.<br>
 
 [Watch on Youtube: Bruce Springsteen - Fire - Live from Philadelphia - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=0kTnyP33fbM)
 
@@ -94,7 +94,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3)
 
-**2023:** Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/).” The run of nightly tour premieres continue with “[Human Touch.](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)”<br>
+**2023:** Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md).” The run of nightly tour premieres continue with “[Human Touch.](../2019-08-09_roll-of-the-dice-human-touch/post.md)”<br>
 
 [Watch on Youtube: Bruce Springsteen singing Nightshift live in Barcelona 28/04/2023](https://www.youtube.com/watch?v=KUoPAY8d0uY)
 

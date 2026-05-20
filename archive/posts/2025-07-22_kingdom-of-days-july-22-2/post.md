@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/1973-07-22.jpg.webp)
 
-**1975:** It's Night Two on the Born to Run Tour, and the band continues developing the show at the Geneva Theater in Geneva, New York, where "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)" makes its tour debut. At soundcheck, Bruce and the band cover "[Needles and Pins](https://estreetshuffle.com/index.php/2019/02/27/cover-me-needles-and-pins/)" and "[You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/)."<br>
+**1975:** It's Night Two on the Born to Run Tour, and the band continues developing the show at the Geneva Theater in Geneva, New York, where "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" makes its tour debut. At soundcheck, Bruce and the band cover "[Needles and Pins](../2019-02-27_cover-me-needles-and-pins/post.md)" and "[You Really Got Me](../2020-12-01_cover-me-you-really-got-me/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Needles and Pins" - Soundcheck in Geneva , 1975-07-22](https://www.youtube.com/watch?v=zaANhuBBSzc)
 
@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1975-07-22.png.webp)
 
-**1976:** CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" and "[I Don't Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)."<br>
+**1976:** CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" and "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1976-0722.jpg.webp)
 
@@ -34,7 +34,7 @@
 
 **1989:** Bruce joins Peter Hartung & The Remakes on stage at McLoone's Rum Runner in Sea Bright, New Jersey.<br>
 
-**1995:** Bruce makes a surprise appearance at Tradewinds in Sea Bright with Joe Grushecky and the Houserockers for an [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)-heavy set, with a few Springsteen originals added for good measure. Stevie and Max join for four songs as well.<br>
+**1995:** Bruce makes a surprise appearance at Tradewinds in Sea Bright with Joe Grushecky and the Houserockers for an [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md)-heavy set, with a few Springsteen originals added for good measure. Stevie and Max join for four songs as well.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0qtUKoWP)
 
@@ -52,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/2011-0722.jpg.webp)
 
-**2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)" at the memorial concert for the victims in Oslo.<br>
+**2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)" at the memorial concert for the victims in Oslo.<br>
 
 [Watch on Youtube: July 22- 2012 Bruce Springsteen NORWAY Memorial Concert For Victims on Utøya and Oslo](https://www.youtube.com/watch?v=LTrgNSlCkKY)
 

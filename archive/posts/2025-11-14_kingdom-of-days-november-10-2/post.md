@@ -14,9 +14,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/1975-11-10b.png.webp)
 
-**1977:** Bruce and the E Street Band record the base track for "[Give the Girl a Kiss.](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)" It will be a couple of decades before Bruce decides to finish it.<br>
+**1977:** Bruce and the E Street Band record the base track for "[Give the Girl a Kiss.](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)" It will be a couple of decades before Bruce decides to finish it.<br>
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to St. Bonaventure University, where the band plays a rare "[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)."<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to St. Bonaventure University, where the band plays a rare "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Louie Louie" - St. Bonaventure, 1978-11-10](https://www.youtube.com/watch?v=DrPyqMKGe9E)
 
@@ -40,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1986-11-10.png.webp)
 
-**1992:** At World Tour 1992 Night Two at the Nassau Coliseum, Bruce and his new touring band play "[Cross My Heart](https://estreetshuffle.com/index.php/2020/12/29/roll-of-the-dice-cross-my-heart/)" in its only acoustic performance to date, and Billy Joel guests on "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)."<br>
+**1992:** At World Tour 1992 Night Two at the Nassau Coliseum, Bruce and his new touring band play "[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md)" in its only acoustic performance to date, and Billy Joel guests on "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - CROSS MY HEART (live 1992)](https://www.youtube.com/watch?v=ry54U4Fn5aM)
 
@@ -56,7 +56,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1998-11-10b.png.webp)
 
-**1999:** When Bruce and the E Street Band bring the Reunion Tour to Indianapolis, they're joined on stage by an audience member, who plays guitar on "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)." This is the first concert to be held at the new arena, and fans in attendance are not happy with the sound quality.<br>
+**1999:** When Bruce and the E Street Band bring the Reunion Tour to Indianapolis, they're joined on stage by an audience member, who plays guitar on "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)." This is the first concert to be held at the new arena, and fans in attendance are not happy with the sound quality.<br>
 
 [Watch on Youtube: Bruce Springsteen - On Stage with Springsteen 11-10-99, Conseco Fieldhouse, Indianapolis](https://www.youtube.com/watch?v=w72TyGyqHVY)
 
@@ -74,13 +74,13 @@
 
 [Watch on Youtube: Bruce Springsteen - VH1 Storytellers](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu)
 
-**2006:** Bruce and several members of the Sessions Band spend a night off in London catching Lucinda Williams' show at Shepherds Bush Empire. Bruce joins Lucinda on stage for two songs, "[Disgusted](https://estreetshuffle.com/index.php/2018/12/04/meeting-across-the-river-lucinda-williams-and-bruce-springsteen-disgusted/)" and "[Joy](https://estreetshuffle.com/index.php/2019/06/25/matr-lucinda-williams-and-bruce-springsteen-joy/)."<br>
+**2006:** Bruce and several members of the Sessions Band spend a night off in London catching Lucinda Williams' show at Shepherds Bush Empire. Bruce joins Lucinda on stage for two songs, "[Disgusted](../2018-12-04_meeting-across-the-river-lucinda-williams-and-bruce-springsteen-disgusted/post.md)" and "[Joy](../2019-06-25_matr-lucinda-williams-and-bruce-springsteen-joy/post.md)."<br>
 
 [Watch on Youtube: "Joy" Lucinda Williams & Bruce Springsteen - London '06 (Complete)](https://www.youtube.com/watch?v=pq02XzTGGIs)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Independent_Wed__Nov_15__2006_-scaled.jpg.webp)
 
-**2009:** Bruce and the E Street Band continue the final stretch of the Working on a Dream Tour with a show at the Quicken Loans Arena in Cleveland, where *Born to Run* gets a full album performance and "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" makes a rare appearance. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28532/Bruce-Springsteen-mp3-flac-download-11-10-2009-Quicken-Loans-Arena-Cleveland-OH.html).<br>
+**2009:** Bruce and the E Street Band continue the final stretch of the Working on a Dream Tour with a show at the Quicken Loans Arena in Cleveland, where *Born to Run* gets a full album performance and "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" makes a rare appearance. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28532/Bruce-Springsteen-mp3-flac-download-11-10-2009-Quicken-Loans-Arena-Cleveland-OH.html).<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band "Meeting Across The River" 11/10/2009](https://www.youtube.com/watch?v=N556LctkQ3M)
 

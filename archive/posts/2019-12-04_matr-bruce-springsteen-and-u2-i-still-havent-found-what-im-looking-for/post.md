@@ -12,7 +12,7 @@ He did, however, perform it *with* Bono and the boys–on four separate occasion
 
 [Watch on Youtube: U2 with Bruce Springsteen - "I Still Haven't Found What I'm Looking For" | 2005 Induction](https://www.youtube.com/watch?v=FlgYdxUdckQ)
 
-Four years later, Bruce and Bono reunited at the Rock and Roll Hall of Fame 25th Anniversary Concerts. This time Bruce wasn't the only E Streeter to sit in with U2–Roy Bittan joined the band as well, and the professor's piano added a layer of majesty to the proceedings. Bruce and Bono traded vocals on the last verse, elevating an already stellar performance, and Bono finished with a grace note, weaving the chorus of Bruce's thematically related "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" with Bruce's final vocals.
+Four years later, Bruce and Bono reunited at the Rock and Roll Hall of Fame 25th Anniversary Concerts. This time Bruce wasn't the only E Streeter to sit in with U2–Roy Bittan joined the band as well, and the professor's piano added a layer of majesty to the proceedings. Bruce and Bono traded vocals on the last verse, elevating an already stellar performance, and Bono finished with a grace note, weaving the chorus of Bruce's thematically related "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" with Bruce's final vocals.
 
 This remains one of my favorite Springsteen/U2 performances:
 

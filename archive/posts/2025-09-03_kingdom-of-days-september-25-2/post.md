@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1984-0925.jpg.webp)
 
-**1987:** Bruce makes a surprise guest appearance with U2 at their JFK Stadium show in Philadelphia. Their performance of “[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)” is professionally filmed for the band’s *Rattle and Hum* documentary but does not make the final cut. Both local papers cover Bruce’s surprise guest appearance but I suspect only one of them actually witnessed it. (Guess which one.)<br>
+**1987:** Bruce makes a surprise guest appearance with U2 at their JFK Stadium show in Philadelphia. Their performance of “[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)” is professionally filmed for the band’s *Rattle and Hum* documentary but does not make the final cut. Both local papers cover Bruce’s surprise guest appearance but I suspect only one of them actually witnessed it. (Guess which one.)<br>
 
 [Watch on Youtube: Bruce Springsteen & U2 Bono - Stand By Me Philadelphia 25 09 1987](https://www.youtube.com/watch?v=IYP0MprfnVU)
 
@@ -38,11 +38,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/nWtbJdch)
 
-**1996:** Bruce surprises the audience at his solo acoustic show in Akron by giving the usual opener “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” a rest and instead playing a cover of Woody Guthrie’s “[Tom Joad](https://estreetshuffle.com/index.php/2021/05/24/cover-me-tom-joad/).” Mid-set, Bruce plays “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)” for the first time in over a decade. This show is available as part of Bruce’s official archive series–buy or stream it [here](https://www.nugs.net/live-download-of-bruce-springsteen-e.-j.-thomas-performing-arts-hall-akron-oh-09-25-1996-mp3-flac-or-online-music-streaming/36090.html?cgid=ARTIST-991#utm_source=springsteen&utm_medium=merchposter&utm_campaign=springsteen&utm_content=springsteen&start=1).<br>
+**1996:** Bruce surprises the audience at his solo acoustic show in Akron by giving the usual opener “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” a rest and instead playing a cover of Woody Guthrie’s “[Tom Joad](../2021-05-24_cover-me-tom-joad/post.md).” Mid-set, Bruce plays “[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)” for the first time in over a decade. This show is available as part of Bruce’s official archive series–buy or stream it [here](https://www.nugs.net/live-download-of-bruce-springsteen-e.-j.-thomas-performing-arts-hall-akron-oh-09-25-1996-mp3-flac-or-online-music-streaming/36090.html?cgid=ARTIST-991#utm_source=springsteen&utm_medium=merchposter&utm_campaign=springsteen&utm_content=springsteen&start=1).<br>
 
 [Watch on Youtube: Tom Joad (Live at EJ Thomas Performing Arts, Akron, OH - 9/25/1996)](https://www.youtube.com/watch?v=W8E6uGwkVD4)
 
-**1999:** Bruce and the reunited E Street Band close out their six-night stand in Philadelphia with a killer set list, opening with their first performance of “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” in 19 years and featuring a rare “New York City Serenade” and a show-closing “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25007/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-25-1999-First-Union-Center-Philadelphia-PA.html).<br>
+**1999:** Bruce and the reunited E Street Band close out their six-night stand in Philadelphia with a killer set list, opening with their first performance of “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)” in 19 years and featuring a rare “New York City Serenade” and a show-closing “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25007/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-25-1999-First-Union-Center-Philadelphia-PA.html).<br>
 
 [Watch on Youtube: Incident on 57th Street (Live at First Union Center, Philadelphia, PA - 9/25/1999)](https://www.youtube.com/watch?v=UF1WY6t2UhU)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1999-09-25c.jpg.webp)
 
-**2002:** Eddie Vedder makes his first-ever appearance with Bruce when the Rising Tour stops at Chicago’s United Center. Bruce and Eddie sing the tour premiere of “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” together; Bruce also tour premieres “[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” and “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/).”<br>
+**2002:** Eddie Vedder makes his first-ever appearance with Bruce when the Rising Tour stops at Chicago’s United Center. Bruce and Eddie sing the tour premiere of “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” together; Bruce also tour premieres “[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)” and “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen and Eddie Vedder - My Hometown](https://www.youtube.com/watch?v=W7s8Ugl4d8M)
 
@@ -72,13 +72,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2002-09-25.jpg.webp)
 
-**2003:** The Rising Tour makes a final western stop at Denver’s Invesco Field, where Bruce opens the show with Bob Seger’s “[Get Out of Denver](https://estreetshuffle.com/index.php/2019/07/11/cover-me-get-out-of-denver/).”<br>
+**2003:** The Rising Tour makes a final western stop at Denver’s Invesco Field, where Bruce opens the show with Bob Seger’s “[Get Out of Denver](../2019-07-11_cover-me-get-out-of-denver/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Get Out Of Denver (2003-09-25)](https://www.youtube.com/watch?v=BEbMmDwIO9g)
 
 **2004:** Patti’s solo mini-tour continues at the Roxy Theater in West Hollywood, where Bruce joins her on guitar and backing vocals for “[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)” and “[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)” in his first appearance at the venue since his legendary radio broadcast.<br>
 
-**2007:** Bruce releases his latest studio album, *Magic*. That evening, Bruce and the E Street Band hold a second public rehearsal for the Magic Tour, where they play “[Magic](https://estreetshuffle.com/index.php/2020/09/13/roll-of-the-dice-magic/)” and Patti’s “[Town Called Heartbreak](https://estreetshuffle.com/index.php/2020/08/09/matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/)” from her new *Play It As It Lays* album for the first time. Sessions Band members Jeremy Chatzky and Curt Ramm join the band for the show-closing “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/).”<br>
+**2007:** Bruce releases his latest studio album, *Magic*. That evening, Bruce and the E Street Band hold a second public rehearsal for the Magic Tour, where they play “[Magic](../2020-09-13_roll-of-the-dice-magic/post.md)” and Patti’s “[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)” from her new *Play It As It Lays* album for the first time. Sessions Band members Jeremy Chatzky and Curt Ramm join the band for the show-closing “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Radio Nowhere live Asbury Park 09/25/2007](https://www.youtube.com/watch?v=KcONtIJYY0A)
 

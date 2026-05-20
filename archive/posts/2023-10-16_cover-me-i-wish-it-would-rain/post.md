@@ -12,7 +12,7 @@ The Temptations recorded "I Wish It Would Rain" that summer and released it on D
 
 Unaware of the tragic backstory, audiences nevertheless flocked to "I Wish It Would Rain," drawn in by Ruffin's vocals set starkly against a minimalist arrangement.
 
-When the strings enter about halfway through, one can't help but notice the similarity to The Temptations' earlier hit, "[My Girl.](https://estreetshuffle.com/index.php/2022/10/26/matr-the-temptations-the-wallflowers-and-bruce-springsteen-my-girl/)" In fact, from the very first line ("Sunshine, blue skies, please go away"), "I Wish It Would Rain" sounds like a mournful answer song. I've never seen it hypothesized, much less confirmed, but I wouldn't be at all surprised if that was by design.
+When the strings enter about halfway through, one can't help but notice the similarity to The Temptations' earlier hit, "[My Girl.](../2022-10-26_matr-the-temptations-the-wallflowers-and-bruce-springsteen-my-girl/post.md)" In fact, from the very first line ("Sunshine, blue skies, please go away"), "I Wish It Would Rain" sounds like a mournful answer song. I've never seen it hypothesized, much less confirmed, but I wouldn't be at all surprised if that was by design.
 
 [Watch on Youtube: I Wish It Would Rain](https://www.youtube.com/watch?v=X-itA2rv8p4)
 

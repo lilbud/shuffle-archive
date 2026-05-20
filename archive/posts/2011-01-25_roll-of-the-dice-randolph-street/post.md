@@ -18,7 +18,7 @@ Given that we are reading the words of an aged, lifelong storyteller known for i
 
 That is, until we've listened to "Randolph Street," Bruce's unreleased demo from the spring of 1972.
 
-Half therapy and half love letter to his late grandparents, "Randolph Street" is a breathtakingly real and intimate departure from the dense, fantastical tales he was writing at the time. (For example, "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" and "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" were first recorded around this time as well.)
+Half therapy and half love letter to his late grandparents, "Randolph Street" is a breathtakingly real and intimate departure from the dense, fantastical tales he was writing at the time. (For example, "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)" and "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" were first recorded around this time as well.)
 
 Bruce's beloved grandmother passed away on December 17, 1965. Bruce recorded "Randolph Street" more than six years later, but the love, loss, and longing are still fresh in his vocals.
 

@@ -4,11 +4,11 @@
 
 **1971:** Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.<br>
 
-**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/).”<br>
+**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md).”<br>
 
 [Watch on Youtube: Factory](https://www.youtube.com/watch?v=3YuEJ_XolkM)
 
-**1979:** Bruce records multiple takes of “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/),” just six days after the Three Mile Island accident that inspired it.<br>
+**1979:** Bruce records multiple takes of “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md),” just six days after the Three Mile Island accident that inspired it.<br>
 
 [Watch on Youtube: Roulette (Studio Outtake - 1979)](https://www.youtube.com/watch?v=_QWRFI3M0mo)
 
@@ -16,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1985:** Bruce and the E Street Band play their first of two *Born in the U.S.A.* shows in Melbourne, Australia. Bruce performs “[Johnny Bye-Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)” for the final time to date.<br>
+**1985:** Bruce and the E Street Band play their first of two *Born in the U.S.A.* shows in Melbourne, Australia. Bruce performs “[Johnny Bye-Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)” for the final time to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9ND97yT2)
 
@@ -26,11 +26,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1988-04-03-1.jpg.webp)
 
-**1993:** Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover of “[Many Rivers to Cross](https://estreetshuffle.com/index.php/2018/07/28/cover-me-many-rivers-to-cross/)” and Jon Bon Jovi and Richie Sambora join him on stage for “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/).”<br>
+**1993:** Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover of “[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)” and Jon Bon Jovi and Richie Sambora join him on stage for “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fUeXizaZ)
 
-**2000:** The Reunion Tour hits the Pacific Northwest, starting with a single show at Portland’s Rose Garden that features the tour premiere of “[Dead Man Walkin](https://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)‘.”<br>
+**2000:** The Reunion Tour hits the Pacific Northwest, starting with a single show at Portland’s Rose Garden that features the tour premiere of “[Dead Man Walkin](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md)‘.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QMqRCigT)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2001-04-03b-scaled.jpg.webp)
 
-**2009:** In Glendale, Night Two on the Working on a Dream Tour brings six set list change-ups (including “[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/),” “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/),” and “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)“), rare for this early in the tour.<br>
+**2009:** In Glendale, Night Two on the Working on a Dream Tour brings six set list change-ups (including “[Night](../2019-10-31_roll-of-the-dice-night/post.md),” “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md),” and “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)“), rare for this early in the tour.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - THE WRESTLER - GLENDALE 2009](https://www.youtube.com/watch?v=emnJ4gJGdM0)
 

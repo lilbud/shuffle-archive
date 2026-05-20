@@ -4,7 +4,7 @@ Ask any fan for a short-list of Bruce Springsteen's most "important" songs, and 
 
 And yet Bruce certainly seems to think it should be: "Living Proof" has had not one, not two, but *three* official releases over the years.
 
-"Living Proof" was the first song Bruce wrote for the album that became *Lucky Town.* It's the demarcation in Bruce's catalog between songs focused on his past and inner self and songs focused on his present, future, and outer life. "Living Proof" paved the way for songs like "Long Time Comin'" and "[Kingdom of Days.](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)" In short, "Living Proof" is the moment Bruce fully embraced his adulthood.
+"Living Proof" was the first song Bruce wrote for the album that became *Lucky Town.* It's the demarcation in Bruce's catalog between songs focused on his past and inner self and songs focused on his present, future, and outer life. "Living Proof" paved the way for songs like "Long Time Comin'" and "[Kingdom of Days.](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)" In short, "Living Proof" is the moment Bruce fully embraced his adulthood.
 
 It's also one of the most uplifting songs in his catalog. And what sparked it was the birth of his first child, Evan James, born in the summer of 1990. Bruce wrote and recorded "Living Proof" when Evan was just a year old and his daughter Jessica was still a few months away, finally allowing himself to examine the changes that fatherhood had wrought on him:
 > "The night my son was born, I got close to a feeling of real, pure, unconditional love with all the walls down. All of a sudden, what was happening was so immense that it just stomped all the fear away for a little while and I remember feeling overwhelmed. But I also understood why you're so frightened. When that world of love comes rushing in, a world of fear comes with it. To open yourself up to one thing, you've got to embrace the other thing as well… My music over the last five years has dealt with those almost primitive issues; it's about somebody walking through that world of fear so that he can live in the world of love." *–Bruce Springsteen to David Hepworth, Q Magazine, August 1992*<br>
@@ -57,7 +57,7 @@ He used it in "Goin' Cali" in January 1991:
 > *He went down to the desert city where the rattlesnakes play*<br>
 > *And left his dead skin by the roadside in the noon of day*<br>
 
-He even used it in "[Happy](https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/)" in early 1992:
+He even used it in "[Happy](../2019-07-28_roll-of-the-dice-happy/post.md)" in early 1992:
 
 > *Man, woman circle each other in a cage*<br>
 > *A cage that's been handed down the line*<br>

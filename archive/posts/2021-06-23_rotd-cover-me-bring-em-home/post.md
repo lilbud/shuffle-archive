@@ -45,7 +45,7 @@ Bruce had already debuted "Bring ‘Em Home" in concert the week prior in Paris.
 
 [Watch on Youtube: Bruce Springsteen - Bring 'Em Home (Live Tour Video)](https://www.youtube.com/watch?v=Mv4vW1FGnCQ)
 
-By the middle of June, "Bring ‘Em Home" was firmly established in the set, and the audience reaction was predictably and consistently favorable. It's no surprise that Bruce included a live version (recorded in Detroit on June 17th) as a bonus track on his *American Land Edition* re-issue of [*We Shall Overcome*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) later that year.
+By the middle of June, "Bring ‘Em Home" was firmly established in the set, and the audience reaction was predictably and consistently favorable. It's no surprise that Bruce included a live version (recorded in Detroit on June 17th) as a bonus track on his *American Land Edition* re-issue of [*We Shall Overcome*](../2022-07-17_album-companion-we-shall-overcome/post.md) later that year.
 
 [Watch on Youtube: Bring 'Em Home](https://www.youtube.com/watch?v=OS5WlDWJlhM)
 

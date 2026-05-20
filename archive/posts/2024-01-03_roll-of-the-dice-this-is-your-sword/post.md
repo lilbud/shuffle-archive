@@ -1,4 +1,4 @@
-[I was in the pit leaning on the stage](https://estreetshuffle.com/index.php/2018/01/29/where-the-band-was-cape-town-january-29-2014/) the first time Bruce played "This Is Your Sword" in public, but all I remember about that performance is how unprepared Little Steven was for that selection.
+[I was in the pit leaning on the stage](../2018-01-29_where-the-band-was-cape-town-january-29-2014/post.md) the first time Bruce played "This Is Your Sword" in public, but all I remember about that performance is how unprepared Little Steven was for that selection.
 
 It was clearly an audible, and poor Stevie looked like the student who forgot to do the assignment as the teacher announces a pop quiz. In the video below, you can see Steve spend the first verse in a panic, consulting Garry while Bruce has a microphone brought up front for the two of them to sing at together.
 
@@ -55,7 +55,7 @@ There's something about that last line that lingers in our memory, even if the s
 
 Perhaps it's in part due to the awkward meter and rhyme, but it's more than that. It's a reminder that even when the world is at its cruelest, we're never alone. If we love, we are loved, and that wellspring can provide all the reserve strength and stamina we need to endure.
 
-It's a beautiful message and a lovely trifle of a song, but stripped of its Arthurian gimmick "This Is Your Sword" is essentially a "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" retread–and unlike that earlier classic, the deliberately stilted "This Is Your Sword" is a lot harder to neatly fit into the flow of an E Street Band concert.
+It's a beautiful message and a lovely trifle of a song, but stripped of its Arthurian gimmick "This Is Your Sword" is essentially a "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" retread–and unlike that earlier classic, the deliberately stilted "This Is Your Sword" is a lot harder to neatly fit into the flow of an E Street Band concert.
 
 That may be why Bruce only tried it twice more; while the latter two went more smoothly than that first outing in Cape Town, all three performances of "This Is Your Sword" felt out of place in the moment.
 

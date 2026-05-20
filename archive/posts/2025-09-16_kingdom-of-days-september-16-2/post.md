@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1977, 1983, and 2002*<br>
 
-**1967:** The Castiles play two cover sets at the grand opening of The Left Foot, a short-lived teen club based in the rec center of St. Peter's Episcopal Church in Freehold. One of the songs played tonight–a cover of Willie Dixon's "[You Can't Judge a Book by the Cover](https://estreetshuffle.com/index.php/2018/12/02/cover-me-you-cant-judge-a-book-by-the-cover/)" will eventually become an official release on *Chapter and Verse* almost 50 years later. The set also includes covers of Jimi Hendrix's "[Purple Haze](https://estreetshuffle.com/index.php/2019/02/19/cover-me-purple-haze/)" and The Yardbirds' "[Jeff's Boogie](https://estreetshuffle.com/index.php/2020/04/21/cover-me-jeffs-boogie/)" that showcases just how accomplished on the guitar Bruce had already become by age eighteen.<br>
+**1967:** The Castiles play two cover sets at the grand opening of The Left Foot, a short-lived teen club based in the rec center of St. Peter's Episcopal Church in Freehold. One of the songs played tonight–a cover of Willie Dixon's "[You Can't Judge a Book by the Cover](../2018-12-02_cover-me-you-cant-judge-a-book-by-the-cover/post.md)" will eventually become an official release on *Chapter and Verse* almost 50 years later. The set also includes covers of Jimi Hendrix's "[Purple Haze](../2019-02-19_cover-me-purple-haze/post.md)" and The Yardbirds' "[Jeff's Boogie](../2020-04-21_cover-me-jeffs-boogie/post.md)" that showcases just how accomplished on the guitar Bruce had already become by age eighteen.<br>
 
 [Watch on Youtube: You Can't Judge a Book by the Cover](https://www.youtube.com/watch?v=BDjQdv0OS0Q)
 
@@ -18,11 +18,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/dMx2UT8a)
 
-**1977:** Bruce completes work on "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)" at The Record Plant in New York City.<br>
+**1977:** Bruce completes work on "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" at The Record Plant in New York City.<br>
 
 [Watch on Youtube: Prove It All Night](https://www.youtube.com/watch?v=UzjkWdRqWFo)
 
-**1978:** Bruce and the E Street Band continue their three-night Darkness Tour stand at the Palladium in New York City. This show features the first full-band "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)," a work-in-progress "[Point Blank,](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)" and the tour debut of "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" — a pretty great combination for those lucky enough to be there. After the show, the band sits down for an interview with local WNEW DJ Vin Scelsa, which will be broadcast three days later.<br>
+**1978:** Bruce and the E Street Band continue their three-night Darkness Tour stand at the Palladium in New York City. This show features the first full-band "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)," a work-in-progress "[Point Blank,](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and the tour debut of "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" — a pretty great combination for those lucky enough to be there. After the show, the band sits down for an interview with local WNEW DJ Vin Scelsa, which will be broadcast three days later.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/BOOL6NGx)
 
@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1987-09-16b.jpg.webp)
 
-**1996:** The Ghost of Tom Joad Tour resumes after a four-month break, kicking off the fall leg with a show at Benedum Center in Pittsburgh, where Joe Grushecky makes an appearance during the encores. Bruce and Joe perform "[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)" together.<br>
+**1996:** The Ghost of Tom Joad Tour resumes after a four-month break, kicking off the fall leg with a show at Benedum Center in Pittsburgh, where Joe Grushecky makes an appearance during the encores. Bruce and Joe perform "[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)" together.<br>
 
 [Watch on Youtube: Bruce Springsteen and Joe Grushecky, "Homestead" 1996-09-16, Pittsburgh](https://www.youtube.com/watch?v=RCBrzGqEGQY)
 
@@ -52,7 +52,7 @@
 
 **2002:** Bruce attends an Asbury Park memorial service for Mark McGarril and performs two songs on his acoustic guitar.<br>
 
-**2003:** Bruce and the E Street Band play their first of two Hartford stadium shows at Rentschler Field, opening with an acoustic "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)." The first E Street Band performance of "Leap of Faith" and a rare "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)" make it clear that Bruce is re-discovering his missing years, but he's still discovering his latest as well, playing "[Let's Be Friends (Skin to Skin)](https://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)" for the first and only time to date.<br>
+**2003:** Bruce and the E Street Band play their first of two Hartford stadium shows at Rentschler Field, opening with an acoustic "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)." The first E Street Band performance of "Leap of Faith" and a rare "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" make it clear that Bruce is re-discovering his missing years, but he's still discovering his latest as well, playing "[Let's Be Friends (Skin to Skin)](https://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)" for the first and only time to date.<br>
 
 [Watch on Youtube: Bruce Springsteen - THE GHOST OF TOM JOAD 2003 - (audio)](https://www.youtube.com/watch?v=5CGaNPu29ds)
 
@@ -72,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-16.jpg.webp)
 
-**2013:** While Bruce was in Buenos Aires for a show a few days earlier, he learned a Spanish language song that he'd intended to perform there: León Gieco's "[Sólo le Pido a Dios](https://estreetshuffle.com/index.php/2020/11/03/cover-me/)." He didn't quite get it down in time, so instead he had himself filmed and uploads it to YouTube today.<br>
+**2013:** While Bruce was in Buenos Aires for a show a few days earlier, he learned a Spanish language song that he'd intended to perform there: León Gieco's "[Sólo le Pido a Dios](../2020-11-03_cover-me/post.md)." He didn't quite get it down in time, so instead he had himself filmed and uploads it to YouTube today.<br>
 
 [Watch on Youtube: Bruce Springsteen - Sólo le Pido a Dios](https://www.youtube.com/watch?v=KqMszVPa6e4)
 

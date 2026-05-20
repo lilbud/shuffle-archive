@@ -2,7 +2,7 @@ Yeah, yeah. I know it's the dead of winter (here in the northern hemisphere, at 
 
 But spring is coming... eventually.
 
-And if Bruce can play "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" in July, I can blog about baseball in January.
+And if Bruce can play "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" in July, I can blog about baseball in January.
 
 So while you dream of warmer days ahead, enjoy a not-yet-well-known Bruce Springsteen and the E Street Band covering the unofficial anthem of Major League Baseball from their 1973 concert at the Broome County Veterans Memorial Arena in Binghamton, New York.
 

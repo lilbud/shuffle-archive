@@ -1,4 +1,4 @@
-In 2002, Bruce Springsteen released *The Rising*, an album of songs that sounded like they were written for that post-9/11 moment, even though most of them weren't. "[Nothing Man](https://estreetshuffle.com/index.php/2020/08/29/roll-of-the-dice-nothing-man/)" was recorded in 1994; "My City of Ruins" debuted in 2000; even "[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)" probably originated pre-9/11.
+In 2002, Bruce Springsteen released *The Rising*, an album of songs that sounded like they were written for that post-9/11 moment, even though most of them weren't. "[Nothing Man](../2020-08-29_roll-of-the-dice-nothing-man/post.md)" was recorded in 1994; "My City of Ruins" debuted in 2000; even "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)" probably originated pre-9/11.
 
 By that point in his career, Bruce was so skillful at recontextualizing and rearranging old songs to serve new purposes that most listeners never suspected their origins.
 
@@ -120,7 +120,7 @@ It seems Bruce recognized that on stage: he couldn't help but slip into old habi
 
 Bruce played "57 Channels (And Nothin' On)" nightly throughout his 1992 and 1993 World Tours, but never again since.
 
-When he took to the road again in 1995, it was a solo acoustic tour. Without the electronic enhancement, "57 Channels" would have revealed its original theme, and so Bruce wisely avoided it (although he would debut [another song about the TV wasteland](https://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/).)
+When he took to the road again in 1995, it was a solo acoustic tour. Without the electronic enhancement, "57 Channels" would have revealed its original theme, and so Bruce wisely avoided it (although he would debut [another song about the TV wasteland](../2019-02-09_roll-of-the-dice-sell-it-and-they-will-come/post.md).)
 
 Bruce's next tour was his Reunion Tour with the E Street Band, but by then the world had changed too much for "57 Channels" to work in either context. Consumers had a lot more than 57 channels to choose from, and the permanent 24-hour news cycle had inured viewers to the disconnection between on-screen and off-screen life.
 

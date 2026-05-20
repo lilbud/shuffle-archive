@@ -24,7 +24,7 @@ On the surface, "Change It" is fairly typical of Bruce's material at that time: 
 > *Tell you you're never gonna know*<br>
 > *Just what's going down*<br>
 
-Go back and listen to (or simply read) that second verse again–it's a direct reference to Buffalo Springfield's already-classic protest song "[For What It's Worth](https://estreetshuffle.com/index.php/2020/02/13/cover-me-for-what-its-worth/)."
+Go back and listen to (or simply read) that second verse again–it's a direct reference to Buffalo Springfield's already-classic protest song "[For What It's Worth](../2020-02-13_cover-me-for-what-its-worth/post.md)."
 
 [Watch on Youtube: Buffalo Springfield - For What It's Worth 1967](https://www.youtube.com/watch?v=gp5JCrSXkJY)
 
@@ -56,7 +56,7 @@ At this point, the song tempo awkwardly changes (prompting Bruce to give the aud
 > *Break out the guns and the ammo*<br>
 > *Everything's gonna be fine*<br>
 
-(We can clearly hear the influence of The Isley Brothers' "[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)" in the "it's that time again, for revolution" chorus at around the 5:20 mark above.)
+(We can clearly hear the influence of The Isley Brothers' "[Shout](../2019-09-12_cover-me-shout/post.md)" in the "it's that time again, for revolution" chorus at around the 5:20 mark above.)
 
 [Watch on Youtube: The Isley Brothers - Shout](https://www.youtube.com/watch?v=nEjLFpU2pJ4)
 

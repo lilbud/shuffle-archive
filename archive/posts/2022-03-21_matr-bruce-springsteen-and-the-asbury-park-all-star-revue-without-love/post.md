@@ -1,6 +1,6 @@
 Technically, Bruce Springsteen covered Aretha Franklin's "Without Love" three times only, way back in 1977.
 
-But one could make a fairly compelling argument that he covers it in part every time he sings "[Back in Your Arms,](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" because the first twenty seconds of those songs are way too similar to be coincidental.
+But one could make a fairly compelling argument that he covers it in part every time he sings "[Back in Your Arms,](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" because the first twenty seconds of those songs are way too similar to be coincidental.
 
 [Watch on Youtube: Aretha Franklin - Without Love](https://www.youtube.com/watch?v=DSUTLDofTcw)
 

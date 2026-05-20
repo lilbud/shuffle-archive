@@ -2,7 +2,7 @@ Wow.
 
 There's an absolute flood of Springsteen covers being released by artists during the global shutdown, and while I try to watch them all, it's tough to find the time or the quiet to pay full attention.
 
-But when I came across this cover of "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" by French singer-songwriter Jericho with Seb Martel on lap steel, I found myself unable to look away.
+But when I came across this cover of "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" by French singer-songwriter Jericho with Seb Martel on lap steel, I found myself unable to look away.
 
 This may be the single most impassioned performance (in acoustic form, at least) I've ever heard of Bruce's oft-covered song.
 

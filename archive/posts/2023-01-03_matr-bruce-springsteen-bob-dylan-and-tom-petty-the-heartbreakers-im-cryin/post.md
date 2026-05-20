@@ -1,8 +1,8 @@
 Bruce Springsteen is no stranger to Eric Burdon and The Animals.
 
-Bruce’s intense covers of “[It’s My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)” (performed a remarkable 88 times over a three-year span in the mid-1970s) are legendary, certainly ranking among Bruce’s all-time best covers.
+Bruce’s intense covers of “[It’s My Life](../2021-11-23_cover-me-its-my-life/post.md)” (performed a remarkable 88 times over a three-year span in the mid-1970s) are legendary, certainly ranking among Bruce’s all-time best covers.
 
-Bruce was covering The Animals long before that, though. As far back as 1965 The Castiles performed “[We Gotta Get Out of This Place](https://estreetshuffle.com/index.php/2022/03/17/matr-bruce-springsteen-and-eric-burdon-we-gotta-get-out-of-this-place/)” at a local psychiatric hospital only four months after The Animals originally released the song. In 1967 The Castiles covered “[San Franciscan Nights](https://estreetshuffle.com/index.php/2018/05/22/cover-me-san-franciscan-nights/)” in concert before it was even a month old.
+Bruce was covering The Animals long before that, though. As far back as 1965 The Castiles performed “[We Gotta Get Out of This Place](../2022-03-17_matr-bruce-springsteen-and-eric-burdon-we-gotta-get-out-of-this-place/post.md)” at a local psychiatric hospital only four months after The Animals originally released the song. In 1967 The Castiles covered “[San Franciscan Nights](../2018-05-22_cover-me-san-franciscan-nights/post.md)” in concert before it was even a month old.
 
 Despite Bruce’s obvious fondness for The Animals, though, he’s never covered one of their greatest hits at one of his own shows. “I’m Crying” was one of The Animals’ first singles, peaking at #19 on the Billboard Hot 100 and #8 on the U.K. Singles charts when it was released in September 1964.
 

@@ -4,7 +4,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V_MSbAcVExM)
 
-**1977:** Recording continues for Bruce's fourth album. Today the band works on "Frankie," "Candy's Boy," and "[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)."<br>
+**1977:** Recording continues for Bruce's fourth album. Today the band works on "Frankie," "Candy's Boy," and "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)."<br>
 
 **1978:** The Darkness Tour stops at the Nassau Coliseum in Uniondale, New York. Bruce tour premieres "4th of July, Asbury Park (Sandy)" in the encore.<br>
 
@@ -36,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2000-06-02.jpg.webp)
 
-**2006:** Nils guest-stars on "Pay Me My Money Down" (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/06/03/where-the-band-was-glendale-june-3-2006/) from this show.<br>
+**2006:** Nils guest-stars on "Pay Me My Money Down" (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my [*Where the Band Was* report](../2018-06-03_where-the-band-was-glendale-june-3-2006/post.md) from this show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4kABHXOv)
 

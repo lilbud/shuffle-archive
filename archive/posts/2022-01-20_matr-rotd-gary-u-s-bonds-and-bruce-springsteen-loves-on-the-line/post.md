@@ -2,7 +2,7 @@
 
 Both Gary U.S. Bonds' 1982 album and its immediate predecessor *Dedication* were produced by Bruce and Steven Van Zandt, and both albums are full of glorious, original Springsteen River-era pop songs.
 
-Both albums spawned Springsteen-penned hit singles ("[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)" from *Dedication* and "[Out of Work](https://estreetshuffle.com/index.php/2021/04/18/rotd-matr-gary-u-s-bonds-bruce-springsteen-and-the-e-street-band-out-of-work/)" from *On the Line*), but they were only the tip of the iceberg of ridiculously great compositions given away by Bruce to Bonds.
+Both albums spawned Springsteen-penned hit singles ("[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)" from *Dedication* and "[Out of Work](../2021-04-18_rotd-matr-gary-u-s-bonds-bruce-springsteen-and-the-e-street-band-out-of-work/post.md)" from *On the Line*), but they were only the tip of the iceberg of ridiculously great compositions given away by Bruce to Bonds.
 
 In fact, *On the Line* contains a whopping *seven* original Springsteen songs, many of which feature Bruce and the E Street Band performing on the studio tracks. Six of the seven are hand-clappingly poppy, infectiously danceable party songs, but one of them stops listeners dead in their tracks: the devastating, heart-breaking "Love's on the Line."
 

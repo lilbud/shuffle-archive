@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Madison Square Garden (8/22/1978)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1D4drCKmEeRRz7nBqEGW0pV)
 
-**1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for “Travelin’ Band” and “[I’m Bad, I’m Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/).”<br>
+**1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for “Travelin’ Band” and “[I’m Bad, I’m Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Travelin' Band (1984-08-22)](https://www.youtube.com/watch?v=OvXIhNv4tKE)
 
@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-22.png.webp)
 
-**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm’s All-Stars for “[Up on Cripple Creek](https://estreetshuffle.com/index.php/2018/01/29/meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/)” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”<br>
+**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm’s All-Stars for “[Up on Cripple Creek](../2018-01-29_meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/post.md)” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gxirqWhO)
 

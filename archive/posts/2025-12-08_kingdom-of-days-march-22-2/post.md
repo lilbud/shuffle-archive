@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-0322.jpg.webp)
 
-**1978:** Bruce works on mixing and overdubs for “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” at the Record Plant in New York City.<br>
+**1978:** Bruce works on mixing and overdubs for “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” at the Record Plant in New York City.<br>
 
 [Watch on Youtube: Racing in the Street](https://www.youtube.com/watch?v=cm9UuM3UXdc)
 

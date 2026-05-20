@@ -2,7 +2,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1973-08-04.jpg.webp)
 
-**1977:** Bruce works on "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" during recording sessions at Atlantic Studios in New York City.<br>
+**1977:** Bruce works on "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" during recording sessions at Atlantic Studios in New York City.<br>
 
 **1978:** Bruce plays in West Virginia for the first and only time, when the Darkness Tour stops at the Charleston Civic Center. This show is notable for more than its location, however: it's also the very first appearance of a work-in-progress "Sherry Darling."<br>
 

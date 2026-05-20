@@ -1,6 +1,6 @@
 It began with the beat–perhaps the most famous beat of all time.
 
-You can hear it in "[Willie and the Hand Jive](https://estreetshuffle.com/index.php/2021/02/22/matr-bruce-springsteen-and-bobby-bandiera-willie-and-the-hand-jive/)."
+You can hear it in "[Willie and the Hand Jive](../2021-02-22_matr-bruce-springsteen-and-bobby-bandiera-willie-and-the-hand-jive/post.md)."
 
 [Watch on Youtube: Johnny Otis - Willie and the Hand Jive (1958)](https://www.youtube.com/watch?v=9kIswurDJt4)
 
@@ -8,7 +8,7 @@ You can hear it in "The Magic Bus."
 
 [Watch on Youtube: Magic Bus (Original Stereo Version)](https://www.youtube.com/watch?v=B3oCB9RdiB4)
 
-You can hear it in "[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)"…
+You can hear it in "[Not Fade Away](../2020-06-24_cover-me-not-fade-away/post.md)"…
 
 [Watch on Youtube: Not Fade Away ((Original Single Mono Version))](https://www.youtube.com/watch?v=gIKfN3CuFXA)
 
@@ -24,7 +24,7 @@ But it originated with the man for whom it's named: Bo Diddley, in his eponymous
 
 [Watch on Youtube: Bo Diddley "Bo Diddley" on The Ed Sullivan Show](https://www.youtube.com/watch?v=dLcYuuljrD4)
 
-In *The Stories Behind the Songs*, Brian Hiatt reports that "She's the One" had more of an "[Up on Cripple Creek](https://estreetshuffle.com/index.php/2018/01/29/meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/)" vibe to it until Max infused it with the Bo Diddley beat, and in so doing Max transformed "She's the One" into one of the most electrifying songs in Bruce's catalog.
+In *The Stories Behind the Songs*, Brian Hiatt reports that "She's the One" had more of an "[Up on Cripple Creek](../2018-01-29_meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/post.md)" vibe to it until Max infused it with the Bo Diddley beat, and in so doing Max transformed "She's the One" into one of the most electrifying songs in Bruce's catalog.
 
 But that's only part of the story.
 
@@ -56,7 +56,7 @@ It began on the backstreets.
 
 "Sometimes I'll have a couple of lines that can sit around for four or five years. I knew they were good lines but they never found exactly the right setting. In those days, I used to switch and trade all the time. You could do it with a lot of that stuff. I do it a little bit now, but not as much as I used to. It still happens on occasion."
 
-Bruce's admission was in answer to Flanagan's observation that "She's the One" (even in its final version) included a French cream/French kisses couplet lifted straight from Bruce's 1973 outtake, "[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)" (which at the time of Flanagan's interview was still more than a decade away from an official release on *Tracks*.)
+Bruce's admission was in answer to Flanagan's observation that "She's the One" (even in its final version) included a French cream/French kisses couplet lifted straight from Bruce's 1973 outtake, "[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md)" (which at the time of Flanagan's interview was still more than a decade away from an official release on *Tracks*.)
 
 But if you listened carefully to the outtake and early live performance above, you probably had a strong sense of déjà vu from a completely different song.
 
@@ -104,7 +104,7 @@ That scent is about to get a lot stronger:
 
 Now, we've heard Bruce borrow his own lyrics when working on new music before. But all evidence suggests that this is different–although Bruce is known to have been working on "Backstreets" as early as October 1974 (the same time he was road-testing "She's the One" in concert), it's likely that "Backstreets" had different lyrics at that time, and that the lyrics we know and love from that epic were originally created for its poppier album-mate.
 
-Bruce's last known performance of the early version of "She's the One" was in March 1975; one month later, he recorded both the earliest circulating studio take of "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" (which we'll listen to in a future *Roll of the Dice* entry) and this next studio outtake of "She's the One." As we can hear, the transplant is complete–the "Backstreets" lyrics have been completely excised. We have no replacements, though; "She's the One" is now shorter and tighter but still angry and harsh.
+Bruce's last known performance of the early version of "She's the One" was in March 1975; one month later, he recorded both the earliest circulating studio take of "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" (which we'll listen to in a future *Roll of the Dice* entry) and this next studio outtake of "She's the One." As we can hear, the transplant is complete–the "Backstreets" lyrics have been completely excised. We have no replacements, though; "She's the One" is now shorter and tighter but still angry and harsh.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/04/313-Shes-The-One-v2a-May-5-1975.mp3](https://estreetshuffle.com/wp-content/uploads/2021/04/313-Shes-The-One-v2a-May-5-1975.mp3)
 
@@ -173,9 +173,9 @@ When Bruce shortened the song, he tautened it. When he jettisoned his spiteful l
 
 [Watch on Youtube: She's the One (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=cx_K0tFXr8k)
 
-"She's the One" crackles and sizzles, and its appearance in the set list guarantees an adrenaline rush rivaled only by "[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)" and "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)."
+"She's the One" crackles and sizzles, and its appearance in the set list guarantees an adrenaline rush rivaled only by "[Night](../2019-10-31_roll-of-the-dice-night/post.md)" and "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)."
 
-It quickly became a set list mainstay, and as Bruce realized how many rock and roll songs were built on that unforgettable beat, "She's the One" would often feature several minutes of build-up, usually in the form of rock classics like "Not Fade Away" and "Mona," sometimes drawn from Bruce's own catalog like "[Preacher's Daughter](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)" and "[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)."
+It quickly became a set list mainstay, and as Bruce realized how many rock and roll songs were built on that unforgettable beat, "She's the One" would often feature several minutes of build-up, usually in the form of rock classics like "Not Fade Away" and "Mona," sometimes drawn from Bruce's own catalog like "[Preacher's Daughter](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)" and "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - She's The One (Includes Gloria & Not Fade Away) / Landover 1978](https://www.youtube.com/watch?v=Koogv4fLLnM)
 

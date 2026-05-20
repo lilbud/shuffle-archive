@@ -1,4 +1,4 @@
-Today, the dice land on another entry from 18-year-old Bruce's handwritten notebook of mystery songs, never recorded and possibly never performed. (See "[Until the Rain Comes](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)" for the backstory.)
+Today, the dice land on another entry from 18-year-old Bruce's handwritten notebook of mystery songs, never recorded and possibly never performed. (See "[Until the Rain Comes](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)" for the backstory.)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
 

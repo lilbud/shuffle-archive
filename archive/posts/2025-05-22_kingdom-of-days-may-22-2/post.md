@@ -2,11 +2,11 @@
 
 **1971:** Three–count 'em–*three* Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a *fourth* show at 1am, but that's technically the following day.)<br>
 
-**1979:** Bruce and the E Street Band work on "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" at the Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" at the Power Station in New York City.<br>
 
 **1984:** Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.<br>
 
-**1988:** Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "[Lonely Teardrops](https://estreetshuffle.com/index.php/2021/01/22/cover-me-lonely-teardrops/)" as the final encore.<br>
+**1988:** Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "[Lonely Teardrops](../2021-01-22_cover-me-lonely-teardrops/post.md)" as the final encore.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NfdXRn6j)
 
@@ -38,7 +38,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/kQppxAQT)
 
-**2000:** The E Street Band plays "[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)" for the very first time and tour premieres "[Gloria](https://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)" at the second of two Reunion shows in Anaheim. This show is available as part of Bruce's official archive series–get it here.<br>
+**2000:** The E Street Band plays "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)" for the very first time and tour premieres "[Gloria](../2018-03-16_cover-me-gloria/post.md)" at the second of two Reunion shows in Anaheim. This show is available as part of Bruce's official archive series–get it here.<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band "No Surrender" 5/22/2000](https://www.youtube.com/watch?v=mc6fmduuvNg)
 
@@ -64,7 +64,7 @@
 
 **2010:** Bruce and Patti perform at a benefit show (along with Jon Stewart) for Gateway Schools at the Nokia Theater in New York City.<br>
 
-**2014:** Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)," "[Two for the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/)," "[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)," "[The Wall](https://estreetshuffle.com/index.php/2024/09/04/roll-of-the-dice-the-wall/)," and "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)," along with the world premiere of "[Leavin' Train](https://estreetshuffle.com/index.php/2021/04/15/roll-of-the-dice-leavin-train/)."<br>
+**2014:** Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)," "[Two for the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)," "[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)," "[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)," and "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," along with the world premiere of "[Leavin' Train](../2021-04-15_roll-of-the-dice-leavin-train/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - 2014-05-22 Pittsburgh - Two For The Road (solo acoustic)](https://www.youtube.com/watch?v=sOAq73Dv6_I)
 
@@ -84,7 +84,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2024:** Bruce opens a rainy show in Sunderland with the tour premiere of "[Waitin' on a Sunny Day.](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)" Buy or stream this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-stadium-of-light-sunderland-uk-05-22-2024-mp3-flac-or-online-music-streaming/35844.html).<br>
+**2024:** Bruce opens a rainy show in Sunderland with the tour premiere of "[Waitin' on a Sunny Day.](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" Buy or stream this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-stadium-of-light-sunderland-uk-05-22-2024-mp3-flac-or-online-music-streaming/35844.html).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Waitin' on a Sunny Day 22/5/24 Stadium of Light, Sunderland](https://www.youtube.com/watch?v=VMZJMttAMms)
 

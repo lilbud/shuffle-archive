@@ -14,7 +14,7 @@ But then inspiration struck:
 
 "Wait a minute: instead of being worried that *Michigan* is gonna inspire applause, what I should be thinking is: that´s where the money is! The money is in writing songs with people´s hometowns… It really doesn´t matter what you say in the song at all as long as their hometown comes up regularly!"
 
-So in the ten minutes before he took the stage that night (as his own legend would have it), Bruce wrote a song. "And I do have to tell you it´s one of the greatest songs I´ve ever written! Gonna make 'em forget all about that ‘[Born in the U.S.A](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/).' bullshit!"
+So in the ten minutes before he took the stage that night (as his own legend would have it), Bruce wrote a song. "And I do have to tell you it´s one of the greatest songs I´ve ever written! Gonna make 'em forget all about that ‘[Born in the U.S.A](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md).' bullshit!"
 
 And so without further ado, let's take a listen to one of the greatest songs Bruce ever wrote.
 
@@ -49,7 +49,7 @@ The song went over so well that he brought it back for an encore two nights late
 
 Bruce also made some minor lyrical adjustments that night. (It was Bob Dole who fell on his ass, and a seven-day Macarena marathon.)
 
-Despite the roaring approval from the audience, Bruce never again brought out "In Michigan" for his Great Lakes State audiences. Perhaps it was just too easy. But before long he'd take his winning formula and produce a more enduring tribute song about [his own hometown](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/).
+Despite the roaring approval from the audience, Bruce never again brought out "In Michigan" for his Great Lakes State audiences. Perhaps it was just too easy. But before long he'd take his winning formula and produce a more enduring tribute song about [his own hometown](../2018-12-03_roll-of-the-dice-freehold/post.md).
 
 **In Michigan**<br>
 **Never recorded**<br>

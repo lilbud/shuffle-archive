@@ -2,7 +2,7 @@ When The Beach Boys released "Getcha Back" in 1985, more than a few people notic
 
 [Watch on Youtube: Getcha Back (Remastered 2000)](https://www.youtube.com/watch?v=CaRnRp63Aj4)
 
-Critics and radio listeners alike noted the similarity between the Mike Love-authored hit single (it peaked at #25 on the Billboard Hot 100) and Bruce's 1980 single, "[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)"
+Critics and radio listeners alike noted the similarity between the Mike Love-authored hit single (it peaked at #25 on the Billboard Hot 100) and Bruce's 1980 single, "[Hungry Heart.](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)"
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Official Audio)](https://www.youtube.com/watch?v=boJhWtw-6Gg)
 

@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1972; audio for 1974; video for 1996*<br>
 
-**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce completes “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/),” “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/),” and “[The Angel.](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)”<br>
+**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce completes “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/),” “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md),” and “[The Angel.](../2020-09-26_roll-of-the-dice-the-angel/post.md)”<br>
 
 [Watch on Youtube: It's Hard to Be a Saint in the City](https://www.youtube.com/watch?v=B2Rju9FVE2M)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-26.png.webp)
 
-Later that night, Bruce and the band play their second of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, and Bruce slips a little “[California Sun](https://estreetshuffle.com/index.php/2020/06/10/cover-me-california-sun/)” into the “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for the occasion.
+Later that night, Bruce and the band play their second of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, and Bruce slips a little “[California Sun](../2020-06-10_cover-me-california-sun/post.md)” into the “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for the occasion.
 
 [Watch on Youtube: Bruce Springsteen - "Detroit Medley" w/ "California Sun" - Los Angeles, 1984-10-26](https://www.youtube.com/watch?v=CijvNHFY058)
 
@@ -54,7 +54,7 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 [Watch on Youtube: Bruce Springsteen - "Living Proof" - Denver, 1992-10-26](https://www.youtube.com/watch?v=oDCcsSc9BTc)
 
-**1996:** Bruce plays a solo acoustic benefit show for the John Steinbeck Research Center at San Jose State University, featuring an extensive Steinbeck reading before “[Across the Border.](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)” Steinbeck’s widow Elaine presents Bruce with a signed copy of *The Grapes of Wrath*.<br>
+**1996:** Bruce plays a solo acoustic benefit show for the John Steinbeck Research Center at San Jose State University, featuring an extensive Steinbeck reading before “[Across the Border.](../2020-09-06_roll-of-the-dice-across-the-border/post.md)” Steinbeck’s widow Elaine presents Bruce with a signed copy of *The Grapes of Wrath*.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live In San Jose 1996 - Full Concert (HD Remastered)](https://www.youtube.com/watch?v=sCBAPAwx1eo)
 
@@ -70,7 +70,7 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Record_Searchlight_1999_10_28_38-scaled.jpg.webp)
 
-**2007:** Night Two in Oakland on the Magic Tour bring tour premieres of “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/),” “Racing in the Street” and “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).” For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/10/26/where-the-band-was-oakland-october-26-2007/)<br>
+**2007:** Night Two in Oakland on the Magic Tour bring tour premieres of “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md),” “Racing in the Street” and “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md).” For more highlights from this show, see my [*Where the Band Was* report.](../2018-10-26_where-the-band-was-oakland-october-26-2007/post.md)<br>
 
 [Watch on Youtube: Oakland (10/26/2007)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1AgUSbCOKKetRVLMyzNPE0H)
 
@@ -86,7 +86,7 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 **2018:***Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2020:** Promotional appearances for [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) continue: Bruce is today’s guest on *Conan O’Brien Needs a Friend*, *T**he Daily Show With Trevor Noah,* and *Triple M*.<br>
+**2020:** Promotional appearances for [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md) continue: Bruce is today’s guest on *Conan O’Brien Needs a Friend*, *T**he Daily Show With Trevor Noah,* and *Triple M*.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3](https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3)
 

@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 1974-03-03 Gaston Hall, Washington, DC](https://www.youtube.com/watch?v=QKt4kLHbLHk)
 
-**1985:** Bruce shoots the video for "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" with director John Sayles in Hollywood.<br>
+**1985:** Bruce shoots the video for "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" with director John Sayles in Hollywood.<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm On Fire (Official Video)](https://www.youtube.com/watch?v=lrpXArn3hII)
 
@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/The_Charlotte_Observer_1988_03_05_33.jpg.webp)
 
-**1996:** Bruce plays "[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)" for the first time ever in Europe at a solo acoustic show at Edinburgh Playhouse in Scotland. Listen to a post-show radio interview below.<br>
+**1996:** Bruce plays "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)" for the first time ever in Europe at a solo acoustic show at Edinburgh Playhouse in Scotland. Listen to a post-show radio interview below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mAa91Y33)
 

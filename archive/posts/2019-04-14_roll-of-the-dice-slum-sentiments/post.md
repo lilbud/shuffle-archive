@@ -1,6 +1,6 @@
-It's time for another visit to the "[1968 Notebook](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)," where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don't appear on any bootlegs.
+It's time for another visit to the "[1968 Notebook](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)," where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don't appear on any bootlegs.
 
-(Previous entries: "[Turn Around,](https://estreetshuffle.com/index.php/2018/07/09/roll-of-the-dice-turn-around/)" "[Crystal](https://estreetshuffle.com/index.php/2018/05/11/roll-of-the-dice-crystal/),' "[Until the Rain Comes](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)," and "[For Never Asking](https://estreetshuffle.com/index.php/2018/08/24/roll-of-the-dice-for-never-asking/)."
+(Previous entries: "[Turn Around,](../2018-07-09_roll-of-the-dice-turn-around/post.md)" "[Crystal](../2018-05-11_roll-of-the-dice-crystal/post.md),' "[Until the Rain Comes](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)," and "[For Never Asking](../2018-08-24_roll-of-the-dice-for-never-asking/post.md)."
 
 Today's entry, "Slum Sentiments," doesn't have any date stamp, and there is no evidence that Bruce ever performed it. As one of the later songs in the notebook, it was probably written (or at least transcribed) sometime after April 1968, possibly a few months later.
 

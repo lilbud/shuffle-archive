@@ -1,10 +1,10 @@
-"I *still* don't know what it means!" remarked Allan Clarke in a [2014 interview](https://thestrangebrew.co.uk/allan-clarke-hollies-microsite/would-you-believe/) about his cover of "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)."
+"I *still* don't know what it means!" remarked Allan Clarke in a [2014 interview](https://thestrangebrew.co.uk/allan-clarke-hollies-microsite/would-you-believe/) about his cover of "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)."
 
 > *"I was introduced to Bruce Springsteen's music back in the early 70s when he was coming on the scene. I went to a music publisher which a friend of mine was running. He said 'I've got this guy from America who's just sent me quite a few of his songs. I think he's gonna be quite big.' I said 'Let's hear it'.*<br>
 
 > *"So we sat down and he put the tape on and two hours later after listening to some brilliant, brilliant music I said 'Wow, is there any chance of having any of these songs?' He said 'Well, there's nothing planned in terms of bringing anything out but I suppose it would be ok.'*<br>
 
-> *"So I chose three songs that I liked which were 'Born To Run', '[Sandy](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)', and a very unknown song called 'If I Were The Priest' which I don't think that he ever put on an album."*<br>
+> *"So I chose three songs that I liked which were 'Born To Run', '[Sandy](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)', and a very unknown song called 'If I Were The Priest' which I don't think that he ever put on an album."*<br>
 
 Clarke had good taste: at the time he selected them, "Born to Run" hadn't yet been released, and Clarke's recording of "If I Were the Priest" (Clarke changed the title's mood to the proper subjunctive) would have the field to itself for 46 years until its songwriter finally came around and released his own version.
 
@@ -28,4 +28,4 @@ Bruce may have wished he could put that genie back in the bottle, but we can hea
 
 With 46 years between Clarke's cover and Bruce's own version, "If I Were the Priest" holds the record for the longest head start for a Springsteen cover.
 
-(You can hear Clarke's cover of "Born to Run" [here](https://estreetshuffle.com/index.php/2018/04/30/cover-me-allan-clarke-born-to-run/).)
+(You can hear Clarke's cover of "Born to Run" [here](../2018-04-30_cover-me-allan-clarke-born-to-run/post.md).)

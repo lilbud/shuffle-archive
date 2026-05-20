@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 1974; review for 1978; video for 2002*<br>
 
-**1950:** Bruce’s younger sister Ginny is born in Freehold, New Jersey. Decades later, she will inspire Bruce’s timeless classic, “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).”<br>
+**1950:** Bruce’s younger sister Ginny is born in Freehold, New Jersey. Decades later, she will inspire Bruce’s timeless classic, “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md).”<br>
 
 **1972:** Peter Knobler interviews Bruce for *Crawdaddy* at Bruce’s girlfriend’s house in Bradley Beach. That night, Bruce and the as-yet-unnamed E Street Band play their fourth night of a six-night, two-shows-nightly stand at Kenny’s Castaways in New York City.<br>
 
@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/12/1974-12-08.jpg.webp)
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to The Summit in Houston, where the setlist features a rare outing for “[The Fever,](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)” which has always been popular in Texas. This show will be made available years later as part of Bruce’s official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,17715/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-8-1978-The-Summit-Houston-TX.html)) and in video form in the anniversary box set for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to The Summit in Houston, where the setlist features a rare outing for “[The Fever,](../2020-10-04_roll-of-the-dice-the-fever/post.md)” which has always been popular in Texas. This show will be made available years later as part of Bruce’s official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,17715/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-8-1978-The-Summit-Houston-TX.html)) and in video form in the anniversary box set for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Badlands (Live in Houston, 1978)](https://www.youtube.com/watch?v=LlvzAnYDCjc)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/12/The_Houston_Chronicle_1978_12_09_36.jpg.webp)
 
-**1980:** Bruce and the boys play their second of three River Tour nights at the Philadelphia Spectrum. Earlier that Day, John Lennon gave an interview praising “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” as his current favorite song. It would prove to be his last favorite song: while Bruce is on stage performing tonight, John Lennon is murdered in New York City.<br>
+**1980:** Bruce and the boys play their second of three River Tour nights at the Philadelphia Spectrum. Earlier that Day, John Lennon gave an interview praising “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” as his current favorite song. It would prove to be his last favorite song: while Bruce is on stage performing tonight, John Lennon is murdered in New York City.<br>
 
 [JohnLennonOnHungryHeartTheCars&StartingOver8Dec1980 by Backstreets Magazine](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&show_artwork=true&maxheight=1000&maxwidth=758)
 
@@ -60,7 +60,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/jrfYsRuK)
 
-**2002:** Bruce and the E Street Band bring the Rising Tour to the Charlotte Coliseum, where the set list features a rare outing for “[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/).”<br>
+**2002:** Bruce and the E Street Band bring the Rising Tour to the Charlotte Coliseum, where the set list features a rare outing for “[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YYmGDuYj)
 

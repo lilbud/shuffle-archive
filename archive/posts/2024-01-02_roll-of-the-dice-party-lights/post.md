@@ -2,11 +2,11 @@ A great chef can take a few ingredients and use them to create any number of won
 
 Hardcore Springsteen fans are well aware of Bruce's penchant for recycling lyrics and music; it stems from his practice of writing lyrics and music independently of each other.
 
-Verses and sometimes just fragments or phrases will loiter in his notebook for years. Some will eventually make it to one or more demos and studio recordings, most of which will end up in the vault, maybe to be released one day on an outtake collection. Occasionally, we even see snippets of shared DNA between multiple officially released songs ("[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)" and "[Maria's Bed](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/)," for example).
+Verses and sometimes just fragments or phrases will loiter in his notebook for years. Some will eventually make it to one or more demos and studio recordings, most of which will end up in the vault, maybe to be released one day on an outtake collection. Occasionally, we even see snippets of shared DNA between multiple officially released songs ("[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)" and "[Maria's Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md)," for example).
 
 And then there's "Party Lights," the product of so much Springsteenian in-breeding that it would be a joke–if it wasn't so darn catchy.
 
-Buried deep on the outtake disc that accompanies *The Ties That Bind: The River Collection*, "Party Lights" is two parts "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," one-and-a-half parts "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)," and *almost* a heaping dollop of "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)" before Bruce thought better of it and swapped it for a riff almost certainly influenced by Tom Petty's "Listen to Her Heart" (released just a year prior).
+Buried deep on the outtake disc that accompanies *The Ties That Bind: The River Collection*, "Party Lights" is two parts "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," one-and-a-half parts "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," and *almost* a heaping dollop of "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" before Bruce thought better of it and swapped it for a riff almost certainly influenced by Tom Petty's "Listen to Her Heart" (released just a year prior).
 
 Check out the official video(!) below:
 
@@ -63,7 +63,7 @@ Again, I feel compelled to point out how the same lyrics can carry different mea
 
 Certainly the guy and the girl don't live together–he refers to "stopping by" and seeing her "sometimes" on the street. But they are on familiar enough terms for him to enter her house while she sleeps, and he's gallant enough to switch out the lights rather than rouse her.
 
-Even the final verse makes it seem as if the two characters share a deep but platonic bond. It may not be a coincidence that Bruce recorded "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" just four months later–in theme, "Party Lights" may have more in common with that song than with either of the songs with which it shares lyrics.
+Even the final verse makes it seem as if the two characters share a deep but platonic bond. It may not be a coincidence that Bruce recorded "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" just four months later–in theme, "Party Lights" may have more in common with that song than with either of the songs with which it shares lyrics.
 
 Before we leave, there's something else worth pointing out about "Party Lights." It's a rare instance of a recently released outtake that bears no signs of modern-day grafting or splicing, a truly vintage recording of Bruce Springsteen and the E Street Band at the height of their powers.
 

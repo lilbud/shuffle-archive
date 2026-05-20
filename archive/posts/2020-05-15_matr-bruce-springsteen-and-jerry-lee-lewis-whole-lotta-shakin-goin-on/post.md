@@ -1,4 +1,4 @@
-It must be Rockabilly Week here on the Shuffle: A few days ago, we listened to the E Street Band channel Jerry Lee Lewis on "[TV Movie](https://estreetshuffle.com/index.php/2020/05/11/roll-of-the-dice-tv-movie/);" today, we'll check out a time they shared a stage together.
+It must be Rockabilly Week here on the Shuffle: A few days ago, we listened to the E Street Band channel Jerry Lee Lewis on "[TV Movie](../2020-05-11_roll-of-the-dice-tv-movie/post.md);" today, we'll check out a time they shared a stage together.
 
 "Whole Lotta Shakin' Goin' On" may not be Lewis' greatest hit (his follow-up single would earn that distinction), but it was his first one. Released in the spring of 1957 and topping both the Billboard R&B and Country charts (it peaked at #3 on the Hot 100), the risque "Whole Lotta Shakin' Goin' On" made Lewis an instant celebrity.
 

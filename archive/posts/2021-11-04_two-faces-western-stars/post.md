@@ -8,7 +8,7 @@ Editor's Note
 
 > *So what do you do when you discover a reader whose comments deserve a "Hold my beer" subject line? Well… I hold her beer.*<br>
 
-*Meet Katy Crane, a writer and teacher from interior Alaska. She recently moved from a small town to a big city and dealt with the culture shock by becoming an obsessive Springsteen fan. Her favorite Springsteen album is *Nebraska*, and she thinks "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)" is a good song and "Jungleland" is overrated.*<br>
+*Meet Katy Crane, a writer and teacher from interior Alaska. She recently moved from a small town to a big city and dealt with the culture shock by becoming an obsessive Springsteen fan. Her favorite Springsteen album is *Nebraska*, and she thinks "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" is a good song and "Jungleland" is overrated.*<br>
 
 *Katy makes her first of what I fervently hope will be many appearances here today, in a new series we're calling **Two Faces**, featuring alternative interpretations to the ones I've put forward in the Roll of the Dice series.*<br>
 
@@ -31,11 +31,11 @@ Editor's Note
 
 Where opinions get divided, though, is on the question of how we're supposed to feel about it. Is the song, as Springsteen suggests in the film, an admiring portrait of someone who may be past his prime but still knows who he is? Or is it something darker, more akin to "Glory Days," a portrait of someone taking refuge from the present in an idealized dream of the past?
 
-Ken has already written a great [analysis of the song from the first viewpoint](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/), the optimistic one. And now he's very kindly offered me the chance to present the opposite take: "Western Stars" as a day in the life of a depressed and lonely alcoholic.
+Ken has already written a great [analysis of the song from the first viewpoint](../2020-03-28_roll-of-the-dice-western-stars/post.md), the optimistic one. And now he's very kindly offered me the chance to present the opposite take: "Western Stars" as a day in the life of a depressed and lonely alcoholic.
 
 [Watch on Youtube: Bruce Springsteen - Western Stars (Official Video)](https://www.youtube.com/watch?v=_IXzAAKrsFE)
 
-Ken points out that "Western Stars" has much the same beginning as "Dancing in the Dark." And like "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)," it slips something by you. It plays with what you think you know, what you think you're hearing.
+Ken points out that "Western Stars" has much the same beginning as "Dancing in the Dark." And like "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," it slips something by you. It plays with what you think you know, what you think you're hearing.
 
 The first time you hear the lyric "I get up in the evening," there's a little jolt of surprise, of a cliché being overturned. Only on a second listen do you hear the line as the literal truth: the daily grind of a character who works nights, goes to bed in the morning, gets up after dark.
 
@@ -62,7 +62,7 @@ This is a patchwork chorus, assembled from the classics. The opening line comes 
 
 [Watch on Youtube: Waylon Jennings - Ride Me Down Easy](https://www.youtube.com/watch?v=7XS3IE3ktJ8)
 
-The phrase "western stars" has a double, or even a triple meaning; the stars that hang over the American West (reminiscent of Woody Guthrie's "California Stars," a painfully nostalgic late-career song, released posthumously), the vanished stars of Hollywood Westerns, and lastly, the Tennyson poem "Ulysses," the same portrait of Odysseus in old age that gave us the title "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)."
+The phrase "western stars" has a double, or even a triple meaning; the stars that hang over the American West (reminiscent of Woody Guthrie's "California Stars," a painfully nostalgic late-career song, released posthumously), the vanished stars of Hollywood Westerns, and lastly, the Tennyson poem "Ulysses," the same portrait of Odysseus in old age that gave us the title "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."
 
 In other words, there is a staggering amount of Past packed into that chorus. And yet, with the strings rising gently behind it, it sounds hopeful. The singer sounds as if he expects the past to return, the western stars to resurrect themselves, as if he's just waiting for everything to come back to life.
 

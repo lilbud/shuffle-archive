@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1978-0905.jpg.webp)
 
-**1979:** Bruce and the E Street Band record “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” at The Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band record “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” at The Power Station in New York City.<br>
 
 [Watch on Youtube: Hungry Heart](https://www.youtube.com/watch?v=0rapQZffjOM)
 
@@ -24,7 +24,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/OcpzKL31)
 
-**1986:** At the MTV Video Music Awards, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” loses in the Best Male Video category to Robert Palmer’s “Addicted to Love” and in the Best Overall Performance in a Video category to David Bowie and Mick Jagger’s “[Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/).”<br>
+**1986:** At the MTV Video Music Awards, “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)” loses in the Best Male Video category to Robert Palmer’s “Addicted to Love” and in the Best Overall Performance in a Video category to David Bowie and Mick Jagger’s “[Dancing in the Street](../2020-09-12_cover-me-dancing-in-the-street/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 
@@ -38,13 +38,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/Newsday_1988_09_06_11-scaled.jpg.webp)
 
-**2006:** Joe Grushecky releases his *A Good Life* album, featuring several guest appearances by Bruce, including the only studio recording of “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/).”<br>
+**2006:** Joe Grushecky releases his *A Good Life* album, featuring several guest appearances by Bruce, including the only studio recording of “[Code of Silence](../2018-08-27_codeofsilence/post.md).”<br>
 
 [Watch on Youtube: A Good Life](https://www.youtube.com/playlist?list=OLAK5uy_nScCi_eew-MTJj3c6ZmgoqF1QWO6REX3Y)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2006-09-05.jpg.webp)
 
-**2016:** Bruce and the E Street Band make up for an earlier hurricane-induced rainout in Virginia Beach, playing an amazing chronological set for a reduced crowd in an already intimate outdoor venue. (The show was originally scheduled for a Saturday night on a holiday weekend–when the show was rescheduled for Labor Day, many fans already had their return trip booked for that day, as school started for many the following morning.) Apparently the string section couldn’t make it either, so Bruce opens the show with an acoustic “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” on piano instead. “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)” and “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” are tour premieres tonight. For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/09/05/where-the-band-was-virginia-beach-september-5-2016/)<br>
+**2016:** Bruce and the E Street Band make up for an earlier hurricane-induced rainout in Virginia Beach, playing an amazing chronological set for a reduced crowd in an already intimate outdoor venue. (The show was originally scheduled for a Saturday night on a holiday weekend–when the show was rescheduled for Labor Day, many fans already had their return trip booked for that day, as school started for many the following morning.) Apparently the string section couldn’t make it either, so Bruce opens the show with an acoustic “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)” on piano instead. “[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)” and “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” are tour premieres tonight. For more highlights from this show, see my [*Where the Band Was* report.](../2018-09-05_where-the-band-was-virginia-beach-september-5-2016/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen - For You (live in Virginia Beach 2016)](https://www.youtube.com/watch?v=f_O0mnDPRfQ)
 

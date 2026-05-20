@@ -2,7 +2,7 @@ When the dice turned up this song as my assignment for today, I gave serious con
 
 I'm well aware that The Band's 1969 song is occasionally co-opted by those who believe the song glorifies the confederacy by giving a voice to a fictional defeated rebel soldier, and I have no wish to stoke those fires further, especially at a moment like this.
 
-But I ultimately decided to run with it, because Robbie Robertson's song is too exquisite to be defined by those who misunderstand it. There's a difference between empathy and sympathy, and I've never believed that "The Night They Drove Old Dixie" down glorifies the Civil War South any more than "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" glorifies serial killers.
+But I ultimately decided to run with it, because Robbie Robertson's song is too exquisite to be defined by those who misunderstand it. There's a difference between empathy and sympathy, and I've never believed that "The Night They Drove Old Dixie" down glorifies the Civil War South any more than "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)" glorifies serial killers.
 
 [Watch on Youtube: The Night They Drove Old Dixie Down](https://www.youtube.com/watch?v=2o_wI53oAC4)
 
@@ -26,7 +26,7 @@ It's been covered by bands both southern and northern, by artists both Black and
 
 [Watch on Youtube: The Night They Drove Old Dixie Down - Dobie Gray - Volunteer Jam VI](https://www.youtube.com/watch?v=3SYtqI0PQLY)
 
-And yet "The Night They Drove Old Dixie Down" was originally a B-side (to "[Up on Cripple Creek](https://estreetshuffle.com/index.php/2018/01/29/meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/)") only charting at #25 on the Billboard Hot 100.
+And yet "The Night They Drove Old Dixie Down" was originally a B-side (to "[Up on Cripple Creek](../2018-01-29_meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/post.md)") only charting at #25 on the Billboard Hot 100.
 
 But that was enough to attract the attention of a young Bruce Springsteen, who turned 20 the week that "The Night They Drove Old Dixie Down" was released.
 

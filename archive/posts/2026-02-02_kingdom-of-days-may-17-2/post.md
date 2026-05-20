@@ -4,7 +4,7 @@
 
 **1993:** Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of “It’s All Right.”<br>
 
-**2003:** “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” makes its Rising Tour premiere in Barcelona.<br>
+**2003:** “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)” makes its Rising Tour premiere in Barcelona.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E street Band The Ties that Bind BCN](https://www.youtube.com/watch?v=6Vyn76to6es)
 

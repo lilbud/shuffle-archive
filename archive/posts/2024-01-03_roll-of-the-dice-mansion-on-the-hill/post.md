@@ -80,7 +80,7 @@ The mansion is a source of mystery and fascination. Behind its gates, inside its
 > *Me and my sister we'd hide out in the tall corn fields*<br>
 > *Sit and listen to the mansion on the hill*<br>
 
-In a nightly ritual, father and son spend their summer evenings looking up at the mansion, imagining an unimaginable life. There's an implicit statement here, one that recurs often in Bruce's work: as it is with the father, so shall it be with the son. (We'll witness a similar ritual a year or so later in "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).") Our narrator is destined to live his life on the outside of those gates, just like his father before him.
+In a nightly ritual, father and son spend their summer evenings looking up at the mansion, imagining an unimaginable life. There's an implicit statement here, one that recurs often in Bruce's work: as it is with the father, so shall it be with the son. (We'll witness a similar ritual a year or so later in "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md).") Our narrator is destined to live his life on the outside of those gates, just like his father before him.
 
 Or is he?
 

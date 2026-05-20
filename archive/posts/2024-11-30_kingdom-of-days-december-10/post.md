@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/Dayton_Daily_News_1996_12_15_51-scaled.jpg.webp)
 
-**1998:** Bruce wins a £2 million court battle over a bootlegger’s ability to publish his early pre-Columbia songs. That evening, Bruce appears on stage in Paris at a benefit for Amnesty International. The show is a tenth anniversary reunion for the original Human Rights Now! Tour, and Bruce, Peter Gabriel, Tracy Chapman, and Youssou N’Dour (Sting is not present) reprise their ensemble performance of “[Get Up, Stand Up](https://estreetshuffle.com/index.php/2020/11/13/matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/).” Bruce also plays a brief set of his own.<br>
+**1998:** Bruce wins a £2 million court battle over a bootlegger’s ability to publish his early pre-Columbia songs. That evening, Bruce appears on stage in Paris at a benefit for Amnesty International. The show is a tenth anniversary reunion for the original Human Rights Now! Tour, and Bruce, Peter Gabriel, Tracy Chapman, and Youssou N’Dour (Sting is not present) reprise their ensemble performance of “[Get Up, Stand Up](../2020-11-13_matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/post.md).” Bruce also plays a brief set of his own.<br>
 
 [Watch on Youtube: Bruce Springsteen Recollections about Amnesty's 1998 Paris Concert](https://www.youtube.com/watch?v=9ScY5MAoeGg)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/Asbury_Park_Press_Tue__Dec_12__2006_.jpg.webp)
 
-**2007:** The Magic Tour continues its Scandinavian leg, stopping at the Globe Arena in Stockholm for a night, where Clarence’s son Christopher joins the band for “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”<br>
+**2007:** The Magic Tour continues its Scandinavian leg, stopping at the Globe Arena in Stockholm for a night, where Clarence’s son Christopher joins the band for “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - I'll Work For Your Love - Live 2007](https://www.youtube.com/watch?v=pyLicU8OX5k)
 

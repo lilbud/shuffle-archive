@@ -8,7 +8,7 @@ That said, let's tackle "Lift Me Up" on its own.
 
 Bruce wrote "Lift Me Up" on request from *Limbo* director John Sayles and producer Maggie Renzi, who ran into Bruce at an airport and asked if he could provide a song for the end of the film–something that was simultaneously about healing and risk.
 
-Bruce had reportedly been working on a song for about three years that he thought might work. (Note: given that the film came out in 1999, that would make "Lift Me Up" a likely castoff from [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).
+Bruce had reportedly been working on a song for about three years that he thought might work. (Note: given that the film came out in 1999, that would make "Lift Me Up" a likely castoff from [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).
 
 Bruce sings the entire song in a falsetto–something Bruce had experimented with before but never fully committed to–which amplifies the ethereal nature of the melody. Bruce also plays all instruments–guitar, bass, keyboards, percussion–making this track a truly solo effort.
 
@@ -30,7 +30,7 @@ The chains and rings may be metaphor, but they may also be literal–a wedding r
 > *Veiled behind the morning clouds*
 > *I'll take the fate the daylight brings*
 
-The final verse has echoes of "[Countin' on a Miracle](https://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/)," with the narrator savoring every detail, every sensation, in case they never come again:
+The final verse has echoes of "[Countin' on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md)," with the narrator savoring every detail, every sensation, in case they never come again:
 
 > *Your skin, your hand upon my neck*
 > *This skin, your fingers on my skin*

@@ -8,7 +8,7 @@ I was genuinely excited for the event, and not just because of the exotic travel
 
 Almost all of the fifteen finalists checked that box with their video submissions, and I was eager to see how their arrangements would translate to the stage. I had a short selection of a few personal favorites that I was particularly looking forward to see performed live.
 
-But Iacopo Fedi's cover of "[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)" wasn't one of them.
+But Iacopo Fedi's cover of "[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)" wasn't one of them.
 
 [Watch on Youtube: Man's Job - Iacopo Fedi](https://www.youtube.com/watch?v=856UzDiB5zo)
 

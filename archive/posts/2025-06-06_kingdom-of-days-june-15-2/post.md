@@ -10,9 +10,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1974-0615.jpg.webp)
 
-**1979:** Bruce and the E Street Band work on “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)” at The Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” at The Power Station in New York City.<br>
 
-**1981:** Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing “[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)” for the first time ever along with his one and only performance of “[School Is Out](https://estreetshuffle.com/index.php/2018/09/29/meeting-across-the-river-gary-u-s-bonds-and-bruce-springsteen-school-is-out/).”<br>
+**1981:** Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing “[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)” for the first time ever along with his one and only performance of “[School Is Out](../2018-09-29_meeting-across-the-river-gary-u-s-bonds-and-bruce-springsteen-school-is-out/post.md).”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3)
 
@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1981-0615.jpg.webp)
 
-**1983:** At The Hit Factory in New York City, Bruce records “[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)” and “[Don’t Back Down.](https://estreetshuffle.com/index.php/2022/01/06/roll-of-the-dice-dont-back-down/)” The former won’t be released for another fifteen years; the latter is unreleased to this day.<br>
+**1983:** At The Hit Factory in New York City, Bruce records “[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)” and “[Don’t Back Down.](../2022-01-06_roll-of-the-dice-dont-back-down/post.md)” The former won’t be released for another fifteen years; the latter is unreleased to this day.<br>
 
 [Watch on Youtube: Cynthia (Studio Outtake - 1983)](https://www.youtube.com/watch?v=wzCpphwK8vk)
 
@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1985-0615.jpg.webp)
 
-**1988:** “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.<br>
+**1988:** “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.<br>
 
 [Watch on Youtube: Bruce Springsteen Live in Rome 1988](https://www.youtube.com/watch?v=TY8qIOyupTs)
 
@@ -54,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1992-06-15.jpg.webp)
 
-**1999:** “[Take ’em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)” makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.<br>
+**1999:** “[Take ’em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)” makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wGZfQBl3)
 
@@ -80,13 +80,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2004-06-15b.jpg.webp)
 
-**2005:** The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres “[Countin’ on a Miracle](https://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/).”<br>
+**2005:** The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres “[Countin’ on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Countin' on a Miracle (Live 2005-06-15)](https://www.youtube.com/watch?v=wm_jQkeLGxM)
 
 [Watch on Youtube: Bruce Springsteen - INTO THE FIRE 2005 live](https://www.youtube.com/watch?v=jiRXwCXeLZ8)
 
-**2013:** Bruce makes his first appearance at the new Wembley Stadium, where he plays the [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)album from start to finish.<br>
+**2013:** Bruce makes his first appearance at the new Wembley Stadium, where he plays the [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)album from start to finish.<br>
 
 [Watch on Youtube: Bruce Springsteen - Land Of Hope And Dreams (live @Wembley, London)](https://www.youtube.com/watch?v=bhIGUfHGmrg)
 

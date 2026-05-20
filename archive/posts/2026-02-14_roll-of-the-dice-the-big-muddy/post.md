@@ -35,7 +35,7 @@ We must take a moment to acknowledge the brilliance in Bruce's songwriting in th
 
 One verse in, and we've got a *triple* entendre–and in a song that's all about moral ambiguity, what could be more perfect than that?
 
-In the second verse, the scene shifts–similar, in a way, to "[Reason to Believe,](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" in which Bruce uses vignettes rather than an overarching narrative to illustrate a point.
+In the second verse, the scene shifts–similar, in a way, to "[Reason to Believe,](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" in which Bruce uses vignettes rather than an overarching narrative to illustrate a point.
 
 > *Got in some trouble and needed a hand from a friend of mine*<br>
 > *This old friend had a figure in mind*<br>

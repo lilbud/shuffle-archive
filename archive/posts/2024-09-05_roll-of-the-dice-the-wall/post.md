@@ -30,7 +30,7 @@ It was the dinner reception that evening that Bruce found disquieting. In a room
 
 Bruce remembers Joe sending him the article "a week or so later." Joe remembers showing it to him in person the next summer when they got together for one of their periodic songwriting sessions. Both may be true, and both men were certainly inspired by the idea of an ever-growing totemic collection and its unlikely curators.
 
-Although the session yielded such gems as "Another Thin Line" and "[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)," Joe and Bruce couldn't quite get traction on a song about The Wall. They tried exploring a few ideas and directions but ultimately moved on to greener fields.
+Although the session yielded such gems as "Another Thin Line" and "[Code of Silence](../2018-08-27_codeofsilence/post.md)," Joe and Bruce couldn't quite get traction on a song about The Wall. They tried exploring a few ideas and directions but ultimately moved on to greener fields.
 
 Neither of them abandoned the idea, however. In 2002, Joe released "On The Wall" on his *Fingerprints* album.
 

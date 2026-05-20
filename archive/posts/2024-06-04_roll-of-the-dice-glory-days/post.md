@@ -18,7 +18,7 @@ And in Kilkenny, he had to stop the show when he realized he was physically inca
 
 It's been a decade since Bruce last scheduled his shows on back-to-back nights; now he needs at least three days to recover between shows.
 
-He didn't dare attempt his customary knee slide during "[Waitin'](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)" in Sunderland. He no longer mounts pianos during "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)." His hair is thinner, his body leaner. He moves less but breathes harder than in tours of yesteryear.
+He didn't dare attempt his customary knee slide during "[Waitin'](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)[on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" in Sunderland. He no longer mounts pianos during "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." His hair is thinner, his body leaner. He moves less but breathes harder than in tours of yesteryear.
 
 And yet each night, at the end of a setlist laced with loss and remembrance, Bruce Springsteen and the E Street Band launch into a song that rings with wry and raucous irony.
 
@@ -34,7 +34,7 @@ We can only guess (until we get a chance to ask him) that "Glory Days" wasn't th
 
 This early version of "Glory Days" was most likely titled "Stockton," a name which punctuates its brief chorus (a chorus in which the phrase "glory days" never appears). Stockton is a death trap of a town, a town full of losers who never pull out.
 
-We recognize the first verse, with its washed-up high school hero. The second verse, while unfamiliar to us in context of the 1985 hit single, clearly walks well-trod [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)and *Nebraska* ground.
+We recognize the first verse, with its washed-up high school hero. The second verse, while unfamiliar to us in context of the 1985 hit single, clearly walks well-trod [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)and *Nebraska* ground.
 
 By the time Bruce finished the song and brought it to the E Street Band to record, "Stockton" had shed most of its darker shading and evolved into a song of wistful nostalgia.
 

@@ -24,7 +24,7 @@ Bruce first covered "Double Shot" at a late night surprise appearance with Beave
 
 [Watch on Youtube: Double Shot of my Baby's Love - Bruce Springsteen (9-09-1978 Athletic & Convocation Center, Indiana)](https://www.youtube.com/watch?v=baO2yK_s_pc)
 
-Bruce introduced the song that night as "the greatest fraternity rock song of all time," coaching the audience to sing along and "move like you're drunk!" Frat rock was already on Bruce's mind by that time; he'd debuted "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" just a few weeks before, almost certainly inspired by "Double Shot."
+Bruce introduced the song that night as "the greatest fraternity rock song of all time," coaching the audience to sing along and "move like you're drunk!" Frat rock was already on Bruce's mind by that time; he'd debuted "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" just a few weeks before, almost certainly inspired by "Double Shot."
 
 The song went over big with the audience, so when Bruce returned on the River Tour, he made "Double Shot" a South Bend double shot.
 

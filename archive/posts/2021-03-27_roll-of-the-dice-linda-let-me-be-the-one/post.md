@@ -6,9 +6,9 @@ That's how close to glory it came; instead, "Linda Let Me Be The One" is buried 
 
 [Watch on Youtube: Linda Let Me Be The One (Studio Outtake - 1975)](https://www.youtube.com/watch?v=G4yx0JdiKfo)
 
-And that's too bad, because "Linda" would have fit perfectly on *Born to Run*. Even more than the title track, "Linda Let Me Be The One" is an homage to Phil Spector, starting with that "[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)" beat that Bruce loved so much at the time.
+And that's too bad, because "Linda" would have fit perfectly on *Born to Run*. Even more than the title track, "Linda Let Me Be The One" is an homage to Phil Spector, starting with that "[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md)" beat that Bruce loved so much at the time.
 
-(That famous beat shows up again and again in Bruce's mid-seventies songwriting. See "[Gotta Get That Feeling](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/)" and "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)," for example.)
+(That famous beat shows up again and again in Bruce's mid-seventies songwriting. See "[Gotta Get That Feeling](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)" and "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)," for example.)
 
 But it's more than the beat: "Linda Let Me Be The One" is a perfectly constructed Spectorian girl group song from its lush, romantic backing track to its lyrical melodrama. (I've always considered "Linda" to be an answer song of sorts to "Leader of the Pack.") Even the title and chorus are hat tips to Spector–there's not a lot of difference between "will you let me be the one" and "won't you please be my baby."
 
@@ -65,7 +65,7 @@ The E Street Band pulled it off pretty well regardless. (Well, mostly… there's
 
 [Watch on Youtube: Bruce Springsteen & The ESB ☜❤️☞ Linda Let Me Be The One ∫ Hearts Of Stone {2014}](https://www.youtube.com/watch?v=wG9_OU0J04U)
 
-But while Bruce may have kept "Linda" in the vault until 1998, he liberated her melody much sooner–an epiphany that Bruce seemed to realize in the moment when he performed "Linda Let Me Be The One" for the first and only time to date, immediately after he performed the song it bears an uncanny resemblance to: "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)."
+But while Bruce may have kept "Linda" in the vault until 1998, he liberated her melody much sooner–an epiphany that Bruce seemed to realize in the moment when he performed "Linda Let Me Be The One" for the first and only time to date, immediately after he performed the song it bears an uncanny resemblance to: "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)."
 
 [Watch on Youtube: Linda Let Me Be the One (edited)- Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=KtyeEEnkLAk)
 

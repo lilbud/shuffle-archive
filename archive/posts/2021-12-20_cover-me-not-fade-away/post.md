@@ -8,7 +8,7 @@ The Stones might have been the first band to chart with “Not Fade Away,” but
 
 [Watch on Youtube: Buddy Holly - Not Fade Away (1957)](https://www.youtube.com/watch?v=NN2L84dvoag)
 
-Holly’s version of “Not Fade Away” was the B-side to “[Oh Boy!](https://estreetshuffle.com/index.php/2018/05/17/cover-me-oh-boy/)” and while it never charted under its own steam, *Rolling Stone* still enshrined it at #108 on their 500 Greatest Songs of All Time rankings.
+Holly’s version of “Not Fade Away” was the B-side to “[Oh Boy!](../2018-05-17_cover-me-oh-boy/post.md)” and while it never charted under its own steam, *Rolling Stone* still enshrined it at #108 on their 500 Greatest Songs of All Time rankings.
 
 Bruce was probably familiar with both versions of the song, but it was The Stones’ recording that captured his imagination from the moment he first saw the photo sleeve for the single. In the clip below, Bruce reminisces about that moment with Little Steven.
 
@@ -18,11 +18,11 @@ Bruce has covered and teased snippets of “Not Fade Away” since very early in
 
 [Watch on Youtube: Bruce Springsteen: NOT FADE AWAY WITH A SNIPPET OF BO DIDDLEY'S A GUNSLINGER](https://www.youtube.com/watch?v=YnaPNnZNTeQ)
 
-It wasn’t until the Darkness Tour that Bruce brought “Not Fade Away” to the E Street stage, as part of a primal, percussive medley that led seamlessly into “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/).”
+It wasn’t until the Darkness Tour that Bruce brought “Not Fade Away” to the E Street stage, as part of a primal, percussive medley that led seamlessly into “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md).”
 
 [Watch on Youtube: Bruce Springsteen Not Fade Away Passaic](https://www.youtube.com/watch?v=Y8xv8JtPo3o)
 
-That medley (often featuring “Mona,” “[Gloria](https://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/),” and “[Preacher’s Daughter](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)” as well) was a nightly highlight of the Darkness Tour, but once the tour ended, “Not Fade Away” kept a much lower profile.
+That medley (often featuring “Mona,” “[Gloria](../2018-03-16_cover-me-gloria/post.md),” and “[Preacher’s Daughter](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)” as well) was a nightly highlight of the Darkness Tour, but once the tour ended, “Not Fade Away” kept a much lower profile.
 
 Still, the very fact that almost every rock and roll musician worth their salt can play “Not Fade Away” makes the song a likely set list candidate for impromptu guest appearances. That’s probably why so many of Bruce’s post-Darkness Tour covers of “Not Fade Away” were on someone else’s stage.
 

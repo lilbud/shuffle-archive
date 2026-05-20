@@ -2,7 +2,7 @@
 
 "Thundercrack" is no "Rosalita."
 
-I'm not even sure I agree with the comparison. If anything, "Thundercrack" is the original "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)," so similar are those two songs in content and structure.
+I'm not even sure I agree with the comparison. If anything, "Thundercrack" is the original "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)," so similar are those two songs in content and structure.
 
 In fact, "Thundercrack" wasn't even the reliable main-set ender it's commonly believed to have been. Rosie often followed it even as far back as the third known appearance of "Thundercrack" in early 1973 and occasionally seems to have substituted for it entirely. Bruce's "later on" wasn't very later on. (Both "Rosalita" and "Thundercrack" are reported to be based on the same girl, however: Bruce's girlfriend, Diane Lozito.)
 

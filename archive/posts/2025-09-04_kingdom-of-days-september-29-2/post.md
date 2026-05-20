@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1976-09-29.jpg.webp)
 
-**1977:** Bruce records “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” and “[Someday (We’ll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)” at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.<br>
+**1977:** Bruce records “[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)” and “[Someday (We’ll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)” at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.<br>
 
 [Watch on Youtube: Rendezvous](https://www.youtube.com/watch?v=0ena3tWYo-g)
 
@@ -64,7 +64,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1996-09-29.jpg.webp)
 
-**2002:** Bruce tour premieres “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” when the Rising Tour stops at the Fargodome in North Dakota.<br>
+**2002:** Bruce tour premieres “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” when the Rising Tour stops at the Fargodome in North Dakota.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VydrrUiL)
 
@@ -92,7 +92,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Do I Love You (Indeed I Do) (Official Video)](https://www.youtube.com/watch?v=O0jBwk71Qcw)
 
-That evening, Bruce and Patti perform “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
+That evening, Bruce and Patti perform “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
 > View this post on Instagram
 >
 > [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)

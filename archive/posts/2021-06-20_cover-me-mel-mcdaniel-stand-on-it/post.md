@@ -1,10 +1,10 @@
 In 1986, Bruce Springsteen was still surfing a wave of super-stardom on the heels of the massive success that was *Born in the U.S.A.*
 
-One might think that eighteen months after the release of the album and a few months after the end of his record-breaking tour, popular attention might have been ready to move on. Yet, Bruce still managed to score two Top Ten singles in 1986: "[My Hometown,](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)" which peaked at #6 in the early weeks of the year, and "[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)," which notched a #9 berth at the tail end of it.
+One might think that eighteen months after the release of the album and a few months after the end of his record-breaking tour, popular attention might have been ready to move on. Yet, Bruce still managed to score two Top Ten singles in 1986: "[My Hometown,](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" which peaked at #6 in the early weeks of the year, and "[War](../2019-05-27_cover-me-war/post.md)," which notched a #9 berth at the tail end of it.
 
 Escaping most of his fans' notice at the time, however, was a *third* hit single in 1986 with a Springsteen credit.
 
-In the waning days of summer, the late country star Mel McDaniel released a cover of Bruce's obscure B-side "[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)" as the lead single for his upcoming album, *Just Can't Sit Down Music.*
+In the waning days of summer, the late country star Mel McDaniel released a cover of Bruce's obscure B-side "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)" as the lead single for his upcoming album, *Just Can't Sit Down Music.*
 
 [Watch on Youtube: Mel McDaniel -- Stand On It](https://www.youtube.com/watch?v=vbdWX1Sf-74)
 

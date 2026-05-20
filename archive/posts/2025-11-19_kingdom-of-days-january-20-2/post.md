@@ -10,9 +10,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1981-0120b.jpg.webp)
 
-**1983:** Bruce records “[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)” and “[Betty Jean](https://estreetshuffle.com/index.php/2019/02/13/roll-of-the-dice-betty-jean/).” Both remain unreleased to this day.<br>
+**1983:** Bruce records “[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)” and “[Betty Jean](../2019-02-13_roll-of-the-dice-betty-jean/post.md).” Both remain unreleased to this day.<br>
 
-**1987:** In his home studio, Bruce kicks off recording sessions for what will become his next album, *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/).* On this first day, Bruce records “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/),” “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/),” and “[When You Need Me](https://estreetshuffle.com/index.php/2020/01/30/roll-of-the-dice-when-you-need-me/).” That last one won’t be released for more than a decade.<br>
+**1987:** In his home studio, Bruce kicks off recording sessions for what will become his next album, *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* On this first day, Bruce records “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/),” “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/),” and “[When You Need Me](../2020-01-30_roll-of-the-dice-when-you-need-me/post.md).” That last one won’t be released for more than a decade.<br>
 
 [Watch on Youtube: Springsteen When You Need Me](https://www.youtube.com/watch?v=SEFHIAdPyo4)
 
@@ -30,13 +30,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1988-01-20.png.webp)
 
-**1991:** Bruce joins Max and others at McLoone’s Rum Runner in Sea Bright, New Jersey for a benefit for Jim Faulkner. Amongst the set of covers: a smoking “[Tobacco Road](https://estreetshuffle.com/index.php/2018/11/21/meeting-across-the-river-bruce-springsteen-max-weinberg-and-tim-mcloone-tobacco-road/).”<br>
+**1991:** Bruce joins Max and others at McLoone’s Rum Runner in Sea Bright, New Jersey for a benefit for Jim Faulkner. Amongst the set of covers: a smoking “[Tobacco Road](../2018-11-21_meeting-across-the-river-bruce-springsteen-max-weinberg-and-tim-mcloone-tobacco-road/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen, Max Weinberg, Tim McLoone - "Tobacco Road" - Sea Bright, 1991-01-20](https://www.youtube.com/watch?v=x_4ldqSuqNg)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Asbury_Park_Press_1991_01_25_Page_38.jpg.webp)
 
-**1994**: At the Rock and Roll Hall of Fame induction ceremony, Rod Stewart and Elton John are slated to perform a duet of “[Come Together.](https://estreetshuffle.com/index.php/2018/01/15/meeting-across-the-river-bruce-springsteen-and-axl-rose/)” At the last minute, Rod isn’t able to make it, so the producers ask Bruce to step in. Bruce declines, so they move on to Axl Rose, who accepts. Apparently Axl is a more intriguing duet partner than Elton, though, because when Axl asks Bruce to join him, this time Bruce says yes. Axl and Bruce had no warning this was coming, and therefore no rehearsal time. Mere minutes after being asked to step in, this is what went down.<br>
+**1994**: At the Rock and Roll Hall of Fame induction ceremony, Rod Stewart and Elton John are slated to perform a duet of “[Come Together.](../2018-01-15_meeting-across-the-river-bruce-springsteen-and-axl-rose/post.md)” At the last minute, Rod isn’t able to make it, so the producers ask Bruce to step in. Bruce declines, so they move on to Axl Rose, who accepts. Apparently Axl is a more intriguing duet partner than Elton, though, because when Axl asks Bruce to join him, this time Bruce says yes. Axl and Bruce had no warning this was coming, and therefore no rehearsal time. Mere minutes after being asked to step in, this is what went down.<br>
 
 [Watch on Youtube: Axl Rose and Bruce Springsteen perform "Come Together"](https://www.youtube.com/watch?v=UtzkBewRsiE)
 
@@ -48,6 +48,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3)
 
-That evening, Bruce kicks off the inaugural celebration for President Joe Biden with a gorgeous solo performance of “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).”
+That evening, Bruce kicks off the inaugural celebration for President Joe Biden with a gorgeous solo performance of “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md).”
 
 [Watch on Youtube: Bruce Springsteen Performs "Land of Hope and Dreams"| Biden-Harris Inauguration 2021](https://www.youtube.com/watch?v=fW_Vny_aXNM)

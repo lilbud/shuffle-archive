@@ -16,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1981-09-08.jpg.webp)
 
-**1984:** At Night Two in Hartford on the Born in the U.S.A. Tour, Bruce plays “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” for the very first time.<br>
+**1984:** At Night Two in Hartford on the Born in the U.S.A. Tour, Bruce plays “[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)” for the very first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live debut of "State Trooper" Hartford, 1984-09-08](https://www.youtube.com/watch?v=54ioyqhbVPQ)
 
@@ -40,7 +40,7 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/maxweinbergjay.jpg.webp)
 
-**1994:** Bruce wins the MTV Video Music Award for Best Video from a Film for “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” (although he loses to Tom Petty’s “Mary Jane’s Last Dance” in the Best Male Video category). Bruce appears live at the awards, performing his award-winning song backed by Roy, Max, Bobby King, and Tommy Sims.<br>
+**1994:** Bruce wins the MTV Video Music Award for Best Video from a Film for “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)” (although he loses to Tom Petty’s “Mary Jane’s Last Dance” in the Best Male Video category). Bruce appears live at the awards, performing his award-winning song backed by Roy, Max, Bobby King, and Tommy Sims.<br>
 
 [Watch on Youtube: Bruce Springsteen Live performance VMA Awards Streets of Philedephia](https://www.youtube.com/watch?v=9Wk02N6bcIw)
 
@@ -56,7 +56,7 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1999-09-08a.jpg.webp)
 
-**2012:** On Night Two at Wrigley Field, Eddie Vedder and Tom Morello reprise their guest appearances from the night before, and Bruce plays “[This Depression](https://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)” for only the third time ever.<br>
+**2012:** On Night Two at Wrigley Field, Eddie Vedder and Tom Morello reprise their guest appearances from the night before, and Bruce plays “[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)” for only the third time ever.<br>
 
 [Watch on Youtube: Bruce Springsteen - This Depression (With Tom Morello) - Wrigley Field; Chicago, IL - 9.8.2012](https://www.youtube.com/watch?v=_TRdkkamG5o)
 

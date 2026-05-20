@@ -16,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-15b.png.webp)
 
-**1983:** In the studio, Bruce records “[Seven Tears](https://estreetshuffle.com/index.php/2019/03/17/roll-of-the-dice-seven-tears/)” and “The Money We Didn’t Make.” The former circulates among collectors, the latter has not yet surfaced.<br>
+**1983:** In the studio, Bruce records “[Seven Tears](../2019-03-17_roll-of-the-dice-seven-tears/post.md)” and “The Money We Didn’t Make.” The former circulates among collectors, the latter has not yet surfaced.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Seven Tears (outtake, '83)](https://www.youtube.com/watch?v=6DNs1enmtNM)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-15.png.webp)
 
-**2014:** The first of two nights in Melbourne features a surprise guest in the opening numbers: Eddie Vedder joins the E Street Band for “Highway to Hell” and “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/).” Another surprise shortly follows: a full performance of the *Born in the U.S.A.* album. Also tour premiering tonight: “[Jole Blon,](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)” “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/),” “[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/),” and “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/).”<br>
+**2014:** The first of two nights in Melbourne features a surprise guest in the opening numbers: Eddie Vedder joins the E Street Band for “Highway to Hell” and “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md).” Another surprise shortly follows: a full performance of the *Born in the U.S.A.* album. Also tour premiering tonight: “[Jole Blon,](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md),” “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md),” and “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Walk on - Highway to Hell - 2014-02-15 Melbourne, Australia](https://www.youtube.com/watch?v=gyUWJ4To0Dg)
 

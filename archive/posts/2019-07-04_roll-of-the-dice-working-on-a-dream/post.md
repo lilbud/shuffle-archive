@@ -26,7 +26,7 @@ Advancing years provide the perspective to view and understand the life, the fam
 
 Bruce didn't write "Working on a Dream" with a political context in mind. (He's confirmed as much in interviews.) He wrote it as an intensely personal song, but the best kind: one that's also universal, that we can all find meaning in.
 
-"Working on a Dream" is a song about building a marriage, a family, a band, an album… anything to which we devote our energy, passion, and hard work. (In this respect, it is very much a sequel to "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/).")
+"Working on a Dream" is a song about building a marriage, a family, a band, an album… anything to which we devote our energy, passion, and hard work. (In this respect, it is very much a sequel to "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md).")
 
 And when we watch the official video below, it's clear that's exactly what Bruce is conveying:
 

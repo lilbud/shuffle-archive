@@ -12,7 +12,7 @@ Coleman was an assistant priest at St. Peter's Church in Freehold when he and an
 
 Coleman (who was "tossed out" of the clergy for being "too progressive," he said in a 2004 *New York Times* interview) opened the club on the evening of September 16, 1967, with The Castiles as its very first headliners.
 
-Father Coleman immediately realized that he was witnessing some serious talent and captured the band's performance with a reel-to-reel tape deck and microphones. That recording survives today and is the earliest known recording of a Bruce Springsteen live performance. (See "[Mr. Jones](https://estreetshuffle.com/index.php/2019/02/01/roll-of-the-dice-mr-jones/)" from that show for the very first live performance of an original Springsteen song.)
+Father Coleman immediately realized that he was witnessing some serious talent and captured the band's performance with a reel-to-reel tape deck and microphones. That recording survives today and is the earliest known recording of a Bruce Springsteen live performance. (See "[Mr. Jones](../2019-02-01_roll-of-the-dice-mr-jones/post.md)" from that show for the very first live performance of an original Springsteen song.)
 
 Two weeks later, The Castiles returned to The Left Foot, and once again Father Coleman was ready. The set list that night was primarily comprised of covers, but there was a single (that we know of) Springsteen original.
 
@@ -32,7 +32,7 @@ The lyrics are elementary–only a day after his seventeenth birthday, Bruce had
 > *Look into my window*
 > *And don't be afraid to try*
 
-As for the music, "Look Into My Window" is clearly Kinks-inspired. Two weeks prior, The Castiles had played a cover of "[See My Friends,](https://estreetshuffle.com/index.php/2020/04/30/cover-me-see-my-friends/)" and the similarities in the two songs' Indian-influenced melodies is striking.
+As for the music, "Look Into My Window" is clearly Kinks-inspired. Two weeks prior, The Castiles had played a cover of "[See My Friends,](../2020-04-30_cover-me-see-my-friends/post.md)" and the similarities in the two songs' Indian-influenced melodies is striking.
 
 Although Bruce would quickly grow by leaps and bounds in both his lyrical skill and originality, he'd continue to wear his musical influences on his sleeve. We're not aware of any other known performances of "Look Into My Window" (although again, documents from this period are rare), so we might consider this song just a stop along the early journey of a budding songwriter.
 

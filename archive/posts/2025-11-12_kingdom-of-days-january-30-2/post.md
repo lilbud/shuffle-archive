@@ -14,7 +14,7 @@
 
 **1998:** Bruce rehearses for a benefit concert in Red Bank for a New Jersey police officer murdered two months earlier.<br>
 
-**2017**: Immediately following President Trump’s first attempt to enact a Muslim ban, Bruce and the E Street Band play Adelaide, Australia, where Bruce makes a public statement against the ban, tailors the set list to the occasion, and dedicates songs to detainees. The set list also includes a cover of Van Morrison’s “[Brown Eyed Girl](https://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/),” notable primarily for the fans dressed as classic American television characters who requested it (a plan years in the making). Richie Sambora joins the band for encores of “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” and “[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/).”<br>
+**2017**: Immediately following President Trump’s first attempt to enact a Muslim ban, Bruce and the E Street Band play Adelaide, Australia, where Bruce makes a public statement against the ban, tailors the set list to the occasion, and dedicates songs to detainees. The set list also includes a cover of Van Morrison’s “[Brown Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md),” notable primarily for the fans dressed as classic American television characters who requested it (a plan years in the making). Richie Sambora joins the band for encores of “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” and “[Shout](../2019-09-12_cover-me-shout/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen in Adelaide - January 30, 2017](https://www.youtube.com/watch?v=vqeVGnWwnxM)
 

@@ -98,7 +98,7 @@ If not for the setting (Jersey vs. Utah), it wouldn't be a stretch to wonder if 
 
 You hear it now, don't you?
 
-You might argue that the rousing music belies this interpretation; I'd counter by pointing out that this would hardly be the only case of Bruce pairing painful, sobering lyrics with an anthem-like melody (see "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)").
+You might argue that the rousing music belies this interpretation; I'd counter by pointing out that this would hardly be the only case of Bruce pairing painful, sobering lyrics with an anthem-like melody (see "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)").
 
 And just like the acoustic blues version of "Born in the U.S.A." brings out the deep meaning and inner pain of that song, so too does the acoustic version of "The Promised Land" from the 1995-1997 and 2005 tours practically beg a darker reading:
 
@@ -127,7 +127,7 @@ Here's an alternate mix of "The Promised Land," minus Bruce's guitar solo. More 
 [Watch on Youtube: Bruce Springsteen The Promised Land London 2013](https://www.youtube.com/watch?v=KxY7CiPQa_g)
 
 **The Promised Land**<br>
-**Recorded** December 1977**Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* (1978), *The Essential Bruce Springsteen* (2003)<br>
+**Recorded** December 1977**Released:** *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)* (1978), *The Essential Bruce Springsteen* (2003)<br>
 **First performed:** May 23, 1978 (Buffalo, NY)<br>
 **Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 

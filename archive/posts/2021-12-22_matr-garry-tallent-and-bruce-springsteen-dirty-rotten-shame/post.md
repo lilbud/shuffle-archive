@@ -2,7 +2,7 @@ Back before the pandemic, when 2020 was shaping up to be a big E Street touring 
 
 And at the height of summer, bassist Garry Tallent released his own solo album–only his second ever–a love letter to garage rock called *More Like Me.*
 
-Buried deep in the album is a cut so tight and terse that you'd have to look to "[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)" to find an officially released track with Bruce on it that clocks in at less time.
+Buried deep in the album is a cut so tight and terse that you'd have to look to "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)" to find an officially released track with Bruce on it that clocks in at less time.
 
 [Watch on Youtube: Dirty Rotten Shame](https://www.youtube.com/watch?v=Gi-bI-1pMXg)
 

@@ -5,7 +5,7 @@ For an important song, "The Angel" gets very little love.
 
 It's derided by critics and fans alike, and even the artist seems content to ignore it. Originally self-touted as one of his best songs (there was never a point at which "The Angel" wasn't a contender for his first album), Bruce has played it in public only three times across five decades. Even "[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" has had five times as many outings as "The Angel."
 
-And yet, "The Angel" is a genuinely significant song. If we want to chart the songwriting path that led Bruce to his landmark "Born to Run," we start way back in the autumn of 1971, when Bruce auditioned for future manager Mike Appel with "[Baby Doll](https://estreetshuffle.com/index.php/2019/10/13/roll-of-the-dice-baby-doll/)," and "[Song for Orphans](https://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)."
+And yet, "The Angel" is a genuinely significant song. If we want to chart the songwriting path that led Bruce to his landmark "Born to Run," we start way back in the autumn of 1971, when Bruce auditioned for future manager Mike Appel with "[Baby Doll](../2019-10-13_roll-of-the-dice-baby-doll/post.md)," and "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)."
 
 Appel thought both songs sucked, but he saw enough potential in Bruce to challenge him to write more songs and then come back and see him again. Bruce accepted the challenge and wrote furiously over the weeks and months that followed. He reported back to Appel in February 1972, and although "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" is the song that famously captivated Appel enough to take Bruce on as a client, Bruce demoed at least seven other songs for Appel that day, two of which would make it onto Bruce's first album. One of them was "The Angel."
 
@@ -15,7 +15,7 @@ Appel thought both songs sucked, but he saw enough potential in Bruce to challen
 
 Hammond signed Bruce to CBS shortly after that, on June 9, 1972. Within three weeks, Bruce had reassembled The Bruce Springsteen Band (minus Steve Van Zandt, still a couple of years away from re-entering the story) and started recording his debut album.
 
-"The Angel" was one of the first songs they recorded, in an arrangement that's essentially a solo Sancious performance. (Richard Davis, who played on Van Morrison's *Astral Weeks* album that Bruce revered, accompanied Sancious on the upright double bass late in the song. Davis would reprise his double bass duty on "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)" for Bruce's third album.)
+"The Angel" was one of the first songs they recorded, in an arrangement that's essentially a solo Sancious performance. (Richard Davis, who played on Van Morrison's *Astral Weeks* album that Bruce revered, accompanied Sancious on the upright double bass late in the song. Davis would reprise his double bass duty on "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" for Bruce's third album.)
 
 [Watch on Youtube: The Angel](https://www.youtube.com/watch?v=s-pdQKRQ_qY)
 
@@ -84,13 +84,13 @@ He chose the original album arrangement, with guest artist Joyce Hammann on viol
 
 [Watch on Youtube: Bruce Springsteen & ESB - The Angel & Lost In The Flood (Live)](https://www.youtube.com/watch?v=830jgSJmBwM)
 
-That night–[November 22, 2009](https://estreetshuffle.com/index.php/2018/11/22/where-the-band-was-buffalo-november-22-2009/)–was the last time Bruce played "The Angel" in public to date. That entire tour-finale night felt like a chapter closing; a premonition that would prove true in ways we couldn't and wouldn't wanted to have imagine at the time.
+That night–[November 22, 2009](../2018-11-22_where-the-band-was-buffalo-november-22-2009/post.md)–was the last time Bruce played "The Angel" in public to date. That entire tour-finale night felt like a chapter closing; a premonition that would prove true in ways we couldn't and wouldn't wanted to have imagine at the time.
 
 Bruce would continue to reach far back into his catalog (and even earlier) in the years to come, but that perfect performance of "The Angel" felt like a farewell and a fond send-off from a once-desperate, hungry songwriter to a song that had long since served its purpose.
 
 **The Angel**<br>
 **Recorded** June 27 – October 26, 1972<br>
-**Released:** [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1973)<br>
+**Released:** [*Greetings from Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)(1973)<br>
 **First performed:** February 14, 1972 (New York City, NY)<br>
 **Last performed:** November 22, 2009 (Buffalo, NY)<br>
 

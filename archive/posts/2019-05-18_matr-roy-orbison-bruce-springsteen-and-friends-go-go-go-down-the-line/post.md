@@ -4,7 +4,7 @@ Bruce was a week past his 38th birthday when this clip was recorded, but that sm
 
 [Watch Video Highlight](https://videopress.com/embed/ZJNY72Yw)
 
-"Go Go Go (Down the Line)" was actually Orbison's very first self-penned song. released as the rockabilly B-side to "[Ooby Dooby](https://estreetshuffle.com/index.php/2022/07/11/matr-roy-orbison-bruce-springsteen-and-friends-ooby-dooby/)" in 1956. It wasn't a hit at the time, but it attracted notable cover artists like The Hollies, The Drifters, Jerry Lee Lewis, and Johnny Cash over the years.
+"Go Go Go (Down the Line)" was actually Orbison's very first self-penned song. released as the rockabilly B-side to "[Ooby Dooby](../2022-07-11_matr-roy-orbison-bruce-springsteen-and-friends-ooby-dooby/post.md)" in 1956. It wasn't a hit at the time, but it attracted notable cover artists like The Hollies, The Drifters, Jerry Lee Lewis, and Johnny Cash over the years.
 
 [Watch on Youtube: GO GO GO (DOWN THE LINE) - Roy Orbison](https://www.youtube.com/watch?v=U6G-GdhLP4o)
 

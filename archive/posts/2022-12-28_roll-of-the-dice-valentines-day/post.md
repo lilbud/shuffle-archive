@@ -1,6 +1,6 @@
 Buried–hidden almost–at the end of an album that primarily serves as a cautionary tale is one of Bruce's most desperate and unabashedly romantic songs in his entire catalog.
 
-Like much of the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)album from which it hails, "Valentine's Day" is a solo effort. Bruce plays every instrument we hear from the ambling, primary guitar melody to the layers of keyboard, mandolin, bass, harmonica and percussion.
+Like much of the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)album from which it hails, "Valentine's Day" is a solo effort. Bruce plays every instrument we hear from the ambling, primary guitar melody to the layers of keyboard, mandolin, bass, harmonica and percussion.
 
 The result is a carefully crafted song that gradually builds instrumental intensity that to match the lyrical desperation that's there from the beginning. Take a listen before we dive in:
 
@@ -53,7 +53,7 @@ Could it be a coincidence that Bruce pairs imagery of a river with a callback ("
 
 Bruce has come far enough in his life to recognize both the danger and the necessity of love. He's seen how succumbing to it rashly can chain you in place forever, and he's seen how accepting it truly can lift you and inspire you to heights you'd never otherwise reach.
 
-I'm absolutely convinced that "Valentine's Day" is meant to be a counterpoint to "[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" and my appreciation for both songs is deepened because of it.
+I'm absolutely convinced that "Valentine's Day" is meant to be a counterpoint to "[The River,](../2021-03-04_roll-of-the-dice-the-river/post.md)" and my appreciation for both songs is deepened because of it.
 
 In fact, the narrator's last words, just before the car vanishes off into the horizon, almost make one wonder whether these are in fact the same characters from "The River."
 

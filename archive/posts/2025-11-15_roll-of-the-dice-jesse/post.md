@@ -60,7 +60,7 @@ We can't be sure here whether Jesse is back on-stage or still at home, but eithe
 
 He knows how to lift his family's spirits in the moment–he lights up the room with his energy and charisma, but just like on-stage, he doesn't hang around for long. Pretty soon he's on his way out again–no time for an encore–off to continue his endless cycle of living on stage and performing at home.
 
-"Jesse" is a startlingly mature and sophisticated song by a *very* young Springteen, and it deserves to be released. It's certainly on par with his material on [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) and would play well acoustically in concert, too.
+"Jesse" is a startlingly mature and sophisticated song by a *very* young Springteen, and it deserves to be released. It's certainly on par with his material on [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) and would play well acoustically in concert, too.
 
 Here's hoping we'll see this one leave the vault someday.
 

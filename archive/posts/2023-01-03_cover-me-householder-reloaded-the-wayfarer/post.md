@@ -8,7 +8,7 @@ HouseHolder Reloaded first formed 30 years ago in Naples, Italy. Formed by three
 
 They reunited earlier this year in order to contribute a cover to the international *Cover Me* contest, recording in Naples, Birmingham, and from remote locations due to the pandemic.
 
-Hoping to choose a song no other contestant would cover, they selected one of Bruce's more recent tracks: "[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/)," from *Western Stars.* They translated Bruce's lyrics into their native Neapolitan, and created an arrangement every bit as captivating as the original.
+Hoping to choose a song no other contestant would cover, they selected one of Bruce's more recent tracks: "[The Wayfarer](../2022-01-29_roll-of-the-dice-the-wayfarer/post.md)," from *Western Stars.* They translated Bruce's lyrics into their native Neapolitan, and created an arrangement every bit as captivating as the original.
 
 [Watch on Youtube: E rimanimm a ce guardà (The Wayfarer - B.Springsteen Cover)](https://www.youtube.com/watch?v=1clwYIQ-hf4)
 

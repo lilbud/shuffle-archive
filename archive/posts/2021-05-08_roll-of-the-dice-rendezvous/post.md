@@ -1,4 +1,4 @@
-If there was at all a benefit to the long period between *Born to Run* and [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) when Bruce was legally barred from recording new material, it's that it gave him a chance to road test some new material before taking it into the studio.
+If there was at all a benefit to the long period between *Born to Run* and [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) when Bruce was legally barred from recording new material, it's that it gave him a chance to road test some new material before taking it into the studio.
 
 "Rendezvous," for instance–Bruce recorded it in the autumn of 1977, but he debuted it in concert more than a year before that. The song benefited from its 45 live performances before Bruce and the band committed it to tape.
 
@@ -82,9 +82,9 @@ I don't expect Bruce to break that streak. As oxymoronic as it sounds, "Rendezvo
 
 [Watch on Youtube: Bruce Springsteen - Rendezvous (Studio Version)](https://www.youtube.com/watch?v=sQKhsmH98E4)
 
-**Bonus #2:** Bruce knew "Rendezvous" wasn't going to find a home on one of his albums, but he seemed determined to find some adoptive parents for it. Bruce first donated the song to Greg Kihn, who released [his cover](https://estreetshuffle.com/index.php/2018/07/17/cover-me-greg-kihn-band-rendezvous/) in 1979, followed by Gary U.S. Bonds, who covered it on his *On the Line* album in 1982.<br>
+**Bonus #2:** Bruce knew "Rendezvous" wasn't going to find a home on one of his albums, but he seemed determined to find some adoptive parents for it. Bruce first donated the song to Greg Kihn, who released [his cover](../2018-07-17_cover-me-greg-kihn-band-rendezvous/post.md) in 1979, followed by Gary U.S. Bonds, who covered it on his *On the Line* album in 1982.<br>
 
-But he also tried giving "Rendezvous" to The Knack in 1978, offering the band a choice between that song and "[Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)." They chose the latter, so we never got to hear what The Knack might have done with "Rendezvous." However: someone actually recorded Bruce *teaching* The Knack how to play "Rendezvous" before the band ultimately decided to pass on it, and that recording escaped as well. It's a fun listen and a glimpse at what an acoustic arrangement of "Rendezvous" might have sounded like.
+But he also tried giving "Rendezvous" to The Knack in 1978, offering the band a choice between that song and "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)." They chose the latter, so we never got to hear what The Knack might have done with "Rendezvous." However: someone actually recorded Bruce *teaching* The Knack how to play "Rendezvous" before the band ultimately decided to pass on it, and that recording escaped as well. It's a fun listen and a glimpse at what an acoustic arrangement of "Rendezvous" might have sounded like.
 
 [Watch Video Highlight](https://videopress.com/embed/d4wU6cXH)
 

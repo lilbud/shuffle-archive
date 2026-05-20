@@ -8,13 +8,13 @@ Let's take a listen.
 
 [Watch on Youtube: Seaside Bar Song (Studio Outtake - 1973)](https://www.youtube.com/watch?v=F1I0nfQqgtM)
 
-The first thing that jumps out at us from "Seaside Bar Song" isn't its lyrics. It's that Farfisa riff that grabs us, bores its way into our brains, and absolutely refuses to let go. In later years, we'd learn to expect this kind of earworm from Bruce, but "Seaside Bar Song" was recorded in mid-1973, long before "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," "[I'm a Rocker,](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)" and "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)."
+The first thing that jumps out at us from "Seaside Bar Song" isn't its lyrics. It's that Farfisa riff that grabs us, bores its way into our brains, and absolutely refuses to let go. In later years, we'd learn to expect this kind of earworm from Bruce, but "Seaside Bar Song" was recorded in mid-1973, long before "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," "[I'm a Rocker,](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" and "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."
 
-Only one other song on the album has such an irresistible riff, and as with "[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)," Springsteen modeled his hook on an early rock and roll classic. Early studio takes of "Seaside Bar Song" were called "Johnny & The Hurricanes Song," and it's not hard to figure out which song Bruce had in mind.
+Only one other song on the album has such an irresistible riff, and as with "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)," Springsteen modeled his hook on an early rock and roll classic. Early studio takes of "Seaside Bar Song" were called "Johnny & The Hurricanes Song," and it's not hard to figure out which song Bruce had in mind.
 
 [Watch on Youtube: RED RIVER ROCK - JOHNNY AND THE HURRICANES 1959](https://www.youtube.com/watch?v=76OSOg5E_HE)
 
-"[Red River Rock](https://estreetshuffle.com/index.php/2020/05/29/cover-me-red-river-rock/)" was a Top Ten hit single for Johnny & The Hurricanes in 1959, but both the song and riff date much further back than that. A nineteenth-century Canadian folk song called "Red River Valley" first recorded by Kelly Harrell in 1926 bears a familiar melody.
+"[Red River Rock](../2020-05-29_cover-me-red-river-rock/post.md)" was a Top Ten hit single for Johnny & The Hurricanes in 1959, but both the song and riff date much further back than that. A nineteenth-century Canadian folk song called "Red River Valley" first recorded by Kelly Harrell in 1926 bears a familiar melody.
 
 [Watch on Youtube: Kelly Harrell-Bright Sherman Valley](https://www.youtube.com/watch?v=uC_vTbOzLyg)
 
@@ -34,7 +34,7 @@ The first thing we might notice is that "Seaside Bar Song" isn't about a bar at 
 > *Bo Diddley, Bo Diddley's at the Seaside Bar*<br>
 > *We'll run barefoot in the sand and listen to his guitar*<br>
 
-"Born to Run" isn't the only future song we hear in "Seaside Bar Song." Bruce would borrow the cadence and car imagery almost a decade later when writing "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" for *Nebraska*.
+"Born to Run" isn't the only future song we hear in "Seaside Bar Song." Bruce would borrow the cadence and car imagery almost a decade later when writing "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" for *Nebraska*.
 
 And then there's the bridge…
 
@@ -51,7 +51,7 @@ Bruce was writing "Rosalita (Come Out Tonight)" contemporaneously, and as is oft
 > *your girl leans over, says*<br>
 > *"Daddy can you turn that radio up any louder?"*<br>
 
-A couple of decades down the road, Bruce nicked "the highway is alive tonight" for "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)," where he uses it in such a diametrically different context that one is forced to wonder whether we're meant to imagine the same narrator in both songs, carefree in youth but downtrodden in middle age.
+A couple of decades down the road, Bruce nicked "the highway is alive tonight" for "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)," where he uses it in such a diametrically different context that one is forced to wonder whether we're meant to imagine the same narrator in both songs, carefree in youth but downtrodden in middle age.
 
 Let's not wonder for long, though, because like "Born to Run" and "Rosalita (Come Out Tonight)," "Seaside Bar Song" is about the glory of *now*, of surviving the day in order to embrace the night and all of the promise it offers.
 

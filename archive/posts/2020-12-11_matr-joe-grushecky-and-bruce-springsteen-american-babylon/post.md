@@ -1,6 +1,6 @@
 It's one of only two songs Bruce *didn't* have any involvement with on Joe Grushecky's 1995 seminal album.
 
-The title track to [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) was all Joe's, and he knew it was great when he wrote it. So did Bruce, who upon hearing the demo that Joe recorded on his own with The Houserockers remarked, "Here's your title track."
+The title track to [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) was all Joe's, and he knew it was great when he wrote it. So did Bruce, who upon hearing the demo that Joe recorded on his own with The Houserockers remarked, "Here's your title track."
 
 [Watch on Youtube: American Babylon](https://www.youtube.com/watch?v=it0MaZc8ewg)
 

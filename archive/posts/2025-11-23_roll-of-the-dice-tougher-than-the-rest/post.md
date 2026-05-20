@@ -2,11 +2,11 @@ Not all of us were born in the U.S.A. We don't all get to that place where we re
 
 But we've all been around a time or two, and somehow we still manage to get out on the dance floor again.
 
-Maybe that's why "Tougher Than the Rest" seems to resonate universally. And not just with Springsteen fans (I've never met one who didn't love this song), but also with romantic non-fans who grudgingly concede that maybe this Bruce guy has at least one redeeming song, and even with people who have no idea who Bruce Springsteen is, let alone that he recorded [one](https://estreetshuffle.com/index.php/2018/09/19/cover-me-everything-but-the-girl-tougher-than-the-rest/) of the [most-covered](https://estreetshuffle.com/index.php/2018/05/09/cover-me-shawn-colvin-tougher-than-the-rest/) love [songs](https://estreetshuffle.com/index.php/2018/02/15/cover-me-martina-linn-tougher-than-the-rest/) of [the](https://estreetshuffle.com/index.php/2020/04/08/cover-me-alexander-schmidt-band-tougher-than-the-rest/) modern [era](https://estreetshuffle.com/index.php/2018/10/14/cover-me-cher-tougher-than-the-rest/).
+Maybe that's why "Tougher Than the Rest" seems to resonate universally. And not just with Springsteen fans (I've never met one who didn't love this song), but also with romantic non-fans who grudgingly concede that maybe this Bruce guy has at least one redeeming song, and even with people who have no idea who Bruce Springsteen is, let alone that he recorded [one](../2018-09-19_cover-me-everything-but-the-girl-tougher-than-the-rest/post.md) of the [most-covered](../2018-05-09_cover-me-shawn-colvin-tougher-than-the-rest/post.md) love [songs](../2018-02-15_cover-me-martina-linn-tougher-than-the-rest/post.md) of [the](../2020-04-08_cover-me-alexander-schmidt-band-tougher-than-the-rest/post.md) modern [era](../2018-10-14_cover-me-cher-tougher-than-the-rest/post.md).
 
 [Watch on Youtube: Tougher Than the Rest](https://www.youtube.com/watch?v=9XQX-zRVK-w)
 
-"Tougher Than the Rest" is a near-perfect song. Knock the studio version down a peg, if you must, for its dated eighties synth and drum machines, but I defy anyone to listen to an acoustic arrangement–with Bruce's piano as powerful a declaration of love as The Big Man's "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" sax solo–and come away unmoved.
+"Tougher Than the Rest" is a near-perfect song. Knock the studio version down a peg, if you must, for its dated eighties synth and drum machines, but I defy anyone to listen to an acoustic arrangement–with Bruce's piano as powerful a declaration of love as The Big Man's "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" sax solo–and come away unmoved.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - TOUGHER THAN THE REST (BEST VERSION EVER, GREAT SOUND, CHRISTIC 1990, LYRICS)](https://www.youtube.com/watch?v=agz4PQyOkqY)
 
@@ -18,9 +18,9 @@ Connection. Specifically, the connection between the singer and his wife.
 
 When Bruce sings "Tougher Than the Rest" solo, it's a beautiful thing. But when he sings it with Patti Scialfa… it's electric. And it's been that way from the very beginning.
 
-Bruce was very wise to make the official video for "Tougher Than the Rest" a live performance (the same one featured on his *Chimes of Freedom* EP) rather than use the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)studio track.
+Bruce was very wise to make the official video for "Tougher Than the Rest" a live performance (the same one featured on his *Chimes of Freedom* EP) rather than use the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)studio track.
 
-It's unclear whether Bruce and Patti were romantically entwined when this performance was captured in Los Angeles on April 27, 1988 (they've always been discreet about exactly when they got together), but if they weren't at the time, [they certainly were about to be](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/). Director Meiert Avis (who also filmed the videos for "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)," "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," and "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)") captured the chemistry between Bruce and Patti… and it's something to see, even all these years later.
+It's unclear whether Bruce and Patti were romantically entwined when this performance was captured in Los Angeles on April 27, 1988 (they've always been discreet about exactly when they got together), but if they weren't at the time, [they certainly were about to be](../2020-03-26_cover-me-boom-boom/post.md). Director Meiert Avis (who also filmed the videos for "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)," "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," and "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)") captured the chemistry between Bruce and Patti… and it's something to see, even all these years later.
 
 [Watch on Youtube: Bruce Springsteen - Tougher Than the Rest (Official Video)](https://www.youtube.com/watch?v=_91hNV6vuBY)
 
@@ -59,7 +59,7 @@ As is often the case with Bruce's song, the vulnerable heart of the song is in t
 
 Our hero may not be bright and shiny anymore, but he's road-tested and reliable–and there comes a time for all of us when that character trait becomes an important part of what we seek in a partner.
 
-(Oh, and that's a clever [tip of the hat to Johnny Cash](https://estreetshuffle.com/index.php/2020/06/16/cover-me-i-walk-the-line/), isn't it?)
+(Oh, and that's a clever [tip of the hat to Johnny Cash](../2020-06-16_cover-me-i-walk-the-line/post.md), isn't it?)
 
 > *Well it ain't no secret I've been around a time or two*<br>
 > *Well I don't know baby, maybe you've been around too*<br>
@@ -73,7 +73,7 @@ This is another great example of the expert craftsmanship on display in this son
 
 The notion of a dance as metaphor for love…. well, that's certainly not new. But rarely is it so perfectly placed–we can easily visualize our hero getting off his bar stool, extending an arm to his girl, and leading her onto the dance floor, and we can imagine her (hopefully) momentary hesitation as she weighs whether to take the chance.
 
-Love never stops being a dance. And as Bruce would write [two decades further down the road](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/), we might not always have much sense about us, but as long as we have our feet, we can always get back out on the floor.
+Love never stops being a dance. And as Bruce would write [two decades further down the road](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md), we might not always have much sense about us, but as long as we have our feet, we can always get back out on the floor.
 
 ---
 

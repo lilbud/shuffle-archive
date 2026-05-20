@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1966-08-14.jpg.webp)
 
-**1970:** Steel Mill plays an outdoor show under the stars, on the parking deck at 7th and Marshall Streets in Richmond. Mercy Flight, a local band that includes future Steel Mill bandmate Robbin Thompson, plays just before Steel Mill, impressing Bruce enough that he will shortly extend Robbin an offer to join Steel Mill. Audio circulates of this show, including "[The War is Over](https://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)" and rare instrumental performances of "[Sherlock Goes Home](https://estreetshuffle.com/index.php/2018/09/21/roll-of-the-dice-sherlock-goes-holmes/)" and "[KT-88](https://estreetshuffle.com/index.php/2018/03/12/roll-of-the-dice-kt-88/)." Check out a great retrospective of this show [here](https://richmond.com/entertainment/music/lohmann-50-years-ago-springsteens-band-steel-mill-headlined-a-concert-atop-a-richmond-parking/article_0c3ad978-a46b-5910-93d4-b22dd8b6dcb6.html),<br>
+**1970:** Steel Mill plays an outdoor show under the stars, on the parking deck at 7th and Marshall Streets in Richmond. Mercy Flight, a local band that includes future Steel Mill bandmate Robbin Thompson, plays just before Steel Mill, impressing Bruce enough that he will shortly extend Robbin an offer to join Steel Mill. Audio circulates of this show, including "[The War is Over](../2019-03-23_roll-of-the-dice-the-war-is-over/post.md)" and rare instrumental performances of "[Sherlock Goes Home](../2018-09-21_roll-of-the-dice-sherlock-goes-holmes/post.md)" and "[KT-88](../2018-03-12_roll-of-the-dice-kt-88/post.md)." Check out a great retrospective of this show [here](https://richmond.com/entertainment/music/lohmann-50-years-ago-springsteens-band-steel-mill-headlined-a-concert-atop-a-richmond-parking/article_0c3ad978-a46b-5910-93d4-b22dd8b6dcb6.html),<br>
 
 [Watch on Youtube: Bruce Springsteen's band Steel Mill performs "Come On"; 8-14-70](https://www.youtube.com/watch?v=7-AMJV5EDRI)
 
@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1975-08-14.png.webp)
 
-**1978:** The Darkness Tour descends on the Hampton Roads Coliseum in Hampton, Virginia, where Bruce opens with his live debut cover of "[High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)."<br>
+**1978:** The Darkness Tour descends on the Hampton Roads Coliseum in Hampton, Virginia, where Bruce opens with his live debut cover of "[High School Confidential](../2020-05-04_cover-me-high-school-confidential/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yodpb4X6)
 
@@ -80,7 +80,7 @@ You'd be forgiven for thinking nothing else happened in the news today–here's 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/The_Philadelphia_Inquirer_1985_08_16_Page_56.jpg.webp)
 
-**1987:** Bruce joins The Fairlanes on-stage for four songs (including "[Savin' Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)") at The Deck House in Asbury Park.<br>
+**1987:** Bruce joins The Fairlanes on-stage for four songs (including "[Savin' Up](../2018-05-14_roll-of-the-dice-cover-me-clarence-clemons-savin-up/post.md)") at The Deck House in Asbury Park.<br>
 
 **1992:** Bruce and his new touring band play their second of two World Tour 1992 shows at the Centrum in Worcester. Watch the extensive news coverage below.<br>
 
@@ -106,7 +106,7 @@ You'd be forgiven for thinking nothing else happened in the news today–here's 
 
 [Watch on Youtube: Chesterfield Kings Festival: Short](https://www.youtube.com/watch?v=tTu4jTzl_pI)
 
-**2012:** Bruce and the E Street Band return to Boston's Fenway Park to kick off the final American leg of the Wrecking Ball Tour. While Bruce tour premieres "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" mid-set and "[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)" in the encores, the set is otherwise fairly standard. The following night would more than make up for it. For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/08/14/where-the-band-was-boston-august-14-2012/)<br>
+**2012:** Bruce and the E Street Band return to Boston's Fenway Park to kick off the final American leg of the Wrecking Ball Tour. While Bruce tour premieres "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" mid-set and "[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)" in the encores, the set is otherwise fairly standard. The following night would more than make up for it. For more highlights from this show, see my [*Where the Band Was* report.](../2018-08-14_where-the-band-was-boston-august-14-2012/post.md)<br>
 
 [Watch on Youtube: Wrecking Ball Tour Coming to Boston's Fenway Park on August 14](https://www.youtube.com/watch?v=-PW-ajAH9Ik)
 

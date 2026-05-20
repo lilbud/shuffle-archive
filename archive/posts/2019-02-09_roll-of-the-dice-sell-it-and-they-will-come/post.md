@@ -1,6 +1,6 @@
 Because the album that represents The Ghost of Tom Joad recording sessions is so serious and earnest, we tend to characterize that entire period as such.
 
-But for all of the socially conscious material that made it on to the album, there were the misfits that were left by the wayside. "[Tiger Rose](https://estreetshuffle.com/index.php/2019/01/26/rotd-matr-cm-tiger-rose/)," for example, was an adulterous rockabilly farce; Bruce ended up giving it away to Sonny Burgess. "[I'm Turning Into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)" was a parody on the surface but belied some lurking sub-basement insecurity.
+But for all of the socially conscious material that made it on to the album, there were the misfits that were left by the wayside. "[Tiger Rose](../2019-01-26_rotd-matr-cm-tiger-rose/post.md)," for example, was an adulterous rockabilly farce; Bruce ended up giving it away to Sonny Burgess. "[I'm Turning Into Elvis](../2020-03-05_roll-of-the-dice-im-turning-into-elvis/post.md)" was a parody on the surface but belied some lurking sub-basement insecurity.
 
 And then there were the songs reputedly (and self-reportedly) written along the tour, during those long flights and lonely hotel nights. "[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)" is the best-known of these, probably because of its racy subject matter. But "Sell It and They Will Come" came first–in fact, Bruce used the same melody for both, which is probably why Bruce never played them both on the same night, even though he played both throughout the tour.
 
@@ -8,7 +8,7 @@ Here's Bruce describing the song's genesis just before he debuted it in Detroit 
 
 [https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3)
 
-As for the song itself… well, one could argue that it's at least as socially conscious as the rest of the Joad material, just in a different fashion. Depending on the night and the delivery, it was either an homage to, lament of, or apology for American infomercials. And although the song has so many pop culture references that it now sounds as dated as "[I'm a Rocker,](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)" the song is as relevant now as it was then.
+As for the song itself… well, one could argue that it's at least as socially conscious as the rest of the Joad material, just in a different fashion. Depending on the night and the delivery, it was either an homage to, lament of, or apology for American infomercials. And although the song has so many pop culture references that it now sounds as dated as "[I'm a Rocker,](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" the song is as relevant now as it was then.
 
 Let's take a listen. Here's one of the clearest recordings of "Sell It and They Will Come," from Hamburg on February 17, 1997:
 

@@ -21,7 +21,7 @@ As the song begins, Bruce recalls the ennui that enveloped him in the 1980s. He 
 > *I'm tired of waiting for tomorrow to come or that train to come roaring 'round the bend*
 > *I got a new suit of clothes and a pretty red rose and a woman I can call my friend*
 
-…and right there, we have the key: Patti Scialfa. (Note: I realize it's dangerous to extrapolate autobiography from a song–if that were always true, we'd have had serious cause for worry after "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" and most of the Tom Joad album–but in this case, I think we're on pretty solid ground.)
+…and right there, we have the key: Patti Scialfa. (Note: I realize it's dangerous to extrapolate autobiography from a song–if that were always true, we'd have had serious cause for worry after "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)" and most of the Tom Joad album–but in this case, I think we're on pretty solid ground.)
 
 > *These are better days, baby*
 > *Yeah there's better days shining through*

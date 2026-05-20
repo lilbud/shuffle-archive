@@ -2,11 +2,11 @@ Not only can Italy claim to have the most avid Springsteen fans in the world, th
 
 Take for example, Mardi Gras. Named as a hat tip to Creedence Clearwater Revival’s final album, Rome-based Mardi Gras has a long discography of original songs and great covers dating back to their acoustic days in 2006.
 
-Their version of “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” hails from their *Among the Streams* album, released in 2011. (You can also find it on the Italian Springsteen tribute album, *For You 2*.) It’s every bit as uplifting, hopeful and joyful as Bruce’s original.
+Their version of “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)” hails from their *Among the Streams* album, released in 2011. (You can also find it on the Italian Springsteen tribute album, *For You 2*.) It’s every bit as uplifting, hopeful and joyful as Bruce’s original.
 
 [Watch on Youtube: Mardi Gras - Land of hope and dreams](https://www.youtube.com/watch?v=4gAB221Od-8)
 
-Mardi Gras is still going strong almost a decade later. Last year, they released a cover of Willie Nile’s “[One Guitar](https://estreetshuffle.com/index.php/2018/05/16/meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/)” to support the Light of Day Foundation.
+Mardi Gras is still going strong almost a decade later. Last year, they released a cover of Willie Nile’s “[One Guitar](../2018-05-16_meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/post.md)” to support the Light of Day Foundation.
 
 [Watch on Youtube: Mardi Gras - One guitar](https://www.youtube.com/watch?v=13D2shiXjv8)
 

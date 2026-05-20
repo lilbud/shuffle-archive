@@ -8,7 +8,7 @@ During an evening full of discoveries and surprises, Bruce Springsteen made a su
 
 And it was indeed a surprise: any secret hopes that attendees might have had were seemingly dashed earlier in the day when Patti Scialfa's Instagram showed the couple together on Governor's Island in New York to support their daughter Jessica at an equestrian competition.
 
-But Bruce must have been determined to thank his hometown, because he made a brief appearance, sneaking in unceremoniously around 7pm to tour the exhibit and joining Joe Grushecky on stage for a blistering "[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)" before leaving by 8:30 to rejoin his family.
+But Bruce must have been determined to thank his hometown, because he made a brief appearance, sneaking in unceremoniously around 7pm to tour the exhibit and joining Joe Grushecky on stage for a blistering "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)" before leaving by 8:30 to rejoin his family.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/newsSHH_Michael-Kravetsky-DSC07444-Press.jpg.webp)
 

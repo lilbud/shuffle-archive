@@ -1,8 +1,8 @@
-"Gypsy Biker" has the soul of Bruce's classic narrative laments like "Highway Patrolman," "[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)," or "[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)"
+"Gypsy Biker" has the soul of Bruce's classic narrative laments like "Highway Patrolman," "[The Line](../2018-08-08_roll-of-the-dice-the-line/post.md)," or "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"
 
 In fact, in its first moments, "Gypsy Biker" almost sounds like a self-homage to "The River." Seriously: listen to the opening bars of both, and you'll hear the similarity in the rueful harmonica and acoustic guitar intros.
 
-As the song proceeds lyrically, it sounds almost like a rewrite of "[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)" (the two songs even share a lyric), except that "Gypsy Biker" makes the family in "Shut Out the Light" seem fortunate by comparison.
+As the song proceeds lyrically, it sounds almost like a rewrite of "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)" (the two songs even share a lyric), except that "Gypsy Biker" makes the family in "Shut Out the Light" seem fortunate by comparison.
 
 But where the songs above get lost in contemplative regret, "Gypsy Biker" rages and rocks. It's an angry song on an angry album, but unlike other *Magic* tracks, Bruce makes no attempt to disguise the point-of-view character's pain or underline it with political metaphor. "Gypsy Biker" is a song of mourning.
 

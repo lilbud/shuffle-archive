@@ -26,13 +26,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1971-09-11.jpg.webp)
 
-**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce records “[Blinded by the Light”](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/) and “[Spirit in the Night,](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” the final tracks for his upcoming debut album.<br>
+**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce records “[Blinded by the Light”](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md) and “[Spirit in the Night,](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” the final tracks for his upcoming debut album.<br>
 
 [Watch on Youtube: Blinded By The Light](https://www.youtube.com/watch?v=xPy82OO6vRg)
 
 **1975:** Bruce cancels a scheduled gig at the University of Texas in Arlington.<br>
 
-**1981:** Bruce and the E Street Band wrap their three-night stand at Chicago’s Rosemont Horizon, tour premiering “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and playing “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” for the last time for fifteen years.<br>
+**1981:** Bruce and the E Street Band wrap their three-night stand at Chicago’s Rosemont Horizon, tour premiering “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and playing “[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)” for the last time for fifteen years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QLurWoc7)
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1987:** At the MTV Video Music Awards, “Born to Run” and “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)” split the vote for Best Stage Performance in a Video; as a result, Bon Jovi walks away with the award for “Livin’ on a Prayer.”<br>
+**1987:** At the MTV Video Music Awards, “Born to Run” and “[War](../2019-05-27_cover-me-war/post.md)” split the vote for Best Stage Performance in a Video; as a result, Bon Jovi walks away with the award for “Livin’ on a Prayer.”<br>
 
 [Watch on Youtube: Bruce Springsteen - Born to Run (Official Video)](https://www.youtube.com/watch?v=IxuThNgl3YA)
 
@@ -66,7 +66,7 @@
 
 **2010:** Bruce, Max, Southside Johnny, and Bobby Bandiera’s band play a benefit show at The Stone Pony for Boston College (Evan’s alma mater).<br>
 
-**2016:** At Bruce’s first official concert on September 11th since the tragic 2001 attacks, the set list is suitably Rising-heavy, with four of the first five songs hailing from that album–including the tour premiere of “[You’re Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/).” “[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)” and “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” also make their tour premiere, the latter in a gorgeous new acoustic arrangement. Joe and Johnny Grushecky make their customary Pittsburgh guest appearance as well. For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/09/11/where-the-band-was-pittsburgh-september-11-2016/)<br>
+**2016:** At Bruce’s first official concert on September 11th since the tragic 2001 attacks, the set list is suitably Rising-heavy, with four of the first five songs hailing from that album–including the tour premiere of “[You’re Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md).” “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)” and “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” also make their tour premiere, the latter in a gorgeous new acoustic arrangement. Joe and Johnny Grushecky make their customary Pittsburgh guest appearance as well. For more highlights from this show, see my [*Where the Band Was* report.](../2018-09-11_where-the-band-was-pittsburgh-september-11-2016/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen Into The Fire Pittsburgh Consol Energy Arena September 11 2016](https://www.youtube.com/watch?v=pw7p7aVSTPY)
 
@@ -76,6 +76,6 @@
 
 [Watch on Youtube: Bruce Springsteen Long Walk Home (Acoutstic) Pittsburgh Consol Energy Arena September 11 2016](https://www.youtube.com/watch?v=ZGGJqZNeUk8)
 
-**2021:** Bruce performs “[I’ll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)” at the World Trade Center Memorial Plaza in New York City on the occasion of the 20th anniversary of the 9/11 terror attacks.<br>
+**2021:** Bruce performs “[I’ll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)” at the World Trade Center Memorial Plaza in New York City on the occasion of the 20th anniversary of the 9/11 terror attacks.<br>
 
 [Watch on Youtube: September 11, 2021](https://www.youtube.com/watch?v=xJum7B1KnkA)

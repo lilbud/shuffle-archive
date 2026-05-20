@@ -1,6 +1,6 @@
-Believe it or not, even after the 1998 *Tracks* and 2010 *The Promise* box sets, there are *still* unreleased songs from Bruce Springsteen's [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) sessions.
+Believe it or not, even after the 1998 *Tracks* and 2010 *The Promise* box sets, there are *still* unreleased songs from Bruce Springsteen's [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) sessions.
 
-One of my favorite still-missing-in-action tracks is "Sax Song" (also known as "Down by the River"). (Don't confuse it with the [Neil Young song by the same name](https://estreetshuffle.com/index.php/2018/08/06/meeting-across-the-river-bruce-springsteen-and-neil-young-down-by-the-river/).)
+One of my favorite still-missing-in-action tracks is "Sax Song" (also known as "Down by the River"). (Don't confuse it with the [Neil Young song by the same name](../2018-08-06_meeting-across-the-river-bruce-springsteen-and-neil-young-down-by-the-river/post.md).)
 
 Take a listen to this rehearsal recording of the E Street Band in all their glory:
 
@@ -8,7 +8,7 @@ Take a listen to this rehearsal recording of the E Street Band in all their glor
 
 "Sax Song" wasn't finished yet when the band made this recording at The Record Plant, but it was already musically tight enough for us to easily imagine it fitting seamlessly into Bruce's live set.
 
-There's a lot here that foreshadows songs in Bruce's near future, from an introduction that he would soon bestow on "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" to the Big Man's sax solo that sounds like a prototype for "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)." And then of course there's the title and refrain itself, which would soon form the basis of one of Bruce's most enduring songs.
+There's a lot here that foreshadows songs in Bruce's near future, from an introduction that he would soon bestow on "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" to the Big Man's sax solo that sounds like a prototype for "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)." And then of course there's the title and refrain itself, which would soon form the basis of one of Bruce's most enduring songs.
 
 Lyrically, the first verse is a bit tough to make out (it's largely bluffed, which may be why Bruce proclaims at the end, "This song should be one verse!"), but the chorus and second verse are pretty clear:
 

@@ -98,7 +98,7 @@ With new heights of success staring them in the face, Springsteen and Landau kne
 
 In the years since Bruce's last big album and tour, MTV had arrived, and Bruce recognized its importance in growing his audience. "Little kids, seven or eight, come up to me 'cause they've seen the ‘Dancing in the Dark' video," Bruce would tell interviewers Roger Scott and Patrick Humphries in *Hot Press* that November. "And those people can't go to shows. They're too young. They have no visual access to rock -and-roll music. Those are the kids that are glued to MTV."
 
-But Bruce's first attempt at a real video was a bit on-the-nose. He'd hired director Jeff Stein and cinematographer Daniel Pearl (whose biggest claim to fame at the time was helming the photography for "[Every Breath You Take](https://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/)," one of the influences for "Dancing in the Dark"), and their vision for the video was Bruce dancing… in the dark.
+But Bruce's first attempt at a real video was a bit on-the-nose. He'd hired director Jeff Stein and cinematographer Daniel Pearl (whose biggest claim to fame at the time was helming the photography for "[Every Breath You Take](../2019-04-07_matr-sting-and-bruce-springsteen-every-breath-you-take/post.md)," one of the influences for "Dancing in the Dark"), and their vision for the video was Bruce dancing… in the dark.
 
 Here's that completed but never released original video.
 

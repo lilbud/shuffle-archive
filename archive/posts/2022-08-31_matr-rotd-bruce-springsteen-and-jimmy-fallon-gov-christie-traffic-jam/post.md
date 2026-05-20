@@ -14,7 +14,7 @@ Because someone was using the bridge closure to send a message, and that someone
 
 By early 2014, "Bridgegate" was a national scandal. Americans watched in outrage and schadenfreude as the true story unfolded, and Christie went from respected presidential hopeful to the butt of late night comedians' jokes.
 
-One of those comedians was Jimmy Fallon, who carped the diem when Bruce Springsteen joined him on his show on January 14 to promote his new album, *High Hopes*. By that time, Bruce had already made two tongue-in-cheek appearances with Fallon covering songs like "[Whip My Hair](https://estreetshuffle.com/index.php/2019/09/05/matr-bruce-springsteen-and-jimmy-fallon-whip-my-hair/)" and "[Sexy and I Know It](https://estreetshuffle.com/index.php/2018/03/24/matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/)," but this time the pair did a rewrite on one of Bruce's own songs.
+One of those comedians was Jimmy Fallon, who carped the diem when Bruce Springsteen joined him on his show on January 14 to promote his new album, *High Hopes*. By that time, Bruce had already made two tongue-in-cheek appearances with Fallon covering songs like "[Whip My Hair](../2019-09-05_matr-bruce-springsteen-and-jimmy-fallon-whip-my-hair/post.md)" and "[Sexy and I Know It](../2018-03-24_matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/post.md)," but this time the pair did a rewrite on one of Bruce's own songs.
 
 And not just any song. They rewrote "Born to Run" in light of recent events (I suspect Fallon and his team did the heavy lifting) and opened the show with Fallon doing his best 80s Bruce impersonation. Before long, though, the real Springsteen (in classic 80s getup) joined him at the microphone.
 

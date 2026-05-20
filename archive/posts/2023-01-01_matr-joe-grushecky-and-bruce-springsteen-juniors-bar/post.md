@@ -1,4 +1,4 @@
-Let’s reach waaay back in Joe Grushecky’s catalog–all the way back to the Iron City Houserocker days and the band’s sophomore album (and one of the better albums of 1980), [*Have a Good Time But Get Out Alive*](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/).
+Let’s reach waaay back in Joe Grushecky’s catalog–all the way back to the Iron City Houserocker days and the band’s sophomore album (and one of the better albums of 1980), [*Have a Good Time But Get Out Alive*](../2020-05-22_have-a-good-time-but-get-out-alive/post.md).
 
 Buried in the middle of Side Two of that is one of the album’s strongest tracks, “Junior’s Bar,” just screaming to be played live.
 

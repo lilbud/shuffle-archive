@@ -10,7 +10,7 @@ There was one Four Tops song that almost made the Springsteen concert cut, thoug
 
 “Something About You” climbed as high as #19 on the Billboard Hot 100 that year, and to #9 on the R&B Chart. And while it may not have been Bruce’s desert island song of choice (that honor belongs to “Baby, I Need Your Loving”), it did inspire one of Bruce’s own singles.
 
-The riff from “Something About You” bears a strong resemblance to “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/),” and when Bruce broke out the latter song during the Born in the U.S.A. Tour, he didn’t even try to hide his influence.
+The riff from “Something About You” bears a strong resemblance to “[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md),” and when Bruce broke out the latter song during the Born in the U.S.A. Tour, he didn’t even try to hide his influence.
 
 [Watch on Youtube: Bruce Springsteen - Pink Cadillac [Philadelphia, August 14, 1985]](https://www.youtube.com/watch?v=VCmpqCRlVA4)
 

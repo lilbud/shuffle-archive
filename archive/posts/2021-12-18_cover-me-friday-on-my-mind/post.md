@@ -10,7 +10,7 @@ When Bruce brought the High Hopes Tour to Sydney in the summer of 2014, he decid
 
 [Watch on Youtube: Bruce Springsteen- The Easybeats' "Friday On My Mind" - (Sydney, 02/19/14)](https://www.youtube.com/watch?v=iMMpSiG57Zo)
 
-Wondering how you follow up a show opener like that? If you’re Bruce, you give a little wink and segue directly into your own attempt at the same song: “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/).”
+Wondering how you follow up a show opener like that? If you’re Bruce, you give a little wink and segue directly into your own attempt at the same song: “[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md).”
 
 **Friday on My Mind**<br>
 **First performed:** February 19, 2014 (Sydney, Australia)<br>

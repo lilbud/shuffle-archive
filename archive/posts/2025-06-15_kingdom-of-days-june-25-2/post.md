@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 2008; video for 2016*<br>
 
-**1973:** Bruce is in the studio, working on his second album at 914 Sound Studios in Blauvelt, New York. Today he works on “[Wild Billy’s Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/).”<br>
+**1973:** Bruce is in the studio, working on his second album at 914 Sound Studios in Blauvelt, New York. Today he works on “[Wild Billy’s Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md).”<br>
 
 **1974:** A scheduled gig–the first of a planned six-night stand–at Lafayette’s Music Room in Memphis is cancelled.<br>
 
@@ -14,11 +14,11 @@
 
 **1984:** Bruce and the E Street Band rehearse one last time before kicking off the Born in the U.S.A. Tour. Following her successful audition the day before, Bruce invites Patti Scialfa to join the band effective immediately. She accepts on the spot.<br>
 
-**1985:** The French leg of the Born in the U.S.A. Tour continues with a show in Saint-Etienne, where Bruce plays “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” for the very first time in Europe.<br>
+**1985:** The French leg of the Born in the U.S.A. Tour continues with a show in Saint-Etienne, where Bruce plays “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” for the very first time in Europe.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/oaIjWOlU)
 
-**1988:** The Tunnel of Love Tour stops in London for one show at Wembley Stadium, where Bruce plays “[Love Me Tender](https://estreetshuffle.com/index.php/2019/03/02/cover-me-love-me-tender/)” for the last time to date. Meanwhile, rumors continue to swirl around Bruce and Patti.<br>
+**1988:** The Tunnel of Love Tour stops in London for one show at Wembley Stadium, where Bruce plays “[Love Me Tender](../2019-03-02_cover-me-love-me-tender/post.md)” for the last time to date. Meanwhile, rumors continue to swirl around Bruce and Patti.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/GQWCsmkf)
 
@@ -36,17 +36,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/BVjxn8FM)
 
-**1993:** David Letterman films his final episode on NBC before moving to CBS and turning his NBC show over to Conan O’Brien. To mark the occasion, Bruce drops by as a surprise guest and performs “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/),” momentarily taking over leadership of the house band. Watch the band have the time of their lives below.<br>
+**1993:** David Letterman films his final episode on NBC before moving to CBS and turning his NBC show over to Conan O’Brien. To mark the occasion, Bruce drops by as a surprise guest and performs “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md),” momentarily taking over leadership of the house band. Watch the band have the time of their lives below.<br>
 
 [Watch on Youtube: "Project X" on Letterman, June 25, 1993](https://www.youtube.com/watch?v=R9hqLDOPNg8)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1993-06-25.jpg.webp)
 
-**2003:** The European leg of the Rising Tour hits the home stretch with this show in Vienna, featuring a full-band “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”<br>
+**2003:** The European leg of the Rising Tour hits the home stretch with this show in Vienna, featuring a full-band “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fpJ31k53)
 
-**2005:** Four tour premieres when the Devils & Dust Tour stops in Stockholm, including “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/),” “[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/),” “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/),” and the first “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)” in 17 years. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24925/bruce-springsteen-hovet-stockholm-se-06-25-2005-mp3-flac-or-online-music-streaming.html).<br>
+**2005:** Four tour premieres when the Devils & Dust Tour stops in Stockholm, including “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md),” “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md),” and the first “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)” in 17 years. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24925/bruce-springsteen-hovet-stockholm-se-06-25-2005-mp3-flac-or-online-music-streaming.html).<br>
 
 [Watch on Youtube: Bruce Springsteen Archives: "Reason To Believe" Stockholm, Sweden, June 25, 2005](https://www.youtube.com/watch?v=o2GxcTjeu58)
 
@@ -64,7 +64,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2006-06-25.jpg.webp)
 
-**2008:** When the Magic Tour comes to Milan, Bruce opens with “[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/),” closes with the tour premiere of “Twist and Shout,” and treats fans to the first European performance of “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/).”<br>
+**2008:** When the Magic Tour comes to Milan, Bruce opens with “[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md),” closes with the tour premiere of “Twist and Shout,” and treats fans to the first European performance of “[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md).”<br>
 
 [Watch on Youtube: TG La7 - Concerto di Springsteen a Mialno June 25, 2008](https://www.youtube.com/watch?v=w_IwWK8RFOQ)
 
@@ -74,7 +74,7 @@
 
 [Watch on Youtube: Milan 25/06/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zDbjokWJS5Hcw7_zeuswtkM)
 
-**2016:** At Night One in Gothenburg on the River Tour sequel, Bruce opens with the tour premiere of “The Promise,” played solo on piano. “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” and “[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)” also make their first appearances of the tour. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14118/Bruce-Springsteen-mp3-flac-download-6-25-2016-Ullevi-Stadium-Goteborg-SE.html).<br>
+**2016:** At Night One in Gothenburg on the River Tour sequel, Bruce opens with the tour premiere of “The Promise,” played solo on piano. “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” and “[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)” also make their first appearances of the tour. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14118/Bruce-Springsteen-mp3-flac-download-6-25-2016-Ullevi-Stadium-Goteborg-SE.html).<br>
 
 [Watch on Youtube: Bruce Springsteen Pro Shot Ullevi Gothenburg 2016-06-25](https://www.youtube.com/watch?v=uowZAEAi7_Y)
 

@@ -68,7 +68,7 @@ Meanwhile back at home, the *Asbury Park Press* reports that the E Street Band i
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-05-11b.jpg.webp)
 
-**2009:** By request, Bruce plays the tour premiere of "[Good Lovin'](https://estreetshuffle.com/index.php/2019/12/15/cover-me-good-lovin/)" when the Working on a Dream Tour stops at the Xcel Energy Center in St. Paul. Earlier that day, Governor Pawlenty signs "Springsteen's Law," passed by the state legislature to protect consumers from predatory behavior from online ticket sellers.<br>
+**2009:** By request, Bruce plays the tour premiere of "[Good Lovin'](../2019-12-15_cover-me-good-lovin/post.md)" when the Working on a Dream Tour stops at the Xcel Energy Center in St. Paul. Earlier that day, Governor Pawlenty signs "Springsteen's Law," passed by the state legislature to protect consumers from predatory behavior from online ticket sellers.<br>
 
 [Watch on Youtube: Bruce Springsteen Good Lovin' May 11, 2009 St. Paul, MN](https://www.youtube.com/watch?v=OfiAv6MFTzQ)
 

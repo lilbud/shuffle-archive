@@ -28,7 +28,7 @@ So why was Bruce's cover so anemic? Beats me. Maybe the band was rusty from not 
 
 But fortunately he did regain it, the band reunited for good, and eighteen years later they took another run at "Shake, Rattle and Roll."
 
-The scene was Borussia-Park in Mönchengladbach, Germany on the evening of July 5, 2013. A fan's sign request for Big Joe Turner's classic caught Bruce's eye, and just as they'd do two days later with Chuck Berry's "[You Never Can Tell,](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)" they took a minute or so to work out the song and then absolutely *nailed* it, thanks in large part to the spectacular E Street Horns.
+The scene was Borussia-Park in Mönchengladbach, Germany on the evening of July 5, 2013. A fan's sign request for Big Joe Turner's classic caught Bruce's eye, and just as they'd do two days later with Chuck Berry's "[You Never Can Tell,](../2020-03-14_cover-me-you-never-can-tell/post.md)" they took a minute or so to work out the song and then absolutely *nailed* it, thanks in large part to the spectacular E Street Horns.
 
 Here's that much, much, *much* better cover of "Shake, Rattle and Roll" — the last time Bruce has performed it to date.
 

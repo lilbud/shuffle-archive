@@ -4,7 +4,7 @@
 
 **1973:** A scheduled gig in Chester, West Virginia, is believed to have been cancelled.<br>
 
-**1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record for their upcoming album, *Darkness on the Edge of Town*. Listen to their early cuts of "One Way Street" and "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" (neither of which will make the album) from this date below.<br>
+**1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record for their upcoming album, *Darkness on the Edge of Town*. Listen to their early cuts of "One Way Street" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" (neither of which will make the album) from this date below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DLlsJgQPNIY)
 
@@ -72,6 +72,6 @@
 
 **2023:** On his night off between shows in Birmingham, Bruce attends Steve Earle's solo acoustic show.<br>
 
-**2024:** Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering "[Cover Me.](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)"<br>
+**2024:** Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering "[Cover Me.](../2021-01-13_roll-of-the-dice-cover-me/post.md)"<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GNYtVhlI3f8)

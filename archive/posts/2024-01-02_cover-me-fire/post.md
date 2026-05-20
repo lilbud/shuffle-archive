@@ -2,7 +2,7 @@ In the late summer of 1967, seventeen-year-old Bruce Springsteen was rapidly bec
 
 Bruce’s vocals were becoming increasingly confident; more often than not he now sang the lead. And as a guitarist, he was already well on his way to earning his “fastest in the east” reputation. Unsurprisingly, the band began seeking out material that allowed Bruce to show off his chops, and if you fancied yourself a guitar hero in 1967, there was one idol you couldn’t help but try and cover.
 
-That’s probably why The Castiles’ set list on September 16, 1967 featured not just one but two recent releases by The Jimi Hendrix Experience. I shared the latter one, “[Purple Haze](https://estreetshuffle.com/index.php/2019/02/19/cover-me-purple-haze/)” last year; now here’s the song The Castiles used to open their show: “Fire.”
+That’s probably why The Castiles’ set list on September 16, 1967 featured not just one but two recent releases by The Jimi Hendrix Experience. I shared the latter one, “[Purple Haze](../2019-02-19_cover-me-purple-haze/post.md)” last year; now here’s the song The Castiles used to open their show: “Fire.”
 
 [Watch Video Highlight](https://videopress.com/embed/qXRi61aA)
 

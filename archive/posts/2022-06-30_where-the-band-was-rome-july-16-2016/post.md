@@ -12,7 +12,7 @@ I knew that Bruce and Italy have a long-time mutual love affair, and that Bruce 
 
 It took a minute to understand what was happening when activity started on the stage. From my vantage point in the pit, I'd already noticed the additional music stands, so I figured Bruce had invited some special guests, potentially the string section he'd used a few years prior on his last visit to Rome. But i was still a little surprised when musicians started to appear and take their positions, and they weren't E Street Band members. And they carried violins and violas. It turns out they were indeed the Rome Symphony Orchestra, and when Bruce and the band followed them on-stage, it was clear something unexpected and amazing was about to happen.
 
-Yes, I was well aware that Bruce had played "New York City Serenade" with this string section the last time he was in Rome, but I figured that ship had sailed. I was sure that was a one-time-only occurrence, and I'd missed it. Surely this would be a gorgeous, magical take on another Springsteen classic–perhaps "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)?"
+Yes, I was well aware that Bruce had played "New York City Serenade" with this string section the last time he was in Rome, but I figured that ship had sailed. I was sure that was a one-time-only occurrence, and I'd missed it. Surely this would be a gorgeous, magical take on another Springsteen classic–perhaps "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)?"
 
 But then Roy played the first notes of the extended intro from this rare opus, and you could hear the collective gasp of tens of thousands (seriously, listen to the video).
 
@@ -20,23 +20,23 @@ For the next twelve minutes, I was completely rapt. And when the strings kicked 
 
 There were other highlights during the evening, to be sure. But this was the biggest of the biggest. (And yes, we were all waving paper hearts for Bruce–fans coordinated and distributed them, and Bruce was noticeably moved by them from the moment he walked out on stage.)
 
-When the band ripped into "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)" after bidding goodbye to the strings, I was jolted back to reality–i'd almost forgotten there was an entire show still to come! Three songs in, Bruce took his first request of the evening: a couldn't-be-more-appropriate "[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)," and both the band and the crowd were off to the races:
+When the band ripped into "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" after bidding goodbye to the strings, I was jolted back to reality–i'd almost forgotten there was an entire show still to come! Three songs in, Bruce took his first request of the evening: a couldn't-be-more-appropriate "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," and both the band and the crowd were off to the races:
 
 [Watch on Youtube: Bruce Springsteen - Summer Time Blues](https://www.youtube.com/watch?v=_Gp1O7VJEaE)
 
-A healthy River eight-pack followed, interrupted only by a pair of sign requests to jolt the crowd with spontaneity: "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" and "[Detroit Medley.](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)"
+A healthy River eight-pack followed, interrupted only by a pair of sign requests to jolt the crowd with spontaneity: "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[Detroit Medley.](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)"
 
 [Watch on Youtube: Bruce Springsteen - Boom Boom](https://www.youtube.com/watch?v=2HpoJRElaJ4)
 
-But if there were highlights to rival the opener in power, one would have to be Bruce's gorgeous solo acoustic performance of "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)," dedicated to Italian social workers. It was perhaps the most beautiful performance of the song I'd ever witnessed.
+But if there were highlights to rival the opener in power, one would have to be Bruce's gorgeous solo acoustic performance of "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)," dedicated to Italian social workers. It was perhaps the most beautiful performance of the song I'd ever witnessed.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band The Ghost of Tom Joad Rome Circus Maximus July 16 2016](https://www.youtube.com/watch?v=_CpGADrcmNU)
 
-…and the other would be "[Independence Day.](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" Always an emotional ride, tonight it was even more poignant, with the crowd singing the melody in unison from the first notes. Watch the magic:
+…and the other would be "[Independence Day.](../2022-03-14_roll-of-the-dice-independence-day/post.md)" Always an emotional ride, tonight it was even more poignant, with the crowd singing the melody in unison from the first notes. Watch the magic:
 
 [Watch on Youtube: Bruce Springsteen - Independence Day 16- 07- 2016 Roma](https://www.youtube.com/watch?v=lBEIyTqlKXQ)
 
-Even the standards had exceptional power on this night–for instance, check out "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" below. Bruce pauses after the introduction–reflecting while Nils continues to play quietly, eventually dedicating his performance to the victims of the recent Nice terrorist attack, holding the quiet for just a few moments more, and then launching into the song, played with exceptional passion.
+Even the standards had exceptional power on this night–for instance, check out "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" below. Bruce pauses after the introduction–reflecting while Nils continues to play quietly, eventually dedicating his performance to the victims of the recent Nice terrorist attack, holding the quiet for just a few moments more, and then launching into the song, played with exceptional passion.
 
 [Watch on Youtube: Land Of Hope And Dreams](https://www.youtube.com/watch?v=JGILByvPlNk)
 

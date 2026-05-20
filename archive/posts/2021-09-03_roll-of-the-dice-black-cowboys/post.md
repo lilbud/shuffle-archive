@@ -64,7 +64,7 @@ Raney becomes fascinated with movies about the American West, whitewashed tales 
 > *Along the street of stray bullets he made his way*<br>
 > *To the warmth of her arms at the end of each day*<br>
 
-On a diet of Westerns, books, warm summer days, and his mother's devotion, Raney grows and matures, navigating and surviving the threats the street throws at him daily. The song's backing track is lush and warm like summer here, similar to the idyllic flashback at the heart of "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)."
+On a diet of Westerns, books, warm summer days, and his mother's devotion, Raney grows and matures, navigating and surviving the threats the street throws at him daily. The song's backing track is lush and warm like summer here, similar to the idyllic flashback at the heart of "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)."
 
 But now the song takes a turn. An ominous bass layer enters as summer turns to fall in a passage we might think serves only as transition if not for the biblical reference to Ezekiel's vision.
 

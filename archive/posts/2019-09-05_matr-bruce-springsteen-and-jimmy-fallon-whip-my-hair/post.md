@@ -22,7 +22,7 @@ What did Bruce think of the performance? Let's follow him backstage and find out
 
 Eighteen months later, Bruce still must have felt pretty good about that performance, because he gave Fallon permission to release the recording on Jimmy's second album, *Blow Your Pants Off.* (Their duet is the closing track on that 2012 album.)
 
-Bruce and "Neil" would also reprise their performance two years (and ten fashion years) later, this time covering "[Sexy and I Know It](https://estreetshuffle.com/index.php/2018/03/24/matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/)."
+Bruce and "Neil" would also reprise their performance two years (and ten fashion years) later, this time covering "[Sexy and I Know It](../2018-03-24_matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/post.md)."
 
 Even so, I wouldn't bet on Bruce picking a sign for "Whip My Hair" anytime soon. That was almost certainly a one-time-only experience.
 

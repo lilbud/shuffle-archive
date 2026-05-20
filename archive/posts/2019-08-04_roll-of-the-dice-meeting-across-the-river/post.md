@@ -1,6 +1,6 @@
 Bruce is a pretty funny guy, but it took a while before he let his sense of humor show through in his songs. When he did, it was hard to miss.
 
-You can hear it on display in more recent songs like "[Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)" and as far back as "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" on *The River*, but most of his funnier songs have been relegated to *Tracks* and other outtake collections. "[Ain't Good Enough For You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)," "[Talk to Me,](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)" and "[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)" all showcase Bruce's flair for cornball.
+You can hear it on display in more recent songs like "[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)" and as far back as "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" on *The River*, but most of his funnier songs have been relegated to *Tracks* and other outtake collections. "[Ain't Good Enough For You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)," "[Talk to Me,](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" and "[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)" all showcase Bruce's flair for cornball.
 
 But I'd argue that Bruce's laugh-out-loud funniest song is actually his first attempt at it: "Meeting Across the River" from his seminal album, *Born to Run*.
 
@@ -66,7 +66,7 @@ And then, with one final line, Bruce gently rouses us back to reality, as Eddie'
 
 "Meeting Across the River" is *so* different from Bruce's contemporaneous songwriting that we have to wonder: where the heck did it come from?
 
-Bruce was certainly no stranger to noirish street scenes: by this time, he'd already released songs like "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" and "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)." But those songs romanticized both the street and its leading men, whereas "Meeting Across the River" features an inept would-be hood against a palpably dangerous backdrop.
+Bruce was certainly no stranger to noirish street scenes: by this time, he'd already released songs like "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" and "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)." But those songs romanticized both the street and its leading men, whereas "Meeting Across the River" features an inept would-be hood against a palpably dangerous backdrop.
 
 Bruce himself doesn't seem to recall the exact inspiration for the lyrics, although looking back on it, he told Brian Hiatt in an interview that it was likely influenced by Bruce's own frustration at his inability to make the big time (remember, this was pre-*Born to Run*).
 
@@ -80,7 +80,7 @@ It certainly seems that the piano came first, as we're fortunate to have an earl
 
 [Watch Video Highlight](https://videopress.com/embed/Ax0zZAwy)
 
-But the song didn't fully come to life until two guest artists entered the studio: Richard Davis (who previously backed Bruce on "[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)") on the double bass, and Randy Brecker (making his second appearance on *Born to Run–*he can also be found on "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)") on the trumpet. Suddenly "Meeting Across the River" sounded like absolutely nothing Bruce had ever written or recorded before, and although they compared a few takes before settling on the final form, each and every one of them were great. Take a listen to a couple of the alternative takes below.
+But the song didn't fully come to life until two guest artists entered the studio: Richard Davis (who previously backed Bruce on "[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)") on the double bass, and Randy Brecker (making his second appearance on *Born to Run–*he can also be found on "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)") on the trumpet. Suddenly "Meeting Across the River" sounded like absolutely nothing Bruce had ever written or recorded before, and although they compared a few takes before settling on the final form, each and every one of them were great. Take a listen to a couple of the alternative takes below.
 
 [Watch Video Highlight](https://videopress.com/embed/N5qa3969)
 

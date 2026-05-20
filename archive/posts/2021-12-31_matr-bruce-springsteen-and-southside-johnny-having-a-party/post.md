@@ -40,7 +40,7 @@ By the time Steven Van Zandt was able to make his getaway from his E Street Band
 
 With the rest of the evening in front of them after their show, a few of Stevie's other bandmates decided to tag along, and by the end of the night, they decided to crash the party on stage too. Roy Bittan, Clarence Clemons, and Bruce Springsteen joined the now super-sized Jukes for a three-song encore that was captured on video–one of my favorite Bruce performance videos ever.
 
-They started with one of the all-time best performances of "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)," a Springsteen original song that Bruce had bestowed to Southside, and followed that up with Stevie's own "[I Don't Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)."
+They started with one of the all-time best performances of "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)," a Springsteen original song that Bruce had bestowed to Southside, and followed that up with Stevie's own "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)."
 
 But the final song could only be "Having a Party," and this time Bruce shared lead vocals with Southside, and their performance featured some delightful interplay and irresistible chemistry between the two legendary frontmen.
 

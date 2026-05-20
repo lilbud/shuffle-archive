@@ -10,7 +10,7 @@ We've all been there, right? Most of the time, we grit our teeth, clench our bla
 
 But sometimes… we just can't.
 
-That's what happened to Bruce Springsteen on December 8, 1992, when he just couldn't hold it anymore. After finishing a rousing rendition of "[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)" (dancing a little more stiffly than usual), he sidled over to the microphone, excused himself, and made a mad dash backstage to micturate.
+That's what happened to Bruce Springsteen on December 8, 1992, when he just couldn't hold it anymore. After finishing a rousing rendition of "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)" (dancing a little more stiffly than usual), he sidled over to the microphone, excused himself, and made a mad dash backstage to micturate.
 
 While he was gone, Roy Bittan vamped with some New Orleans-style honky-tonk.
 

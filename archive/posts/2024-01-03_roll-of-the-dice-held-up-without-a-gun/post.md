@@ -12,7 +12,7 @@ Why did he pull it? That I can't answer, although I suspect it has at least a li
 
 "Held Up Without a Gun" typically gets characterized as a song about the 1979 Oil Crisis, when gasoline prices spiked when it was even available at all.
 
-But while this ferocious track (which ultimately saw release as the flipside to "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)") may have been inspired by the gas crisis, that's not what it's really about. Bruce uses current events as a jump-off point for the song, but it quickly–everything about this song is quick–establishes a more timeless theme.
+But while this ferocious track (which ultimately saw release as the flipside to "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)") may have been inspired by the gas crisis, that's not what it's really about. Bruce uses current events as a jump-off point for the song, but it quickly–everything about this song is quick–establishes a more timeless theme.
 
 > *I was out driving, just a-taking it slow*<br>
 > *Looked at my tank, it was reading low*<br>

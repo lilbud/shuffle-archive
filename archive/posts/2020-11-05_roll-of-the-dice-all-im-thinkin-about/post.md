@@ -4,7 +4,7 @@ Welcome to another installment of *Graphically (But Secretly) Sexual Springsteen
 
 [Watch on Youtube: All I'm Thinkin' About](https://www.youtube.com/watch?v=G7k-tfytNrg)
 
-But unless you listen closely, you might never realize that "All I'm Thinkin' About" is a cousin to songs like "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)" and "[Red Headed Woman.](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)" Bruce sings with such a deliberately innocent falsetto and fills his verses with such pastoral imagery that we're lulled into receiving his song as a country lark.
+But unless you listen closely, you might never realize that "All I'm Thinkin' About" is a cousin to songs like "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" and "[Red Headed Woman.](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)" Bruce sings with such a deliberately innocent falsetto and fills his verses with such pastoral imagery that we're lulled into receiving his song as a country lark.
 
 It doesn't help that "All I'm Thinkin' About" is an obvious homage to Canned Heat's "Going Up the Country" road trip, from the rhythm to the melody to the lyrical "wine" reference in the first verse.
 

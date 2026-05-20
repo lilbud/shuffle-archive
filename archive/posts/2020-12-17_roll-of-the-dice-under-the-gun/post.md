@@ -16,13 +16,13 @@ In all, there are a whopping eleven known work-in-progress bootlegs of "Under th
 
 Unfortunately, the lyrics are too undeveloped in the acoustic demos for us to get a true sense of the final song, and while it was presumably finished by the time Bruce rehearsed it with the band, his vocals are too distant for us to make them out.
 
-That said, here's what we do know: like "Thunder Road," "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," and "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)," "Under the Gun" was another in a string of songs with titles ripped from movie posters, in this case the 1951 film noir thriller.
+That said, here's what we do know: like "Thunder Road," "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," "Under the Gun" was another in a string of songs with titles ripped from movie posters, in this case the 1951 film noir thriller.
 
 Bruce's song appears to have nothing in common with the film beyond its name, however. "Under the Gun" appears to be a song about a man who can't quite earn the kind of living he wants to provide for himself and his wife.
 
-By trade, our hero "works construction like my father did" (a line that would eventually migrate to "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)," of course), but he feels perennially "under the gun." The song isn't finished enough for us to figure out whether there's a criminal temptation at play here, as in "[Atlantic City,](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" but the narrator struggles with feelings of powerlessness so much that he feels the urge to "go downtown and get me a gun."
+By trade, our hero "works construction like my father did" (a line that would eventually migrate to "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," of course), but he feels perennially "under the gun." The song isn't finished enough for us to figure out whether there's a criminal temptation at play here, as in "[Atlantic City,](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" but the narrator struggles with feelings of powerlessness so much that he feels the urge to "go downtown and get me a gun."
 
-He resists the temptation, lying awake in the middle of the night, holding his girl tight (as in "[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)"). Oh, and her name is Mary, and as he holds her closer, "I feel every breath she takes."
+He resists the temptation, lying awake in the middle of the night, holding his girl tight (as in "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)"). Oh, and her name is Mary, and as he holds her closer, "I feel every breath she takes."
 
 If the acoustic demos were all we had to go by, we might conclude that Bruce abandoned "Under the Gun" in favor of the two songs that actually did make the record, but those band rehearsals from March 30, 1979 argue otherwise.
 
@@ -32,7 +32,7 @@ They did another take, shaving 35 seconds off:
 
 [Watch Video Highlight](https://videopress.com/embed/6661DRrN)
 
-But Bruce *still* wasn't satisfied. He led the band through a take so taught it rivals "[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)," and we can hear the band's triumphant satisfaction when they clock in under two minutes.
+But Bruce *still* wasn't satisfied. He led the band through a take so taught it rivals "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)," and we can hear the band's triumphant satisfaction when they clock in under two minutes.
 
 [Watch Video Highlight](https://videopress.com/embed/ExpacMhm)
 

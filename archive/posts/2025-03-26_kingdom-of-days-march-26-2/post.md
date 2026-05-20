@@ -1,12 +1,12 @@
 ***New for 2025:** No updates*<br>
 
-**1976:** At the Fox Theater in Atlanta, Bruce premieres an early version of "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)."<br>
+**1976:** At the Fox Theater in Atlanta, Bruce premieres an early version of "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1976-03-26.png.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0326.jpg.webp)
 
-**1988:** "[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)" makes its live debut during Bruce's Tunnel of Love Express show at the Rupp Arena in Lexington.<br>
+**1988:** "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)" makes its live debut during Bruce's Tunnel of Love Express show at the Rupp Arena in Lexington.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2KwzHwiH)
 
@@ -20,11 +20,11 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DkC5FrphrVg?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
 
-**2003:** Bruce and the E Street Band play their second of two nights in Brisbane on the Rising Tour, opening with an acoustic "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" and featuring a rare "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)."<br>
+**2003:** Bruce and the E Street Band play their second of two nights in Brisbane on the Rising Tour, opening with an acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and featuring a rare "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yyUIuX3l)
 
-**2012:** Peter Wolf guest-stars for "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" (a tour premiere) in the encores at this Wrecking Ball show at Boston's TD Garden. The show also features tour premieres of "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)," "[Jackson Cage,](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" and "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)."<br>
+**2012:** Peter Wolf guest-stars for "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" (a tour premiere) in the encores at this Wrecking Ball show at Boston's TD Garden. The show also features tour premieres of "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," "[Jackson Cage,](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" and "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JECwsM3m)
 

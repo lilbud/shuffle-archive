@@ -1,6 +1,6 @@
 I don’t know much about this New York City-based Irish band than what I’ve already typed, but I hope we hear more from them in the future.
 
-They started a Youtube channel five months ago, and their most recent video is a beautiful cover of Bruce’s “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/).”
+They started a Youtube channel five months ago, and their most recent video is a beautiful cover of Bruce’s “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md).”
 
 [Watch on Youtube: Racketeers Atlantic City (Bruce Springsteen Cover)](https://www.youtube.com/watch?v=0IMJl9YpabY)
 

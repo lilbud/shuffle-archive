@@ -2,7 +2,7 @@ When you endeavor to write about every song an artist ever recorded or performed
 
 This one, as they say, is for the collectors.
 
-Way back over a half-century ago, Bruce Springsteen fronted a band called Steel Mill, and for much of their run Steel Mill closed their sets with a cover of Richie Havens' "[Run , Shaker Life.](https://estreetshuffle.com/index.php/2020/09/21/cover-me-run-shaker-life/)"
+Way back over a half-century ago, Bruce Springsteen fronted a band called Steel Mill, and for much of their run Steel Mill closed their sets with a cover of Richie Havens' "[Run , Shaker Life.](../2020-09-21_cover-me-run-shaker-life/post.md)"
 
 Once in a while, though, they segued from Havens' 1968 song into a completely different number, an original Springsteen composition known as "Twenty More Miles" that eclipsed in length the song it was appended to.
 

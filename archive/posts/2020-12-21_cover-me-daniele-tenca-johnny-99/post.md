@@ -1,8 +1,8 @@
 Daniele Tenca hails from Italy, but he shouldn't be a stranger to Springsteen fans–he's made multiple Light of Day appearances, played The Stone Pony in Asbury Park, and recorded a few outstanding Springsteen covers.
 
-In fact, Tenca recorded an absolutely smoking cover of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" back in 2010, and I was all set to blog about it later this month.
+In fact, Tenca recorded an absolutely smoking cover of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" back in 2010, and I was all set to blog about it later this month.
 
-But a few days ago, this stop-the-presses gem from 2018 showed up on YouTube, and now that "Factory" cover is going to have to wait a while–because I can't stop listening to Tenca's absolutely fantastic cover of "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)." It's easily my all-time favorite arrangement of the song, and that includes Bruce's own.
+But a few days ago, this stop-the-presses gem from 2018 showed up on YouTube, and now that "Factory" cover is going to have to wait a while–because I can't stop listening to Tenca's absolutely fantastic cover of "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)." It's easily my all-time favorite arrangement of the song, and that includes Bruce's own.
 
 [Watch on Youtube: Johnny 99 (Bruce Springsteen) - a tribute to Nebraska album (part 4)](https://www.youtube.com/watch?v=Bl_6G2Pbl0s)
 

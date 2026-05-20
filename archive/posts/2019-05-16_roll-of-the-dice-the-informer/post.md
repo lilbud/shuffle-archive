@@ -6,7 +6,7 @@ For example: "The Informer," known to us only because its title appeared along w
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/Theinformer.jpg.webp)
 
-Are there more lyrics than these? Did Bruce ever record the song? Did it morph into something else? (The lyrics we can read hint at some shared DNA with "[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/).")
+Are there more lyrics than these? Did Bruce ever record the song? Did it morph into something else? (The lyrics we can read hint at some shared DNA with "[Whitetown](../2018-04-19_roll-of-the-dice-whitetown/post.md).")
 
 We don't know, and we probably won't know, unless Bruce chooses to tell.
 

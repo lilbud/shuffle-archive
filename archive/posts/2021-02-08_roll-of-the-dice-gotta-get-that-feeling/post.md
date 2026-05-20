@@ -6,7 +6,7 @@ The song itself is a great one. Clearly intended as a Phil Spector/girl group ho
 
 [Watch on Youtube: Gotta Get That Feeling](https://www.youtube.com/watch?v=EN4Y720DA_Y)
 
-It's hard to know whether that "[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)"-esque introduction is recent or vintage, but given its absence from the bootlegged track that circulated many years before Bruce officially released his song on *The Promise*, it may be a more modern addition. Compare for yourself:
+It's hard to know whether that "[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md)"-esque introduction is recent or vintage, but given its absence from the bootlegged track that circulated many years before Bruce officially released his song on *The Promise*, it may be a more modern addition. Compare for yourself:
 
 [Watch on Youtube: Bruce Springsteen Get that Feeling](https://www.youtube.com/watch?v=DQ1LfLDrDrU)
 
@@ -42,13 +42,13 @@ Bruce may have re-recorded his vocal for the official release, but his lyrics cl
 
 With its "sha la la's" and call-and-response chorus, "Gotta Get That Feeling" is a love letter to the girl groups of the sixties. It's glorious and romantic, the kind of song you're supposed to *feel* rather than just listen to.
 
-Its only sin was zigging when Bruce was in a zagging mood. Bruce was tacking toward [*Darkness at the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) at the time, and "Gotta Get That Feeling" would have worked *terribly* on that album.
+Its only sin was zigging when Bruce was in a zagging mood. Bruce was tacking toward [*Darkness at the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) at the time, and "Gotta Get That Feeling" would have worked *terribly* on that album.
 
-Thirty-three years down the road, though, Bruce was finally ready to release his might-have-been album. Serving as the second track of a double-album (immediately following the alternate arrangement of "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" that serves as the nexus between *Darkness* and *The Promise*), "Gotta Get That Feeling" opens a window into *The Promise* and floods it with sunlight. From that point forward, *The Promise* is as bright as *Darkness* is… well, dark.
+Thirty-three years down the road, though, Bruce was finally ready to release his might-have-been album. Serving as the second track of a double-album (immediately following the alternate arrangement of "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" that serves as the nexus between *Darkness* and *The Promise*), "Gotta Get That Feeling" opens a window into *The Promise* and floods it with sunlight. From that point forward, *The Promise* is as bright as *Darkness* is… well, dark.
 
 "Gotta Get That Feeling" might have made a late arrival, but it's at least earned a trio of live performances, which is considerably more than most of the tracks on *The Promise* have seen. Only two of the three were captured for posterity, but at least they were captured in terrific quality.
 
-Bruce debuted "Gotta Get That Feeling" at his "[Carousel concert](https://estreetshuffle.com/index.php/2020/12/07/where-the-band-was-asbury-park-december-7-2010-mariettas-story/)" in 2010, best remembered now as Clarence's last public performance with Bruce and the E Street Band. It's a beautifully filmed and recorded performance, but I can't help but be a little sad during Clarence's solo. When the Big Man stares robotically from his stool while Bruce hovers near his former foil, I'm haunted by the ghosts of their past performances when their chemistry and energy crackled and sizzled from the stage.
+Bruce debuted "Gotta Get That Feeling" at his "[Carousel concert](../2020-12-07_where-the-band-was-asbury-park-december-7-2010-mariettas-story/post.md)" in 2010, best remembered now as Clarence's last public performance with Bruce and the E Street Band. It's a beautifully filmed and recorded performance, but I can't help but be a little sad during Clarence's solo. When the Big Man stares robotically from his stool while Bruce hovers near his former foil, I'm haunted by the ghosts of their past performances when their chemistry and energy crackled and sizzled from the stage.
 
 [Watch on Youtube: Bruce Springsteen - Gotta Get That Feeling (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=itpktRH1iig)
 

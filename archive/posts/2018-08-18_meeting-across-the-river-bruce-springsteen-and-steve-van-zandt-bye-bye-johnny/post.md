@@ -1,10 +1,10 @@
 True fact: Chuck Berry wrote *five* songs about Mr. Johnny B. Goode, so you'd be forgiven for confusing any of them with the titular and most famous of them.
 
-"Bye Bye Johnny" debuted two years after "[Johnny B. Goode](https://estreetshuffle.com/index.php/2018/01/22/meeting-across-the-river-check-berry-bruce-springsteen-and-the-e-street-band/)." When last we left Johnny, his mother was proclaiming and predicting that someday he'd be a man, bandleader, and a star with his name in lights. When "Bye Bye Johnny" begins, Johnny's mom is putting her boy on a bus and sending him west to stardom.
+"Bye Bye Johnny" debuted two years after "[Johnny B. Goode](../2018-01-22_meeting-across-the-river-check-berry-bruce-springsteen-and-the-e-street-band/post.md)." When last we left Johnny, his mother was proclaiming and predicting that someday he'd be a man, bandleader, and a star with his name in lights. When "Bye Bye Johnny" begins, Johnny's mom is putting her boy on a bus and sending him west to stardom.
 
 [Watch on Youtube: Bye Bye Johnny - (Digitally Re-Mastered 2010)](https://www.youtube.com/watch?v=j4wBlewVPpQ)
 
-If those first lines sound familiar, that's because Bruce borrowed and paid homage to them in his own song, "[Johnny Bye-Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)."
+If those first lines sound familiar, that's because Bruce borrowed and paid homage to them in his own song, "[Johnny Bye-Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)."
 
 In Berry's version, Johnny's mom had toiled and saved to buy her son a guitar and give him a chance to make it big–a detail that certainly must have resonated with Bruce. The song ends with his mother waiting for Johnny to return home with his new bride and build a mansion for his family. The story would continue.
 

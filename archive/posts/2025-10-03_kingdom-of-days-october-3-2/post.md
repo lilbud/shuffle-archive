@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1980-10-03b.jpg.webp)
 
-**1982:** Bruce plays "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" for the very first time, not solo or with the E Street Band, but with Cats on a Smooth Surface at The Stone Pony.<br>
+**1982:** Bruce plays "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" for the very first time, not solo or with the E Street Band, but with Cats on a Smooth Surface at The Stone Pony.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qjfJIaLw)
 
@@ -56,7 +56,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1996-10-03b.jpg.webp)
 
-**2003:** A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)," plays another double-header of tour premieres mid-set ("[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)" and "Another Thin Line"), along with rare outings for "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" and "New York City Serenade" (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.<br>
+**2003:** A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)," plays another double-header of tour premieres mid-set ("[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)" and "Another Thin Line"), along with rare outings for "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" and "New York City Serenade" (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/J1syuhbU)
 
@@ -66,7 +66,7 @@
 
 [Watch on Youtube: New York City Serenade Bruce Springsteen 10/3/2003 NYC](https://www.youtube.com/watch?v=l8eEFuw_SMU)
 
-**2004:** The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)" and "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" replace "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" in the set, and "Travelin' Band" makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/10/03/where-the-band-was-detroit-october-3-2004/).<br>
+**2004:** The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" and "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" replace "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" in the set, and "Travelin' Band" makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my [Where the Band Was report](../2018-10-03_where-the-band-was-detroit-october-3-2004/post.md).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1wwST4YS)
 
@@ -74,11 +74,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2004-10-03b.jpg.webp)
 
-**2005:** While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, ["If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)," will be released on a promotional CD for pledging members.<br>
+**2005:** While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, ["If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)," will be released on a promotional CD for pledging members.<br>
 
 [Watch on Youtube: Bruce Springsteen - "If I Should Fall Behind" WBJB-FM Radio Appearance, 2005-10-03](https://www.youtube.com/watch?v=RWCr-vhU6V4)
 
-**2006:** In an unusual move, Bruce re-releases *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)* in the same year as its original release, but this time as an *American Land Edition*, featuring five additional tracks and new videos.<br>
+**2006:** In an unusual move, Bruce re-releases *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)* in the same year as its original release, but this time as an *American Land Edition*, featuring five additional tracks and new videos.<br>
 
 [Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU?list=OLAK5uy_kLnnZP0WkflWP_7pxkwgEnpQcwdOoEE1o)
 
@@ -88,7 +88,7 @@
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - This Little Light of Mine (Live In Dublin)](https://www.youtube.com/watch?v=R0qAYq1GVec)
 
-**2009:** Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire *Born in the U.S.A.* album along with the tour premiere of "Last to Die" and a by-request "[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" Jeremy Chatzky joins the band and Curt Ramm for "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)," and the set list continues to benefit from the presence of Curt and his trumpet.<br>
+**2009:** Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire *Born in the U.S.A.* album along with the tour premiere of "Last to Die" and a by-request "[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" Jeremy Chatzky joins the band and Curt Ramm for "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)," and the set list continues to benefit from the presence of Curt and his trumpet.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Long Walk Home - 10/03/09 - Giants Stadium](https://www.youtube.com/watch?v=UwyN4OLL0mk)
 
@@ -98,7 +98,7 @@
 
 [Watch on Youtube: KTLA Bruce Springsteen at The Grove October 3, 2016](https://www.youtube.com/watch?v=odKtPqBfo-U)
 
-**2017:** Bruce makes his official Broadway debut when *Springsteen on Broadway* opens in its first public preview performance at the Walter Kerr Theater in New York City. Bruce dedicates this first show to Tom Petty, who passed away the day before. The show itself is an emotional tour through Bruce's life and work, stunning those present with its power, poignancy, heart and humor–all of which will grow throughout its long run. I'm in the front row for this historic performance–read my account of the evening in my *[Where the Band Was report](https://estreetshuffle.com/index.php/2018/10/03/where-the-man-was-broadway-october-3-2017/)*. Also in attendance tonight: Little Steven, Bruce's mom, and Bruce's sister Pam.<br>
+**2017:** Bruce makes his official Broadway debut when *Springsteen on Broadway* opens in its first public preview performance at the Walter Kerr Theater in New York City. Bruce dedicates this first show to Tom Petty, who passed away the day before. The show itself is an emotional tour through Bruce's life and work, stunning those present with its power, poignancy, heart and humor–all of which will grow throughout its long run. I'm in the front row for this historic performance–read my account of the evening in my *[Where the Band Was report](../2018-10-03_where-the-man-was-broadway-october-3-2017/post.md)*. Also in attendance tonight: Little Steven, Bruce's mom, and Bruce's sister Pam.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/2017-1003.jpg.webp)
 
@@ -106,7 +106,7 @@
 
 **2018:** *Springsteen on Broadway* celebrates the one-year anniversary of its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2022:** Bruce films videos for "Nightshift" and "[Turn Back the Hands of Time](https://estreetshuffle.com/index.php/2024/07/04/cover-me-turn-back-the-hands-of-time/)" at Samson Stages in Brooklyn.<br>
+**2022:** Bruce films videos for "Nightshift" and "[Turn Back the Hands of Time](../2024-07-04_cover-me-turn-back-the-hands-of-time/post.md)" at Samson Stages in Brooklyn.<br>
 
 [Watch on Youtube: Bruce Springsteen - Nightshift (Official Video)](https://www.youtube.com/watch?v=GsTKEQzLkmw)
 

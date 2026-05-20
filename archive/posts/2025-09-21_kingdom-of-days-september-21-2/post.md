@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1978-09-21.jpg.webp)
 
-**1979:** Bruce headlines the first of two famous "No Nukes" concerts at Madison Square Garden under the aegis of Musicians United for Safe Energy (MUSE), performing an abbreviated but well-documented set that features the very first performance of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)." That debut performance will become the song's official video, and audio recordings of "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" and "[Stay](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)" (with Jackson Browne and Rosemary Butler) will be released on the official companion album released toward the end of the year. This show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,20918/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-21-1979-Madison-Square-Garden-New-York-NY.html)), and selections are available on video in the concert film, *The Legendary 1979 No Nukes Concerts*.<br>
+**1979:** Bruce headlines the first of two famous "No Nukes" concerts at Madison Square Garden under the aegis of Musicians United for Safe Energy (MUSE), performing an abbreviated but well-documented set that features the very first performance of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)." That debut performance will become the song's official video, and audio recordings of "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" and "[Stay](../2018-07-22_meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/post.md)" (with Jackson Browne and Rosemary Butler) will be released on the official companion album released toward the end of the year. This show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,20918/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-21-1979-Madison-Square-Garden-New-York-NY.html)), and selections are available on video in the concert film, *The Legendary 1979 No Nukes Concerts*.<br>
 
 [Watch on Youtube: No Nukes Trailer](https://www.youtube.com/watch?v=r0dj1CPfwL8)
 
@@ -52,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1984-09-21b.jpg.webp)
 
-**1988:** The Human Rights Now! Tour hits the American west coast with a show at the Los Angeles Memorial Coliseum. Joan Baez makes a guest appearance, Bruce plays "Jungleland" for the last time until the Reunion Tour, and Bono joins the company for an encore of "[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)."<br>
+**1988:** The Human Rights Now! Tour hits the American west coast with a show at the Los Angeles Memorial Coliseum. Joan Baez makes a guest appearance, Bruce plays "Jungleland" for the last time until the Reunion Tour, and Bono joins the company for an encore of "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/nfk1Ytnj)
 
@@ -64,7 +64,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-21b.jpg.webp)
 
-**1999:** Night Four (of six) in Philadelphia on the Reunion Tour starts with a surprise: the tour premiere and one-off performance of "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" not seen at a proper concert since 1975. Rocketing from there into "[Take 'em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)," the show is off to a searing start.<br>
+**1999:** Night Four (of six) in Philadelphia on the Reunion Tour starts with a surprise: the tour premiere and one-off performance of "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" not seen at a proper concert since 1975. Rocketing from there into "[Take 'em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)," the show is off to a searing start.<br>
 
 [Watch on Youtube: Philadelphia 21/09/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zA7rdeP92aA2CCyborw8VfW)
 
@@ -76,7 +76,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2001-09-21b.jpg.webp)
 
-**2003:** Two more "missing years" songs makes their tour (and E Street Band) debuts in the home stretch of the Rising Tour, when "[Local Hero](https://estreetshuffle.com/index.php/2019/01/17/roll-of-the-dice-local-hero/)" and "[My Beautiful Reward](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)" come out to play at Comerica Park in Detroit–but the best highlight is saved for the encores, when Martha Reeves joins Bruce and the band to play her 1963 hit "[Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)."<br>
+**2003:** Two more "missing years" songs makes their tour (and E Street Band) debuts in the home stretch of the Rising Tour, when "[Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)" and "[My Beautiful Reward](../2023-02-19_roll-of-the-dice-my-beautiful-reward/post.md)" come out to play at Comerica Park in Detroit–but the best highlight is saved for the encores, when Martha Reeves joins Bruce and the band to play her 1963 hit "[Heat Wave](../2020-02-18_matr-bruce-springsteen-and-martha-reeves-heat-wave/post.md)."<br>
 
 [Watch on Youtube: Local Hero Bruce Springsteen 9/21/2003 Detroit](https://www.youtube.com/watch?v=PDHsvzZGpPk)
 
@@ -96,7 +96,7 @@ Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards
 
 **2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Convention Hall in Asbury Park.<br>
 
-**2009:** The Working on a Dream Tour stops at Wells Fargo Arena in Des Moines, where Bruce tour premieres "[The Wanderer](https://estreetshuffle.com/index.php/2019/05/08/cover-me-the-wanderer/)" followed immediately by a rare "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" segueing into "Rosalita (Come Out Tonight)" — the first time the two songs have been played back-to-back like that in 29 years.<br>
+**2009:** The Working on a Dream Tour stops at Wells Fargo Arena in Des Moines, where Bruce tour premieres "[The Wanderer](../2019-05-08_cover-me-the-wanderer/post.md)" followed immediately by a rare "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" segueing into "Rosalita (Come Out Tonight)" — the first time the two songs have been played back-to-back like that in 29 years.<br>
 
 [Watch on Youtube: Bruce Springsteen The Wanderer Des Moines 9/21/09](https://www.youtube.com/watch?v=kg2AOVXpqU4)
 
@@ -104,7 +104,7 @@ Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-21b.jpg.webp)
 
-**2012:** Bruce and the E Street Band play their second of three Wrecking Ball shows at MetLife Stadium in East Rutherford, and what a show: Bruce stuns the crowd by opening with the live debut of "[Living on the Edge of the World](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)," tour premiering "From Small Things (Big Things One Day Come)" and "[Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)," rare outings for "[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)" and "[This Depression](https://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)," and inviting Gary U.S. Bonds to join the band for four songs, including the tour premieres of "[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)" and "[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)."<br>
+**2012:** Bruce and the E Street Band play their second of three Wrecking Ball shows at MetLife Stadium in East Rutherford, and what a show: Bruce stuns the crowd by opening with the live debut of "[Living on the Edge of the World](../2018-10-18_roll-of-the-dice-living-on-the-edge-of-the-world/post.md)," tour premiering "From Small Things (Big Things One Day Come)" and "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)," rare outings for "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" and "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)," and inviting Gary U.S. Bonds to join the band for four songs, including the tour premieres of "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Living on the Edge of the World - Metlife Stadium - 9-21-12](https://www.youtube.com/watch?v=fwmwfjZdrKA)
 
@@ -112,11 +112,11 @@ Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards
 
 [Watch on Youtube: Bruce Springsteen - Incident on 57th Street & Rosalita - MetLife Stadium New Jersey 9/21/2012](https://www.youtube.com/watch?v=zA5lkIvT5So)
 
-**2013:** The Wrecking Ball Tour finally comes to a close at Rock in Rio, Bruce's first appearance in Brazil in 25 years. Bruce opens the show with the second and last performance (to date) of "[Sociedade Alternativa](https://estreetshuffle.com/index.php/2021/10/07/cover-me-sociedade-alternativa/)" and plays *Born in the U.S.A.* from start to finish. The last song of the Wrecking Ball Tour: an acoustic "This Hard Land."<br>
+**2013:** The Wrecking Ball Tour finally comes to a close at Rock in Rio, Bruce's first appearance in Brazil in 25 years. Bruce opens the show with the second and last performance (to date) of "[Sociedade Alternativa](../2021-10-07_cover-me-sociedade-alternativa/post.md)" and plays *Born in the U.S.A.* from start to finish. The last song of the Wrecking Ball Tour: an acoustic "This Hard Land."<br>
 
 [Watch on Youtube: Bruce Springsteen Rock in Rio 2013 Full Concert](https://www.youtube.com/watch?v=SBbUK_RNeQM)
 
-**2017:** Bruce makes a surprise guest appearance at the Laid Back Festival in Holmdel, New Jersey, joining both Little Steven and Jackson Browne in their respective sets. For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/09/21/where-the-band-was-holmdel-september-21-2016/).<br>
+**2017:** Bruce makes a surprise guest appearance at the Laid Back Festival in Holmdel, New Jersey, joining both Little Steven and Jackson Browne in their respective sets. For more highlights from this show, see my [Where the Band Was report](../2018-09-21_where-the-band-was-holmdel-september-21-2016/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen: It's Been A Long Time 9/21/2017 with Little Steven and the Disciples of Soul](https://www.youtube.com/watch?v=KtM3otto1QA)
 

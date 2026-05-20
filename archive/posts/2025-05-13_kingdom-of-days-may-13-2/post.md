@@ -14,11 +14,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/aCzHx7js)
 
-**1981:** At the Apollo Theater in Manchester, England, Bruce plays "[Johnny Bye-Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)" for the very first time and dedicates "[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)" to Bob Marley, who died two days ago.<br>
+**1981:** At the Apollo Theater in Manchester, England, Bruce plays "[Johnny Bye-Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)" for the very first time and dedicates "[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)" to Bob Marley, who died two days ago.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/h9MVaf2z)
 
-**1982:** Bruce records "[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)" at The Power Station in New York City.<br>
+**1982:** Bruce records "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" at The Power Station in New York City.<br>
 
 [Watch on Youtube: Darlington County](https://www.youtube.com/watch?v=1t5JvmqTx94)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: New Springsteen at The Stone Pony 5-08 live](https://www.youtube.com/watch?v=VxOABCbCexk)
 
-**2010:** At Sting and Trudie's eighties-themed Rainforest Benefit show at Carnegie Hall, Bruce performs "[Cuts Like a Knife](https://estreetshuffle.com/index.php/2018/09/14/meeting-across-the-river-bryan-adams-and-bruce-springsteen-cuts-like-a-knife/)" and joins an all-star jam for "[Don't Stop Believin'.](https://estreetshuffle.com/index.php/2020/12/20/matr-bruce-springsteen-sting-lady-gaga-elton-john-and-more-dont-stop-believin/)"<br>
+**2010:** At Sting and Trudie's eighties-themed Rainforest Benefit show at Carnegie Hall, Bruce performs "[Cuts Like a Knife](../2018-09-14_meeting-across-the-river-bryan-adams-and-bruce-springsteen-cuts-like-a-knife/post.md)" and joins an all-star jam for "[Don't Stop Believin'.](../2020-12-20_matr-bruce-springsteen-sting-lady-gaga-elton-john-and-more-dont-stop-believin/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen Covers Bryan Adams' Cuts Like a Knife at Rainforest Benefit Concert 05/13/10](https://www.youtube.com/watch?v=VZZgzF0g9lU)
 
@@ -62,7 +62,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Land Of Hope And Dreams - Sevilla, May 13, 2012](https://www.youtube.com/watch?v=_ALY3XPMdc4)
 
-**2014:** Bruce plays a sizzling show in Albany, opening with a cover of INXS's "[Don't Change](https://estreetshuffle.com/index.php/2021/03/26/cover-me-dont-change/)." Tour premieres and rarities abound, including "[Treat Her Right,](https://estreetshuffle.com/index.php/2019/10/04/cover-me-treat-her-right/)" "[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)," "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)," "[Seaside Bar Song,](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)" and "[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)." Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11390/Bruce-Springsteen-mp3-flac-download-5-13-2014-Times-Union-Center-Albany-NY.html).<br>
+**2014:** Bruce plays a sizzling show in Albany, opening with a cover of INXS's "[Don't Change](../2021-03-26_cover-me-dont-change/post.md)." Tour premieres and rarities abound, including "[Treat Her Right,](../2019-10-04_cover-me-treat-her-right/post.md)" "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)," "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)," "[Seaside Bar Song,](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)" and "[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)." Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11390/Bruce-Springsteen-mp3-flac-download-5-13-2014-Times-Union-Center-Albany-NY.html).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QYCbkR5K)
 
@@ -74,7 +74,7 @@
 
 **2016:** Bruce and the E Street Band rehearse in Barcelona for the European leg of The River (Redux) Tour.<br>
 
-**2021:** Bruce receives the Woody Guthrie Prize from Nora Guthrie at his farm in Colts Neck, in a live-streamed event for members of the Woody Guthrie Center. Following his acceptance, Bruce performs a rarity-filled four-song acoustic set, featuring covers of "[Tom Joad](https://estreetshuffle.com/index.php/2021/05/24/cover-me-tom-joad/)" and "[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" and a gorgeous "[Across the Border.](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)"<br>
+**2021:** Bruce receives the Woody Guthrie Prize from Nora Guthrie at his farm in Colts Neck, in a live-streamed event for members of the Woody Guthrie Center. Following his acceptance, Bruce performs a rarity-filled four-song acoustic set, featuring covers of "[Tom Joad](../2021-05-24_cover-me-tom-joad/post.md)" and "[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" and a gorgeous "[Across the Border.](../2020-09-06_roll-of-the-dice-across-the-border/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/byP6Gb2q)
 

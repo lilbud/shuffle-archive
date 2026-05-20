@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1974-04-12.jpg.webp)
 
-**1976:** At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E Street Band play their final full-band “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)” for 23 years. Promoters are getting Bruce’s name right these days, but they’re still struggling with the band’s.<br>
+**1976:** At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E Street Band play their final full-band “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)” for 23 years. Promoters are getting Bruce’s name right these days, but they’re still struggling with the band’s.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1976-0412.jpg.webp)
 
@@ -68,7 +68,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2012-04-12.jpg.webp)
 
-**2014:** A true seaside show, Bruce’s concert in Virginia Beach opens with a one-off cover of “[May I](https://estreetshuffle.com/index.php/2019/10/01/cover-me-may-i/),” and features rare performances of “Seaside Bar Song” and “Jersey Girl” along with the tour premieres of “The Wall” and “Talk to Me.”<br>
+**2014:** A true seaside show, Bruce’s concert in Virginia Beach opens with a one-off cover of “[May I](../2019-10-01_cover-me-may-i/post.md),” and features rare performances of “Seaside Bar Song” and “Jersey Girl” along with the tour premieres of “The Wall” and “Talk to Me.”<br>
 
 [Watch on Youtube: Bruce Springsteen "May I" Virginia's Bill Deal & the Rhondels Cover - 4/12/14](https://www.youtube.com/watch?v=YMBnU1bYsDc)
 

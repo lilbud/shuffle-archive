@@ -26,11 +26,11 @@ A jam piece from its very origin, "Down the Road Apiece" proved a perfect showca
 
 "Down the Road Apiece" was a perfect fit for the Bruce Springsteen Band, but when the BSB evolved into the ESB later that year, Bruce set the song aside and didn't look back for almost a quarter-century. He rediscovered it in 1995, when he performed it not with his own band but as a guest with two of his good friends.
 
-That summer, Bruce travelled to Berlin to record a live video for "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" (fifteen years after its original release) with Wolfgang Niedecken and his Leopardefellband. Bruce fronted the band through "Hungry Heart" seven times through that day, and to break it up a bit for their video shoot audience, they interspersed a few covers into the set–the first of which was, "Down the Road Apiece."
+That summer, Bruce travelled to Berlin to record a live video for "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" (fifteen years after its original release) with Wolfgang Niedecken and his Leopardefellband. Bruce fronted the band through "Hungry Heart" seven times through that day, and to break it up a bit for their video shoot audience, they interspersed a few covers into the set–the first of which was, "Down the Road Apiece."
 
 [Watch on Youtube: Bruce Springsteen - Down The Road Apiece](https://www.youtube.com/watch?v=jwbwL5s12wo)
 
-That Berlin performance might have been a one-off, if not for Joe Grushecky. A big Rolling Stones fan, Joe added "Down the Road Apiece" to his set lists on his October Assault mini-tour for [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) later that year. Since Bruce was an honorary Houserocker for the entire tour, that added another half-dozen "Down the Road Apiece" performances to the record, and we're fortunate that one of them has seen official release on Joe's 1999 live album, *Down the Road Apiece: Live*, with Joe and Bruce sharing lead vocals.
+That Berlin performance might have been a one-off, if not for Joe Grushecky. A big Rolling Stones fan, Joe added "Down the Road Apiece" to his set lists on his October Assault mini-tour for [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) later that year. Since Bruce was an honorary Houserocker for the entire tour, that added another half-dozen "Down the Road Apiece" performances to the record, and we're fortunate that one of them has seen official release on Joe's 1999 live album, *Down the Road Apiece: Live*, with Joe and Bruce sharing lead vocals.
 
 [Watch on Youtube: Down The Road Apiece](https://www.youtube.com/watch?v=b13zMkXf2t0)
 

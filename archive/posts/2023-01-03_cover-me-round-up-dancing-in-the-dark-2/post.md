@@ -1,8 +1,8 @@
 Welcome to the third installment of our *Cover Me Round-Up* series, spotlighting Springsteen songs covered too frequently to keep up with unless I spotlight them in batches.
 
-"[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" has always been one of Bruce's most popular songs, but over the past year or so, the number of quality covers of it has absolutely exploded–very likely because we're living through times of isolation and frustration not unlike the ones expressed by the song.
+"[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" has always been one of Bruce's most popular songs, but over the past year or so, the number of quality covers of it has absolutely exploded–very likely because we're living through times of isolation and frustration not unlike the ones expressed by the song.
 
-(Check out our previous "Dancing in the Dark" cover round-up [here](https://estreetshuffle.com/index.php/2021/03/21/cover-me-round-up-dancing-in-the-dark/).)
+(Check out our previous "Dancing in the Dark" cover round-up [here](../2021-03-21_cover-me-round-up-dancing-in-the-dark/post.md).)
 
 Whatever the reasons, we're fortunate to have some great new versions of Bruce's greatest hit to enjoy, recorded by musicians from around the world.
 

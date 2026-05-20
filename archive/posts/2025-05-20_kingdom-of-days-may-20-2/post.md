@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
-**1993:** Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe's "[Settle for Love](https://estreetshuffle.com/index.php/2020/04/22/matr-bruce-springsteen-and-joe-ely-settle-for-love/)" (which the two played at Joe's show the night before), and Jerry Lee Lewis joined Bruce for encores of "[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)" and "[Whole Lotta Shakin' Goin' On](https://estreetshuffle.com/index.php/2020/05/15/matr-bruce-springsteen-and-jerry-lee-lewis-whole-lotta-shakin-goin-on/)." Despite the special guests, the show is poorly reviewed by local press.<br>
+**1993:** Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe's "[Settle for Love](../2020-04-22_matr-bruce-springsteen-and-joe-ely-settle-for-love/post.md)" (which the two played at Joe's show the night before), and Jerry Lee Lewis joined Bruce for encores of "[Great Balls of Fire](../2022-08-10_matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/post.md)" and "[Whole Lotta Shakin' Goin' On](../2020-05-15_matr-bruce-springsteen-and-jerry-lee-lewis-whole-lotta-shakin-goin-on/post.md)." Despite the special guests, the show is poorly reviewed by local press.<br>
 
 [Watch on Youtube: Jerry Lee Lewis & Bruce Springsteen live in Dublin (1993)](https://www.youtube.com/watch?v=JkrlvfNoivc)
 
@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-20b.jpg.webp)
 
-**2006:** "[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)" makes its Seeger Sessions Tour debut at the Oslo Spektrum.<br>
+**2006:** "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)" makes its Seeger Sessions Tour debut at the Oslo Spektrum.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/zHfMSVF6)
 

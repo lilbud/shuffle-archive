@@ -1,6 +1,6 @@
 How much of a Springsteen fan is Amy Ray?
 
-Enough that for years, she sang "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" in the studio to warm up but rarely dared to cover it in public out of reverence for the original.
+Enough that for years, she sang "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" in the studio to warm up but rarely dared to cover it in public out of reverence for the original.
 
 Enough that she actually learned the song from the bootleg of Bruce's Atlanta '78 show and still has to catch herself from singing "cover all the southern states" because that's the way Bruce sang it that night. (There's actually a clip on YouTube of her singing it that way in 2009.)
 

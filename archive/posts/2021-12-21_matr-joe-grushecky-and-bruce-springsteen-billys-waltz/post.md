@@ -1,4 +1,4 @@
-Towards the end of Joe Grushecky's [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/), there's a lovely but dark and evocative ballad.
+Towards the end of Joe Grushecky's [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md), there's a lovely but dark and evocative ballad.
 
 The nondescriptively named "Billy's Waltz" is the kind of song we'd expect to find on *Nebraska:* a confessional by a man who left his home and family to find work, promising to return for them but knowing he won't keep his promise.
 

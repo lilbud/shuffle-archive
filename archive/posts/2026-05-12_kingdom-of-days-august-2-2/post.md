@@ -66,7 +66,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-08-02.png.webp)
 
-**2002:** Bruce and the E Street Band play a third rehearsal show at Asbury Park's Convention Hall, featuring the first "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" in over twenty years. That night, *The Late Show With David Letterman* airs an interview with Bruce and a full-band performance of "Lonesome Day" (recorded the day prior).<br>
+**2002:** Bruce and the E Street Band play a third rehearsal show at Asbury Park's Convention Hall, featuring the first "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" in over twenty years. That night, *The Late Show With David Letterman* airs an interview with Bruce and a full-band performance of "Lonesome Day" (recorded the day prior).<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GPdPi8srX1Q)
 

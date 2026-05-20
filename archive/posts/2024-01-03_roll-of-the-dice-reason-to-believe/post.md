@@ -115,7 +115,7 @@ Bruce's first breakthrough came on his 2005 solo acoustic tour, where he used a 
 
 And then came the Magic Tour.
 
-In a stroke of inspired genius, Bruce completely reinvented "Reason to Believe" as a show-stopping rocker in an arrangement lifted straight from Norman Greenbaum's "Spirit in the Sky" (and as reader Chris points out in the comments below, also more than a little similar to [The Beat Farmers' 1985 cover](https://estreetshuffle.com/index.php/2018/09/10/cover-me-beat-farmers-reason-to-believe/) of Bruce's original).
+In a stroke of inspired genius, Bruce completely reinvented "Reason to Believe" as a show-stopping rocker in an arrangement lifted straight from Norman Greenbaum's "Spirit in the Sky" (and as reader Chris points out in the comments below, also more than a little similar to [The Beat Farmers' 1985 cover](../2018-09-10_cover-me-beat-farmers-reason-to-believe/post.md) of Bruce's original).
 
 [Watch on Youtube: ~ Bruce Springsteen - Reason To Believe (Hartford, October 2, 2007) ~](https://www.youtube.com/watch?v=Ze2-AJ7AF6g)
 

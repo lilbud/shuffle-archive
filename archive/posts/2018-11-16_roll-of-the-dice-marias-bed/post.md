@@ -2,7 +2,7 @@ In the micro-genre of *Bruce Springsteen Songs About Sexual Obsession, Possibly 
 
 I learned long ago that my tastes are no arbiter of whether a song becomes a hit or flies under the radar, but *come on*: "Maria's Bed" is easily one of Bruce's best 21st-century songs. (Except that I'm not entirely convinced he wrote it in this century. More on that later.)
 
-Unlike the thematically similar "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)," which drips with furious self-delusion, or the self-loathing, literal aftermath of "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)" (more on that later as well), "Maria's Bed" jaunts along in a playful, infectious country slide and stomp. It's Bruce at his most carefree, singing in an unusually high register.
+Unlike the thematically similar "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," which drips with furious self-delusion, or the self-loathing, literal aftermath of "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)" (more on that later as well), "Maria's Bed" jaunts along in a playful, infectious country slide and stomp. It's Bruce at his most carefree, singing in an unusually high register.
 
 Take a listen:
 
@@ -21,7 +21,7 @@ But "Maria's Bed" is also full of callbacks to and swipes from other Springsteen
 > *I got a sweet soft fever rushing around my head*
 > *I'm gonna sleep tonight in Maria's bed*
 
-Four lines in, and we might as well be listening to "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/):"
+Four lines in, and we might as well be listening to "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md):"
 
 > *I work for the county out on ninety five*
 > *All day I hold a red flag and watch the traffic pass me by*
@@ -41,7 +41,7 @@ Those first two lines made a previous appearance in "[Further On (Up the Road)](
 
 Did Bruce recycle that lyric on purpose, or is this another case (of which there are many) of Bruce taking the seed of a song in two different directions at the same time?
 
-I tend to side toward the latter as the more likely explanation: we already know that *Devils & Dust* contains songs written and recorded a decade or more before the release of the album (Bruce [once disclosed](https://www.nytimes.com/2005/04/24/arts/music/bruce-almighty.html) that most of the album was written during the Ghost of Tom Joad Tour, and "[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)" dates back even further), so it's very possible that "Maria's Bed" was a sibling–perhaps even an older sibling–to "Further On (Up the Road)."
+I tend to side toward the latter as the more likely explanation: we already know that *Devils & Dust* contains songs written and recorded a decade or more before the release of the album (Bruce [once disclosed](https://www.nytimes.com/2005/04/24/arts/music/bruce-almighty.html) that most of the album was written during the Ghost of Tom Joad Tour, and "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)" dates back even further), so it's very possible that "Maria's Bed" was a sibling–perhaps even an older sibling–to "Further On (Up the Road)."
 
 Either way, it's an odd choice of phrasing for a song like "Maria's Bed." It works perfectly in "Further On (Up the Road)" but here it's jarring. Perhaps that's the point, though: Bruce devotes a few lines of grim, dark shading in order to more effectively offset the remainder of the song, which paints Maria in primary colors:
 

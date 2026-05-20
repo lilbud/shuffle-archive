@@ -1,4 +1,4 @@
-If you're a fan of the rock arrangement of "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" that Bruce debuted during the Magic Tour, give a listen to The Beat Farmers' cover treatment from way back in 1985–it rocks just as hard.
+If you're a fan of the rock arrangement of "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" that Bruce debuted during the Magic Tour, give a listen to The Beat Farmers' cover treatment from way back in 1985–it rocks just as hard.
 
 [Watch on Youtube: Reason to Believe The Beat Farmers](https://www.youtube.com/watch?v=cMZLTgR3gbQ)
 

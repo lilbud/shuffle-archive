@@ -1,4 +1,4 @@
-Very rarely do I second-guess his arrangement decisions, but when I first heard Bruce's studio version of "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" on *Magic* after first hearing him debut it on the Seeger Sessions Tour, I couldn't mask my disappointment.
+Very rarely do I second-guess his arrangement decisions, but when I first heard Bruce's studio version of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" on *Magic* after first hearing him debut it on the Seeger Sessions Tour, I couldn't mask my disappointment.
 
 "Long Walk Home" isn't a rocker. At least it shouldn't be–at heart it's a torch song (albeit a political one) about a relationship sorely damaged but holding, a couple rocked by infidelity but determined to recommit themselves.
 

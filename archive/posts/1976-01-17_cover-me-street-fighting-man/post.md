@@ -1,6 +1,6 @@
 Mick Jagger may not be a big fan of "Street Fighting Man," (he's admitted as much in interviews), but Bruce Springsteen surely is.
 
-Not only has Bruce labelled the song's signature line ("What can a poor boy do but sing in a rock and roll band?") one of the greatest lines of all time, he paid homage to it in his own "[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)." (What's a poor boy to do but keep singing his song?)
+Not only has Bruce labelled the song's signature line ("What can a poor boy do but sing in a rock and roll band?") one of the greatest lines of all time, he paid homage to it in his own "[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)." (What's a poor boy to do but keep singing his song?)
 
 When The Rolling Stones released their original version as the lead single off *Beggars Banquet* in 1968, it didn't exactly start the revolution it called for, peaking only at #48 on the charts. (That's probably because it was sailing upwind against radio stations that didn't want to rock the boat by playing it, since the song was released during at very turbulent moment in American politics.)
 

@@ -31,7 +31,7 @@ There are a few–and thankfully *only* a few–songs in Bruce's catalog that do
 
 I'm not talking about the songs that take on more power and life when performed on stage, because that's true of almost every song he's ever released.
 
-I'm talking about the songs that are just terrible on album compared to their live (and in some cases, original) arrangements. "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)" is probably the prime example of this–I find it unlistenable on *Human Touch* but adore it in its original 1990 and subsequent 2005 live arrangement.
+I'm talking about the songs that are just terrible on album compared to their live (and in some cases, original) arrangements. "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)" is probably the prime example of this–I find it unlistenable on *Human Touch* but adore it in its original 1990 and subsequent 2005 live arrangement.
 
 "Long Walk Home" is a close second, and a bigger crime–because it's one of the most potent, poignant, and powerful songs Bruce has ever written. In its officially released version from *Magic*, however, "Long Walk Home" comes across as assaultingly harsh, especially after the E Street Band enters in force after the first verse. The song suffers from the overproduction that plagues most of the album. Take a listen below and see what I mean.
 

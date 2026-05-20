@@ -6,7 +6,7 @@ Editor's Note
 
 [Watch on Youtube: Bruce Springsteen: Wings for Wheels: The Making of Born to Run](https://www.youtube.com/watch?v=OaMgOYCeOBg)
 
-*The boys rehearsing "[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)" at Bruce's house in the summer of '76? Barry shot that (along with all the archival footage included in* The Promise: Darkness on the Edge of Town).
+*The boys rehearsing "[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md)" at Bruce's house in the summer of '76? Barry shot that (along with all the archival footage included in* The Promise: Darkness on the Edge of Town).
 
 [Watch on Youtube: Save My Love (Holmdel, NJ 76) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=SN-ou-JqXqQ)
 

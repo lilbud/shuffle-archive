@@ -70,7 +70,7 @@ But for me, "I'll See You in My Dreams" isn't desperate at all, and it doesn't f
 
 It fills me with life.
 
-It reminds me that the road really is long, and that while it has an end, it still seems far enough away to enjoy the rest of the ride. It reminds me to make the most of every moment, even the quiet and ordinary ones. Because like[I learned with my dad](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/) when I was a teenager, we rarely know which moments will be the ones that stick with us when they happen, and with our children and their children, we may never know at all.
+It reminds me that the road really is long, and that while it has an end, it still seems far enough away to enjoy the rest of the ride. It reminds me to make the most of every moment, even the quiet and ordinary ones. Because like[I learned with my dad](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md) when I was a teenager, we rarely know which moments will be the ones that stick with us when they happen, and with our children and their children, we may never know at all.
 
 So I apologize for the skip day yesterday; it took me a little longer than usual to write this one. I was spending the day in the guest room of my daughter's dreams and building a new one in my granddaughter's.
 

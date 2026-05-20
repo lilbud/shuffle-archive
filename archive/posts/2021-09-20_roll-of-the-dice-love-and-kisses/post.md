@@ -8,7 +8,7 @@ Today's entry definitely falls into the "mostly bluffed" category, but it defini
 
 Bruce's vocals are so heavily bluffed that it's not worth trying to transcribe the lyrics, but we can hear just enough to discern a romantic song in the making.
 
-But it's the melody that's revealing here: if it sounds familiar, that's because it's the foundation of an officially released outtake from a few years later. Bruce obviously thought enough of his musical composition to revive it for "[Wages of Sin](https://estreetshuffle.com/index.php/2020/02/07/roll-of-the-dice-wages-of-sin/)" during the *Born in the U.S.A.* sessions.
+But it's the melody that's revealing here: if it sounds familiar, that's because it's the foundation of an officially released outtake from a few years later. Bruce obviously thought enough of his musical composition to revive it for "[Wages of Sin](../2020-02-07_roll-of-the-dice-wages-of-sin/post.md)" during the *Born in the U.S.A.* sessions.
 
 Bruce continued working on "Love and Kisses," evolving the melody into something a bit more distinctive (take a listen below). As far as we know, though, the lyrics were a dead end, rendering the song of note solely for its contribution to "Wages of Sin."
 

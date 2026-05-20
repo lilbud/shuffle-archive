@@ -6,7 +6,7 @@ He's been throwing them as far back as*Nebraska* in 1982 and as recently as *Wes
 
 But for all the unexpected albums he's surprised and challenged us with over the years, perhaps the biggest curveball was his 1994 solo album–the one he has yet to release.
 
-Riding a triumphant comeback wave with his Oscar-winning hit "Streets of Philadelphia" (following a pair of albums and tours with mixed reviews and sales), Bruce decided to mine the vein he unearthed for "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" and see where it led him.
+Riding a triumphant comeback wave with his Oscar-winning hit "Streets of Philadelphia" (following a pair of albums and tours with mixed reviews and sales), Bruce decided to mine the vein he unearthed for "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" and see where it led him.
 
 In his temporary home studio in Los Angeles (the Springsteens were actually living in Bruce's regular home studio following a major earthquake in January '94), Bruce collected a catalog of recorded drum loops, pulled out a synthesizer, and over the course of a year crafted almost an album's worth of songs.
 
@@ -22,7 +22,7 @@ Three days later, Sean Penn was in possession of a brand new Bruce Springsteen s
 
 The film bombed, earning back less than a million of its $9 million budget, and without a soundtrack album, that meant that a brand new Springsteen song came and went with almost zero notice.
 
-But almost zero is still something, and so to capitalize on what notice there was, Bruce released "Missing" as a single in April 1996, backed by a live version of "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" from his in-progress Ghost of Tom Joad Tour.
+But almost zero is still something, and so to capitalize on what notice there was, Bruce released "Missing" as a single in April 1996, backed by a live version of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" from his in-progress Ghost of Tom Joad Tour.
 
 [Watch on Youtube: Missing (from 'The Crossing Guard' OST)](https://www.youtube.com/watch?v=G-YK-FZIK2o)
 
@@ -34,7 +34,7 @@ There's a simple four-note synthesizer theme established early on, and a 1970s-f
 
 As for the lyrics: if this is your first time hearing "Missing," you're probably experiencing some deja vu.
 
-"Missing" is *very* similar in title, theme, and at times lyrics to "[You're Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)," from Bruce's 2002 album, *The Rising.*
+"Missing" is *very* similar in title, theme, and at times lyrics to "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)," from Bruce's 2002 album, *The Rising.*
 
 > *Woke up this morning, was a chill in the air*<br>
 > *Went into the kitchen, my cigarettes were lying there*<br>
@@ -47,7 +47,7 @@ There's no doubt that Bruce consciously reworked his obscure 1994 single for his
 
 The latter song is clearly about the aftermath of a tragic death; Bruce conveys as much through his lyrics, his music, and the context of the album. "Missing" however, was composed long before the tragic events of September 2001, and the circumstances surrounding the titular missing character are far more ambiguous.
 
-Is the narrator's lover dead? Has she fled? Is she in trouble, or has she simply moved on? We never learn, but her departure hits our narrator as hard as the one that hits the protagonist in "[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)." The comparison is especially apt considering the dream sequences that haunt both narrators:
+Is the narrator's lover dead? Has she fled? Is she in trouble, or has she simply moved on? We never learn, but her departure hits our narrator as hard as the one that hits the protagonist in "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)." The comparison is especially apt considering the dream sequences that haunt both narrators:
 
 > *Last night I dreamed the sky went black*<br>
 > *You were drifting down, couldn't get back*<br>

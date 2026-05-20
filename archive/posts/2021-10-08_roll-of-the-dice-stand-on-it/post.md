@@ -42,7 +42,7 @@ Jimmy Lee is flagging on the dirt track until a shouted encouragement reignites 
 > *Go grab a girl and see a rock and roll band*<br>
 > *And stand on it, come on man, stand on it*<br>
 
-Feeling doubtful, confused, not in control? Just [drive fast, fall hard](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/).
+Feeling doubtful, confused, not in control? Just [drive fast, fall hard](../2021-01-17_roll-of-the-dice-drive-fast-the-stuntman/post.md).
 
 Just to make sure we don't miss the message, Bruce pauses the racing metaphor and teaches a history lesson.
 

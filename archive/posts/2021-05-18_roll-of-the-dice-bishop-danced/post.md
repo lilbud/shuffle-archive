@@ -82,7 +82,7 @@ Because "Bishop Danced" disappeared from Bruce's set list in early 1973 and didn
 
 "Bishop Danced" benefitted from its new arrangement, particularly from Soozie Tyrell's violin solo and Charlie Giordano's accordion spotlight. Still, Bruce seemed awfully close to blushing at times.
 
-So *you* decide: "Bishop Danced" is either an atypical-for-Bruce nonsense song or a *very* typical-for-Bruce obscured sex song. (See "[All I'm Thinkin' About](https://estreetshuffle.com/index.php/2020/11/05/roll-of-the-dice-all-im-thinkin-about/).") I know what I think.
+So *you* decide: "Bishop Danced" is either an atypical-for-Bruce nonsense song or a *very* typical-for-Bruce obscured sex song. (See "[All I'm Thinkin' About](../2020-11-05_roll-of-the-dice-all-im-thinkin-about/post.md).") I know what I think.
 
 I'm still listening for that Top 40 hook, though.
 

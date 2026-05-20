@@ -6,7 +6,7 @@ For the rest of us, we'll have to make do with this video record of a *very* ear
 
 It's easy to focus on the unfamiliar melody, but it's fascinating to examine the lyrics: they are a complete inversion of the classic we know and love (only a few snippets would survive in the final version), and yet the moral is the same: when you're alone, you're alone. Or perhaps more accurately: two hearts are better than one.
 
-(I've always thought that "The Ties That Bind" and "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" are essentially the same song told the same way from the same perspective, and given the wealth of material to choose from for *The River*, it remains a mystery to me why he chose to put both songs on that album. But that's a mystery to ponder another day.)
+(I've always thought that "The Ties That Bind" and "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" are essentially the same song told the same way from the same perspective, and given the wealth of material to choose from for *The River*, it remains a mystery to me why he chose to put both songs on that album. But that's a mystery to ponder another day.)
 
 This early, unrecognizable version of "The Ties That Bind" is told from the opposite perspective. In this take, it's the protagonist who is the loner–but with enough self-awareness to recognize that he can't fully cut his heart off from his girl. He has unbreakable ties binding him to her, no matter how far away he rides:
 
@@ -40,7 +40,7 @@ The perspective has now shifted–in this version, we're in "Two Hearts" territo
 > *Ease the sadness, who's gonna quiet your pain*<br>
 > *You'll walk the wire, will you stand and walk the line*<br>
 
-And then a completely different bridge (the same musical bridge from "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)") with lyrics that seem more condemning and angry than empathetic:
+And then a completely different bridge (the same musical bridge from "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md)") with lyrics that seem more condemning and angry than empathetic:
 
 > *Keeping it safe, if you can, then you'll be a savior*<br>
 > *You can't run from your blood, with that call*<br>

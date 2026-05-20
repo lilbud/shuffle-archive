@@ -6,7 +6,7 @@ Bruce was a big fan of the influential punk band's first two albums–in fact, h
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/03/dictators-bruce.jpg.webp)
 
-So when it turned out the band was recording their third album in the same building where Bruce was mixing [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/), Bruce stopped by for a visit and ended up on vinyl.
+So when it turned out the band was recording their third album in the same building where Bruce was mixing [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md), Bruce stopped by for a visit and ended up on vinyl.
 
 Blink and you'll miss it, but at about the 2:10 mark, listen closely and you'll hear Bruce count the band back in for the final chorus.
 

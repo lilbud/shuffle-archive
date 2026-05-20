@@ -22,13 +22,13 @@ Bruce discreetly tried to contact Rotella about his article through Terry Magove
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/balboa2-1.jpg.webp)
 
-Nevertheless, in 1995, Bruce adapted the article into a song, recorded it, and released it on *T[he Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).* He named the song after the location both the song and article centered on: Balboa Park.
+Nevertheless, in 1995, Bruce adapted the article into a song, recorded it, and released it on *T[he Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).* He named the song after the location both the song and article centered on: Balboa Park.
 
 [Watch on Youtube: Balboa Park](https://www.youtube.com/watch?v=IWmdBgHjLlY)
 
 "Balboa Park" is truly a solo recording. Bruce plays guitar and keyboards–the only instruments to be heard–on the track, along with vocals so soft and intimate that it sounds like you're listening to a story told around a campfire.
 
-The song reads like a musical adaptation of the article. Bruce makes no attempt at a chorus and puts very little effort into a melody. The story's the thing, and Bruce wants nothing to detract from it. The story of Spider's Balboa Park is a million miles away from Spanish Johnny's [57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).
+The song reads like a musical adaptation of the article. Bruce makes no attempt at a chorus and puts very little effort into a melody. The story's the thing, and Bruce wants nothing to detract from it. The story of Spider's Balboa Park is a million miles away from Spanish Johnny's [57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md).
 
 > *He lay his blanket underneath the freeway as the evening sky grew dark*<br>
 > *Took a sniff of toncho from his coke can, headed through Balboa Park*<br>

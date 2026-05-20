@@ -16,7 +16,7 @@ But if I had to hazard a guess based on the recording below (and other performan
 
 Regardless of which instrument Bruce helmed that night, he contributed to a fierce performance and his only known one of that particular song.
 
-Bruce played three more Patti Smith originals during that late show ("[Land](https://estreetshuffle.com/index.php/2020/12/23/matr-patti-smith-and-bruce-springsteen-land/)," "[Ain't It Strange](https://estreetshuffle.com/index.php/2021/06/25/matr-patti-smith-and-bruce-springsteen-aint-it-strange/)" and "[You Can Dig It](https://estreetshuffle.com/index.php/2019/05/25/matr-patti-smith-and-bruce-springsteen-you-can-dig-it/)"), and six at the early one. We've covered almost all of them now, except for the most curious one.
+Bruce played three more Patti Smith originals during that late show ("[Land](../2020-12-23_matr-patti-smith-and-bruce-springsteen-land/post.md)," "[Ain't It Strange](../2021-06-25_matr-patti-smith-and-bruce-springsteen-aint-it-strange/post.md)" and "[You Can Dig It](../2019-05-25_matr-patti-smith-and-bruce-springsteen-you-can-dig-it/post.md)"), and six at the early one. We've covered almost all of them now, except for the most curious one.
 
 That one's coming soon.
 

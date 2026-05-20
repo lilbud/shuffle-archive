@@ -1,4 +1,4 @@
-I wrote about "[You Mean So Much to Me](https://estreetshuffle.com/index.php/2020/01/13/roll-of-the-dice-you-mean-so-much-to-me/)" last month, tracing its evolution from a brassy Bruce Springsteen Band jam to a cool, jazzy showcase for the E Street keyboardists.
+I wrote about "[You Mean So Much to Me](../2020-01-13_roll-of-the-dice-you-mean-so-much-to-me/post.md)" last month, tracing its evolution from a brassy Bruce Springsteen Band jam to a cool, jazzy showcase for the E Street keyboardists.
 
 But the story doesn't end there.
 

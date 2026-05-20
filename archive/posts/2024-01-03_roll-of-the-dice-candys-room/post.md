@@ -4,8 +4,8 @@ And now (finally) we arrive at the final installment of our deep dive into "Cand
 
 Even for an artist like Bruce, who tends to cobble songs from parts like souped-up cars, the evolution of "Candy's Room" is tricky to trace. We've covered a lot of essential ground already, so if you haven't already read the first two installments or could use a refresher, I highly recommend starting with these two *Roll of the Dice* installments before reading any further:
 
-- "[Candy's Boy](https://estreetshuffle.com/index.php/2020/09/02/roll-of-the-dice-candys-boy/)" (September 2020)
-- "[The Fast Song](https://estreetshuffle.com/index.php/2021/01/30/roll-of-the-dice-the-fast-song/)" (January 2021)
+- "[Candy's Boy](../2020-09-02_roll-of-the-dice-candys-boy/post.md)" (September 2020)
+- "[The Fast Song](../2021-01-30_roll-of-the-dice-the-fast-song/post.md)" (January 2021)
 
 Caught up? Great–then let's continue.
 
@@ -44,7 +44,7 @@ It was at this point that Bruce began to merge the sibling songs. As September p
 > *that ??? off the line and then we kiss*<br>
 > *From a world we'll meet / burn / take / know / without end*<br>
 
-We're getting closer to the final version of "Candy's Room," now: The first verse is there (it's the one consistent component from the very beginning of the song's evolution), and we see hints of the second (although this version contains lyrics that will make their way to "[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)").
+We're getting closer to the final version of "Candy's Room," now: The first verse is there (it's the one consistent component from the very beginning of the song's evolution), and we see hints of the second (although this version contains lyrics that will make their way to "[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)").
 
 The bridge is there too, although it's a bit distributed. It's only at the end of the song that Bruce seems to run out of steam, losing both power and coherence.
 
@@ -69,7 +69,7 @@ This version contains almost entirely new lyrics, but thematically the heart of 
 > *I see her face with a beauty that time can't erase*<br>
 > *Hidden from the sound, hidden from the light, hidden from the world… tonight*<br>
 
-From here, evidence suggests the song cohered rather quickly, with recording sessions for the final track taking place between late October and mid-December, with three days of intensive overdubbing and mixing in early March until a final version (take 42 out of a total of 79) was selected for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
+From here, evidence suggests the song cohered rather quickly, with recording sessions for the final track taking place between late October and mid-December, with three days of intensive overdubbing and mixing in early March until a final version (take 42 out of a total of 79) was selected for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
 
 After almost two years of pruning and grafting, finessing and fine-tuning, "Candy's Room" was complete.
 

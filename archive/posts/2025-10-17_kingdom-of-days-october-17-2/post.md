@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1973-1016.jpg.webp)
 
-**1974:** Bruce and the E Street Band work on "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" during a recording session at 914 Sound Studios in Blauvelt, New York.<br>
+**1974:** Bruce and the E Street Band work on "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" during a recording session at 914 Sound Studios in Blauvelt, New York.<br>
 
 **1975:** Bruce and the E Street Band play two shows at the Roxy in West Hollywood, the first of which is broadcast live on the radio.<br>
 
@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1976-1017.jpg.webp)
 
-**1978:** Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to "Mona" into "[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)."<br>
+**1978:** Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to "Mona" into "[Not Fade Away](../2020-06-24_cover-me-not-fade-away/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and The Knack, "Mona/Not Fade Away" - 1978-10-17](https://www.youtube.com/watch?v=2mn9G4zdRQ0)
 
@@ -70,7 +70,7 @@
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1995:** Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushecky at The Stone Pony for the kick-off of a mini-tour in support of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/), Joe's new Bruce-produced album released earlier today.<br>
+**1995:** Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushecky at The Stone Pony for the kick-off of a mini-tour in support of [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md), Joe's new Bruce-produced album released earlier today.<br>
 
 [Watch on Youtube: Bruce Springsteen - Down The Road Apiece (audio)](https://www.youtube.com/watch?v=k3hhViVRpf0)
 
@@ -96,7 +96,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1999-1017.jpg.webp)
 
-**2005:** Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for "[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)" at the Wachovia Center in Philadelphia.<br>
+**2005:** Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for "[People Get Ready](../2019-01-06_matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/post.md)" at the Wachovia Center in Philadelphia.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4)
 

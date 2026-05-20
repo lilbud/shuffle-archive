@@ -8,7 +8,7 @@ If you think about "I'm a Rocker' at all, you're overthinking it.
 
 But then again, I'm an overthinker. So I can't help but wonder: does anyone under the age of 40 actually grok all the pop culture references that Bruce strings together in this song?
 
-I mean, we're not talking about a couple of time-tested "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)" namechecks like Rockefeller and Sheena. Take away the action movie and TV references from "I'm a Rocker" and the song simply dissolves into nothingness. Even musically, "I'm a Rocker" is basically just one killer riff.
+I mean, we're not talking about a couple of time-tested "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" namechecks like Rockefeller and Sheena. Take away the action movie and TV references from "I'm a Rocker" and the song simply dissolves into nothingness. Even musically, "I'm a Rocker" is basically just one killer riff.
 
 This question consumes me every time I hear Bruce perform it, and he performed it a *lot* on the 2016 River Tour. And the median age of the audience on that second River Tour was a lot higher than it was on the original River Tour. If you weren't around in 1966, odds are decent that at least some of "I'm a Rocker" flies right past you.
 

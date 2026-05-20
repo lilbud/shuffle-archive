@@ -1,4 +1,4 @@
-Several weeks back, we took a look at "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)," the smoking hot John Lee Hooker song that worked its way into Bruce's set list right around the time he and Patti became a secret item–timing that was probably not coincidental.
+Several weeks back, we took a look at "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)," the smoking hot John Lee Hooker song that worked its way into Bruce's set list right around the time he and Patti became a secret item–timing that was probably not coincidental.
 
 But only a few days before, it seemed like Bruce might be on the verge of choosing a different classic Hooker song to add to his set–one that was equally sexy (arguably moreso).
 

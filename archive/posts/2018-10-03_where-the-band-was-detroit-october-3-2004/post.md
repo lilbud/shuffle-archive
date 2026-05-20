@@ -1,6 +1,6 @@
 The nice thing about the 2004 "swing states" is that most of them were pretty close to each other. The drive from Cleveland to Detroit took less than three hours, so it was a pretty low-stress travel day considering I was doing back-to-back shows.
 
-Vote for Change Night Three was pretty similar to [Night Two](https://estreetshuffle.com/index.php/2018/10/02/where-the-band-was-cleveland-october-2-2004/)–the wild cards were tame by Bruce's standards ("[The Ties that Bind,](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)" "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," and "Travelin' Band"), but that was okay by me. These shows weren't about the setlists.
+Vote for Change Night Three was pretty similar to [Night Two](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)–the wild cards were tame by Bruce's standards ("[The Ties that Bind,](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," and "Travelin' Band"), but that was okay by me. These shows weren't about the setlists.
 
 [Watch Video Highlight](https://videopress.com/embed/vUaSHbY3)
 

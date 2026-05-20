@@ -2,7 +2,7 @@ Here's the brand-new single from a brand-new band born during the great lockdown
 
 The Shining Tongues is the latest songwriting project from former Infinite Three founder Daniel Knowler, who ended his decade-long former group when one of its members passed away last year.
 
-The Shining Tongues are in the process of recording their first album, but they've already released a couple of singles, including Knowler's first cover: Bruce Springsteen's "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)."
+The Shining Tongues are in the process of recording their first album, but they've already released a couple of singles, including Knowler's first cover: Bruce Springsteen's "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)."
 
 [Watch on Youtube: State Trooper (Bruce Springsteen Cover)](https://www.youtube.com/watch?v=LhkggEcq3j0)
 

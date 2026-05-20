@@ -24,7 +24,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/6s57razJ)
 
-Also today, Little Steven releases his third solo album, *Freedom–No Compromise*. Bruce contributes vocals to one track, “[Native American](https://estreetshuffle.com/index.php/2019/10/25/matr-little-steven-and-bruce-springsteen-native-american/).”
+Also today, Little Steven releases his third solo album, *Freedom–No Compromise*. Bruce contributes vocals to one track, “[Native American](../2019-10-25_matr-little-steven-and-bruce-springsteen-native-american/post.md).”
 
 [Watch on Youtube: Native American](https://www.youtube.com/watch?v=_2CmMfqwVn8)
 
@@ -44,13 +44,13 @@ Also today, Little Steven releases his third solo album, *Freedom–No Compromis
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/Philadelphia_Daily_News_1997_05_14_Page_40-scaled.jpg.webp)
 
-**2003:** The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere of “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” for the occasion. The show opener is special as well: an beautiful acoustic version of “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).”<br>
+**2003:** The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere of “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” for the occasion. The show opener is special as well: an beautiful acoustic version of “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/zFmXQFNE)
 
 [Watch on Youtube: Bruce Springsteen 4th Of July Asbury Park (Sandy) Brussels 12/05/2003](https://www.youtube.com/watch?v=3UyaIHDMex0)
 
-**2006:** Bruce and the Sessions Band deliver one of the best shows of the early Seeger Sessions Tour in Milan. Check out highlights below, including the tour premiere of “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” and a beautiful “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/).”<br>
+**2006:** Bruce and the Sessions Band deliver one of the best shows of the early Seeger Sessions Tour in Milan. Check out highlights below, including the tour premiere of “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)” and a beautiful “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Z15AQne0)
 
@@ -60,7 +60,7 @@ Also today, Little Steven releases his third solo album, *Freedom–No Compromis
 
 [Watch on Youtube: Bruce Springsteen - Open All Night](https://www.youtube.com/watch?v=RvwKQkzSUlM)
 
-**2007:** At a benefit show for the Count Basie Theater Foundation in Red Bank, Bruce joins Brian Wilson on stage for “Barbara Ann” and “[Love and Mercy](https://estreetshuffle.com/index.php/2022/03/09/matr-brian-wilson-and-bruce-springsteen-love-and-mercy/).”<br>
+**2007:** At a benefit show for the Count Basie Theater Foundation in Red Bank, Bruce joins Brian Wilson on stage for “Barbara Ann” and “[Love and Mercy](../2022-03-09_matr-brian-wilson-and-bruce-springsteen-love-and-mercy/post.md).”<br>
 
 [Watch on Youtube: Brian Wilson & Band Red Bank NJ w/ Bruce Springsteen](https://www.youtube.com/watch?v=u4dlmQwN64c)
 
@@ -68,7 +68,7 @@ Also today, Little Steven releases his third solo album, *Freedom–No Compromis
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2007-05-12b.jpg.webp)
 
-**2009:** At the United Center in Chicago, fans witness the E Street Band premiere of “[Mony Mony](https://estreetshuffle.com/index.php/2021/03/18/cover-me-mony-mony/).”<br>
+**2009:** At the United Center in Chicago, fans witness the E Street Band premiere of “[Mony Mony](../2021-03-18_cover-me-mony-mony/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Mony Mony - Live from Chicago - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=yVdKRebTKx4)
 

@@ -1,6 +1,6 @@
 In their early years, Bruce Springsteen and Elliott Murphy were often compared, each receiving the “New Dylan” sobriquet at one time or another. They were friends back then, too–as far back as their first meeting at Max’s Kansas City in 1973, where they struck up an instant and lifelong friendship.
 
-Surprisingly, though, they never played together on stage until 1992, when Bruce’s World Tour took him to Paris, where Elliott was now living. They only played one song that night (Elliot’s “[Rock Ballad](https://estreetshuffle.com/index.php/2021/08/24/matr-elliot-murphy-and-bruce-springsteen-rock-ballad/)“), but that was all it took to set a precedent, and from that point forward whenever Bruce was in Paris for a gig, you’d likely find Murphy on stage with him at some point during the show.
+Surprisingly, though, they never played together on stage until 1992, when Bruce’s World Tour took him to Paris, where Elliott was now living. They only played one song that night (Elliot’s “[Rock Ballad](../2021-08-24_matr-elliot-murphy-and-bruce-springsteen-rock-ballad/post.md)“), but that was all it took to set a precedent, and from that point forward whenever Bruce was in Paris for a gig, you’d likely find Murphy on stage with him at some point during the show.
 
 Murphy joined Bruce on stage in Paris nine more times over the next 25 years, starting with an encore appearance during Bruce’s solo acoustic show on May 26, 1997.
 

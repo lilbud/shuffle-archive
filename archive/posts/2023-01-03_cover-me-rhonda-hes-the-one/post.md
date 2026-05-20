@@ -1,6 +1,6 @@
 You know the rule: Do it better, or do it different.
 
-When it comes to this gender-flipped version of “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” by the U.K. disco duo Rhonda… well, it’s different.
+When it comes to this gender-flipped version of “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)” by the U.K. disco duo Rhonda… well, it’s different.
 
 [Watch on Youtube: Rhonda - He's the one 1978](https://www.youtube.com/watch?v=GHE46cZuvuo)
 
@@ -11,5 +11,3 @@ We should give Rhonda props, though. This was 1978 after all, when Springsteen c
 For that reason alone, it never quite disappears, surfacing from time to time on tribute albums and cover compilations. So if you want to chase down the original studio track, it’s out there… or you can just listen to it below.
 
 [Watch on Youtube: Rhonda - He's The One (1978)](https://www.youtube.com/watch?v=D-Sjv-sAhT8)
-
- 

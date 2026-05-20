@@ -2,7 +2,7 @@ Today marks the end of Year Two for this blog.
 
 Or put another way: today marks my 1,167th post over 730 consecutive days of daily publishing, with over 443,000 visitors stopping by and another 854 of you subscribing via e-mail. (Never miss a day!)
 
-Whether you've been with me from [the beginning](https://estreetshuffle.com/index.php/2018/01/05/is-there-anybody-alive-out-there/) or just discovered this site for the first time [today](https://estreetshuffle.com/index.php/2019/01/04/kingdom-of-days-january-4/), I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
+Whether you've been with me from [the beginning](../2018-01-05_is-there-anybody-alive-out-there/post.md) or just discovered this site for the first time [today](https://estreetshuffle.com/index.php/2019/01/04/kingdom-of-days-january-4/), I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/thank_you_PNG132.png.webp)
 

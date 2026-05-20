@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3T9Hdvi5YsA)
 
-**1985:** Bruce plays "[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)" for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for "Two Hearts," "Ramrod," and "Twist and Shout."<br>
+**1985:** Bruce plays "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)" for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for "Two Hearts," "Ramrod," and "Twist and Shout."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8rio31IG)
 

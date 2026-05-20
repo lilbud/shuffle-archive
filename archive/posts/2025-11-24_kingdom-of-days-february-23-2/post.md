@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1981-0223.jpg.webp)
 
-**1985:** Bruce and Madonna make a surprise appearance on-stage with Prince at The Forum in Inglewood, CA. The three mega-stars play “[Baby, I’m a Star](https://estreetshuffle.com/index.php/2020/08/07/matr-prince-bruce-springsteen-and-madonna-baby-im-a-star/)” together. Some sources say that Bruce stayed on stage for “America,” and “[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)” with Prince as well, but those reports are unconfirmed. Brucebase leans towards it because they hear Prince yelling “Bruce” at the beginning of “America,” but I’m pretty sure Prince is actually saying “Peace!” (the first word of the song). Regardless, I’m sharing those two tracks here just in case. They are certainly amazing performances regardless of whether Bruce appears on them or not.<br>
+**1985:** Bruce and Madonna make a surprise appearance on-stage with Prince at The Forum in Inglewood, CA. The three mega-stars play “[Baby, I’m a Star](../2020-08-07_matr-prince-bruce-springsteen-and-madonna-baby-im-a-star/post.md)” together. Some sources say that Bruce stayed on stage for “America,” and “[Purple Rain](../2021-03-03_cover-me-purple-rain/post.md)” with Prince as well, but those reports are unconfirmed. Brucebase leans towards it because they hear Prince yelling “Bruce” at the beginning of “America,” but I’m pretty sure Prince is actually saying “Peace!” (the first word of the song). Regardless, I’m sharing those two tracks here just in case. They are certainly amazing performances regardless of whether Bruce appears on them or not.<br>
 
 [LA Forum Baby I'm A Star (feat Madonna & Bruce Springsteen) by User THE GREAT VANNELLI 3](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&show_artwork=true&maxheight=1000&maxwidth=758)
 
@@ -50,7 +50,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3)
 
-**1996:** Bruce performs “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” on French television. Here’s the rehearsal and the actual performance:<br>
+**1996:** Bruce performs “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” on French television. Here’s the rehearsal and the actual performance:<br>
 
 [Watch on Youtube: Bruce Springsteen on Canal+ TV (rehearsal) - February 23, 1996](https://www.youtube.com/watch?v=hlRJitdRXeM)
 
@@ -58,7 +58,7 @@
 
 **2000:** Despite being nominated for both the Best Male Rock Vocal Performance and Best Rock Song categories (both for “The Promise”), Bruce takes home no Grammy Awards this year.<br>
 
-**2003:** At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins three awards (Best Male Rock Vocal Performance and Best Rock Song for “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/),” and Best Rock Album for *The Rising*). Although nominated for Album of the Year and Song of the Year as well, Bruce does not win in those categories. At the end of the show, Bruce and Steve pay tribute to Joe Strummer with Elvis Costello and Dave Grohl, performing “[London Calling](https://estreetshuffle.com/index.php/2018/04/09/matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/).”<br>
+**2003:** At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins three awards (Best Male Rock Vocal Performance and Best Rock Song for “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md),” and Best Rock Album for *The Rising*). Although nominated for Album of the Year and Song of the Year as well, Bruce does not win in those categories. At the end of the show, Bruce and Steve pay tribute to Joe Strummer with Elvis Costello and Dave Grohl, performing “[London Calling](../2018-04-09_matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/post.md).”<br>
 
 [Watch on Youtube: the rising](https://www.youtube.com/watch?v=dXkOOJo4Uqg)
 
@@ -68,7 +68,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2003-02-23b.png.webp)
 
-**2014:** The second of two shows at Hope Estate winery in Hunter Valley, Australia. The show kicks off with a cover of “[Spill the Wine](https://estreetshuffle.com/index.php/2018/03/15/cover-me-spill-the-wine/)” and features a penultimate encore of a rare solo acoustic “[I Wish I Were Blind](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/).” Also tour premiering tonight: “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[4th of July, Asbury Park (Sandy).](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)”<br>
+**2014:** The second of two shows at Hope Estate winery in Hunter Valley, Australia. The show kicks off with a cover of “[Spill the Wine](../2018-03-15_cover-me-spill-the-wine/post.md)” and features a penultimate encore of a rare solo acoustic “[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md).” Also tour premiering tonight: “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[4th of July, Asbury Park (Sandy).](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)”<br>
 
 [Watch on Youtube: "Spill The Wine" and "Seeds" (Hunter Valley 02/23/14)](https://www.youtube.com/watch?v=Xqvfb-h6k4w)
 
@@ -82,7 +82,7 @@
 
 [Watch on Youtube: Radio Nowhere (Live at Hope Estate Winery, Hunter Valley, Australia - 02/23/14 - Official Audio)](https://www.youtube.com/watch?v=ukm6r06AWvM)
 
-**2016:** Bruce and the E Street Band play Quicken Loans Arena in Cleveland. Joe and Johnny Grushecky guest-star on “Born to Run,” and the band performs “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)” as a tour premiere for the local crowd.<br>
+**2016:** Bruce and the E Street Band play Quicken Loans Arena in Cleveland. Joe and Johnny Grushecky guest-star on “Born to Run,” and the band performs “[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)” as a tour premiere for the local crowd.<br>
 
 [Watch on Youtube: Bruce Springsteen - Drive All Night - Quicken Loans Arena - Cleveland - 2/23/16](https://www.youtube.com/watch?v=PoA8fXHHLTc)
 

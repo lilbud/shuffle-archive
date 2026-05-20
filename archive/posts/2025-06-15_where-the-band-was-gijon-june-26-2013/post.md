@@ -10,23 +10,23 @@ We settled in for the show, not expecting anything special, just hoping for a fu
 
 “Standard” went out the door by the third song, never to be heard from that evening again.
 
-Any time Bruce opens with “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/),” you know you’re in for a fun, high-energy night–and that’s exactly what happened. The crowd energy was insane from the opening notes–in fact, it rivaled the Italian shows I’d seen in intensity.
+Any time Bruce opens with “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” you know you’re in for a fun, high-energy night–and that’s exactly what happened. The crowd energy was insane from the opening notes–in fact, it rivaled the Italian shows I’d seen in intensity.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN GIJON 26/06/2013 INTRO + MY LOVE WILL NOT LET YOU DOWN COMPLETE](https://www.youtube.com/watch?v=m82qt7tsC_U)
 
-Bruce followed up “My Love” with “[Out in the Street,](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)” a great opening double-header. (A sharp-eyed fan caught Bruce’s mom and sister in attendance during that song.)
+Bruce followed up “My Love” with “[Out in the Street,](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)” a great opening double-header. (A sharp-eyed fan caught Bruce’s mom and sister in attendance during that song.)
 
 [Watch on Youtube: Pam And Adele Springsteen - Out in the street - Gijón 2013](https://www.youtube.com/watch?v=JaAbkPtk-QE)
 
-But from there, the setlist went out the window: it was sign-request time, and the Spanish fans did not let me down. First up, my first “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/),” one of my favorite songs from the HT/LT era.
+But from there, the setlist went out the window: it was sign-request time, and the Spanish fans did not let me down. First up, my first “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md),” one of my favorite songs from the HT/LT era.
 
 [Watch on Youtube: Springsteen LIVE - Better Days - Gijon, Spain 6/26/13](https://www.youtube.com/watch?v=VtQ3mg2a8Dg)
 
-Three songs in, and my night was already made. I didn’t expect Bruce to top that moment, but he did so immediately–because the next sign he picked was my favorite song off of *The Promise*: “[Ain’t Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/).” And if I was shocked by the song selection, I was floored by the crowd’s reaction–everyone knew the song and sang along to every note!
+Three songs in, and my night was already made. I didn’t expect Bruce to top that moment, but he did so immediately–because the next sign he picked was my favorite song off of *The Promise*: “[Ain’t Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md).” And if I was shocked by the song selection, I was floored by the crowd’s reaction–everyone knew the song and sang along to every note!
 
 [Watch on Youtube: Bruce Springsteen - Ain't Good Enough For You - Gijón 26 June 2013](https://www.youtube.com/watch?v=F-KC2fdEwHE)
 
-Four songs in, and I’d already checked off two of my most-chased songs. After one more sign request (the tour premiere of “Travelin’ Band”), we returned to Wrecking Ball territory for a few songs before enjoying beautiful renditions of “[The River](https://youtu.be/t3VZPsfXPyE)” and “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/).”
+Four songs in, and I’d already checked off two of my most-chased songs. After one more sign request (the tour premiere of “Travelin’ Band”), we returned to Wrecking Ball territory for a few songs before enjoying beautiful renditions of “[The River](https://youtu.be/t3VZPsfXPyE)” and “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md).”
 
 [Watch on Youtube: Bruce Springsteen The River (El Molinón, Gijón June 26 2013)](https://www.youtube.com/watch?v=4yZpmK05Ctg)
 
@@ -42,7 +42,7 @@ But for me, the late set highlight was the 2013 premiere of “[Drive All Night]
 
 [Watch on Youtube: DRIVE ALL NIGHT - MULTICAMIX - BRUCE SPRINGSTEEN, GIJÓN 26-06-2013 HD](https://www.youtube.com/watch?v=gs26bNIVO0M)
 
-Bruce closed the main set with an audibled “[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)” (always a sign that Bruce is having fun on stage and feeling the crowd energy), and he opened the encore with a welcome “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/),” played by request. I hadn’t realized how much I’d missed that song until he started playing it.
+Bruce closed the main set with an audibled “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)” (always a sign that Bruce is having fun on stage and feeling the crowd energy), and he opened the encore with a welcome “[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md),” played by request. I hadn’t realized how much I’d missed that song until he started playing it.
 
 The rest of the encore was relatively standard but joyous as always. Bruce had one more surprise in store, however–after the band left the stage, he came back with an acoustic guitar and harmonica. Bruce took a few moments to acknowledge his special relationship with the town, explaining that his daughter had competed there, and that the mayor had invited him to come back and play–so here he was. Bruce also noted the hard times that had befallen the town–and Bruce has an affinity for towns fallen on hard times. So he sent us home with one final treat: an acoustic “Thunder Road.”
 
@@ -51,5 +51,3 @@ The rest of the encore was relatively standard but joyous as always. Bruce had o
 We relived the show on the long drive home, amazed at what we had just seen. For two of my friends, it was their first Springsteen show. For the other two of us–well, we couldn’t do the math in our heads. But all around, we knew we had just seen a very special show.
 
 I still look back on this show and marvel at the fact that I was there. And every time I listen to the show, I’m glad I was.
-
- 

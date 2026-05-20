@@ -6,7 +6,7 @@ But I also find it lyrically messy at times, a victim of the verbal spewage that
 
 [Watch on Youtube: Lost in the Flood](https://www.youtube.com/watch?v=D-JqB6PxmWc)
 
-"Lost in the Flood" consists of three seemingly unrelated but thematically linked vignettes, with the narrator chiming in at the end of each like the Greek chorus in a tragedy. I love the structure–Bruce would employ it to even greater effect almost a decade later in "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)"–and the fourth-wall-breaking device is clever. But the stories are uneven in style and approachability. The first and third stories are particularly dense with "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)"-style rapid-fire imagery, so they take some careful attention to appreciate. The middle story is plain-spoken but wears the most brilliant disguise.
+"Lost in the Flood" consists of three seemingly unrelated but thematically linked vignettes, with the narrator chiming in at the end of each like the Greek chorus in a tragedy. I love the structure–Bruce would employ it to even greater effect almost a decade later in "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)"–and the fourth-wall-breaking device is clever. But the stories are uneven in style and approachability. The first and third stories are particularly dense with "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)"-style rapid-fire imagery, so they take some careful attention to appreciate. The middle story is plain-spoken but wears the most brilliant disguise.
 
 Story #1 begins with an ominous clap of distant thunder (Steve Van Zandt's first contribution to a Springsteen record); David Sancious' piano is the only accompaniment for a soldier returning home (presumably from Vietnam). He doesn't recognize his town, and his town doesn't recognize him.
 
@@ -95,7 +95,7 @@ Until I heard it played live in concert, I admit to being left cold by "Lost in 
 
 **Lost in the Flood**<br>
 **Recorded** June – October 1972<br>
-**Released:** [*Greetings from Asbury Park, NJ*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) (1973), *Live in New York City* (2001), *Hammersmith Odeon, London '75* (2005)<br>
+**Released:** [*Greetings from Asbury Park, NJ*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) (1973), *Live in New York City* (2001), *Hammersmith Odeon, London '75* (2005)<br>
 **First performed:** February 14, 1973 (Richmond, VA)<br>
 **Last performed:** January 22, 2017 (Perth, Australia)<br>
 

@@ -18,9 +18,9 @@ Now, no one would dare dispute the essentialness of Dave Prater's gritty vocals 
 
 So it must have been a thrill for Bruce when he had the opportunity to perform classic Sam and Dave songs with Sam during his 2003 holiday shows in Asbury Park.
 
-It wasn't the first time Sam and Bruce had worked together. In fact, Sam appears on Bruce's studio recordings of "Soul Driver," "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)" and "[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)."
+It wasn't the first time Sam and Bruce had worked together. In fact, Sam appears on Bruce's studio recordings of "Soul Driver," "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)" and "[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)."
 
-But it was their first time performing on stage together, and Bruce clearly relished the opportunity. They brought the crowd to their feet each night with rousing rockers like "[I Thank You](https://estreetshuffle.com/index.php/2020/08/20/matr-bruce-springsteen-and-sam-moore-i-thank-you/)" and "[Hold On, I'm Comin'](https://estreetshuffle.com/index.php/2019/04/24/matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/)," but for me the highlight was their team-up on Sam and Dave's only hit ballad, "When Something is Wrong With My Baby."
+But it was their first time performing on stage together, and Bruce clearly relished the opportunity. They brought the crowd to their feet each night with rousing rockers like "[I Thank You](../2020-08-20_matr-bruce-springsteen-and-sam-moore-i-thank-you/post.md)" and "[Hold On, I'm Comin'](../2019-04-24_matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/post.md)," but for me the highlight was their team-up on Sam and Dave's only hit ballad, "When Something is Wrong With My Baby."
 
 [Watch on Youtube: Bruce S. and Sam M. - When Something Is Wrong With My Baby.mpg](https://www.youtube.com/watch?v=fHCMfPataiE)
 

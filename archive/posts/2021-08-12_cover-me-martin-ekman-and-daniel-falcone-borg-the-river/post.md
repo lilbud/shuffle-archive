@@ -1,6 +1,6 @@
 Swedish singer-songwriter Marin Ekman and his lifelong friend, bandmate, and multi-instrumentalist Daniel Falcone Borg have been been singing and performing together since they were quite young.
 
-Their ease and comfort with each other shines through in this gorgeous cover of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)."
+Their ease and comfort with each other shines through in this gorgeous cover of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)."
 
 [Watch on Youtube: The River - Bruce Springsteen (Cover by Daniel Falcone Borg & Martin Ekman)](https://www.youtube.com/watch?v=0tr83tJlRPY)
 

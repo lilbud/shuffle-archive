@@ -44,7 +44,7 @@ As for Bruce's lyrics, there's not much to analyze here–this is Bruce in pop m
 > *Ah won't you come on through and ??? wanna do*<br>
 > *Yeah, come on babe, let me see you ???*<br>
 
-Before long, Bruce would turn his attention to more serious subjects, but in 1971 and 1972, The Bruce Springsteen Band was often just focused on providing a good dance party. (Besides "All I Want to Do Is Dance," the band's repertoire also included Springsteen originals like "[Dance Dance Dance](https://estreetshuffle.com/index.php/2018/06/22/roll-of-the-dice-dance-dance-dance/)" and "[When You Dance](https://estreetshuffle.com/index.php/2018/08/12/roll-of-the-dice-when-you-dance/).")
+Before long, Bruce would turn his attention to more serious subjects, but in 1971 and 1972, The Bruce Springsteen Band was often just focused on providing a good dance party. (Besides "All I Want to Do Is Dance," the band's repertoire also included Springsteen originals like "[Dance Dance Dance](../2018-06-22_roll-of-the-dice-dance-dance-dance/post.md)" and "[When You Dance](../2018-08-12_roll-of-the-dice-when-you-dance/post.md).")
 
 If Bruce ever surprises us with an archive series document of one of these early shows, we're in for a treat.
 

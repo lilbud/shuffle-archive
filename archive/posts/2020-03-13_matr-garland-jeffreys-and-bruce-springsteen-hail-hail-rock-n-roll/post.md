@@ -1,4 +1,4 @@
-Garland Jeffreys should have been a much bigger star than he is, and there were a few brief moments ("[Wild in the Streets](https://estreetshuffle.com/index.php/2018/04/18/matr-garland-jeffreys-and-bruce-springsteen-wild-in-the-streets/)" in 1973 and "[96 Tears](https://estreetshuffle.com/index.php/2020/02/15/matr-bruce-springsteen-and-garland-jeffreys-96-tears/)" in 1981) where it seemed he might be on his way.
+Garland Jeffreys should have been a much bigger star than he is, and there were a few brief moments ("[Wild in the Streets](../2018-04-18_matr-garland-jeffreys-and-bruce-springsteen-wild-in-the-streets/post.md)" in 1973 and "[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md)" in 1981) where it seemed he might be on his way.
 
 The last time was in 1992, when "Hail Hail Rock 'n' Roll" (the lead single off his *Don't Call Me Buckwheat* album) cracked the Top 40 across Europe and even the Top 10 on the Dutch and Swiss charts.
 

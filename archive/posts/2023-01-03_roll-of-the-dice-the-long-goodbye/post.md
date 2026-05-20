@@ -22,7 +22,7 @@ There's a lot more going on in "The Long Goodbye" than a cross-country move.
 
 Bruce's narrator is trapped in a situation of his own making. It's possible to read this verse as attachment to a place, but the "chain of my own lies" is a big clue that Bruce is singing about a relationship more personal than geographical.
 
-This is a dysfunctional relationship song. Like "[Trouble in Paradise,](https://estreetshuffle.com/index.php/2021/11/30/roll-of-the-dice-trouble-in-paradise/)" recorded not long before it, "The Long Goodbye" is a lyrical continuation of Bruce's [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) songwriting, if not a musical one. (Musically, "The Long Goodbye" is an oddity, an experiment in ZZ Top crunchiness that Bruce doesn't sound entirely comfortable with.)
+This is a dysfunctional relationship song. Like "[Trouble in Paradise,](../2021-11-30_roll-of-the-dice-trouble-in-paradise/post.md)" recorded not long before it, "The Long Goodbye" is a lyrical continuation of Bruce's [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) songwriting, if not a musical one. (Musically, "The Long Goodbye" is an oddity, an experiment in ZZ Top crunchiness that Bruce doesn't sound entirely comfortable with.)
 
 Emotionally, our narrator left his relationship long ago. Physically, however, he's still there–unable to admit to his partner that he's had enough, and unwilling to admit it to himself. Until one day he wakes up and realizes he's done.
 

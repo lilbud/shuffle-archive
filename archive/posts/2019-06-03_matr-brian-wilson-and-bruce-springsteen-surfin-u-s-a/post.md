@@ -1,6 +1,6 @@
 It took more than fifty years after its release, but Bruce Springsteen finally covered the immensely popular "Surfin' U.S.A." with its original artist and songwriter.
 
-Brian Wilson wrote "Surfin' U.S.A." (the lyrics at least–the melody was lifted from "[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)") and recorded it with The Beach Boys.
+Brian Wilson wrote "Surfin' U.S.A." (the lyrics at least–the melody was lifted from "[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)") and recorded it with The Beach Boys.
 
 [Watch on Youtube: The Beach Boys - Surfin' USA](https://www.youtube.com/watch?v=EDb303T-B1w)
 

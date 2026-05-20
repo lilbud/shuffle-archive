@@ -2,7 +2,7 @@ These days, Billy Mann works behind the scenes as a music industry executive, bu
 
 Perhaps that's why he was invited to participate in 1998 Springsteen tribute project, *One Step Up/Two Steps Back: The Songs of Bruce Springsteen*.
 
-Or maybe it's just because he's a big fan of the music, especially "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)."
+Or maybe it's just because he's a big fan of the music, especially "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)."
 
 In his liner notes that (like the song itself) never actually made it to the album, Mann wrote, "'Two Hearts' is a song about consoling a girl who claims to be 'hurt so bad she'll never love again' and how through life he has learned that love is worth searching for even after the pain."
 

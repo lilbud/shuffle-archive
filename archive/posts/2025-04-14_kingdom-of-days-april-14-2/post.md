@@ -1,10 +1,10 @@
 ***New for 2025:** Video for 2023*<br>
 
-**1981:** The River Tour returns to Germany for a show at Festhalle in Frankfurt. What a deal you were offered if you lived in the U.K. at the time! Guest blogger Dan French made the journey for the show–read his adventure in [today's *Where the Band Was* report](https://estreetshuffle.com/index.php/2021/04/14/where-the-band-was-frankfurt-april-141981-dans-story/).<br>
+**1981:** The River Tour returns to Germany for a show at Festhalle in Frankfurt. What a deal you were offered if you lived in the U.K. at the time! Guest blogger Dan French made the journey for the show–read his adventure in [today's *Where the Band Was* report](../2021-04-14_where-the-band-was-frankfurt-april-141981-dans-story/post.md).<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1981-0414.jpg.webp)
 
-This show features the first-ever performance of "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)" in Europe.
+This show features the first-ever performance of "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" in Europe.
 
 [Watch Video Highlight](https://videopress.com/embed/hnaPWkuW)
 
@@ -24,7 +24,7 @@ This show features the first-ever performance of "[Point Blank](https://estreets
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 
-**2008:** Houston gets several surprises in its Magic show at the Toyota Center: Alejandro Escovedo and Joe Ely each make a guest appearance, Bruce opens with "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)," and plays "[Terry's Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)" for the first time. Bruce's and Alejandro's performance of "[Always a Friend](https://estreetshuffle.com/index.php/2020/08/31/matr-alejandro-escovedo-and-bruce-springsteen-always-a-friend/)" will be officially released on *Magic Tour Highlights* later in the year.<br>
+**2008:** Houston gets several surprises in its Magic show at the Toyota Center: Alejandro Escovedo and Joe Ely each make a guest appearance, Bruce opens with "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)," and plays "[Terry's Song](../2018-07-30_roll-of-the-dice-terrys-song/post.md)" for the first time. Bruce's and Alejandro's performance of "[Always a Friend](../2020-08-31_matr-alejandro-escovedo-and-bruce-springsteen-always-a-friend/post.md)" will be officially released on *Magic Tour Highlights* later in the year.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Always A Friend (Live)](https://www.youtube.com/watch?v=peRuSFeOm9o)
 
@@ -46,7 +46,7 @@ This show features the first-ever performance of "[Point Blank](https://estreets
 
 Meanwhile, *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2023:** Bruce and the E Street Band close out the first domestic leg of their World Tour with a special homecoming show at Prudential Center in Newark. Bruce opens with "[Local Hero](https://estreetshuffle.com/index.php/2019/01/17/roll-of-the-dice-local-hero/)," an E Street Band rarity, and delights fans with "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" in the encores.<br>
+**2023:** Bruce and the E Street Band close out the first domestic leg of their World Tour with a special homecoming show at Prudential Center in Newark. Bruce opens with "[Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)," an E Street Band rarity, and delights fans with "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" in the encores.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN LOCAL HERO prudential center newark new jersey APRIL 14,2023](https://www.youtube.com/watch?v=cXO0o6mOoHY)
 

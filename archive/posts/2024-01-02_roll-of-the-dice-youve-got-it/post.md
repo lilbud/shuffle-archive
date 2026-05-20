@@ -34,9 +34,9 @@ So what is it? Charisma, perhaps. Chemistry, maybe. Animal magnetism, sexiness, 
 
 Ultimately, it doesn't really matter–"You've Got It" is just Bruce having fun (as do the multitude of musicians on the track–yes, that's the "Glory Days" riff you instantly recognized), and it's enough for us to listen to it the same way.
 
-Bruce perhaps does his song a disservice introducing it to us in the middle of his masterful [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)album; try listening to it on a playlist of his pop songs and it fares much better.
+Bruce perhaps does his song a disservice introducing it to us in the middle of his masterful [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album; try listening to it on a playlist of his pop songs and it fares much better.
 
-Still, graded on a curve that includes only the poppier songs in Bruce's catalog, "You've Got It" is middle-of-the-pack at best. It lacks the buoyancy and hidden narcissism that makes "[Waitin' on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)" so timelessly appealing, and it's nowhere near as infectious as "[Lion's Den](https://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)" or "[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)."
+Still, graded on a curve that includes only the poppier songs in Bruce's catalog, "You've Got It" is middle-of-the-pack at best. It lacks the buoyancy and hidden narcissism that makes "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" so timelessly appealing, and it's nowhere near as infectious as "[Lion's Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)" or "[Give the Girl a Kiss](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)."
 
 Far be it from me to understand (let alone explain) what makes a perfect pop song, but one thing I know about Bruce's best ones are that after hearing them once, they demand that you sing them. On that front, "You've Got It…" not so much.
 

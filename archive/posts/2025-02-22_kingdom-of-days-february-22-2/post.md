@@ -1,8 +1,8 @@
-**1948:** Douglas Springsteen and Adele Zerilli marry at the St. Rose of Lima Church in Freehold, New Jersey. Later the following year, they'll become the proud parents of a baby boy destined to become one of the world's most famous, respected, and beloved rock stars, but tonight they enjoy their wedding reception at the Blue Moon Inn in Farmingdale. Long, long after, their son will write one of his finest songs about the indelibility of young love. Is "[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)" a loving nod to his parents' wedding? Only Bruce knows.<br>
+**1948:** Douglas Springsteen and Adele Zerilli marry at the St. Rose of Lima Church in Freehold, New Jersey. Later the following year, they'll become the proud parents of a baby boy destined to become one of the world's most famous, respected, and beloved rock stars, but tonight they enjoy their wedding reception at the Blue Moon Inn in Farmingdale. Long, long after, their son will write one of his finest songs about the indelibility of young love. Is "[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" a loving nod to his parents' wedding? Only Bruce knows.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/Asbury_Park_Press_1948_02_27_Page_12-scaled.jpg.webp)
 
-**1970:** Steel Mill records three Springsteen original songs ("[He's Guilty (The Judge Song)](https://estreetshuffle.com/index.php/2020/07/10/roll-of-the-dice-hes-guilty-the-judge-song/)," "[Goin' Back to Georgia](https://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/)," and "[The Train Song](https://estreetshuffle.com/index.php/2021/10/06/roll-of-the-dice-the-train-song/)") at Pacific Recording Studio in San Mateo, California. This is only Bruce's second time in a recording studio. Two of the three songs will remain in the vault, but "He's Guilty (The Judge Song)" will finally see the light of day in 2017's *Chapter and Verse*.<br>
+**1970:** Steel Mill records three Springsteen original songs ("[He's Guilty (The Judge Song)](https://estreetshuffle.com/index.php/2020/07/10/roll-of-the-dice-hes-guilty-the-judge-song/)," "[Goin' Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)," and "[The Train Song](../2021-10-06_roll-of-the-dice-the-train-song/post.md)") at Pacific Recording Studio in San Mateo, California. This is only Bruce's second time in a recording studio. Two of the three songs will remain in the vault, but "He's Guilty (The Judge Song)" will finally see the light of day in 2017's *Chapter and Verse*.<br>
 
 [Watch on Youtube: He's Guilty (The Judge Song)](https://www.youtube.com/watch?v=FyVMIHwt8oI)
 
@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1973-02-22.jpg.webp)
 
-**1977:** Bruce and the E Street Band play the Milwaukee Auditorium, where an especially powerful "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" features Bruce's show-stopping "wishing that God would send some angels and blow this whole town right into the sea" for the first time.<br>
+**1977:** Bruce and the E Street Band play the Milwaukee Auditorium, where an especially powerful "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" features Bruce's show-stopping "wishing that God would send some angels and blow this whole town right into the sea" for the first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KV1LTetk)
 
@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Friday Night Videos "Private Reel: Bruce Springsteen" - February 22, 1985 (Part 1)](https://www.youtube.com/watch?v=OoNfKZHGmk0)
 
-**1987:** Alone in his home studio, Bruce records "[The Honeymooners](https://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/)" and "[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)." It will be more than a decade before these songs are released on *Tracks*.<br>
+**1987:** Alone in his home studio, Bruce records "[The Honeymooners](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)" and "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)." It will be more than a decade before these songs are released on *Tracks*.<br>
 
 [Watch on Youtube: The Honeymooners (Studio Outtake - 1987)](https://www.youtube.com/watch?v=6WRbJD_Nsb8)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen: Live In New York City](https://www.youtube.com/playlist?list=PL9tY0BWXOZFtiWf7eTl4vMN8PCpNL0jdu)
 
-**2014:** Bruce and the E Street Band play the first of two shows in Hunter Valley, Australia, continuing a streak of cover openers–this time "[Drinkin' Wine, Spo-Dee-O-Dee](https://estreetshuffle.com/index.php/2021/02/06/cover-me-drinkin-wine-spo-dee-o-dee/)" by Stick McGhee (the show was at Hope Estate Winery). The unusual encore set opens with "[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)" followed by a cover of "[Friday on My Mind](https://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)."<br>
+**2014:** Bruce and the E Street Band play the first of two shows in Hunter Valley, Australia, continuing a streak of cover openers–this time "[Drinkin' Wine, Spo-Dee-O-Dee](../2021-02-06_cover-me-drinkin-wine-spo-dee-o-dee/post.md)" by Stick McGhee (the show was at Hope Estate Winery). The unusual encore set opens with "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)" followed by a cover of "[Friday on My Mind](../2019-06-07_cover-me-friday-on-my-mind/post.md)."<br>
 
 [Watch on Youtube: Drinkin' Wine, Spo-Dee-O-Deee - Bruce Springsteen - Hope Estate Hunter Valley 22-2-14](https://www.youtube.com/watch?v=UFghhh2ohI8)
 

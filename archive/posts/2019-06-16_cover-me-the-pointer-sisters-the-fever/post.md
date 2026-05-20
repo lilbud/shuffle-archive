@@ -1,4 +1,4 @@
-The Pointer Sisters' version of "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" has long been one of my favorite Springsteen covers. It's not that they bring anything new to the table–their arrangement is very close to the original, in fact.
+The Pointer Sisters' version of "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" has long been one of my favorite Springsteen covers. It's not that they bring anything new to the table–their arrangement is very close to the original, in fact.
 
 It's just that they bring so much *heat.*
 

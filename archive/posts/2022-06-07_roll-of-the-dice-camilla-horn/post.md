@@ -25,7 +25,7 @@ Bruce's song–entitled simply "Camilla Horn"–focuses on Horn's arrival in the
 > *And so she took her place at the bar*<br>
 > *Just another fallen star*<br>
 
-Bruce imagines Horn as the unsophisticated rural girl she once was, suddenly a celebrity and unable or unwilling to play the part. When Hollywood moves on without her, Bruce's version of Horn becomes a barfly a la "[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)," a forgotten movie idol in what would eventually become a long string of them.
+Bruce imagines Horn as the unsophisticated rural girl she once was, suddenly a celebrity and unable or unwilling to play the part. When Hollywood moves on without her, Bruce's version of Horn becomes a barfly a la "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)," a forgotten movie idol in what would eventually become a long string of them.
 
 Bruce wrote and recorded a demo of "Camilla Horn" just before he recorded his debut album, *Greetings From Asbury Park, N.J.* At barely a minute in length and somber in tone, it was never a serious contender for the album, but it's a fascinating early example of Bruce's gift for economical storytelling that would someday become a hallmark of his songwriting.
 

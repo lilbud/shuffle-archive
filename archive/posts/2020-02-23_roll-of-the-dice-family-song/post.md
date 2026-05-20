@@ -1,4 +1,4 @@
-A quarter-century before "[Freehold](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/)," and almost a half-century before Bruce's revealing autobiography and Broadway show, there was "Family Song."
+A quarter-century before "[Freehold](../2018-12-03_roll-of-the-dice-freehold/post.md)," and almost a half-century before Bruce's revealing autobiography and Broadway show, there was "Family Song."
 
 "Family Song" sheds rare light into a brief period of Bruce's life that's glossed over not only by biographers but by Bruce himself in his own book: the winter of 1971-72, when Bruce fled New Jersey for the warmer climes of California and his parents' new home in San Mateo.
 
@@ -58,7 +58,7 @@ In the next verse, we learn that not only have Bruce and his family drawn closer
 > *But I just hope when I grow up and have my own kids*
 > *I'll love 'em all I can and let 'em make their own minds*
 
-That last couplet rings with familiarity–it's strikingly similar to a verse Bruce wrote in 1996 for "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)."
+That last couplet rings with familiarity–it's strikingly similar to a verse Bruce wrote in 1996 for "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)."
 
 > *Well now down below and pulling on my shirt*
 > *Yeah I got some kids of my own*

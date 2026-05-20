@@ -16,7 +16,7 @@ Bruce premiered his version at his year-ending stand at Nassau Coliseum in Decem
 
 [Watch on Youtube: 2. Merry Christmas Baby (Bruce Springsteen - Live At The Nassau Coliseum 12-28-1980)](https://www.youtube.com/watch?v=4cSe8KQAuKM)
 
-But it was the band's performance three days later that Bruce chose to officially release in 1986, as the B-side to "[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)," the first single from *Live 1975-85*. (The song itself does not appear in the box set.)
+But it was the band's performance three days later that Bruce chose to officially release in 1986, as the B-side to "[War](../2019-05-27_cover-me-war/post.md)," the first single from *Live 1975-85*. (The song itself does not appear in the box set.)
 
 The very next year, that same performance was included in the Special Olympics benefit album, *A Very Special Christmas*.
 
@@ -34,7 +34,7 @@ When Bruce kicked off his Asbury Park holiday show tradition after the Reunion T
 
 [Watch on Youtube: Bruce Springsteen - Merry Christmas Baby](https://www.youtube.com/watch?v=GzV8OGocMS8)
 
-But if you're looking for a proper E Street Band reprise of those classic 1980 performances, we'll have to flash all the way forward to the very last show of the Working on a Dream tour, [in Buffalo on November 22, 2009](https://estreetshuffle.com/index.php/2018/11/22/where-the-band-was-buffalo-november-22-2009/). Believe it or not, it took almost *29 years* for "Merry Christmas Baby" to return to the E Street stage.
+But if you're looking for a proper E Street Band reprise of those classic 1980 performances, we'll have to flash all the way forward to the very last show of the Working on a Dream tour, [in Buffalo on November 22, 2009](../2018-11-22_where-the-band-was-buffalo-november-22-2009/post.md). Believe it or not, it took almost *29 years* for "Merry Christmas Baby" to return to the E Street stage.
 
 [Watch on Youtube: Bruce Springsteen - Merry Christmas Baby](https://www.youtube.com/watch?v=B803AXVYzeE)
 

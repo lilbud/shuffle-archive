@@ -1,4 +1,4 @@
-Until it was bumped from *Greetings From Asbury Park* by "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," "Arabian Nights" was a lock for inclusion on Bruce's debut album.
+Until it was bumped from *Greetings From Asbury Park* by "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," "Arabian Nights" was a lock for inclusion on Bruce's debut album.
 
 But CBS President Clive Davis felt that *Greetings* had a little too much solo material and not enough band songs or potential hits, so off to the brand-new vault went "Arabian Nights."
 

@@ -6,19 +6,19 @@
 
 **1976:** In the ongoing legal battle between Bruce and Mike Appel, a judge rules that Bruce is banned from entering a recording studio until the lawsuit is resolved. The only thing Bruce can do in the meantime is tour.<br>
 
-**1977:** Bruce wins in the Best Composer category for "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" (currently charting in the form of Manfred Mann's cover) at the third annual (and last ever) Rock Music Awards in Hollywood. He's not present for the ceremony, however–he's at The Record Plant recording studio in New York City, where he completes (for now) work on "[The Little Things (My Baby Does)](https://estreetshuffle.com/index.php/2022/03/04/roll-of-the-dice-the-little-things-my-baby-does/)." More than 30 years later, he'll pick it up again, finish it, and release it on *The Promise*.<br>
+**1977:** Bruce wins in the Best Composer category for "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" (currently charting in the form of Manfred Mann's cover) at the third annual (and last ever) Rock Music Awards in Hollywood. He's not present for the ceremony, however–he's at The Record Plant recording studio in New York City, where he completes (for now) work on "[The Little Things (My Baby Does)](https://estreetshuffle.com/index.php/2022/03/04/roll-of-the-dice-the-little-things-my-baby-does/)." More than 30 years later, he'll pick it up again, finish it, and release it on *The Promise*.<br>
 
 [Watch on Youtube: The Little Things (My Baby Does)](https://www.youtube.com/watch?v=pCAHAsxFVOQ)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1977-09-15.jpg.webp)
 
-**1978:** Bruce and the E Street Band kick off a three-night stand at the Palladium in New York City, opening the show with "[Darkness on the Edge of Town,](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" dedicated to Muhammad Ali, whose title fight with Leon Spinks is that night. Also notable at this show: The last "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)" until the Reunion Tour and the tour premiere of "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)."<br>
+**1978:** Bruce and the E Street Band kick off a three-night stand at the Palladium in New York City, opening the show with "[Darkness on the Edge of Town,](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" dedicated to Muhammad Ali, whose title fight with Leon Spinks is that night. Also notable at this show: The last "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" until the Reunion Tour and the tour premiere of "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2fEPHBr6)
 
 **1983:** Bruce and the E Street Band hold a recording session for *Born in the U.S.A.* at The Hit Factory in New York City.<br>
 
-**1984:** At Night Four (of six) at the Philadelphia Spectrum, Bruce tour premieres "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)" and plays "[I'm Bad, I'm Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)" for the very first time.<br>
+**1984:** At Night Four (of six) at the Philadelphia Spectrum, Bruce tour premieres "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)" and plays "[I'm Bad, I'm Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md)" for the very first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bCxOau0m)
 
@@ -26,13 +26,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1987-09-16a.jpg.webp)
 
-**1988:** The Human Rights Now! Tour kicks off a week-long North American leg with a show at the Maple Leaf Gardens in Toronto, where k.d. lang makes a guest appearance and "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" makes its tour premiere.<br>
+**1988:** The Human Rights Now! Tour kicks off a week-long North American leg with a show at the Maple Leaf Gardens in Toronto, where k.d. lang makes a guest appearance and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" makes its tour premiere.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JUExiFZ0)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-15.jpg.webp)
 
-**1989:** Bruce records "[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)" at One on One Recording in Los Angeles.<br>
+**1989:** Bruce records "[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md)" at One on One Recording in Los Angeles.<br>
 
 [Watch on Youtube: Viva Las Vegas (from 'The Last Temptation of Elvis')](https://www.youtube.com/watch?v=quWs4rY-ekc)
 

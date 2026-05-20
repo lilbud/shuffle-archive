@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1971-0924.jpg.webp)
 
-**1975:** “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” makes its debut when the Born to Run Tour stops at the University of Iowa in Iowa City.<br>
+**1975:** “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)” makes its debut when the Born to Run Tour stops at the University of Iowa in Iowa City.<br>
 
 [Watch on Youtube: Bruce Springsteen - MEETING ACROSS THE RIVER 1975 (audio)](https://www.youtube.com/watch?v=_faCjM2_xbY)
 
@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1975-09-26-scaled.jpg.webp)
 
-**1976:** The Lawsuit Tour kicks off at the Arizona Veterans Memorial Coliseum in Phoenix, with a new Miami Horns Quartet along for the ride. Check out the horn-accompanied arrangement of an early “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” below, along with the first-ever “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” interlude.<br>
+**1976:** The Lawsuit Tour kicks off at the Arizona Veterans Memorial Coliseum in Phoenix, with a new Miami Horns Quartet along for the ride. Check out the horn-accompanied arrangement of an early “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” below, along with the first-ever “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” interlude.<br>
 
 [Watch on Youtube: Bruce Springsteen -SOMETHING IN THE NIGHT 1976 (audio)](https://www.youtube.com/watch?v=hsJjFUCRk7k)
 
@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1976-09-26.jpg.webp)
 
-**1977:** At The Power Station in New York City, Bruce holds a recording session for his upcoming album, [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).<br>
+**1977:** At The Power Station in New York City, Bruce holds a recording session for his upcoming album, [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).<br>
 
 **1978:** Boston DJ Mark Parenteau interviews Bruce by telephone for WBCN-FM.<br>
 
@@ -60,7 +60,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1991-09-26b.jpg.webp)
 
-**1996:** At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce reprises his newest song, “[In Michigan](https://estreetshuffle.com/index.php/2022/04/12/roll-of-the-dice-in-michigan/)” and plays “[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)” for the first time in fifteen years.<br>
+**1996:** At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce reprises his newest song, “[In Michigan](../2022-04-12_roll-of-the-dice-in-michigan/post.md)” and plays “[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)” for the first time in fifteen years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Deportee" - Live in Ann Arbor, MI - 9/26/1996](https://www.youtube.com/watch?v=Y_HHMd94a0s)
 
@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/The_Flint_Journal_1996_09_27_26.jpg.webp)
 
-**1997:** Bruce plays “[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” with Bobby Bandiera at Cheers in Long Branch.<br>
+**1997:** Bruce plays “[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” with Bobby Bandiera at Cheers in Long Branch.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1997-0926.jpg.webp)
 

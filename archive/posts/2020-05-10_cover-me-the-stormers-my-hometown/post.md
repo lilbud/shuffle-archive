@@ -4,7 +4,7 @@ The Stormers have a unique sound (they describe it as Tom Jones crossed with U2,
 
 A few weeks ago, the band released a new video to raise money for a new local outreach center for Pieta House, a suicide prevention and therapy organization, in their hometown of Dundalk.
 
-Their version of Bruce's "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)" is absolutely superb and well worth your attention. Take a listen:
+Their version of Bruce's "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" is absolutely superb and well worth your attention. Take a listen:
 
 [Watch on Youtube: The Stormers - My Hometown](https://www.youtube.com/watch?v=COkjjpy131I)
 

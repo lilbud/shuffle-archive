@@ -123,7 +123,7 @@ Compare this E Street performance from Glastonbury in 2009 and judge for yoursel
 
 [Watch on Youtube: Bruce Springsteen - American land (Live Glastonbury 2009)](https://www.youtube.com/watch?v=6lcvpmvcs6U)
 
-Admittedly, the E Street Band grew into "American Land" over time (how could you not, after playing it 250 times?), and until it was supplanted as the traditional show closer by "[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)," for a time it served as Bruce's summational end-of-show-statement and communal tribute to the band.
+Admittedly, the E Street Band grew into "American Land" over time (how could you not, after playing it 250 times?), and until it was supplanted as the traditional show closer by "[Shout](../2019-09-12_cover-me-shout/post.md)," for a time it served as Bruce's summational end-of-show-statement and communal tribute to the band.
 
 [Watch on Youtube: Bruce Springsteen - AMERICAN LAND - Perth 8 February 2014.](https://www.youtube.com/watch?v=rZ-Ew2pZKtw)
 
@@ -135,7 +135,7 @@ We certainly need the reminder.
 
 **American Land**<br>
 **Recorded** ?<br>
-**Released:** [*We Shall Overcome: The Seeger Sessions: American Land Edition*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)(2006);[*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)(2011)<br>
+**Released:** [*We Shall Overcome: The Seeger Sessions: American Land Edition*](../2022-07-17_album-companion-we-shall-overcome/post.md)(2006);[*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)(2011)<br>
 **First performed:** June 22, 2006 (New York City, NY)<br>
 **Last performed:** May 29, 2020 (Boston, MA)<br>
 

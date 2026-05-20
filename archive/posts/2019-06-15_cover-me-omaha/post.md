@@ -12,7 +12,7 @@ Bruce was already building a reputation as a lightning-fast guitarist, so "Omaha
 
 Of course the big mystery is: how in the world did a recording of this performance come to exist, let alone survive to the present?
 
-For that story, listen to the interview with the man who recorded it [here](https://estreetshuffle.com/index.php/2019/02/01/roll-of-the-dice-mr-jones/).
+For that story, listen to the interview with the man who recorded it [here](../2019-02-01_roll-of-the-dice-mr-jones/post.md).
 
 **Omaha**<br>
 **First performed:** September 16, 1967 (Freehold, NJ)<br>

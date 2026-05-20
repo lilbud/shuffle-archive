@@ -1,6 +1,6 @@
 > "If you're in my generation and if you grew up in any part of the alternative culture, [activism] was just a part of your birthright... that came as part of those times. [T]he people who we admired and emulated–which for me obviously begins with Dylan–had a very clear political voice. John [Fogerty] did it more subtly, but fabulously also." *–Bruce Springsteen to Christopher Phillips, Backstreets, February 10, 2009*<br>
 
-Bruce Springsteen has been a fan of John Fogerty for as long as he's been playing music, calling Fogerty "the Hank Williams of my generation." As early as his days in Child, Bruce included the music of Creedence Clearwater Revival in his sets. The River Tour famously included covers of "Who'll Stop the Rain" and "[Run Through the Jungle](https://estreetshuffle.com/index.php/2018/04/05/cover-me-run-through-the-jungle/)," and in 1993 Bruce had the privilege of inducting John into the Rock and Roll Hall of Fame.
+Bruce Springsteen has been a fan of John Fogerty for as long as he's been playing music, calling Fogerty "the Hank Williams of my generation." As early as his days in Child, Bruce included the music of Creedence Clearwater Revival in his sets. The River Tour famously included covers of "Who'll Stop the Rain" and "[Run Through the Jungle](../2018-04-05_cover-me-run-through-the-jungle/post.md)," and in 1993 Bruce had the privilege of inducting John into the Rock and Roll Hall of Fame.
 
 [Watch on Youtube: Bruce Springsteen Inducts Creedence Clearwater Revival](https://www.youtube.com/watch?v=dgpMGNVf9lw)
 

@@ -1,4 +1,4 @@
-Who would have thought a 1962 "[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)" clone would end up a centerpiece of Bruce Springsteen's world tour six decades later?
+Who would have thought a 1962 "[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)" clone would end up a centerpiece of Bruce Springsteen's world tour six decades later?
 
 As any of the 100,000+ lucky fans present for the opening shows know, that's exactly what happened.
 

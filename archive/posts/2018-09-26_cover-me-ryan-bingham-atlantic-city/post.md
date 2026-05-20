@@ -1,4 +1,4 @@
-Singer/songwriter Ryan Bingham already had the talent, voice and sensibilities to nail his cover of "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)."
+Singer/songwriter Ryan Bingham already had the talent, voice and sensibilities to nail his cover of "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)."
 
 But capturing Bruce's original *Nebraska* vibe through his arrangement, home studio and iPhone video filter? That's just golden.
 

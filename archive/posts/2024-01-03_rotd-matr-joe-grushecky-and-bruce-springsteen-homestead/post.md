@@ -1,4 +1,4 @@
-"‘Homestead' is probably one of the best songs I ever wrote," Joe Grushecky told me during our [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) virtual sit-down a couple of years ago.
+"‘Homestead' is probably one of the best songs I ever wrote," Joe Grushecky told me during our [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) virtual sit-down a couple of years ago.
 
 I have to agree.
 
@@ -6,7 +6,7 @@ I have to agree.
 
 "Homestead" is a populist anthem about an unemployed steelworker in the Monongahela Valley, and if that sounds a bit derivative of a certain Springsteen song, you might be surprised to learn which came first.
 
-In 1993, Joe and Bruce had already begun working on the album that would become *American Babylon* when the inspiration for "Homestead" struck. They'd recorded "[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)" and "[Chain Smokin',](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" but Joe wasn't satisfied with his other material and neither was Bruce.
+In 1993, Joe and Bruce had already begun working on the album that would become *American Babylon* when the inspiration for "Homestead" struck. They'd recorded "[Never Be Enough Time](../2018-04-03_meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/post.md)" and "[Chain Smokin',](../2021-05-25_matr-joe-grushecky-and-bruce-springsteen-chain-smokin/post.md)" but Joe wasn't satisfied with his other material and neither was Bruce.
 
 "You know, you gotta write some better songs," Joe recalls Bruce saying. "You write so much better than this. These aren't up to any kind of standard.'"
 

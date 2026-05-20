@@ -8,7 +8,7 @@
 
 **1974:** Bruce and the E Street Band play two shows on their third of three consecutive nights at Le Garage on Long Beach Island.<br>
 
-**1977:** Bruce and the E Street Band work on "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" at Atlantic Studios in New York City.<br>
+**1977:** Bruce and the E Street Band work on "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" at Atlantic Studios in New York City.<br>
 
 **1978:** In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon's performance. He joins Zevon for "I'll Sleep When I'm Dead," the final encore of the evening.<br>
 
@@ -42,19 +42,19 @@
 
 [Watch on Youtube: Meeting Across The River (Live at Madison Square Garden, New York, NY - June 2000)](https://www.youtube.com/watch?v=D3vUmI_08jo)
 
-**2005:** Bruce plays "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)" for the first time in 24 years at his Devils & Dust show in Gothenburg.<br>
+**2005:** Bruce plays "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)" for the first time in 24 years at his Devils & Dust show in Gothenburg.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9KTxtENW)
 
 [Watch on Youtube: Bruce Springsteen - State trooper Gothenburg, Sweden, June 23, 2005.](https://www.youtube.com/watch?v=jolZKmU3SbM)
 
-**2006:** Conan O'Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of "[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)" on *Late Night with Conan O'Brien.* Bruce also performs "[Bring 'em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/)."<br>
+**2006:** Conan O'Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" on *Late Night with Conan O'Brien.* Bruce also performs "[Bring 'em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down [Conan O'Brien]](https://www.youtube.com/watch?v=fSt22GEPQGg)
 
 [Watch on Youtube: Bring 'Em Home - Bruce Springsteen (live on Late Night with Conan O'Brien 2006)](https://www.youtube.com/watch?v=wXUiV6SwOBw)
 
-**2008:** Bruce tour premieres "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)" as an encore during his Magic Tour stop in Antwerp.<br>
+**2008:** Bruce tour premieres "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" as an encore during his Magic Tour stop in Antwerp.<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm A Rocker](https://www.youtube.com/watch?v=RuV3LKuwNw8)
 

@@ -1,6 +1,6 @@
 Last weekend I had the honor and pleasure of joining The Jersey Girls on their delightful podcast, *For the Love of E Street*. (The episode isn't out yet, but if you're so inclined you can keep an eye out for it at whichever podcast hub you frequent. Check out their back episodes while you're there!)
 
-In preparation for our chat, co-host Donna Mintz did some blog recon and took me to task for neglecting one of her favorite covers: Alabama Shakes' performance of "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)" from Bruce's MusiCares tribute in 2013.
+In preparation for our chat, co-host Donna Mintz did some blog recon and took me to task for neglecting one of her favorite covers: Alabama Shakes' performance of "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" from Bruce's MusiCares tribute in 2013.
 
 Now this particular rendition has been on my covers-to-cover list for so long that it was on Row 8 of a four-digit-long roster. It's one of my favorites, too–an absolutely kick-ass performance.
 

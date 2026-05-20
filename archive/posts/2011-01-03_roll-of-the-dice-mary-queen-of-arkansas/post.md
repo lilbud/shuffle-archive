@@ -46,7 +46,7 @@ Our narrator doesn't seem to live within the social mainstream, either–he refe
 > *Mary, my queen, your blows for freedom are missing*
 > *You're not man enough for me to hate or woman enough for kissing*
 
-Many critics take Bruce's liberal use of circus imagery literally, suggesting that the lovers are actual performers. I don't think that's true at all–rather, I think Bruce uses the circus as metaphor, a way of establishing his lovers as societal outcasts, or "freaks." (It's likely, though, that Bruce was taken enough with his circus setting to spawn an additional, [more literal song](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/) for his follow-up album.)
+Many critics take Bruce's liberal use of circus imagery literally, suggesting that the lovers are actual performers. I don't think that's true at all–rather, I think Bruce uses the circus as metaphor, a way of establishing his lovers as societal outcasts, or "freaks." (It's likely, though, that Bruce was taken enough with his circus setting to spawn an additional, [more literal song](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md) for his follow-up album.)
 
 (Side note: Bruce's earlier demo version includes a different line in lieu of the "shine boy" reference: *I've been a change man at your laundromat.* I think that's actually a stronger lyric.)
 
@@ -80,7 +80,7 @@ Bruce leaves his story unresolved, but we sense that Mary is not up for running 
 
 "Mary Queen of Arkansas" is a heck of a feat for a 22-year-old small-town songwriter, and Bruce had good reason to be proud of it.
 
-But his fans never loved it anywhere near as much as he did, so it appeared only infrequently in concert in the year or so following its release. One of Mary's earliest appearances was at Bruce's show at Max's Kansas City, only a few weeks after the release of [*Greetings From Asbury Park, N.J*.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) Danny Federici's accordion substitutes for Bruce's harmonica, but the effect is not quite as effective.
+But his fans never loved it anywhere near as much as he did, so it appeared only infrequently in concert in the year or so following its release. One of Mary's earliest appearances was at Bruce's show at Max's Kansas City, only a few weeks after the release of [*Greetings From Asbury Park, N.J*.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) Danny Federici's accordion substitutes for Bruce's harmonica, but the effect is not quite as effective.
 
 [Watch on Youtube: 2. Mary Queen Of Arkansas (Bruce Springsteen - Live In New York City 1-31-1973)](https://www.youtube.com/watch?v=5pnazYVfVGM)
 

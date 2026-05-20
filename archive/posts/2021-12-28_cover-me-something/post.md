@@ -4,7 +4,7 @@ But when a Beatle passes, there's really no other choice for a rock and roll mus
 
 So that's exactly what Bruce did, by opening his first show with a cover of one of Harrison's songs. And although George left no shortage of songs from which to choose, there was really only one obvious choice.
 
-Harrison wrote "Something" for The Beatles' *Abbey Road* album, and when it was issued as a single with "[Come Together](https://estreetshuffle.com/index.php/2018/01/15/meeting-across-the-river-bruce-springsteen-and-axl-rose/)" on the flip-side, it became his first-ever A-side and not only topped the Billboard Hot 100 but also went to #1 in Canada, Australia, West Germany, and New Zealand.
+Harrison wrote "Something" for The Beatles' *Abbey Road* album, and when it was issued as a single with "[Come Together](../2018-01-15_meeting-across-the-river-bruce-springsteen-and-axl-rose/post.md)" on the flip-side, it became his first-ever A-side and not only topped the Billboard Hot 100 but also went to #1 in Canada, Australia, West Germany, and New Zealand.
 
 [Watch on Youtube: The Beatles - Something](https://www.youtube.com/watch?v=UelDrZ1aFeY)
 
@@ -14,7 +14,7 @@ On December 3rd 2001, Bruce took the stage with his acoustic guitar, and togethe
 
 [Watch on Youtube: Something - Bruce Springsteen (3-12-2001 Convention Hall, Asbury Park, NewJersey)](https://www.youtube.com/watch?v=MXwqzJTU8fs)
 
-It was a beautiful arrangement, one that captured the emotion of both the song and the moment. And it was only a moment, because Bruce immediately segued into a more upbeat cover of Harrison's "[My Sweet Lord](https://estreetshuffle.com/index.php/2019/11/25/cover-me-my-sweet-lord/)" before diving into a festive holiday set list for the rest of the evening.
+It was a beautiful arrangement, one that captured the emotion of both the song and the moment. And it was only a moment, because Bruce immediately segued into a more upbeat cover of Harrison's "[My Sweet Lord](../2019-11-25_cover-me-my-sweet-lord/post.md)" before diving into a festive holiday set list for the rest of the evening.
 
 To this day, it remains the only time Bruce has covered "Something" in concert.
 

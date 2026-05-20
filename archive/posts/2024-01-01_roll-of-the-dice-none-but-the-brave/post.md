@@ -14,7 +14,7 @@ Let's start with the unreleased outtake.
 
 [Watch on Youtube: Bruce Springsteen - "None But the Brave" original outtake](https://www.youtube.com/watch?v=syZB1xaNo0s)
 
-So let's just lay this out first and foremost: whichever version we're listening to, "None But the Brave" is magnificent. It's heartfelt and heartbreaking, and it captures the E Street Band sound at perhaps its most quintessential. Why in the world Bruce chose to leave it off of *Born in the U.S.A.* is beyond me. Perhaps he felt the central conceit of the song–the left-behind friend/lover singing to his gone-to-greener-pastures girl–was essentially the same one used for "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" on that album, but in my opinion "None But the Brave" is the superior song.
+So let's just lay this out first and foremost: whichever version we're listening to, "None But the Brave" is magnificent. It's heartfelt and heartbreaking, and it captures the E Street Band sound at perhaps its most quintessential. Why in the world Bruce chose to leave it off of *Born in the U.S.A.* is beyond me. Perhaps he felt the central conceit of the song–the left-behind friend/lover singing to his gone-to-greener-pastures girl–was essentially the same one used for "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" on that album, but in my opinion "None But the Brave" is the superior song.
 
 Its first verse and chorus establish the scene and the situation with Bruce's by-now trademark verbal economy:
 
@@ -42,7 +42,7 @@ But his girl did–she escaped and left him behind. Because she was brave enough
 > *Ah, on a night like this*<br>
 > *I know that girl no longer exists*<br>
 
-It's interesting (and possibly significant) that Bruce addresses his love as "my friend," creating the momentary possibility that perhaps this song is more universal than it first appeared–an ode to a close friend rather than a lover. That ambiguity is undoubtedly as deliberate here as it is in "Bobby Jean" or "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)," but subsequent verses make clear that if the two were friends, they were at least friends with benefits.
+It's interesting (and possibly significant) that Bruce addresses his love as "my friend," creating the momentary possibility that perhaps this song is more universal than it first appeared–an ode to a close friend rather than a lover. That ambiguity is undoubtedly as deliberate here as it is in "Bobby Jean" or "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)," but subsequent verses make clear that if the two were friends, they were at least friends with benefits.
 
 Whatever their relationship, the singer clearly hasn't been able to move on. He hold on to his image of her as she was–even though he acknowledges that that particular girl no longer exists. In her new setting and new life, she is a different person and lost to him…
 
@@ -62,7 +62,7 @@ Again, he's haunted: he knows she's gone, but his image of her is so vivid that 
 > *As the drummer counts away*<br>
 > *I take her hand, we move away*<br>
 
-Oof–that verse packs an emotional wallop! At first evoking "[My Love Will Not Let You Down,](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)" (another contemporary outtake), the singer searches for connection in some new eyes, hoping to recapture the spark of what he had with his lost love. And then we visit "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)" (a much later composition that paints a similar scene) as he hooks up with a girl just because she reminds him of his loss. His emotional pain is laid stark before us. (By the way, that bolded line is deliberate. We'll come back to that later.)
+Oof–that verse packs an emotional wallop! At first evoking "[My Love Will Not Let You Down,](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)" (another contemporary outtake), the singer searches for connection in some new eyes, hoping to recapture the spark of what he had with his lost love. And then we visit "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)" (a much later composition that paints a similar scene) as he hooks up with a girl just because she reminds him of his loss. His emotional pain is laid stark before us. (By the way, that bolded line is deliberate. We'll come back to that later.)
 
 Our protagonist is self-aware, at least. He knows he is defeated, and he pities his friends who are still caught up in the game, even though he knows they are destined to defeat as soon as life or love deals them a hand they're not strong enough to play:
 
@@ -81,7 +81,7 @@ And finally, he rages:
 
 And in that final line, we understand the one thing he does not–that even though he considers himself one of the brave, robbed of the freedom and life of which he dreamt, the bravery that life demands isn't the courage to dream but rather the strength, determination, and fortitude to make them real.
 
-"None But the Brave" is at heart a tragic song. "[Bobby Jean,](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" at least, features a hero at peace, even if his heart has a hole in it. The hero of "None But the Brave" is broken.
+"None But the Brave" is at heart a tragic song. "[Bobby Jean,](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" at least, features a hero at peace, even if his heart has a hole in it. The hero of "None But the Brave" is broken.
 
 So: that's the original version, recorded June 27, 1983.
 
@@ -115,7 +115,7 @@ But on the 2003 version, he sings:
 
 Now *that* is a significant edit. In the earlier version, the singer is looking for a spark, a hint, the essence of a friendship, a love, a connection he once had but lost. He's trying to recapture a *feeling*.
 
-In the later version, he's trying to summon a *person.* In fact, that line evokes a scene from "[You're Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)," another song of aching loss which Bruce had written and recorded probably not that long before he recorded his new vocal for "None But the Brave."
+In the later version, he's trying to summon a *person.* In fact, that line evokes a scene from "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)," another song of aching loss which Bruce had written and recorded probably not that long before he recorded his new vocal for "None But the Brave."
 
 > *Your house is waiting for you to walk in.*<br>
 
@@ -149,7 +149,7 @@ I'll add this one to that club. Either way, in either incarnation, it remains on
 
 [Watch on Youtube: Bruce Springsteen: NONE BUT THE BRAVE](https://www.youtube.com/watch?v=quCBpLQ0ogY)
 
-The first E Street Band performance was more than four years later, in Vancouver on the Magic tour, and [I was lucky enough to be there for it](https://estreetshuffle.com/index.php/2018/03/31/where-the-band-was-vancouver-march-31-2008/). Bruce has played it a mere handful of times since (usually and comically checking with the band to make sure they know how to start it); here's one of the more recent performances from Zurich in 2016:
+The first E Street Band performance was more than four years later, in Vancouver on the Magic tour, and [I was lucky enough to be there for it](../2018-03-31_where-the-band-was-vancouver-march-31-2008/post.md). Bruce has played it a mere handful of times since (usually and comically checking with the band to make sure they know how to start it); here's one of the more recent performances from Zurich in 2016:
 
 [Watch on Youtube: Bruce Springsteen - None But The Brave (Zurich, July 31, 2016) [2 cam mix and dubbed audio]](https://www.youtube.com/watch?v=B5KHuimPF0M)
 

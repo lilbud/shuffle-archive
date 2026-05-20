@@ -1,4 +1,4 @@
-Okay, I'm about to break my own rules, because technically "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)" is not a Springsteen original–therefore this is really a Jimmy Cliff cover rather than a Springsteen cover.
+Okay, I'm about to break my own rules, because technically "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" is not a Springsteen original–therefore this is really a Jimmy Cliff cover rather than a Springsteen cover.
 
 But I'm making an exception for two reasons:
 

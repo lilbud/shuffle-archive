@@ -1,6 +1,6 @@
 In early 1982, Bruce recorded a series of demos in his home studios. Some were released essentially as recorded on *Nebraska;* others were electrified for *Born in the U.S.A.*, *Tracks*, or other collections. And some never saw light of day at all.
 
-"I Need You" falls into that last camp. One of two work-in-progress songs based on a common melody ("[Ruled by the Gun](https://estreetshuffle.com/index.php/2021/02/23/roll-of-the-dice-ruled-by-the-gun/)" is the other), the existing bootleg take features lyrics that are complete enough to get a sense of what Bruce was aiming for:
+"I Need You" falls into that last camp. One of two work-in-progress songs based on a common melody ("[Ruled by the Gun](../2021-02-23_roll-of-the-dice-ruled-by-the-gun/post.md)" is the other), the existing bootleg take features lyrics that are complete enough to get a sense of what Bruce was aiming for:
 
 > *I don't need no fancy car to drive me around*<br>
 > *I don't need no pretty face cause that just gets me down*<br>

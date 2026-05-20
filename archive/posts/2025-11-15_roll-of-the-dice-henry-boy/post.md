@@ -1,4 +1,4 @@
-Had "Henry Boy" made it onto [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/), Rosie might never have come out.
+Had "Henry Boy" made it onto [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md), Rosie might never have come out.
 
 In 1972, when Bruce Springsteen was furiously writing and recording candidates for his upcoming debut album, "Henry Boy" seemed like one of the more promising ones. Bruce certainly seemed to think so–he included the song in an early potential album sequence,
 

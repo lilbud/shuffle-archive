@@ -1,16 +1,16 @@
 ***New for 2025:** Audio for 2008*<br>
 
-**1978:** Bruce debuts his cover of "[Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)" to open Night Two at the Philadelphia Spectrum on the Darkness Tour. Gary Busey guest stars on "[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)."<br>
+**1978:** Bruce debuts his cover of "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)" to open Night Two at the Philadelphia Spectrum on the Darkness Tour. Gary Busey guest stars on "[Rave On](../2019-03-25_matr-bruce-springsteen-and-gary-busey-rave-on/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen_ Good Rockin' Tonight/Badlands (YouTube Unpublished Remastered 1978 Live)](https://www.youtube.com/watch?v=XRS3x3_mdys)
 
 [Watch on Youtube: Bruce Springsteen - HEARTBREAK HOTEL (live 1978)](https://www.youtube.com/watch?v=oSNz8UoUD4s)
 
-**1983:** Bruce guest stars with John Eddie at the Brighton Bar in Long Branch, New Jersey, for a mini-set of covers, including "[Blue Suede Shoes](https://estreetshuffle.com/index.php/2020/10/19/matr-bruce-springsteen-and-john-eddie-blue-suede-shoes/)" and "[Ain't That Lovin' You Baby](https://estreetshuffle.com/index.php/2020/12/15/matr-bruce-springsteen-and-john-eddie-aint-that-lovin-you-baby/)."<br>
+**1983:** Bruce guest stars with John Eddie at the Brighton Bar in Long Branch, New Jersey, for a mini-set of covers, including "[Blue Suede Shoes](../2020-10-19_matr-bruce-springsteen-and-john-eddie-blue-suede-shoes/post.md)" and "[Ain't That Lovin' You Baby](../2020-12-15_matr-bruce-springsteen-and-john-eddie-aint-that-lovin-you-baby/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rAT8zq3b)
 
-**1984:** The penultimate night of Bruce's ten-night Born in the U.S.A. Tour stand at East Rutherford's Brendan Byrne Arena brings the U.S. debut of "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" and the return of the Miami Horns for "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)," "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" and "Twist and Shout." "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" is recorded and released on the *Live 1975-85* box set. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29593/bruce-springsteen-the-e-street-brendan-byrne-arena-east-rutherford-nj-08-19-1984-mp3-flac-or-online-music-streaming.html).<br>
+**1984:** The penultimate night of Bruce's ten-night Born in the U.S.A. Tour stand at East Rutherford's Brendan Byrne Arena brings the U.S. debut of "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)" and the return of the Miami Horns for "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)," "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" and "Twist and Shout." "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" is recorded and released on the *Live 1975-85* box set. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29593/bruce-springsteen-the-e-street-brendan-byrne-arena-east-rutherford-nj-08-19-1984-mp3-flac-or-online-music-streaming.html).<br>
 
 [Watch on Youtube: Reason To Believe (Live at Meadowlands Arena, E. Rutherford, NJ - August 1984)](https://www.youtube.com/watch?v=-k2QcB6bV9o)
 
@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1984-08-19.jpg.webp)
 
-**1985:** Bruce and the E Street Band play their second of a four-night stand at Giants Stadium (they will return later that summer). The show is notable for its performances of "[Johnny 99,](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)" "[Working on the Highway,](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" "[I'm on Fire,](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" and "Born to Run," all of which are recorded and will be released on the *Live 1975-85* box set. Their "Born to Run" performance will become the audio for the official video for the song.<br>
+**1985:** Bruce and the E Street Band play their second of a four-night stand at Giants Stadium (they will return later that summer). The show is notable for its performances of "[Johnny 99,](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" "[Working on the Highway,](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" "[I'm on Fire,](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" and "Born to Run," all of which are recorded and will be released on the *Live 1975-85* box set. Their "Born to Run" performance will become the audio for the official video for the song.<br>
 
 [Watch on Youtube: Bruce Springsteen - Born to Run (Official Video)](https://www.youtube.com/watch?v=IxuThNgl3YA)
 
@@ -34,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-19.png.webp)
 
-**2008:** The Magic Tour's victory lap includes a show at Hersheypark Stadium, where Bruce brings back two Tunnel of Love tour staples, both played for the first time in 20 years: "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" and "[Part Man, Part Monkey](https://estreetshuffle.com/index.php/2022/02/19/roll-of-the-dice-part-man-part-monkey/)." The show closes with another tour premiere: "[Gloria](https://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)," featuring Joe and Johnny Grushecky (although somehow, the local paper misidentifies Joe for Tommy James).<br>
+**2008:** The Magic Tour's victory lap includes a show at Hersheypark Stadium, where Bruce brings back two Tunnel of Love tour staples, both played for the first time in 20 years: "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[Part Man, Part Monkey](../2022-02-19_roll-of-the-dice-part-man-part-monkey/post.md)." The show closes with another tour premiere: "[Gloria](../2018-03-16_cover-me-gloria/post.md)," featuring Joe and Johnny Grushecky (although somehow, the local paper misidentifies Joe for Tommy James).<br>
 
 [Watch on Youtube: Bruce Springsteen - Boom Boom](https://www.youtube.com/watch?v=zWfjakEMncA)
 

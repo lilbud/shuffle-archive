@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1974-0718.jpg.webp)
 
-**1975:** Bruce completes “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” and “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” at the Record Plant in New York City, a mere month before both songs would appear on record store shelves, and only two days before the kickoff of the the Born to Run Tour.<br>
+**1975:** Bruce completes “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” and “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)” at the Record Plant in New York City, a mere month before both songs would appear on record store shelves, and only two days before the kickoff of the the Born to Run Tour.<br>
 
 [Watch on Youtube: Backstreets](https://www.youtube.com/watch?v=USQ697oqkaw)
 
@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-18.png.webp)
 
-**1979:** At The Power Station in New York City, Bruce records “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” and “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/).” It will be almost two decades before they see an album release.<br>
+**1979:** At The Power Station in New York City, Bruce records “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)” and “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md).” It will be almost two decades before they see an album release.<br>
 
 [Watch on Youtube: Be True](https://www.youtube.com/watch?v=Rq2lsxXUVew)
 
@@ -46,7 +46,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/kHVTjhMH)
 
-**1999:** Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare performances of “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)” (the show opener), “[Loose Ends,](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” “[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/),” and “[Freehold](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,31193/Bruce-Springsteen-mp3-flac-download-7-18-1999-Continental-Airlines-Arena-East-Rutherford-NJ.html).<br>
+**1999:** Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare performances of “[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)” (the show opener), “[Loose Ends,](../2022-06-23_roll-of-the-dice-loose-end/post.md)” “[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md),” and “[Freehold](../2018-12-03_roll-of-the-dice-freehold/post.md).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,31193/Bruce-Springsteen-mp3-flac-download-7-18-1999-Continental-Airlines-Arena-East-Rutherford-NJ.html).<br>
 
 [Watch on Youtube: I Wanna Be With You (Live at Continental Airlines Arena, E. Rutherford, NJ - 7/18/1999)](https://www.youtube.com/watch?v=nuDox-fTUTI)
 
@@ -64,11 +64,11 @@
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour.<br>
 
-**2003:** It’s a rainy Night Three of ten at the Giants Stadium stand of the Rising Tour, and Bruce opens with an audibled “[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/).” Garland Jeffreys guests during the encores for “[96 Tears](https://estreetshuffle.com/index.php/2020/02/15/matr-bruce-springsteen-and-garland-jeffreys-96-tears/).”<br>
+**2003:** It’s a rainy Night Three of ten at the Giants Stadium stand of the Rising Tour, and Bruce opens with an audibled “[Who’ll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md).” Garland Jeffreys guests during the encores for “[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NPLvxg3D)
 
-**2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including “[4th of July, Asbury Park (Sandy),](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” a solo piano “Leap of Faith,” “[You’re Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/),” “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” “[When You’re Alone](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/),” and a show-opening new acoustic arrangement of “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” on guitar and harmonica.<br>
+**2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including “[4th of July, Asbury Park (Sandy),](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” a solo piano “Leap of Faith,” “[You’re Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md),” “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[When You’re Alone](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md),” and a show-opening new acoustic arrangement of “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” on guitar and harmonica.<br>
 
 [Watch on Youtube: Bruce Springsteen Prove It All Night Live In Buffalo Solo Acoustic 2005](https://www.youtube.com/watch?v=6tdzu7g-jjc)
 
@@ -90,7 +90,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 18/07/2012 Full Concert 100 subscribers special](https://www.youtube.com/watch?v=1SEaF_zs6rE)
 
-**2013:** The Wrecking Ball Tour comes to Cork, where “[Wild Thing](https://estreetshuffle.com/index.php/2020/03/10/cover-me-wild-thing/),” “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)” and “[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)” make their tour debuts. This is the first time Bruce performs “Real World” since 2005, and early arriving fans get to hear it twice: once in the main set and once in a three-song pre-show.<br>
+**2013:** The Wrecking Ball Tour comes to Cork, where “[Wild Thing](../2020-03-10_cover-me-wild-thing/post.md),” “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” and “[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)” make their tour debuts. This is the first time Bruce performs “Real World” since 2005, and early arriving fans get to hear it twice: once in the main set and once in a three-song pre-show.<br>
 
 [Watch on Youtube: Bruce Springsteen - Real World (Pre Show) (Live) 2013-07-18 Cork, Ireland](https://www.youtube.com/watch?v=uJ_uzh9WsX8)
 
@@ -112,11 +112,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2015-07-18b.png.webp)
 
-**2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores (“[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)“) and will be released on the streaming service (and on album) to much acclaim later in the year.<br>
+**2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores (“[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” and “[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)“) and will be released on the streaming service (and on album) to much acclaim later in the year.<br>
 
 [Watch on Youtube: 'Springsteen On Broadway' (Official Album Trailer #1)](https://www.youtube.com/watch?v=E0Bkn9KgT6Y)
 
-Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to mark Billy’s 100th show of his residency. The two play “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” and “Born to Run.”
+Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to mark Billy’s 100th show of his residency. The two play “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” and “Born to Run.”
 
 [Watch on Youtube: Bruce Springsteen at Billy Joel #MSG100 10th. Avenue Freeze Out & Born to Run.](https://www.youtube.com/watch?v=Lz-lFobWvTs)
 

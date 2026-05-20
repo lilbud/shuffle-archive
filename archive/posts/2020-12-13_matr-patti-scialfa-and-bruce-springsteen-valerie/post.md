@@ -26,7 +26,7 @@ The second verse of "Valerie" may be the most artful lyric Patti has ever writte
 
 I mean, come on: whose jaw *wouldn't* drop when hearing that verse for the first time?
 
-"Valerie" is an intensely sad song. The final verse leaves our narrator in a metaphorical prison, hiding out on the border between the lost love she can't let go of and the family and friends who await her return. (If there's a Springsteen song that's closest to "Valerie" in theme and power, it's "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/).")
+"Valerie" is an intensely sad song. The final verse leaves our narrator in a metaphorical prison, hiding out on the border between the lost love she can't let go of and the family and friends who await her return. (If there's a Springsteen song that's closest to "Valerie" in theme and power, it's "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md).")
 
 And yet despite its beauty and personal significance, Patti and Bruce never performed "Valerie" together until (of all places) the Seeger Sessions Tour in 2006.
 

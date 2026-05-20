@@ -1,4 +1,4 @@
-In 1983, Bruce Springsteen recorded a song called "[Brothers Under the Bridges '83](https://estreetshuffle.com/index.php/2019/10/21/roll-of-the-dice-brothers-under-the-bridges-83/)" about a pair of fourteen-year-old boys who dream of the freedom and adventure that await them at eighteen.
+In 1983, Bruce Springsteen recorded a song called "[Brothers Under the Bridges '83](../2019-10-21_roll-of-the-dice-brothers-under-the-bridges-83/post.md)" about a pair of fourteen-year-old boys who dream of the freedom and adventure that await them at eighteen.
 
 In 1995, he revisited his fourteen-year-old narrator–now thirty–in a song called "Brothers Under the Bridge '95," and he put both songs on his 1998 box set collection of unreleased songs, *Tracks*.
 
@@ -59,7 +59,7 @@ But his wartime experiences aged him and ate away at him. Until one day–one Ve
 
 "Brothers Under the Bridge" was already a candidate for Bruce's subtlest song. He writes with delicate and sparing detail, taking us inside the mind of a Vietnam vet unable to face what he'd seen and done but also unable to forget. But that ending–that unresolved final verse that just drifts into nothing as our narrator loses himself in thought and memory–that ending ranks among the most haunting Bruce has ever written.
 
-"Brothers Under the Bridge" was recorded by the same musicians who recorded "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" (with the addition of Soozie Tyrell, whose understated violin adds warmth and color). Marty Rifkin is the standout player on this track, his pedal steel and dobro infusing the song with its nostalgic Western texture.
+"Brothers Under the Bridge" was recorded by the same musicians who recorded "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" (with the addition of Soozie Tyrell, whose understated violin adds warmth and color). Marty Rifkin is the standout player on this track, his pedal steel and dobro infusing the song with its nostalgic Western texture.
 
 The two songs were recorded within a day of each other, and in both sound and setting, "Brothers Under the Bridge" would have been a perfect fit for Bruce's 1995 album. It must have been a hard decision to leave it off. Still, Bruce performed it ninety times throughout his 1995-1997 acoustic tour, as if it were born of and part of the album even if it was cast off and forgotten by it. Perhaps there's irony to observe there.
 

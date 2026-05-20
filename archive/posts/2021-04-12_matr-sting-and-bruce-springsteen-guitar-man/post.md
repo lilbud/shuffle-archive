@@ -18,7 +18,7 @@ That year, the event had an Elvis theme, and several covers of The King's songs 
 
 [Watch Video Highlight](https://videopress.com/embed/7ZXKZRiA)
 
-That event tends to be remembered for Bruce's duets with James Taylor on "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" and Elton John on "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" (along with Bruce's first full performance of "[I'm Turning Into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)"), but his supporting turn with Sting on "Guitar Man" was an under-the-radar highlight of a fun and unpredictable night.
+That event tends to be remembered for Bruce's duets with James Taylor on "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" and Elton John on "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" (along with Bruce's first full performance of "[I'm Turning Into Elvis](../2020-03-05_roll-of-the-dice-im-turning-into-elvis/post.md)"), but his supporting turn with Sting on "Guitar Man" was an under-the-radar highlight of a fun and unpredictable night.
 
 **Guitar Man**<br>
 **First performed:** April 12, 1995 (New York City, NY)<br>

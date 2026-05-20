@@ -1,4 +1,4 @@
-Way back in 1982, Bruce recorded a song called "[Losin' Kind](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/)."
+Way back in 1982, Bruce recorded a song called "[Losin' Kind](../2021-01-15_roll-of-the-dice-losin-kind/post.md)."
 
 Similar to (and probably inspired by, given notes Bruce wrote to Jon Landau about the song) the crime stories and films of James M. Cain, "Losin' Kind" was the bad-luck story of Frank Davis, who picks up a femme fatale against his better judgment, and ends up robbing a Best Western, flees from the police, and ends up wrapping his car around a telephone pole.
 
@@ -27,7 +27,7 @@ to
 
 > *My hand slipped up her skirt, everything slipped my mind*<br>
 
-(Bruce had already re-used the original couplet in yet another similar song, "[Loose Change](https://estreetshuffle.com/index.php/2019/11/24/roll-of-the-dice-loose-change/)," but that's a story for another day.)
+(Bruce had already re-used the original couplet in yet another similar song, "[Loose Change](../2019-11-24_roll-of-the-dice-loose-change/post.md)," but that's a story for another day.)
 
 Bruce had also learned to trust the listener: in "Losin' Kind," Frank described the crime in considerable detail, but in "Highway 29," Bruce invites us to co-write the song, painting the scene but asking us to tell the story.
 
@@ -70,7 +70,7 @@ On vinyl and on stage, "Highway 29" is always a solo Bruce Springsteen performan
 
 **Highway 29**<br>
 **Recorded:** 1995<br>
-**Released:** [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)(1995)<br>
+**Released:** [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)(1995)<br>
 **First performed:** November 21, 1995 (New Brunswick, NJ)<br>
 **Last performed:** November 8, 2005 (Philadelphia, PA)<br>
 

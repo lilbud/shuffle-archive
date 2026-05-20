@@ -14,7 +14,7 @@ Let's take a careful listen, and then we'll dig in. In fact, let's start with th
 
 [Watch Video Highlight](https://videopress.com/embed/1Z00tuHY)
 
-(Yes, that video bears remarkable structural and stylistic similarity to the video for "[Girls in Their Summer Clothes"](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/) (right down to the color palette), and watching them back-to-back highlights the toll that time and age exact. The narrator of "Girls in Their Summer Clothes" has long since dropped his hammer and his vise, and he knows that garden is going to stay far out of reach.)
+(Yes, that video bears remarkable structural and stylistic similarity to the video for "[Girls in Their Summer Clothes"](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md) (right down to the color palette), and watching them back-to-back highlights the toll that time and age exact. The narrator of "Girls in Their Summer Clothes" has long since dropped his hammer and his vise, and he knows that garden is going to stay far out of reach.)
 
 Throughout the song, the phrase "secret garden" applies on two levels: first, as a metaphor for the parts of ourselves we keep hidden, even from those we love, and second as a literary reference to the novel by the same name. In the 1911 novel, the secret garden is a place of both mystery and healing; it rejuvenates a young boy physically and a young girl spiritually. Bruce's lyrics are undoubtedly operating in both the physical and spiritual plane as well:
 
@@ -47,7 +47,7 @@ Like many of Bruce's best songs, there's a killer lyric lying in wait for us. In
 > *To that place where you can't remember*<br>
 > *And you can't forget*<br>
 
-Oh, how I love that line. It haunts me just as much as the final lines of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" or "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" — the notion of knowing that there's a part of your partner that lies hidden away, unseeable but also unshakable.
+Oh, how I love that line. It haunts me just as much as the final lines of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" or "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" — the notion of knowing that there's a part of your partner that lies hidden away, unseeable but also unshakable.
 
 It's also worth pausing here for a moment to take note of the brilliance of the backing track. It's so very un-E Street, both before and since, and yet the band captures the delicate yet disconcerting mood of the song so perfectly that one would think it was written for them (it wasn't).
 
@@ -74,7 +74,7 @@ Relationships don't have to be eternal, unbreakable, or all-encompassing for the
 
 And that's the message of *Jerry Maguire* as well. Those who swoon at "You complete me" and "You had me at hello" miss the irony and actual point of the movie. Jerry and Dorothy *don't* complete each other–they spend the entire movie learning to be complete people *without* needing each other. Only when they've accepted their own strengths, weaknesses, and limitations do they embrace and accept their imperfect relationship. (That's why I believe that *Jerry Maguire* is the best cinematic love story of all time, but that's an argument I'll expand on someday when I start my Cameron Crowe blog.)
 
-But before we go, we must discuss the coda, because it's one of the Big Man's most sublime performances on record. I'll rank it right up there with "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" and "Jungleland" in emotional power, and Clarence knew it before he even played it:
+But before we go, we must discuss the coda, because it's one of the Big Man's most sublime performances on record. I'll rank it right up there with "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" and "Jungleland" in emotional power, and Clarence knew it before he even played it:
 
 [Watch Video Highlight](https://videopress.com/embed/yHSMTjnM)
 
@@ -94,7 +94,7 @@ Thankfully Bruce recognized that the strings were too much and opted for the str
 
 [Watch Video Highlight](https://videopress.com/embed/RlqJlSpB)
 
-In concert, Bruce has played "Secret Garden" a mere seven times ever, and it remains high on my chase list. (He had it on the setlist at his last concert in Philadelphia but opted for a repeat of "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" instead. Sigh.)
+In concert, Bruce has played "Secret Garden" a mere seven times ever, and it remains high on my chase list. (He had it on the setlist at his last concert in Philadelphia but opted for a repeat of "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" instead. Sigh.)
 
 Luckily, though, we have a couple of great videos of those performances, starting with Bruce's live debut of "Secret Garden" on *The Late Show With David Letterman* on April 4, 1995.
 

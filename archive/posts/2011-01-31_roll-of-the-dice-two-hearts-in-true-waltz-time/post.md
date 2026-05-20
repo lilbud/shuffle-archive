@@ -18,7 +18,7 @@ If the song's melody sounds familiar, that's probably because it's very similar 
 
 As for the lyrics, on the surface they are very much in keeping with Bruce's *Greetings*-era writing, full of internal rhymes, surreal imagery, and inventive metaphor.
 
-But upon a careful listen, we realize that this song is unlike any and all of the ones that did make it onto the album. It's a gritty street romance of the kind we wouldn't see until "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" the following year, although we won't realize that until the end of the song. In fact, "Two Hearts in True Waltz Time" sounds for all the world like Bruce started out with "Lost in the Flood" in mind but ended up reaching for "Incident."
+But upon a careful listen, we realize that this song is unlike any and all of the ones that did make it onto the album. It's a gritty street romance of the kind we wouldn't see until "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" the following year, although we won't realize that until the end of the song. In fact, "Two Hearts in True Waltz Time" sounds for all the world like Bruce started out with "Lost in the Flood" in mind but ended up reaching for "Incident."
 
 In the first verse, Bruce introduces us to our focal character, a nameless New York streetwalker who haunts the entrances to the city:
 

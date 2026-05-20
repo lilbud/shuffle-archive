@@ -1,10 +1,10 @@
 Singer, songwriter, and multi-instrumentalist Phil Beer is no stranger to Bruce Springsteen's catalog, having played covers of Bruce's music at least as far back as his Albion Band days a couple of decades ago.
 
-Even today, he's likely to feature songs like "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" and "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)" in his acoustic sets.
+Even today, he's likely to feature songs like "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" and "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" in his acoustic sets.
 
 [Watch on Youtube: Phil Beer:Youngstown](https://www.youtube.com/watch?v=COWapD2t-jQ)
 
-His high-water mark, though, is undoubtedly his band's joyously rollicking cover of "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" from his *Mandorock 2000 Live* album.
+His high-water mark, though, is undoubtedly his band's joyously rollicking cover of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" from his *Mandorock 2000 Live* album.
 
 [Watch on Youtube: No Surrender](https://www.youtube.com/watch?v=0uZ-UY0KVHo)
 

@@ -49,7 +49,7 @@ Our narrator doesn't just lack these things–he dismisses them. Heck, he barely
 
 Like most of the characters in *Western Stars*, he's just moving forward, ever forward.
 
-At the end of *Western Stars*, just before the sublime "[Moonlight Motel,](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)" Bruce bookends "Hitch Hikin'" with "[Hello Sunshine](https://estreetshuffle.com/index.php/2021/01/01/roll-of-the-dice-hello-sunshine/)," a song featuring a similarly itinerant narrator. If the album's opening track celebrates freedom from connections on the open road, "Hello Sunshine" notes the importance of the ties that bind in life's journey.
+At the end of *Western Stars*, just before the sublime "[Moonlight Motel,](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" Bruce bookends "Hitch Hikin'" with "[Hello Sunshine](../2021-01-01_roll-of-the-dice-hello-sunshine/post.md)," a song featuring a similarly itinerant narrator. If the album's opening track celebrates freedom from connections on the open road, "Hello Sunshine" notes the importance of the ties that bind in life's journey.
 
 On an album filled with vividly cinematic character studies, these two songs are likely the most autobiographical. One captures the young songwriter feeling his independence, the other an elder artist who understands its cost. In between lies a cast of characters coping with a journey progressively nearing its end. ("Catch me now 'cause tomorrow I'll be gone" — that line gives me pause every time.)
 

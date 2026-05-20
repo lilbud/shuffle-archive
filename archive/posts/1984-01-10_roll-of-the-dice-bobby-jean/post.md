@@ -49,7 +49,7 @@ Those last lines are powerful–I tear up every time I read them, let alone hear
 
 You'll notice I'm focusing on the lyrics throughout this piece. They're a lot easier to wax poetic about than the music. Unfortunately, "Bobby Jean" is very much a product of its era, and it's difficult for me to listen to the studio version without cringing at all the synth.
 
-And can we talk about that sax solo for a minute? In much the same way that Clarence's sax solo says more in "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" than Bruce's lyrics ever could, Clarence's final solo–that final *note*–says it all in "Bobby Jean." So what possessed Bruce to fade the song before Clarence even sounds it? That's borderline unforgivable, and it's why when I listen to "Bobby Jean," I'll always opt for a live version over the studio version.
+And can we talk about that sax solo for a minute? In much the same way that Clarence's sax solo says more in "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" than Bruce's lyrics ever could, Clarence's final solo–that final *note*–says it all in "Bobby Jean." So what possessed Bruce to fade the song before Clarence even sounds it? That's borderline unforgivable, and it's why when I listen to "Bobby Jean," I'll always opt for a live version over the studio version.
 
 Luckily, there are a ton to choose from, starting with its very first live performance, from St. Paul in 1984 (which extends Clarence's solo too long–almost a false ending):
 

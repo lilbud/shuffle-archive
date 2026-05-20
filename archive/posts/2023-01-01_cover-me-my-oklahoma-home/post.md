@@ -1,4 +1,4 @@
-Of the folks songs Bruce recorded for his 2006 album [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/), "My Oklahoma Home" was one of the most contemporary–and yet somehow, the least familiar.
+Of the folks songs Bruce recorded for his 2006 album [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md), "My Oklahoma Home" was one of the most contemporary–and yet somehow, the least familiar.
 
 Agnes "Sis" Cunningham wrote it with her brother Bill. The Cunninghams were born and raised in rural Oklahoma, where Sis worked both as a labor organizer and musician. Among the groups she performed with was Pete Seeger's troupe, The Almanac Singers, leading to a lifelong friendship and business partnership in *Broadside Magazine*, a publishing haven for aspiring socially conscious folk singers. Seeger published his work in *Broadside*, as did Bob Dylan, Janis Ian, and others.
 

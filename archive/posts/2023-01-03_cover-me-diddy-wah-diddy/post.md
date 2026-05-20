@@ -16,7 +16,7 @@ Bo Diddley's 1956 single didn't become the smash hit it should have, but it insp
 
 Despite never becoming a big hit, "Diddy Wah Diddy" remained a favorite cover candidate for rock bands nationwide, including Joe Grushecky and The Houserockers.
 
-Bruce started making frequent on-stage appearances with Joe and The Houserockers in the mid-nineties [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) era, and "Diddy Wah Diddy" was a fun and frequent cover in their set lists. And given the two rockers' East Coast upbringing, it's not surprising that their version owed a lot to The Remains.
+Bruce started making frequent on-stage appearances with Joe and The Houserockers in the mid-nineties [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) era, and "Diddy Wah Diddy" was a fun and frequent cover in their set lists. And given the two rockers' East Coast upbringing, it's not surprising that their version owed a lot to The Remains.
 
 [Watch Video Highlight](https://videopress.com/embed/ONTjWGNN)
 

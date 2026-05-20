@@ -2,7 +2,7 @@ Every once in a while, Bruce throws a curve ball.
 
 When *The Ties That Bind: The River Collection* was announced, most of the tracks on the bonus disc of outtakes were familiar to long-time fans–at least by title.
 
-"Little White Lies" was listed as the third track, and I assumed it would be the same song as "White Lies (Don't Do It to Me)" that had been circulating on bootlegs for almost 20 years. I remember thinking that it was an odd choice for inclusion, since lyrically it's the same song as "[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" (and for that matter, "[Mary Lou](https://estreetshuffle.com/index.php/2019/04/03/roll-of-the-dice-mary-lou/)"), so I chalked it up to a curiosity, an example of how Bruce writes lyrics and music independently.
+"Little White Lies" was listed as the third track, and I assumed it would be the same song as "White Lies (Don't Do It to Me)" that had been circulating on bootlegs for almost 20 years. I remember thinking that it was an odd choice for inclusion, since lyrically it's the same song as "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" (and for that matter, "[Mary Lou](../2019-04-03_roll-of-the-dice-mary-lou/post.md)"), so I chalked it up to a curiosity, an example of how Bruce writes lyrics and music independently.
 
 Here's the original bootleg version with the "Be True" lyrics–worth a listen if you've never heard it:
 
@@ -68,7 +68,7 @@ vs.
 > *Tonight our bed is cold, I'm lost in the darkness of our love*
 > *God have mercy on the man who doubts what he's sure of*
 
-Coincidence? Perhaps. But I suspect Bruce was haunted for years by a fear of wearing masks in relationships. That theme stopped after the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)album. "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)" sheds some pretty good insight as to why.
+Coincidence? Perhaps. But I suspect Bruce was haunted for years by a fear of wearing masks in relationships. That theme stopped after the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)album. "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)" sheds some pretty good insight as to why.
 
 (Bonus: Here's an early home demo of Bruce working out the melody for "Little White Lies," sometime in early 1979.)
 

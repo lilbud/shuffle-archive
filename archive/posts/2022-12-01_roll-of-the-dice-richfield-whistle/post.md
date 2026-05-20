@@ -1,4 +1,4 @@
-Earlier this week, we took a listen to Bruce Springsteen's unreleased *Nebraska*-era work-in-progress, "[James Lincoln Deere](https://estreetshuffle.com/index.php/2022/11/29/roll-of-the-dice-james-lincoln-deere/)."
+Earlier this week, we took a listen to Bruce Springsteen's unreleased *Nebraska*-era work-in-progress, "[James Lincoln Deere](../2022-11-29_roll-of-the-dice-james-lincoln-deere/post.md)."
 
 Springsteen's 1982 acoustic home demo featured a protagonist driven to cold-blooded murder by unemployment and a brutal economy. "James Lincoln Deere" was too heavy-handed to earn an official release, but Bruce wasn't ready to give up on his protagonist just yet.
 
@@ -47,7 +47,7 @@ James Lucas almost immediately starts making moral compromises, rationalizing an
 > *Mr. Wills, he was a rich man*<br>
 > *He'd been a rich man all his life*<br>
 
-Jimmy knows he's doing the wrong thing, but he doesn't recognize he's on a slippery slope. One moral compromise leads to another, a classic noir theme that Bruce later employed in songs like "[The Big Muddy](https://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/)" and "[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)."
+Jimmy knows he's doing the wrong thing, but he doesn't recognize he's on a slippery slope. One moral compromise leads to another, a classic noir theme that Bruce later employed in songs like "[The Big Muddy](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md)" and "[The Line](../2018-08-08_roll-of-the-dice-the-line/post.md)."
 
 Inevitably, Jimmy is found out. His boss confronts him but has mercy on him, simply firing him when he also could have had him arrested.
 
@@ -71,7 +71,7 @@ Now jobless, Jimmy and Pat argue, and Jimmy drives off with only a bottle and te
 > *I turned and pulled into that parking lot*<br>
 > *Got out but I let my motor run*<br>
 
-Over the course of the song, Bruce has steadily and deliberately planted seeds: we know that Jimmy is an ex-con, we know he resorted to theft even after his parole, we know he's jobless, desperate, angry, and probably under the influence. At this point, it seems we are clearly in "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)" territory.
+Over the course of the song, Bruce has steadily and deliberately planted seeds: we know that Jimmy is an ex-con, we know he resorted to theft even after his parole, we know he's jobless, desperate, angry, and probably under the influence. At this point, it seems we are clearly in "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" territory.
 
 But here comes the curveball.
 
@@ -97,9 +97,9 @@ Whatever the reason, Jimmy turns away from temptation and returns home.
 > *I felt her arms around me*<br>
 > *She said, "Jimmy, I'm so glad you're home."*<br>
 
-Jimmy made the right call, but it wasn't an easy one. He and Pat are still in dire straits, and he knows he'll be called upon to make that same decision day after day after day. Bruce will return to this theme–the eternal struggle with one's inner demons–again and again, in songs like "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)" and "[Straight Time](https://estreetshuffle.com/index.php/2022/12/05/roll-of-the-dice-straight-time/)."
+Jimmy made the right call, but it wasn't an easy one. He and Pat are still in dire straits, and he knows he'll be called upon to make that same decision day after day after day. Bruce will return to this theme–the eternal struggle with one's inner demons–again and again, in songs like "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)" and "[Straight Time](../2022-12-05_roll-of-the-dice-straight-time/post.md)."
 
-Jimmy goes to bed, but lays awake in the night thinking, like the protagonist of "[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)." As he drifts off finally to sleep, he hears the prison whistle–still fresh in his memory–warning him that Richfield still waits for him should he succumb to temptation.
+Jimmy goes to bed, but lays awake in the night thinking, like the protagonist of "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)." As he drifts off finally to sleep, he hears the prison whistle–still fresh in his memory–warning him that Richfield still waits for him should he succumb to temptation.
 
 > *Richfield Prison stands on a high hill*<br>
 > *Where the county line runs out*<br>

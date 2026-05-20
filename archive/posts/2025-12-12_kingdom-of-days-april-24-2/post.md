@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-1-scaled.jpg.webp) **1976:** At their show at Appalachian State University in Boone, North Carolina, Bruce and the E Street Band perform “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)” for the last time for 23 years.
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-1-scaled.jpg.webp) **1976:** At their show at Appalachian State University in Boone, North Carolina, Bruce and the E Street Band perform “[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)” for the last time for 23 years.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/boonereview.jpg.webp)
 

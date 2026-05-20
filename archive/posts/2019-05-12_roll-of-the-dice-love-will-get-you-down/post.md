@@ -23,7 +23,7 @@ Takes #3 and #4 are just snippets. They don't shed much additional light, but Ta
 
 [Watch on Youtube: Bruce Springsteen Love Will Get You Down #4](https://www.youtube.com/watch?v=ZWdPFX76h1A)
 
-What happened to "Love Will Get You Down" after these home recordings is murky. It's believed that the song continued to evolve and was recorded (or at least rehearsed) with the band later in the spring of 1979, but the song appears to have changed enough that the title morphed along with it–and there are a couple of candidates from surviving records, including "Love Will Be the Name" and (oddly) "Love Won't Let You Down" (which has no relation to "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)").
+What happened to "Love Will Get You Down" after these home recordings is murky. It's believed that the song continued to evolve and was recorded (or at least rehearsed) with the band later in the spring of 1979, but the song appears to have changed enough that the title morphed along with it–and there are a couple of candidates from surviving records, including "Love Will Be the Name" and (oddly) "Love Won't Let You Down" (which has no relation to "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)").
 
 In any event, that later recording does not circulate broadly, so for now, the trail ends here.
 

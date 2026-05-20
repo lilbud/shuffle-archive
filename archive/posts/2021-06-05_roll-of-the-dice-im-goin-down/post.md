@@ -1,10 +1,10 @@
-I like to think of "I'm Goin' Down" as the inevitable bookend to "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)," just desserts for the earlier song's creepy narrator.
+I like to think of "I'm Goin' Down" as the inevitable bookend to "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," just desserts for the earlier song's creepy narrator.
 
 [Watch on Youtube: I'm Goin' Down](https://www.youtube.com/watch?v=FDePd-mHOL4)
 
-The sixth of an astonishing seven consecutive Top Ten singles from *Born in the U.S.A.*, "I'm Goin' Down" is tied with the album's [title track](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/) for worst performing on the Billboard Hot 100, peaking "only" at #9. (I still can't wrap my head around how "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" fared so well by comparison.)
+The sixth of an astonishing seven consecutive Top Ten singles from *Born in the U.S.A.*, "I'm Goin' Down" is tied with the album's [title track](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md) for worst performing on the Billboard Hot 100, peaking "only" at #9. (I still can't wrap my head around how "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" fared so well by comparison.)
 
-"I'm Goin' Down" is also arguably the least substantial track on the album, with only "[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)" rivalling it for comic relief value. But If that sounds like I'm being dismissive, I'm not–"I'm Goin' Down" is a contender for Bruce's best pop song, and one of the E Street Band's finest (or at least funnest) moments on record.
+"I'm Goin' Down" is also arguably the least substantial track on the album, with only "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" rivalling it for comic relief value. But If that sounds like I'm being dismissive, I'm not–"I'm Goin' Down" is a contender for Bruce's best pop song, and one of the E Street Band's finest (or at least funnest) moments on record.
 
 The boys sound like they're having a blast, and even without visuals, their energy and playfulness are infectious–especially during the instrumental bridge and wordless outro, where Bruce and the band vamp like their lives depend on it. (And that's just in the released version–if you haven't heard the unreleased extended version, you're in for a delight at the end of this post.)
 

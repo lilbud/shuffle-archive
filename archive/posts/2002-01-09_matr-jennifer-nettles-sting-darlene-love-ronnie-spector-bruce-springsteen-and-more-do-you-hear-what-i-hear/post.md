@@ -37,7 +37,7 @@ The lyricist who once swore he'd never write a Christmas song suddenly found him
 
 "Do You Hear What I Hear" was still popular during the 2016 holiday season. when Bruce Springsteen made one of his many appearances at Sting and Trudie Styler's annual-ish benefit concert for The Rainforest Foundation.
 
-That year's show had a holiday theme, and Bruce neither surprised nor disappointed with his popular versions of "[Santa Claus Is Comin' To Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" and "[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)."
+That year's show had a holiday theme, and Bruce neither surprised nor disappointed with his popular versions of "[Santa Claus Is Comin' To Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" and "[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)."
 
 But if Bruce's set list choices were predictable, the encores weren't: Bruce joined the night's talent line-up (including Sting, Jennifer Nettles, Ronnie Spector, Darlene Love, James Taylor, and Idina Menzel) on stage for two traditional Christmas carols. Well, make that [one traditional carol](https://estreetshuffle.com/index.php/2019/12/24/matr-sting-bruce-springsteen-and-friends-joy-to-the-world/) and one misinterpreted one: Bruce's one and only public performance of "Do You Hear What I Hear."
 

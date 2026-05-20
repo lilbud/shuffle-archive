@@ -1,8 +1,8 @@
-In the early months of 1980, Bruce was still writing and tinkering with material for his upcoming album, *The River.* He often retreated into his home studio in Holmdel, New Jersey, where alone with his guitar and tape recorder, he'd work and re-work lyrics, test different arrangements, and occasionally even [graft lyrics onto completely different melodies](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/).
+In the early months of 1980, Bruce was still writing and tinkering with material for his upcoming album, *The River.* He often retreated into his home studio in Holmdel, New Jersey, where alone with his guitar and tape recorder, he'd work and re-work lyrics, test different arrangements, and occasionally even [graft lyrics onto completely different melodies](../2018-11-04_roll-of-the-dice-jackson-cage/post.md).
 
-"[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" was written and finessed during this time, as was "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)." A song called "[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)" wouldn't see the light of day until it was officially released in the album's anniversary box set in 2015; other songs like "[Everybody Wants My Baby](https://estreetshuffle.com/index.php/2018/11/15/roll-of-the-dice-everybody-wants-my-baby/)" and "[You Gotta Be Kind](https://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/)" were relatively far along but remain unreleased to this day.
+"[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" was written and finessed during this time, as was "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)." A song called "[Whitetown](../2018-04-19_roll-of-the-dice-whitetown/post.md)" wouldn't see the light of day until it was officially released in the album's anniversary box set in 2015; other songs like "[Everybody Wants My Baby](../2018-11-15_roll-of-the-dice-everybody-wants-my-baby/post.md)" and "[You Gotta Be Kind](../2018-02-23_roll-of-the-dice-you-gotta-be-kind/post.md)" were relatively far along but remain unreleased to this day.
 
-And then there was "Stockton Boys" (and its twin sister, "[Stockton Girls](https://estreetshuffle.com/index.php/2020/02/27/roll-of-the-dice-stockton-girls/)," which we'll discuss another day). The most underdeveloped of the songs Bruce grappled with during these sessions, "Stockton Boys" was discarded somewhere along the way to *The River* (although some of its lyrics would show up a few years down the road on *Born in the U.S.A.).*
+And then there was "Stockton Boys" (and its twin sister, "[Stockton Girls](../2020-02-27_roll-of-the-dice-stockton-girls/post.md)," which we'll discuss another day). The most underdeveloped of the songs Bruce grappled with during these sessions, "Stockton Boys" was discarded somewhere along the way to *The River* (although some of its lyrics would show up a few years down the road on *Born in the U.S.A.).*
 
 However, not just one but *four* home-recorded outtakes of a very work-in-progress "Stockton Boys" escaped into the wild, and it's fascinating not just to hear this unreleased song, but also to listen in on Bruce's songwriting process. Let's eavesdrop…
 
@@ -13,7 +13,7 @@ As I mentioned, the song isn't fully developed. A lot of the lyrics are bluffed,
 > *They wear it in their eyes, they wear it on their shirts*
 > *They come down here looking to get hurt*
 
-…because [they'd show up in somewhat altered form](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/) a few years later:
+…because [they'd show up in somewhat altered form](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md) a few years later:
 
 > *Friday night's pay night guys fresh out of work*
 > *Talking about the weekend scrubbing off the dirt*

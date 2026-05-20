@@ -34,7 +34,7 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2003-08-13.png.webp)
 
-**2005:[https://estreetshuffle.com/index.php/2018/08/13/where-the-band-was-vancouver-august-13-2005/](https://estreetshuffle.com/index.php/2018/08/13/where-the-band-was-vancouver-august-13-2005/)**Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour premiering "Because the Night" and giving "4th of July, Asbury Park (Sandy)" a rare outing.<br>
+**2005:[../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md)**Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour premiering "Because the Night" and giving "4th of July, Asbury Park (Sandy)" a rare outing.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PxtqtXjKuSo)
 

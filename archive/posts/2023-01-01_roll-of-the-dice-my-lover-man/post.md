@@ -6,7 +6,7 @@ Hang on–that's not right, either.
 
 I've heard both of those theories floated several times, and more besides that.
 
-I don't believe any of them, but more importantly: why must fans search for an explanation as to why Bruce wrote this song? It's not as if Bruce hasn't written from the female perspective before: "[Devil's Arcade](https://estreetshuffle.com/index.php/2021/05/16/roll-of-the-dice-devils-arcade/)" is unmistakably sung in the voice of a woman, as is "[Car Wash](https://estreetshuffle.com/index.php/2020/01/04/roll-of-the-dice-car-wash/)."
+I don't believe any of them, but more importantly: why must fans search for an explanation as to why Bruce wrote this song? It's not as if Bruce hasn't written from the female perspective before: "[Devil's Arcade](../2021-05-16_roll-of-the-dice-devils-arcade/post.md)" is unmistakably sung in the voice of a woman, as is "[Car Wash](../2020-01-04_roll-of-the-dice-car-wash/post.md)."
 
 I suspect it's the outright romantic nature of the song that makes some fans uncomfortable with it, as well as the explicit title.
 
@@ -20,7 +20,7 @@ Sound familiar? Musically, "My Lover Man" is *darn* close to "[Brilliant Disguis
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
-We don't know exactly when Bruce wrote "My Lover Man," but we do know that he recorded it in late 1990, three years after the release of *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*, which featured "Brilliant Disguise" as a centerpiece of an album about troubled relationships. That was Bruce's last album before recording "My Lover Man," and it doesn't seem a stretch to wonder if those songs were still top of mind for him.
+We don't know exactly when Bruce wrote "My Lover Man," but we do know that he recorded it in late 1990, three years after the release of *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*, which featured "Brilliant Disguise" as a centerpiece of an album about troubled relationships. That was Bruce's last album before recording "My Lover Man," and it doesn't seem a stretch to wonder if those songs were still top of mind for him.
 
 Bruce had also been going to therapy (as he disclosed and discussed publicly mere weeks before recording "My Lover Man") and had recently become a father, and over the next year-and-a-half he would re-marry and generate an album's worth of new material that seemed lighter, more self-accepting and self-forgiving than anything he'd written previously.
 

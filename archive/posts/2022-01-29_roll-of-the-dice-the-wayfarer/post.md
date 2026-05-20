@@ -1,6 +1,6 @@
 If we were to distill the theme of *Western Stars* into a single word, it would be: *forward*.
 
-Bruce Springsteen's nineteenth studio album features a collection of short stories and character studies, all centering around late-in-life characters realizing that time only ever moves forward. Some embrace it ("[Hitch Hikin'](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)"), some make peace with it ("[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)"), and some look longingly backward before inching ahead ("[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)"). But none of us can stop time in our tracks, no matter how much we might wish to.
+Bruce Springsteen's nineteenth studio album features a collection of short stories and character studies, all centering around late-in-life characters realizing that time only ever moves forward. Some embrace it ("[Hitch Hikin'](../2021-05-22_roll-of-the-dice-hitch-hikin/post.md)"), some make peace with it ("[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)"), and some look longingly backward before inching ahead ("[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)"). But none of us can stop time in our tracks, no matter how much we might wish to.
 
 The album is linked by more than just a common theme, though. There's also a narrative arc at play. The album opens with two songs about restless wanderers and ends with two songs about learning to live in the here and now.
 
@@ -38,7 +38,7 @@ He may be a wayfarer, but we can tell he still feels the tug of a far-off home, 
 > *When everyone's asleep and the midnight bells sound*<br>
 > *My wheels are hissing up the highway, spinning 'round and 'round*<br>
 
-There's a nice lyrical link in the first couplet to "[Tucson Train](https://estreetshuffle.com/index.php/2020/05/25/roll-of-the-dice-tucson-train/)," the song that immediately follows "The Wayfarer" on the album. *Then rain comes falling/tired of the pills and the rain.* Just like "Hitch Hikin'" and "The Wayfarer" feature itinerant narrators, "The Wayfarer" and "Tucson Train" feature narrators who leave when life gets hard–but where the protagonist of "Tucson Train" does the work to reinvent himself and rekindles is relationship, our wayfarer just keeps on leaving.
+There's a nice lyrical link in the first couplet to "[Tucson Train](../2020-05-25_roll-of-the-dice-tucson-train/post.md)," the song that immediately follows "The Wayfarer" on the album. *Then rain comes falling/tired of the pills and the rain.* Just like "Hitch Hikin'" and "The Wayfarer" feature itinerant narrators, "The Wayfarer" and "Tucson Train" feature narrators who leave when life gets hard–but where the protagonist of "Tucson Train" does the work to reinvent himself and rekindles is relationship, our wayfarer just keeps on leaving.
 
 He can leave, but he can't escape. He may have left her behind, but his love haunts his thoughts. As he gives into the tide of time and memory, the song opens up. walls come down, and emotions come flooding in.
 

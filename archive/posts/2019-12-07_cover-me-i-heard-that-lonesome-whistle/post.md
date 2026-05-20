@@ -1,6 +1,6 @@
 I've featured Bruce's covers of Hank Williams' songs a few times over the past couple of years.
 
-Bruce has long and often discussed his fondness for Williams' music, and he's covered several of his songs. However, those performances tend to be few and far between, often not even during an official show but rather at pre-show soundchecks. (See "[Jambalaya (On the Bayou)](https://estreetshuffle.com/index.php/2019/09/14/cover-me-jambalaya-on-the-bayou/)" and "[I'm So Lonesome I Could Cry](https://estreetshuffle.com/index.php/2018/11/01/cover-me-im-so-lonesome-i-could-cry/)" as examples.)
+Bruce has long and often discussed his fondness for Williams' music, and he's covered several of his songs. However, those performances tend to be few and far between, often not even during an official show but rather at pre-show soundchecks. (See "[Jambalaya (On the Bayou)](https://estreetshuffle.com/index.php/2019/09/14/cover-me-jambalaya-on-the-bayou/)" and "[I'm So Lonesome I Could Cry](../2018-11-01_cover-me-im-so-lonesome-i-could-cry/post.md)" as examples.)
 
 But here's one that Bruce actually did perform at an E Street Band show.
 

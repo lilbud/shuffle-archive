@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1975 and 2024*<br>
 
-**1972:** The Bruce Springsteen Band opens for Mitch Ryder (of "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike's sister Suzi will go on to become a well-known rocker (and minor TV star), [someday covering](https://estreetshuffle.com/index.php/2019/03/16/cover-me-suzi-quatro-born-to-run/) Bruce's signature song, "Born to Run."<br>
+**1972:** The Bruce Springsteen Band opens for Mitch Ryder (of "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike's sister Suzi will go on to become a well-known rocker (and minor TV star), [someday covering](../2019-03-16_cover-me-suzi-quatro-born-to-run/post.md) Bruce's signature song, "Born to Run."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/47944265348_83c10b3f14_o.jpg.webp)
 
@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1988:** Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" and "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)."<br>
+**1988:** Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iEJOIMJg)
 
@@ -32,13 +32,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_-scaled.jpg.webp)
 
-**1998:** *Where Have All the Flowers Gone*, a Pete Seeger tribute album, is released, featuring Bruce's cover of "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)," the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.<br>
+**1998:** *Where Have All the Flowers Gone*, a Pete Seeger tribute album, is released, featuring Bruce's cover of "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)," the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.<br>
 
 [Watch on Youtube: Bruce Springsteen - "We Shall Overcome" (original 1998 version)](https://www.youtube.com/watch?v=026oa4oMG5k)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1998-03-17.png.webp)
 
-**2008:** Richard Davis, bassist on the studio recording of "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)," guest-stars when Bruce and the E Street Band play that song at the Bradley Center in Milwaukee during the Magic Tour. "[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)" tour premieres tonight as well.<br>
+**2008:** Richard Davis, bassist on the studio recording of "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)," guest-stars when Bruce and the E Street Band play that song at the Bradley Center in Milwaukee during the Magic Tour. "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" tour premieres tonight as well.<br>
 
 [Watch on Youtube: Springsteen Meeting Across The River FULL Milwaukee 3/17/08](https://www.youtube.com/watch?v=2gnWNO0l-y4)
 
@@ -50,7 +50,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2012-03-17-1.jpg.webp)
 
-**2016:** At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres "[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)" and "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" for St. Patrick's Day. For highlights, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/03/17/where-the-band-was-los-angeles-march-17-2016/) for this show.<br>
+**2016:** At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)" and "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" for St. Patrick's Day. For highlights, see my [*Where the Band Was* report](../2018-03-17_where-the-band-was-los-angeles-march-17-2016/post.md) for this show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/vlByZSBh)
 

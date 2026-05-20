@@ -6,13 +6,13 @@ Hiatt's article dates the origin of "Rainmaker" to "a few years before Trump too
 
 I lean more toward Brucebase's assessment than Hiatt's, and what's more: I'm not convinced that the official track itself doesn't date back more than a decade. Bruce's vocals sound *very* Magic-era, as does the production and lyrical theme.
 
-There's no evidence of "Rainmaker" being recorded during the [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) sessions captured on Bruce's 2020 documentary film, and Toby Scott's credited involvement suggests that at least part of the track dates back prior to the 2019 E Street Band recording sessions.
+There's no evidence of "Rainmaker" being recorded during the [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md) sessions captured on Bruce's 2020 documentary film, and Toby Scott's credited involvement suggests that at least part of the track dates back prior to the 2019 E Street Band recording sessions.
 
 I have a strong suspicion that "Rainmaker"–not just the song, but much if not most of the actual track–is actually a bona fide *Magic* outtake.
 
 Which raises the question: why include it on *Letter to You* at all?
 
-"Rainmaker" isn't the oldest track on its album by far, but at least "[If I Was the Priest,](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" "[Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)," and "[Song for Orphans](https://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)" fit the album's theme of looking back over a long musical career. Even "[One Minute You're Here](https://estreetshuffle.com/index.php/2021/05/30/roll-of-the-dice-one-minute-youre-here/)," which also likely dates back much further than the *Letter to You* sessions, fits the album's theme.
+"Rainmaker" isn't the oldest track on its album by far, but at least "[If I Was the Priest,](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)" "[Janey Needs a Shooter](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md)," and "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)" fit the album's theme of looking back over a long musical career. Even "[One Minute You're Here](../2021-05-30_roll-of-the-dice-one-minute-youre-here/post.md)," which also likely dates back much further than the *Letter to You* sessions, fits the album's theme.
 
 "Rainmaker," though, sticks out like a sore thumb. In sound, style and theme, it's like nothing else on *Letter to You*, and whenever I listen to the album, this track jolts me out of my reverie only to return me to it immediately after.
 
@@ -92,7 +92,7 @@ It's the fifth verse that's the most devastating, however.
 > *Some come to make damn sure, my friend*<br>
 > *This mean season's got nothing to do with them*<br>
 
-The deeply empathetic first couplet reminds us of "[American Land,](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" earning our sympathy for the rainmaker's followers who are motivated by trust, hope, and the promise of a chance–just a chance–to lift themselves out of their circumstances.
+The deeply empathetic first couplet reminds us of "[American Land,](../2020-01-10_roll-of-the-dice-american-land/post.md)" earning our sympathy for the rainmaker's followers who are motivated by trust, hope, and the promise of a chance–just a chance–to lift themselves out of their circumstances.
 
 But the second couplet is the damning one: here, Bruce spotlights the enablers, the ones who support the rainmaker just so that they don't end up on his bad side. Better to be on the side of power than against it.
 

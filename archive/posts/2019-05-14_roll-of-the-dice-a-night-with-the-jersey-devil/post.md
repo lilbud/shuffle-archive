@@ -8,15 +8,15 @@ A Night with the Jersey Devil" first appeared as a downloadable audio and stream
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/05/anightwiththejerseydevil_note.gif)
 
-When the album was first announced, Bruce's Halloween surprise was listed as a bonus track, similar to "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)." But by the time the album was released, "A Night with the Jersey Devil" was nowhere to be seen. Why did Bruce drop it? As far as I know, no one's ever asked him, and he's never commented.
+When the album was first announced, Bruce's Halloween surprise was listed as a bonus track, similar to "[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)." But by the time the album was released, "A Night with the Jersey Devil" was nowhere to be seen. Why did Bruce drop it? As far as I know, no one's ever asked him, and he's never commented.
 
 But when fans who ordered the deluxe edition of the album played the bonus DVD that came with it, they quickly discovered that the Thom Zimny-directed video for "A Night with the Jersey Devil" was included.
 
-Bruce apparently wasn't satisfied with that limited exposure, though: in April 2009, he released the song as the B-side to the single for "[What Love Can Do](https://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/)."
+Bruce apparently wasn't satisfied with that limited exposure, though: in April 2009, he released the song as the B-side to the single for "[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)."
 
 So let's stop and tally: this song that Bruce couldn't commit to releasing on an album nevertheless received an official release on Bruce's web site, his Youtube channel, a DVD, and a single. That's a lot of weight to put behind an outtake–which might make sense if it was a great song. But "A Night with the Jersey Devil" is a bit… odd.
 
-It starts out as a creepy retelling of a local myth, almost a Halloween version of "[Nebraska.](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" Midway through, we suspect something else is at play, and by the end, we realize that Bruce has pulled a fast one on us. "A Night with the Jersey Devil" is ultimately a good-natured prank–one stop short of a novelty song, and that's probably what prompted its album revocation at the last minute.
+It starts out as a creepy retelling of a local myth, almost a Halloween version of "[Nebraska.](../2018-04-16_roll-of-the-dice-nebraska/post.md)" Midway through, we suspect something else is at play, and by the end, we realize that Bruce has pulled a fast one on us. "A Night with the Jersey Devil" is ultimately a good-natured prank–one stop short of a novelty song, and that's probably what prompted its album revocation at the last minute.
 
 Let's take a listen and go inside the song, but let's start with a quick history lesson. When I was a kid, I used to go canoeing with my friends in the New Jersey Pine Barrens. We all knew the story of the Jersey Devil, and the two-minute History Channel clip below sums it up pretty well. Give it a watch, and then we'll move on.
 

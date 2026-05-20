@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *This is Part Two of guest blogger Dan French's incredible E Street adventure from 1981. If you haven't already, be sure to read* *[Part One](https://estreetshuffle.com/index.php/2021/04/14/where-the-band-was-frankfurt-april-141981-dans-story/)* *before continuing on.*<br>
+***Editor's Note:*** *This is Part Two of guest blogger Dan French's incredible E Street adventure from 1981. If you haven't already, be sure to read* *[Part One](../2021-04-14_where-the-band-was-frankfurt-april-141981-dans-story/post.md)* *before continuing on.*<br>
 
 *Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant* *[Facebook community](https://www.facebook.com/groups/290908270798)**.*
 
@@ -12,7 +12,7 @@ We took a train back to Rena's place in Mannheim, and I met Ilona and Hubert, he
 
 So Hubert drove Ilona, Rena and I the 200km to Munich that evening! We got to the Olympiahalle just before 8 o'clock, and found Glen – but only three tickets and passes. A misunderstanding: Glen found another set, and we went in.
 
-There was quite a different feel from the Frankfurt atmosphere – moody. Early into the show the crowd surged into a space near the front and Bruce had to stop before introducing "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" and ask people to go back to their seats. Rena and I moved from our places in the guest rows on the side down into the stalls where there was room to stand and dance.
+There was quite a different feel from the Frankfurt atmosphere – moody. Early into the show the crowd surged into a space near the front and Bruce had to stop before introducing "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)" and ask people to go back to their seats. Rena and I moved from our places in the guest rows on the side down into the stalls where there was room to stand and dance.
 
 [Watch Video Highlight](https://videopress.com/embed/IahVMWyt)
 

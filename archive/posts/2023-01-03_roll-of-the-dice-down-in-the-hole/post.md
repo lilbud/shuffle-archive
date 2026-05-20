@@ -10,7 +10,7 @@ For months, they breathed the ash and smoke and sifted through the smoldering de
 
 Bruce Springsteen undoubtedly read that story, or some of the many others just like it, and he wrote a song about it for his upcoming album *The Rising*.
 
-"Down in the Hole" never made the album, though, because it was too thematically similar to another track he'd written and recorded. "Sometimes you end up with a choice between two things that you like a lot," Bruce told *Rolling Stone* interviewer Andy Greene, "and I think I had maybe that and ‘[Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/).' *The Rising* had fifteen songs on it and it felt long enough."
+"Down in the Hole" never made the album, though, because it was too thematically similar to another track he'd written and recorded. "Sometimes you end up with a choice between two things that you like a lot," Bruce told *Rolling Stone* interviewer Andy Greene, "and I think I had maybe that and ‘[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md).' *The Rising* had fifteen songs on it and it felt long enough."
 
 So "Down in the Hole" became one of only two known outtakes from *The Rising*, unknown and unreferenced until Bruce released it without fanfare on his 2014 studio album, *High Hopes*. "That's basically as it was written and mixed at that time by Brendan [O'Brien]." Bruce explained to Greene. "That's sort of very original."
 

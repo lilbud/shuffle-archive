@@ -4,7 +4,7 @@ Bruce has cited The Who as a major influence on several occasions, most notably 
 
 [https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3](https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3)
 
-After Bruce presented the award, he joined Pete and Roger Daltrey on-stage for “[My Generation,](https://estreetshuffle.com/index.php/2018/03/27/matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/)” and at the end of the night, he came back out (along with Willie Nile and Billy Idol) for “Won’t Get Fooled Again.”
+After Bruce presented the award, he joined Pete and Roger Daltrey on-stage for “[My Generation,](../2018-03-27_matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/post.md)” and at the end of the night, he came back out (along with Willie Nile and Billy Idol) for “Won’t Get Fooled Again.”
 
 [Watch on Youtube: Billy Idol, Bruce Springsteen, Willie Nile & The Who - Won't Get Fooled Again](https://www.youtube.com/watch?v=W2bcUlm863U)
 

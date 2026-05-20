@@ -8,11 +8,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/mainpoint.jpg.webp)
 
-**1975:** Bruce and the E Street Band work on “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” at a *Born to Run* recording session at the Record Plant in New York City.<br>
+**1975:** Bruce and the E Street Band work on “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” at a *Born to Run* recording session at the Record Plant in New York City.<br>
 
-**1978:** Bruce joins Gary Busey and The Old Dog Band on stage for “[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)” at the Sundance Saloon in Calabasas, California.<br>
+**1978:** Bruce joins Gary Busey and The Old Dog Band on stage for “[Carol](../2022-02-17_cover-me-carol/post.md)” at the Sundance Saloon in Calabasas, California.<br>
 
-**1981:** Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena’s opening stand. Recordings of “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/),” “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/),” and “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” will eventually be released on *Live 1975-85*.<br>
+**1981:** Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena’s opening stand. Recordings of “[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md),” “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md),” and “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” will eventually be released on *Live 1975-85*.<br>
 
 [Watch on Youtube: Independence Day (Live at Meadowlands Arena, E. Rutherford, NJ - July 1981)](https://www.youtube.com/watch?v=GSPNMNO5Enc)
 
@@ -32,19 +32,19 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Sunday_Mirror_1985_07_07_3-scaled.jpg.webp)
 
-**1989:** *Nebraska* is certified platinum and [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) is certified double platinum by the Recording Industry Association of America.<br>
+**1989:** *Nebraska* is certified platinum and [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) is certified double platinum by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Nebraska](https://www.youtube.com/playlist?list=OLAK5uy_mP8T22kYL-tavvs0Mrd9UeFWZK2kUH1_Y)
 
 [Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/playlist?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
 
-**1992:** Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare “[With Every Wish.](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)”<br>
+**1992:** Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare “[With Every Wish.](../2018-01-18_roll-of-the-dice-with-every-wish/post.md)”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AzSUcXXM)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1992-0706.jpg.webp)
 
-**2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on “[Dirty Rotten Shame](https://estreetshuffle.com/index.php/2021/08/05/matr-garry-tallent-and-bruce-springsteen-dirty-rotten-shame/),” and later joining Southside Johnny & The Asbury Jukes for seven songs.<br>
+**2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on “[Dirty Rotten Shame](../2021-08-05_matr-garry-tallent-and-bruce-springsteen-dirty-rotten-shame/post.md),” and later joining Southside Johnny & The Asbury Jukes for seven songs.<br>
 
 [Watch on Youtube: Bruce Springsteen Gives Surprise Performance In Asbury Park](https://www.youtube.com/watch?v=mO5tTJvyA30)
 

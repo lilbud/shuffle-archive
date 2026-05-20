@@ -14,7 +14,7 @@ The religious theme of "Run, Shaker Life" also gave Bruce an early chance to hon
 
 [Watch on Youtube: Bruce Springsteen and Steel Mill: Run Shaker Life 1971 01 18, D'Scene, South Amboy, NJ](https://www.youtube.com/watch?v=k6WqhNPfJoY)
 
-"Run, Shaker Life" is the only Havens song Bruce has covered, but almost a quarter-century after Steel Mill's last performance of it, Havens returned the compliment by [covering one of Bruce's finest songs](https://estreetshuffle.com/index.php/2018/08/04/cover-me-richie-havens-streets-of-philadelphia/).
+"Run, Shaker Life" is the only Havens song Bruce has covered, but almost a quarter-century after Steel Mill's last performance of it, Havens returned the compliment by [covering one of Bruce's finest songs](../2018-08-04_cover-me-richie-havens-streets-of-philadelphia/post.md).
 
 **Run, Shaker Life**<br>
 **First performed:** November 20, 1969 (Richmond, VA)<br>

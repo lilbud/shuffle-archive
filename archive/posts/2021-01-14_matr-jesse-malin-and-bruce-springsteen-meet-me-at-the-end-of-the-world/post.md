@@ -18,7 +18,7 @@ This time, Jesse and his trusty road manager Bob Strauss (Jesse never goes *anyw
 
 What *wasn't* a lock was seeing him perform it with Bruce.
 
-Bruce took the stage for the first time that night to join Jesse on their 2007 duet, "[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)," surprising the audience only with his appearance, not with their song choice.
+Bruce took the stage for the first time that night to join Jesse on their 2007 duet, "[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md)," surprising the audience only with his appearance, not with their song choice.
 
 But Bruce stayed on stage for one more song after "Broken Radio," treating the audience to his first and only performance to date of "Meet Me at the End of the World."
 

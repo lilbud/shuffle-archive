@@ -1,4 +1,4 @@
-True fact: Bruce's first solo on [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)comes ninety seconds before the end of the album, when he finally allows himself a moment in the instrumental spotlight with his harmonica.
+True fact: Bruce's first solo on [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md)comes ninety seconds before the end of the album, when he finally allows himself a moment in the instrumental spotlight with his harmonica.
 
 [Watch on Youtube: Froggie Went a Courtin'](https://www.youtube.com/watch?v=hmVDaczx9nU)
 

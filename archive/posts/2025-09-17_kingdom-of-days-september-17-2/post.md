@@ -16,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/The_Daily_Oklahoman_1975_09_17_20.jpg.webp)
 
-**1978:** Bruce and the E Street Band close out their three-night Darkness Tour stand at the Palladium in New York City, tour premiering "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)."<br>
+**1978:** Bruce and the E Street Band close out their three-night Darkness Tour stand at the Palladium in New York City, tour premiering "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2023/09/201-Meeting-Across-the-River.flac?_=1](https://estreetshuffle.com/wp-content/uploads/2023/09/201-Meeting-Across-the-River.flac?_=1)
 
@@ -26,7 +26,7 @@
 
 [1984-09-17 Philadelphia - Beneath The Floodline (soundcheck) by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F187932618&show_artwork=true&maxheight=1000&maxwidth=758)
 
-**1988:** The Human Rights Now! Tour stops at Montreal's Olympic Stadium, where Bruce makes a guest-appearance during Sting's set, duetting on "[Every Breath You Take](https://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/)," Bruce's first performance of that song.<br>
+**1988:** The Human Rights Now! Tour stops at Montreal's Olympic Stadium, where Bruce makes a guest-appearance during Sting's set, duetting on "[Every Breath You Take](../2019-04-07_matr-sting-and-bruce-springsteen-every-breath-you-take/post.md)," Bruce's first performance of that song.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/XS7nF1a4)
 

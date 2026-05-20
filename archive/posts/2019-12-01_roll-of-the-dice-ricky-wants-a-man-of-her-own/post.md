@@ -60,7 +60,7 @@ Max leads the band back in for the big finish, twisting the parental knife with 
 > *She wants a man of her*
 > *Ricky wants a man of her own*
 
-Bruce and the E Street Band recorded "Ricky" early on during the River sessions, and it would have been a great fit on the album along light, fun rockers like "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" and "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)." In fact, on the first cut of the album in late 1979, "Ricky" was the fourth track on what would have been Side One. But as time passed, the album grew from one disc to two, and as Bruce added tracks he also subtracted for balance and flow. Unfortunately, Ricky was one of the casualties.
+Bruce and the E Street Band recorded "Ricky" early on during the River sessions, and it would have been a great fit on the album along light, fun rockers like "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" and "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)." In fact, on the first cut of the album in late 1979, "Ricky" was the fourth track on what would have been Side One. But as time passed, the album grew from one disc to two, and as Bruce added tracks he also subtracted for balance and flow. Unfortunately, Ricky was one of the casualties.
 
 Bruce eventually did right by "Ricky," lifting her grounding and sending her off into the world on *Tracks* in 1998, and again on *The Ties That Bind: The River Collection* in 2015.
 

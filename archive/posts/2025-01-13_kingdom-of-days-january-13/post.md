@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen Inducts Creedence Clearwater Revival](https://www.youtube.com/watch?v=dgpMGNVf9lw)
 
-**2012:** Bruce films the video for "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)" in Asbury Park. Willie Nile and John Eddie join him for the shoot.<br>
+**2012:** Bruce films the video for "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)" in Asbury Park. Willie Nile and John Eddie join him for the shoot.<br>
 
 [Watch on Youtube: Bruce Springsteen - We Take Care of Our Own (Official Video)](https://www.youtube.com/watch?v=-x8zBzxCwsM)
 
@@ -34,4 +34,4 @@ After the interview, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/01/2019-01-13a.jpg.webp)
 
-**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. Today's session focuses heavily on covers from *Only the Strong Survive*, with multiple run-throughs of "Do I Love You (Indeed I Do)" (which will not be played during the tour), "[Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)" (which will be dropped after two weeks), and "Nightshift," which will remain a setlist tentpole throughout.<br>
+**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. Today's session focuses heavily on covers from *Only the Strong Survive*, with multiple run-throughs of "Do I Love You (Indeed I Do)" (which will not be played during the tour), "[Don't Play That Song](../2023-02-12_cover-me-dont-play-that-song-you-lied/post.md)" (which will be dropped after two weeks), and "Nightshift," which will remain a setlist tentpole throughout.<br>

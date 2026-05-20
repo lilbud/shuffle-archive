@@ -4,7 +4,7 @@ Catchy, yes. But still: *creepy*.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - love is a dangerous thing](https://www.youtube.com/watch?v=U-tR77HmqI0)
 
-The second in his yet-to-be completed "Love Is a Thing" trilogy (see "[Love Is a Crazy Thing](https://estreetshuffle.com/index.php/2020/08/12/roll-of-the-dice-love-is-a-crazy-thing/)" for the first), "Love Is a Dangerous Thing" was written during Bruce's *Nebraska* writing period that followed the River Tour. Although it sounds like it was clearly intended to be a full-band rocker, its morally questionable protagonist and dark, alienated theme are right at home with the batch of songs that Bruce would shortly include on his next album.
+The second in his yet-to-be completed "Love Is a Thing" trilogy (see "[Love Is a Crazy Thing](../2020-08-12_roll-of-the-dice-love-is-a-crazy-thing/post.md)" for the first), "Love Is a Dangerous Thing" was written during Bruce's *Nebraska* writing period that followed the River Tour. Although it sounds like it was clearly intended to be a full-band rocker, its morally questionable protagonist and dark, alienated theme are right at home with the batch of songs that Bruce would shortly include on his next album.
 
 Although most of Bruce's home demo escapees are fairly primitive, "Love Is a Dangerous Thing" is pretty far along. Bruce is obviously still tweaking his lyrics, and some lines are almost certainly bluffed (he has a habit of going into full-on mumble mode when he doesn't have a line developed yet), but there's no doubt as to what the song is about.
 
@@ -56,7 +56,7 @@ Bruce repeats the final verse of "Love Is a Dangerous Thing" twice, for good rea
 > *Don't trust strangers*<br>
 > *Love is a dangerous thing*<br>
 
-Two years later, that first line would show up in "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)," and the clever device in the second would show up more than a decade on in "[Highway 29.](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)" (The Samson and Delilah reference, of course, had already been featured in "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/).")
+Two years later, that first line would show up in "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)," and the clever device in the second would show up more than a decade on in "[Highway 29.](../2018-03-23_roll-of-the-dice-highway-29/post.md)" (The Samson and Delilah reference, of course, had already been featured in "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md).")
 
 So while "Love Is a Dangerous Thing" was a non-starter on its own, it was a step toward two great songs still to come.
 

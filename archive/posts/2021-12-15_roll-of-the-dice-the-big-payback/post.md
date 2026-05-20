@@ -1,8 +1,8 @@
 Talk about an obscurity: "The Big Payback" is one of the least-known officially released Springsteen songs.
 
-That's probably because it was an afterthought of sorts to *Nebraska*, recorded (along with "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)") in 1981, a few months after the rest of the songs that formed Bruce's first acoustic album.
+That's probably because it was an afterthought of sorts to *Nebraska*, recorded (along with "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)") in 1981, a few months after the rest of the songs that formed Bruce's first acoustic album.
 
-It didn't make the album, but Bruce released it in 1982 as the B-side to the the single for "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" (a great pairing, and yes *Nebraska* did spawn singles).
+It didn't make the album, but Bruce released it in 1982 as the B-side to the the single for "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" (a great pairing, and yes *Nebraska* did spawn singles).
 
 A decade later, Bruce released it as *another* B-side–this time for "Leap of Faith." Why? I have no idea.
 

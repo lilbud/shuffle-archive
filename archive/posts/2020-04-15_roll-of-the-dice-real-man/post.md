@@ -12,7 +12,7 @@ I cringe every time I watch that clip. Bruce tries *so* hard to sell the song, d
 
 As for the studio track, *Ultimate Classic Rock* called it "an embarrassment." *Rolling Stone* cited it as one of 22 Terrible Songs by Great Artists. When Backstreets.com wanted to punk readers on April Fools Day a couple of years back, they announced a promotional release of "the legendary ‘Real Man' single, initially planned as a U.S. follow-up to the ‘[57 Channels (And Nothin' On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)‘ single in 1992 but never released."
 
-That's how dismissively "Real Man" is considered by most critics and fans, to the degree it's considered at all. (As for me, I'd rank it third from the bottom, just above "[I'll Stand By You](https://estreetshuffle.com/index.php/2018/08/09/roll-of-the-dice-ill-stand-by-you-always/)" and "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/).")
+That's how dismissively "Real Man" is considered by most critics and fans, to the degree it's considered at all. (As for me, I'd rank it third from the bottom, just above "[I'll Stand By You](../2018-08-09_roll-of-the-dice-ill-stand-by-you-always/post.md)" and "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md).")
 
 But we must ask ourselves: does "Real Man" really deserve all that scorn? Let's do the right thing and take a close listen with an open mind:
 
@@ -32,7 +32,7 @@ As for the lyrics, well even Bruce felt the need to issue a disclaimer before pe
 > *All I need is your sweet kiss*
 > *To get me feeling like a real man*
 
-You know, one would think that Bruce would have learned after "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)" that pop culture references rarely age well.
+You know, one would think that Bruce would have learned after "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" that pop culture references rarely age well.
 
 > *Feeling like a real man*
 > *Well you can beat on your chest*
@@ -42,7 +42,7 @@ You know, one would think that Bruce would have learned after "[I'm a Rocker](ht
 
 As choruses go, this one's pretty, um, primitive–maybe a cut above "Ooh ooh I got a crush on you."
 
-Speaking of "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)," if our first exposure to the next two verses was on paper without the music playing, we might wonder if they were deleted scenes from it–they have virtually the same cadence and construction.
+Speaking of "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)," if our first exposure to the next two verses was on paper without the music playing, we might wonder if they were deleted scenes from it–they have virtually the same cadence and construction.
 
 > *Me and my girl Saturday night*
 > *It's a late movie on Channel Five*

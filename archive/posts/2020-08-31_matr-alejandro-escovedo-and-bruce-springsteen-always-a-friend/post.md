@@ -22,7 +22,7 @@ Their performance was so strong, in fact, that Bruce officially released it both
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Always A Friend (Live)](https://www.youtube.com/watch?v=peRuSFeOm9o)
 
-That was the first time Bruce and Alejandro performed "Always a Friend" together, but it wouldn't be the last. Two summers later, Alejandro played The Stone Pony in Asbury Park to support his *Street Songs of Love* album (featuring a vocal contribution from Bruce on "[Faith](https://estreetshuffle.com/index.php/2019/11/04/matr-alejandro-escovedo-and-bruce-springsteen-faith/)"), and Bruce joined him on stage for three songs, starting with "Always a Friend."
+That was the first time Bruce and Alejandro performed "Always a Friend" together, but it wouldn't be the last. Two summers later, Alejandro played The Stone Pony in Asbury Park to support his *Street Songs of Love* album (featuring a vocal contribution from Bruce on "[Faith](../2019-11-04_matr-alejandro-escovedo-and-bruce-springsteen-faith/post.md)"), and Bruce joined him on stage for three songs, starting with "Always a Friend."
 
 [Watch on Youtube: Alejandro Escovedo and Bruce Stone Pony July 23, 2010](https://www.youtube.com/watch?v=aKRtfceQSrM)
 

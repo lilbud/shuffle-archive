@@ -1,12 +1,12 @@
 Today's entry checks all the boxes: it's a Springsteen original, a cover, *and* a team-up!
 
-In the summer of 1995, Bruce retreated to his home studio to start recording a new album. We know the album he released later that year: *[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).* But that's not the album he set out to record.
+In the summer of 1995, Bruce retreated to his home studio to start recording a new album. We know the album he released later that year: *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).* But that's not the album he set out to record.
 
 At first, his new compositions trended more toward country and rockabilly, with an appropriate assemblage of backing musicians that included Garry, Danny, Soozie, and Marty Rifkin.
 
 Among the tracks recorded: a wry, country, she-done-me-wrong lament called "Tiger Rose."
 
-As the album took shape and shifted toward more serious social commentary, "Tiger Rose" was dropped, along with other humorous entries like "[I'm Turning into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)" and "[The Little Things That Count](https://estreetshuffle.com/index.php/2022/01/12/roll-of-the-dice-its-the-little-things-that-count/)." (What an album that would have been!)
+As the album took shape and shifted toward more serious social commentary, "Tiger Rose" was dropped, along with other humorous entries like "[I'm Turning into Elvis](../2020-03-05_roll-of-the-dice-im-turning-into-elvis/post.md)" and "[The Little Things That Count](../2022-01-12_roll-of-the-dice-its-the-little-things-that-count/post.md)." (What an album that would have been!)
 
 But Garry must have been particularly taken with "Tiger Rose," because when he produced an album for the late, great rockabilly icon Sonny Burgess later that year, he convinced Bruce to let Burgess record the song for his album.
 

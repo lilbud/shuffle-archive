@@ -31,7 +31,7 @@ The second verse is grittier and streetier, with imagery reminiscent of "[Hollyw
 ***French cream won't soften those boots, baby***<br>
 ***French kisses will not break your heart, oh!***<br>
 
-(Those last two lines would reappear slightly morphed in "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)" a few years later.)
+(Those last two lines would reappear slightly morphed in "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" a few years later.)
 
 In the final verse, the boy–no longer so little–joins the street scene and imagines himself as Santa Anna, the Napoleon of the West reduced to a cartoon as he "matches braces" with a Spanish lady, enjoying the night and spurning the Giants of Science to live in the moment.
 

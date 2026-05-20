@@ -2,7 +2,7 @@ Wow.
 
 Just… wow.
 
-I've been familiar with Bettye LaVette's incredibly powerful cover of Bruce's elegiac "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" since it was released on the outstanding *Song of America* triple CD collection back in 2007. (Thank you, Janet Reno!)
+I've been familiar with Bettye LaVette's incredibly powerful cover of Bruce's elegiac "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" since it was released on the outstanding *Song of America* triple CD collection back in 2007. (Thank you, Janet Reno!)
 
 But as I searched for the video to include with this post, I came across a live performance from December 2017, and like I said… wow.
 

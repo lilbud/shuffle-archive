@@ -18,7 +18,7 @@ to Pete Seeger's version that inspired Bruce's own.
 
 But even Pete claimed not to know the song's original lyrics and melody. Those appear to be lost to time, since the ballad first started circulating in the 1870s, a good half-century before it was ever recorded.
 
-(In a curious side note, Woody Guthrie took inspiration from "John Henry," lifting its melody for his own song, "[Tom Joad](https://estreetshuffle.com/index.php/2021/05/24/cover-me-tom-joad/)" — which means that in a roundabout way, "John Henry" also inspired Bruce to write "[The Ghost of Tom Joad.](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)")
+(In a curious side note, Woody Guthrie took inspiration from "John Henry," lifting its melody for his own song, "[Tom Joad](../2021-05-24_cover-me-tom-joad/post.md)" — which means that in a roundabout way, "John Henry" also inspired Bruce to write "[The Ghost of Tom Joad.](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)")
 
 Bruce took inspiration from Seeger's version, arranging "John Henry" as a celebratory heroic epic rather than a tragic work song.
 
@@ -36,7 +36,7 @@ But even if Bruce never performs "John Henry" again, we'll certainly be hearing 
 
 **John Henry**<br>
 **Recorded:** March 19, 2005<br>
-**Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) (2006)<br>
+**Released:** [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** November, 21, 2006 (Belfast, Northern Ireland)<br>
 

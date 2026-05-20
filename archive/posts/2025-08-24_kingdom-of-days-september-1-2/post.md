@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1969-0901.jpg.webp)
 
-**1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of "[It's Time to Go Home,](https://estreetshuffle.com/index.php/2018/05/31/roll-of-the-dice-its-time-to-go-home/)" covers of "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)," "[(Get Your Kicks On) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/)" and "[The Night They Drove Old Dixie Down](https://estreetshuffle.com/index.php/2020/06/13/cover-me-the-night-they-drove-old-dixie-down/)," the fun "[Dance Dance Dance](https://estreetshuffle.com/index.php/2018/06/22/roll-of-the-dice-dance-dance-dance/)" and more.<br>
+**1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of "[It's Time to Go Home,](../2018-05-31_roll-of-the-dice-its-time-to-go-home/post.md)" covers of "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)," "[(Get Your Kicks On) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/)" and "[The Night They Drove Old Dixie Down](../2020-06-13_cover-me-the-night-they-drove-old-dixie-down/post.md)," the fun "[Dance Dance Dance](../2018-06-22_roll-of-the-dice-dance-dance-dance/post.md)" and more.<br>
 
 [Watch on Youtube: Bruce Springsteen Band - ROUTE 66 1971 (audio)](https://www.youtube.com/watch?v=I1hdt69lcSw)
 
@@ -14,9 +14,9 @@
 
 **1973:** Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.<br>
 
-**1977:** Recording sessions for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) continue at The Record Plant in New York City.<br>
+**1977:** Recording sessions for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) continue at The Record Plant in New York City.<br>
 
-**1978:** Darkness descends on the Masonic Temple Theater in Detroit, where Bruce and the band debut their cover of "[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)" and play the last known ["Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" for 22 years.<br>
+**1978:** Darkness descends on the Masonic Temple Theater in Detroit, where Bruce and the band debut their cover of "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" and play the last known ["Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" for 22 years.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live at Detroit 1978 (01/09/1978)](https://www.youtube.com/watch?v=_VGPkBaF0X0)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1984-09-01.jpg.webp)
 
-Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit single "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" with the story behind Springsteen's new and improved physique.
+Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit single "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" with the story behind Springsteen's new and improved physique.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/1984-09-01-AT40.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/1984-09-01-AT40.mp3)
 
@@ -62,7 +62,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2011-09-01b.jpg.webp)
 
-**2016:** Bruce sends a message at Washington DC's Nationals Park: that last show in East Rutherford was no one-off. The River Tour is now the Autobiography Tour, as Bruce turns in another mostly-chronological set, once again opening with a string-laden "New York City Serenade" and featuring generous helpings of pre-*Born to Run* material. "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)" makes its tour debut representing the 1992-1993 years, and "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)" makes another appearance in the encores. In attendance tonight: Olympic gold medalist Katie Ledecky.<br>
+**2016:** Bruce sends a message at Washington DC's Nationals Park: that last show in East Rutherford was no one-off. The River Tour is now the Autobiography Tour, as Bruce turns in another mostly-chronological set, once again opening with a string-laden "New York City Serenade" and featuring generous helpings of pre-*Born to Run* material. "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)" makes its tour debut representing the 1992-1993 years, and "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)" makes another appearance in the encores. In attendance tonight: Olympic gold medalist Katie Ledecky.<br>
 
 [Watch on Youtube: Bruce Springsteen 2016 Washington DC Nationals Park NYC Serenade](https://www.youtube.com/watch?v=V--C10U3kqQ)
 
@@ -80,7 +80,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 That evening, *Springsteen on Broadway* continues its final week of shows at the St. James Theater in New York City.
 
-**2022:** In Brooklyn, Bruce films videos for "Do I Love You (Indeed I Do)" and "[Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)," two tracks on his upcoming but as yet unannounced album, *Only the Strong Survive*.<br>
+**2022:** In Brooklyn, Bruce films videos for "Do I Love You (Indeed I Do)" and "[Don't Play That Song](../2023-02-12_cover-me-dont-play-that-song-you-lied/post.md)," two tracks on his upcoming but as yet unannounced album, *Only the Strong Survive*.<br>
 
 [Watch on Youtube: Bruce Springsteen - Do I Love You (Indeed I Do) (Official Video)](https://www.youtube.com/watch?v=O0jBwk71Qcw)
 

@@ -8,7 +8,7 @@ Even if you're a longtime fan, odds are decent (more so than for almost any othe
 
 See what I mean?
 
-"Hey Blue Eyes" almost certainly hails back to the *Magic* sessions, or at the very least to that period in Bruce's songwriting. For a time, Bruce was clearly taken with the notion of constructing biting political commentary that also functioned on an intimate, personal level. (See "[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)" and "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" for prime examples.)
+"Hey Blue Eyes" almost certainly hails back to the *Magic* sessions, or at the very least to that period in Bruce's songwriting. For a time, Bruce was clearly taken with the notion of constructing biting political commentary that also functioned on an intimate, personal level. (See "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" and "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" for prime examples.)
 
 On "Hey Blue Eyes," Bruce tosses subtlety out the window and yet somehow *still* manages to craft a multi-layered condemnation that demands close attention and scrutiny from its listeners.
 
@@ -22,11 +22,11 @@ So let's grant it:
 > *Hey blue eyes, what you doing tonight*
 > *Hey blue eyes, yeah it's alright*
 
-Bruce often plainly establishes his scene and spells out his message at the outset of a song, but not here. On first listen, the first verse of "Hey Blue Eyes" is deliberately unclear. We could be listening to a dark romance–it certainly wouldn't be the first time Bruce used such imagery in doing so. ("[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)" has a similarly unsettling and threatening first verse and chorus.)
+Bruce often plainly establishes his scene and spells out his message at the outset of a song, but not here. On first listen, the first verse of "Hey Blue Eyes" is deliberately unclear. We could be listening to a dark romance–it certainly wouldn't be the first time Bruce used such imagery in doing so. ("[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" has a similarly unsettling and threatening first verse and chorus.)
 
 Treason and lies are suitable stand-ins for infidelity and betrayal; lilacs and guns can symbolize the sweetness and hurtfulness that intertwine in toxic relationships; and that chorus might just be our narrator willing to overlook any amount of dysfunction for just one more tryst.
 
-And in fact, we could continue to hear "Hey Blue Eyes" through this lens, and it would work all the way through, in a way that would make "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)" seem tame by comparison.
+And in fact, we could continue to hear "Hey Blue Eyes" through this lens, and it would work all the way through, in a way that would make "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)" seem tame by comparison.
 
 But even on first listen, there's the sense that Bruce is leading us toward something else.
 

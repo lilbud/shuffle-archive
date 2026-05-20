@@ -14,7 +14,7 @@ And of course, the 1963 smash "Be My Baby" features the inimitable Ronnie Specto
 
 [Watch on Youtube: The Ronettes - Be My Baby (Official Audio)](https://www.youtube.com/watch?v=jSPpbOGnFgk)
 
-Bruce was a Ronnie Spector fan long before they ever met–and their meeting was musical providence by way of John Lennon. (Read that story [here](https://estreetshuffle.com/index.php/2018/09/02/meeting-across-the-river-bruce-springsteen-and-ronnie-spector-baby-i-love-you/).)
+Bruce was a Ronnie Spector fan long before they ever met–and their meeting was musical providence by way of John Lennon. (Read that story [here](../2018-09-02_meeting-across-the-river-bruce-springsteen-and-ronnie-spector-baby-i-love-you/post.md).)
 
 On the night of November 4, 1976, Bruce finally had the chance to perform with Ronnie on stage when he invited her to join the E Street Band during their encore set at the Palladium in New York City. They performed three of her hits that night, culminating in their greatest hit. The E Street Band may not have been The Ronettes, but they were more than up for the challenge.
 

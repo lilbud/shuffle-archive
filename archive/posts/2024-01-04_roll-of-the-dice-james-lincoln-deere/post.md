@@ -1,10 +1,10 @@
 With so much stylistic variation from album to album, it's easy to miss the throughlines in Bruce Springsteen's songwriting.
 
-Case in point: [*The Ghost of Tom Joad.*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)
+Case in point: [*The Ghost of Tom Joad.*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)
 
 If you were a recent convert, Springsteen's 1995 album seemed a shocking tonal shift from the bright, optimistic *Human Touch* and *Lucky Town* albums that immediately preceded it. For longtime fans, it was a return to the quiet, introspective, acoustic sound of *Nebraska*.
 
-But if we listen to his lyrics from *Nebraska* to *Born in the U.S.A.* to [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)and even *Lucky Town*, we find thematic veins that are always present in Bruce's songwriting no matter the broader context of any given album.
+But if we listen to his lyrics from *Nebraska* to *Born in the U.S.A.* to [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)and even *Lucky Town*, we find thematic veins that are always present in Bruce's songwriting no matter the broader context of any given album.
 
 We'll explore one of those themes this week over the course of three installments, beginning with a 1982 acoustic outtake called "James Lincoln Deere."
 
@@ -12,7 +12,7 @@ We'll explore one of those themes this week over the course of three installment
 
 At the time he recorded that demo in March 1982, Bruce was carrying *Nebraska* around on a cassette tape. He obviously wasn't finished with that style of cinematic, film noir songwriting, however, as "James Lincoln Deere" demonstrates.
 
-From the very first line, we hear similarities to the quiet, first-person reflection of "Highway Patrolman," and in its thematic exploration of the relationship between unemployment and crime, we hear distinct parallels to "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)."
+From the very first line, we hear similarities to the quiet, first-person reflection of "Highway Patrolman," and in its thematic exploration of the relationship between unemployment and crime, we hear distinct parallels to "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)."
 
 When times get hard, both Ralph and Jimmy find themselves driven by desperation first to theft and inevitably to murder. But whereas Johnny 99's capital crime stems from an alcoholic binge, the titular anti-hero of "James Lincoln Deere" is more cold-blooded.
 
@@ -59,9 +59,9 @@ Life was good. Not easy, but good. As his wife reminds him: it isn't money that 
 
 There's another name change in that second stanza; I think we can chalk that one up as accidental, too. However, it's interesting that Bruce specifically tempts his protagonist with stolen farm equipment and names his character very similarly to a leading purveyor of such equipment.
 
-More pertinent, though, is Sill's voice of temptation. It's a storytelling tradition that dates back to the Book of Genesis: casting a role that for most of us is just a voice in our own minds. Bruce employs it often; we'll see it again in "[The Big Muddy,](https://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/)" for example, and again in "[Straight Time](https://estreetshuffle.com/index.php/2022/12/05/roll-of-the-dice-straight-time/)."
+More pertinent, though, is Sill's voice of temptation. It's a storytelling tradition that dates back to the Book of Genesis: casting a role that for most of us is just a voice in our own minds. Bruce employs it often; we'll see it again in "[The Big Muddy,](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md)" for example, and again in "[Straight Time](../2022-12-05_roll-of-the-dice-straight-time/post.md)."
 
-("Straight Time" isn't the only *Ghost of Tom Joad* connection to "James Lincoln Deere." If Bruce's 1982 guitar melody sounds strangely familiar, it's because he'd re-use it for "[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)" in 1995.)
+("Straight Time" isn't the only *Ghost of Tom Joad* connection to "James Lincoln Deere." If Bruce's 1982 guitar melody sounds strangely familiar, it's because he'd re-use it for "[The New Timer](../2018-07-13_roll-of-the-dice-the-new-timer/post.md)" in 1995.)
 
 Now here comes the inciting incident:
 
@@ -70,7 +70,7 @@ Now here comes the inciting incident:
 > *Man said, "These jobs are goin' boys*<br>
 > *And they ain't comin' back."*<br>
 
-You recognized that verse instantly, didn't you? "James Lincoln Deere" never saw an official release, but those last two lines would soon migrate to "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)."
+You recognized that verse instantly, didn't you? "James Lincoln Deere" never saw an official release, but those last two lines would soon migrate to "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)."
 
 What happens to good people when faced with hard times? That's a question Bruce has explored many times over the decades, and this was one of the earliest examples.
 

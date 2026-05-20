@@ -1,6 +1,6 @@
 > *"Is there anybody ALIVE out there?!?"*<br>
 
-Bruce finally answered his own question on the last track of his [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)album in 2012, in an adventurous olio that manages to deliver one of his most hopeful messages through his most macabre imagery–quite an impressive feat.
+Bruce finally answered his own question on the last track of his [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album in 2012, in an adventurous olio that manages to deliver one of his most hopeful messages through his most macabre imagery–quite an impressive feat.
 
 "We Are Alive" is dense and layered, and to fully appreciate it, you need to really *hear* it. If you can, put on a pair of noise cancelling headphones, and then press play:
 
@@ -15,7 +15,7 @@ Those scratches you hear in the beginning are intentional–not just to evoke th
 
 That's a remarkable first verse, conveying moment both earthly and divine. Perhaps that's a shiver we feel, from the cool evening air, the implication of violence or the notion of being haunted.
 
-The voice continues painting the scene, accompanied only by his guitar, mirroring the recurring "[Ring of Fire](https://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)" riff through infernal lyrics:
+The voice continues painting the scene, accompanied only by his guitar, mirroring the recurring "[Ring of Fire](../2019-07-19_cover-me-ring-of-fire/post.md)" riff through infernal lyrics:
 
 > *Well, above the stars they crackle in fire*<br>
 > *A dead man's moon throws seven rings*<br>
@@ -53,7 +53,7 @@ We soar on that chorus, as the "Ring of Fire" motif emerges in full-throated tru
 > *Let your mind rest easy, sleep well my friend*<br>
 > *It's only our bodies that betray us in the end*<br>
 
-…and none too soon, because in the final verse, the narrator's body does indeed betray him in a most gory fashion, recalling Bruce's earlier "[Matamoras Banks](https://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/)," but forgoing poetry for a frank and terrifying nightmare, belied by hand-clapping and a vocal laced with life and resilience.
+…and none too soon, because in the final verse, the narrator's body does indeed betray him in a most gory fashion, recalling Bruce's earlier "[Matamoras Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)," but forgoing poetry for a frank and terrifying nightmare, belied by hand-clapping and a vocal laced with life and resilience.
 
 > *I awoke last night in the dark and dreamy deep*<br>
 > *From my head to my feet, my body'd gone stone cold*<br>

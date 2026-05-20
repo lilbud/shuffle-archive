@@ -24,7 +24,7 @@ Finally everyone arrived and we started the vocals. Most of the assistants were 
 
 I have to admit, one of the highlights of the night was going to the men's room during breaks. I'd walk in there and see Michael Jackson, Willie Nelson, Hall and Oates… and then there'd be me. I really couldn't believe I was part of this.
 
-Another highlight was getting Bob Dylan to sign my sweatshirt. Everyone got "[We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)" sweatshirts before the session. People were going around getting autographs. I got my nerve up, walked up to Dylan as he was talking to Willie Nelson and asked him to sign my sweatshirt. He wrote his name across the entire back of my shirt, then drew lines coming out of the autograph.
+Another highlight was getting Bob Dylan to sign my sweatshirt. Everyone got "[We Are the World](../2022-01-30_matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/post.md)" sweatshirts before the session. People were going around getting autographs. I got my nerve up, walked up to Dylan as he was talking to Willie Nelson and asked him to sign my sweatshirt. He wrote his name across the entire back of my shirt, then drew lines coming out of the autograph.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/dylan-shirt.jpg.webp)
 

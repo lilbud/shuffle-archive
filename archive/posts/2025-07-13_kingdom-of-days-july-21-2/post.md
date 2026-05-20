@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/1973-07-19.jpg.webp)
 
-**1978:** Bruce brings the Darkness Tour to Nashville and plays the earliest known performance of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/).”<br>
+**1978:** Bruce brings the Darkness Tour to Nashville and plays the earliest known performance of “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - "Factory" - Nashville, 1978-07-21](https://www.youtube.com/watch?v=VRKoRUCKFH8)
 
@@ -26,7 +26,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/YhPvxRZh)
 
-**2009:** A stunner of a Working on a Dream show at the Stadio Olimpico in Turin–Bruce opens with the tour premiere of “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” and delights with additional tour premieres of “[Drive All Night,](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/),” “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/),” “Travelin’ Band,” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).”<br>
+**2009:** A stunner of a Working on a Dream show at the Stadio Olimpico in Turin–Bruce opens with the tour premiere of “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)” and delights with additional tour premieres of “[Drive All Night,](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)” “[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md),” “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” “Travelin’ Band,” and “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rh2cqQ7y)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Turin 21/07/2009](https://www.youtube.com/playlist?list=PLJTyL9twk3zB01lb7dEjsgb_Lj1bmvwyA)
 
-**2012:** The Wrecking Ball Tour starts a Scandinavian swing with a show at Valle Hovin Stadion in Oslo. Bruce opens with an acoustic “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/),” tour premieres “[Ain’t Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)” and “[Streets of Fire,](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)” and ends the show with a surprise bonus encore of “[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/).”<br>
+**2012:** The Wrecking Ball Tour starts a Scandinavian swing with a show at Valle Hovin Stadion in Oslo. Bruce opens with an acoustic “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md),” tour premieres “[Ain’t Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)” and “[Streets of Fire,](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)” and ends the show with a surprise bonus encore of “[Night](../2019-10-31_roll-of-the-dice-night/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen (live) - Wrecking Ball - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=fSB2ZPD8Tow)
 
@@ -64,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen - NIGHTSHIFT (excerpt) - July 21th, 2023 Hockenheim](https://www.youtube.com/watch?v=0R944uPLF8M)
 
-**2024:** On a rainy eve in Bergen, Bruce opens his show with “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/).”<br>
+**2024:** On a rainy eve in Bergen, Bruce opens his show with “[Waitin’ on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Bergen Live - Dokken 21 juli 2024 - timelapse and drone shots!](https://www.youtube.com/watch?v=vkClE_ZkDPY)
 

@@ -20,9 +20,9 @@ Bruce made a few surgical lyrical alterations throughout the song, but the coda 
 
 As the song leisurely fades, Bruce and Stax legend Sam Moore take turns namechecking soul legends, including a sly meta moment when Bruce sings "I wanna hear some Sam and Dave" and Moore responds "oh listen here!"
 
-(Fun Fact #1: Moore also sings backing vocals on Bruce's 1992 track "[Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)," perhaps the alphabetically closest two songs in Springsteen's catalog.)
+(Fun Fact #1: Moore also sings backing vocals on Bruce's 1992 track "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)," perhaps the alphabetically closest two songs in Springsteen's catalog.)
 
-(Fun Fact #2: Dobie Gray's original version of "Soul Days" features guitar licks that are *very* reminiscent of Sam and Dave's iconic 1967 hit single, "[Soul Man.](https://estreetshuffle.com/index.php/2018/07/25/meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/)" Maybe Bruce's decision to ask Moore to sing on his version of "Soul Days" was subliminal? If so, I suspect producer/arranger Ron Aniello didn't listen as carefully, because the backing track to Bruce's version features no such homage.)
+(Fun Fact #2: Dobie Gray's original version of "Soul Days" features guitar licks that are *very* reminiscent of Sam and Dave's iconic 1967 hit single, "[Soul Man.](../2018-07-25_meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/post.md)" Maybe Bruce's decision to ask Moore to sing on his version of "Soul Days" was subliminal? If so, I suspect producer/arranger Ron Aniello didn't listen as carefully, because the backing track to Bruce's version features no such homage.)
 
 Bruce has only performed a few songs from *Only the Strong Survive* as of this writing, but with a tour only days away, "Soul Days" seems a good candidate for at least a cameo or two.
 

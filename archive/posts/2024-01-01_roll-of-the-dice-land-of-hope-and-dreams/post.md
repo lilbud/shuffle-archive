@@ -22,7 +22,7 @@ Bruce's reply: "This train carries saints and sinners. This train carries losers
 
 …but, musically, "Land of Hope and Dreams" began with a little-known guest appearance by Bruce with a little-known artist on what I believe is the finest album released by anyone during the 1990s.
 
-Give a listen to "[Labor of Love](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/)" by Joe Grushecky, and keep an ear out for Bruce's mandolin (yes, that's Bruce playing mandolin). You can hear echoes of LOHAD from the opening bars, but you'll hear it note for note following the chorus at around 1:20.
+Give a listen to "[Labor of Love](../2022-05-08_matr-joe-grushecky-and-bruce-springsteen-labor-of-love/post.md)" by Joe Grushecky, and keep an ear out for Bruce's mandolin (yes, that's Bruce playing mandolin). You can hear echoes of LOHAD from the opening bars, but you'll hear it note for note following the chorus at around 1:20.
 
 [Watch on Youtube: Labor of Love](https://www.youtube.com/watch?v=DSdpmShd7e4)
 
@@ -34,7 +34,7 @@ You can hear that first, original rehearsal performance below. "We're still lear
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3)
 
-Bruce wrote the song at a watershed moment. He'd finished almost two years of acoustic touring to support his [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) album, and other than a *Greatest Hits* album and a few movie soundtrack contributions, he hadn't released or written any rock songs since the early nineties. He had started to wonder (he has written and said) whether rock songs were a part of his past rather than his present or future.
+Bruce wrote the song at a watershed moment. He'd finished almost two years of acoustic touring to support his [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md) album, and other than a *Greatest Hits* album and a few movie soundtrack contributions, he hadn't released or written any rock songs since the early nineties. He had started to wonder (he has written and said) whether rock songs were a part of his past rather than his present or future.
 
 And then came LOHAD, meant as a rebirth song, a re-dedication song, a re-declaration song for and about the E Street Band. A fountain of modern but timeless rock would soon follow.
 
@@ -42,7 +42,7 @@ Sixteen months later, Bruce and the band performed the song to close out the Reu
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3)
 
-LOHAD has been a staple ever since. Bruce performed it throughout the Rising Tour, wrote an acoustic arrangement for the Devils and Dust tour, and finally got around to recording it in the studio more than 12 years after it was written. It appears on the [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)album, and that track appears at the top of this article.
+LOHAD has been a staple ever since. Bruce performed it throughout the Rising Tour, wrote an acoustic arrangement for the Devils and Dust tour, and finally got around to recording it in the studio more than 12 years after it was written. It appears on the [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album, and that track appears at the top of this article.
 
 The studio version of LOHAD also contains Clarence Clemons' last (albeit posthumous) contribution to Bruce's catalog: the saxophone solo you hear is actually lifted from a live concert performance, grafted seamlessly into the studio recording to bring it to life.
 
@@ -52,7 +52,7 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3)
 
-**Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "[Dancing in the Dark](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/)."<br>
+**Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "[Dancing in the Dark](../2022-05-08_matr-joe-grushecky-and-bruce-springsteen-labor-of-love/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Dancing In The Dark"/"Land of Hope and Dreams" - Theater a MSG - 11/4/19](https://www.youtube.com/watch?v=L50sqx9fYjg)
 

@@ -12,7 +12,7 @@ Surprisingly, this 1970 performance was the only time Bruce has ever performed "
 
 But even though Bruce never played it again, this isn't the end of "For What It's Worth" in the story of Springsteen: five months later, Bruce would debut an original (if cynical) protest song of his own with Steel Mill.
 
-That song–entitled "[Change It](https://estreetshuffle.com/index.php/2019/09/04/roll-of-the-dice-changing-children/)"–features the lines:
+That song–entitled "[Change It](../2019-09-04_roll-of-the-dice-changing-children/post.md)"–features the lines:
 
 > *I said you better take a look around you brother*
 > *Something's happening here*

@@ -1,6 +1,6 @@
 There aren't a lot of outtakes floating around from Bruce's original Seeger Sessions, but there are a couple hiding in plain sight… if you know where to look for them.
 
-We shone a spotlight on one of them ("[If I Had a Hammer](https://estreetshuffle.com/index.php/2019/10/07/cover-me-if-i-had-a-hammer/)") about a year ago; now let's take a look at another.
+We shone a spotlight on one of them ("[If I Had a Hammer](../2019-10-07_cover-me-if-i-had-a-hammer/post.md)") about a year ago; now let's take a look at another.
 
 Like many of the songs identified with Pete Seeger, "Hobo's Lullaby" dates back a lot further. Goebel Reeves recorded it and released it in the 1930s in his trademark yodeling style.
 

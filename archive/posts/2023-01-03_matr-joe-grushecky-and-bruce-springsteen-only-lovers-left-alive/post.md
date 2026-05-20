@@ -4,7 +4,7 @@
 
 It's a hell of a story.
 
-Joe Grushecky's milestone *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*album ends on a dark and dire note. Told from the point of view of a boy abandoned by his father, "Only Lovers Left Alive" is the gritty mirror image of Bruce Springsteen's "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)." If you've ever wondered what it must have felt like to be the ones at home when Bruce's character went out for a ride and never came back, look no further.
+Joe Grushecky's milestone *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*album ends on a dark and dire note. Told from the point of view of a boy abandoned by his father, "Only Lovers Left Alive" is the gritty mirror image of Bruce Springsteen's "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)." If you've ever wondered what it must have felt like to be the ones at home when Bruce's character went out for a ride and never came back, look no further.
 
 [Watch on Youtube: Only Lovers Left Alive](https://www.youtube.com/watch?v=_JGAd81f--4)
 

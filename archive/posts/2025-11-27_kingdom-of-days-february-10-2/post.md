@@ -20,17 +20,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/MEFuhDtd)
 
-**2008:** Bruce scores three Grammy Awards: two for “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” (Best Solo Rock Vocal Performance and Best Rock Song) and one for “[Once Upon a Time in the West](https://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)” (Best Rock Instrumental Performance). Bruce’s current album, *Magic*, is also nominated for Best Rock Album but does not win.<br>
+**2008:** Bruce scores three Grammy Awards: two for “[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)” (Best Solo Rock Vocal Performance and Best Rock Song) and one for “[Once Upon a Time in the West](../2018-02-25_cover-me-once-upon-a-time-in-the-west/post.md)” (Best Rock Instrumental Performance). Bruce’s current album, *Magic*, is also nominated for Best Rock Album but does not win.<br>
 
 [Watch on Youtube: Radio Nowhere](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
 
 [Watch on Youtube: Once Upon A Time In The West](https://www.youtube.com/watch?v=CBTy5EF7upk)
 
-**2012:** Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/).”<br>
+**2012:** Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of “[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md).”<br>
 
 **2013:** Although nominated for three Grammy Awards (Best Rock Performance and Best Rock Song for “We Take Care of Our Own” and Best Rock Album for [*Wrecking Ball*)](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), Bruce goes home empty-handed for the first time since 2000.<br>
 
-**2016:** In Hartford’s XL Center, Bruce and the band play “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” for the first time on the new River Tour.<br>
+**2016:** In Hartford’s XL Center, Bruce and the band play “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)” for the first time on the new River Tour.<br>
 
 [Watch on Youtube: Bruce Springsteen-Meet Me In The City, Hartford 2016-02-10](https://www.youtube.com/watch?v=6J9EtXyqgd8)
 

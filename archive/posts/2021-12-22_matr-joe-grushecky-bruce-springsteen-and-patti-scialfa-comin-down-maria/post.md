@@ -1,4 +1,4 @@
-Two COVID summers ago, Joe Grushecky and I had a long, detailed conversation about his milestone *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)* album, which celebrated its 25th anniversary last year. And in the middle of our conversation, he dropped a bombshell on me.
+Two COVID summers ago, Joe Grushecky and I had a long, detailed conversation about his milestone *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)* album, which celebrated its 25th anniversary last year. And in the middle of our conversation, he dropped a bombshell on me.
 
 I'd asked him how Patti Scialfa's vocal contributions to "Comin' Down Maria," one of the album's lovelier tracks, had come about. Obviously I knew she'd been in close proximity, since her husband was producing the album, but Bruce himself wasn't involved with that particular track.
 
@@ -12,7 +12,7 @@ Mildly surprised by the "Bruce and I," I sought to clarify that Bruce was overse
 
 "Wait," I said. "I did not know that. I'm not sure *anybody* knows that, actually."
 
-"Well… " Joe laughed sheepishly, "we didn't actually want to say how much he had done on the record, because he's pretty much all over it. He's on every track except ‘No Strings Attached' and ‘[American Babylon](https://estreetshuffle.com/index.php/2020/12/11/matr-joe-grushecky-and-bruce-springsteen-american-babylon/).' On every other song he is playing or singing or something."
+"Well… " Joe laughed sheepishly, "we didn't actually want to say how much he had done on the record, because he's pretty much all over it. He's on every track except ‘No Strings Attached' and ‘[American Babylon](../2020-12-11_matr-joe-grushecky-and-bruce-springsteen-american-babylon/post.md).' On every other song he is playing or singing or something."
 
 So there you go: after a quarter-century of hiding in plain sight, a secret Springsteen studio performance was revealed.
 

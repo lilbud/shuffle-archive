@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47579847782_3533f2d6a5_o.jpg.webp)
 
-**1980:** Bruce and the E Street Band play their second of two River Tour shows at the Oakland Coliseum, where they open with "[Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)." They won't play it again for 28 years.<br>
+**1980:** Bruce and the E Street Band play their second of two River Tour shows at the Oakland Coliseum, where they open with "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)." They won't play it again for 28 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Good Rockin' Tonight" - Oakland, 1980-10-28](https://www.youtube.com/watch?v=lkRSTU7xhfg)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1992-10-28.png.webp)
 
-**1995:** Bruce makes a return engagement at Neil Young's Bridge School Benefit in Mountain View, playing a solo set that features the live debuts of "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" and "[Sinaloa Cowboys](https://estreetshuffle.com/index.php/2022/01/04/roll-of-the-dice-sinaloa-cowboys/)," and joining Neil, Chrissie Hynde, Hootie & the Blowfish, Steven Tyler, Beck, and Emmylou Harris for a show-closing "[Rockin' in the Free World](https://estreetshuffle.com/index.php/2019/04/16/matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/)."<br>
+**1995:** Bruce makes a return engagement at Neil Young's Bridge School Benefit in Mountain View, playing a solo set that features the live debuts of "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" and "[Sinaloa Cowboys](../2022-01-04_roll-of-the-dice-sinaloa-cowboys/post.md)," and joining Neil, Chrissie Hynde, Hootie & the Blowfish, Steven Tyler, Beck, and Emmylou Harris for a show-closing "[Rockin' in the Free World](../2019-04-16_matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Point Blank California 1995 acoustic](https://www.youtube.com/watch?v=wsJb5NcjuIk)
 
@@ -48,11 +48,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/The_Oregonian_1996_10_29_29.jpg.webp)
 
-**1999:** Bruce and the E Street Band play their last of three Reunion Tour shows at the Oakland Arena, where "Sinaloa Cowboys" makes its tour and full-band debut and Southside Johnny guest-stars on "[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)"<br>
+**1999:** Bruce and the E Street Band play their last of three Reunion Tour shows at the Oakland Arena, where "Sinaloa Cowboys" makes its tour and full-band debut and Southside Johnny guest-stars on "[Hungry Heart.](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - SINALOA COWBOYS 1999 (audio)](https://www.youtube.com/watch?v=bLo07jpukyM)
 
-**2004:** Bruce performs "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" at two rallies for presidential candidate John Kerry, the first in Madison, Wisconsin, the second at Ohio State University.<br>
+**2004:** Bruce performs "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" at two rallies for presidential candidate John Kerry, the first in Madison, Wisconsin, the second at Ohio State University.<br>
 
 [Watch on Youtube: Bruce Springsteen @ John Kerry for President Rally Madison, WI 10.28.2004](https://www.youtube.com/watch?v=tS7kP1lgmYY)
 
@@ -66,7 +66,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2004-10-28b.png.webp)
 
-**2005:** Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but remains in the vaults to this day. In 2008, "[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)" from this show will be released as a single and on various promotional EPs.<br>
+**2005:** Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but remains in the vaults to this day. In 2008, "[Dream Baby Dream](../2020-04-02_cover-me-dream-baby-dream/post.md)" from this show will be released as a single and on various promotional EPs.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteen-Dream-Baby-Dream-Live.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteen-Dream-Baby-Dream-Live.mp3)
 
@@ -96,7 +96,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-28-Bruce-E-Street-Radio-DJ-set-14-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-28-Bruce-E-Street-Radio-DJ-set-14-1.mp3)
 
-**2022:** Bruce releases the third advance single from his upcoming *Only the Strong Survive* album: "[Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)."<br>
+**2022:** Bruce releases the third advance single from his upcoming *Only the Strong Survive* album: "[Don't Play That Song](../2023-02-12_cover-me-dont-play-that-song-you-lied/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Don't Play That Song (Official Video)](https://www.youtube.com/watch?v=6bM3L296ZNw)
 

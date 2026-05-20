@@ -14,11 +14,11 @@
 
 **1976:** Bruce joins Carole King on stage at the Beacon Theater in New York City in a surprise appearance during the encore of the final night of King’s stand. Bruce and Carole sing “The Loco-Motion” together.<br>
 
-**1985:** “[We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/),” a benefit single recorded by United Support of Artists for Africa (a collection of musicians that includes Bruce) is released. Both the single and video feature Bruce’s distinctive vocals, and the single will go on to sell more than twenty million copies.<br>
+**1985:** “[We Are the World](../2022-01-30_matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/post.md),” a benefit single recorded by United Support of Artists for Africa (a collection of musicians that includes Bruce) is released. Both the single and video feature Bruce’s distinctive vocals, and the single will go on to sell more than twenty million copies.<br>
 
 [Watch on Youtube: U.S.A. For Africa - We Are the World](https://www.youtube.com/watch?v=9AjkUyX0rVw)
 
-**2003:** Bruce and the band play their first show on the Atlantic City Boardwalk, opening with (of course) “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/),” closing with a scene-appropriate “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)” and featuring a rare cover of the Beatles’ “[Tell Me Why](https://estreetshuffle.com/index.php/2020/08/01/cover-me-tell-me-why/)” and the tour premiere of “[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” Listen to the soundcheck and highlights below.<br>
+**2003:** Bruce and the band play their first show on the Atlantic City Boardwalk, opening with (of course) “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md),” closing with a scene-appropriate “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)” and featuring a rare cover of the Beatles’ “[Tell Me Why](../2020-08-01_cover-me-tell-me-why/post.md)” and the tour premiere of “[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” Listen to the soundcheck and highlights below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mqMlGDGF)
 
@@ -38,7 +38,7 @@
 
 **![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/2006-03-07.jpg.webp)**<br>
 
-**2008:** “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” and “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)” make their Magic Tour premiere at HSBC Arena in Buffalo.<br>
+**2008:** “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” and “[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)” make their Magic Tour premiere at HSBC Arena in Buffalo.<br>
 
 [Watch on Youtube: Bruce Springsteen Buffalo Gals Buffalo 07/03/2008](https://www.youtube.com/watch?v=ZL5Uc-ezduQ)
 
@@ -50,7 +50,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce and the E Street Band return to the scene of the crime, harkening back to their infamous bomb scare show several times throughout the evening at Fiserv Forum in Milwaukee. “[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)” makes its tour debut tonight.<br>
+**2023:** Bruce and the E Street Band return to the scene of the crime, harkening back to their infamous bomb scare show several times throughout the evening at Fiserv Forum in Milwaukee. “[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)” makes its tour debut tonight.<br>
 
 [Watch on Youtube: Bruce Springsteen - Milwaukee - 3/7/23 Entrance and No Surrender](https://www.youtube.com/watch?v=68gAA8kl1M4)
 

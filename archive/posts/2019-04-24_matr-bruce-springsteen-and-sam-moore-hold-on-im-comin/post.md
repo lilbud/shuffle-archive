@@ -10,7 +10,7 @@ But it was undoubtedly Sam's stage presence that commanded Bruce's attention. Wa
 
 [Watch on Youtube: Sam and Dave - Hold On, I'm Coming](https://www.youtube.com/watch?v=Fowldx4hRtI)
 
-Although Sam contributed his backing vocals in the studio to Bruce's "Soul Driver," "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)," and "[Man's Job,](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)" they never had the chance to perform together live until Sam joined Bruce on-stage for "[Soul Man](https://estreetshuffle.com/index.php/2018/07/25/meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/)" during the Reunion Tour. Bruce enjoyed the one-off performance enough to invite Sam to join him for a nightly mini-set during Bruce's Asbury Park holiday shows in 2003.
+Although Sam contributed his backing vocals in the studio to Bruce's "Soul Driver," "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)," and "[Man's Job,](../2022-05-30_roll-of-the-dice-mans-job/post.md)" they never had the chance to perform together live until Sam joined Bruce on-stage for "[Soul Man](../2018-07-25_meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/post.md)" during the Reunion Tour. Bruce enjoyed the one-off performance enough to invite Sam to join him for a nightly mini-set during Bruce's Asbury Park holiday shows in 2003.
 
 This time with the proper backing of the horn-powered Max Weinberg 7 and the Alliance Singers, the 68-year old Moore was in fine form with his bandleader's instincts still intact, and Bruce and Steve clearly relished the opportunity to perform with him.
 

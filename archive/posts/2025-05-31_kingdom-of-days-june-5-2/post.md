@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1978-0605.jpg.webp)
 
-**1981:** At the final night of a six-night stand at London’s Wembley Arena on the River Tour, Bruce plays “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)” for the very first time. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,19985/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-5-1981-Wembley-Arena-London-UK.html).<br>
+**1981:** At the final night of a six-night stand at London’s Wembley Arena on the River Tour, Bruce plays “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” for the very first time. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,19985/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-5-1981-Wembley-Arena-London-UK.html).<br>
 
 [Watch on Youtube: Darkness On The Edge Of Town (Live at Wembley Arena, London, UK - 6/5/1981)](https://www.youtube.com/watch?v=CNyJ1Tztfgk)
 
@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1981-06-05.jpg.webp)
 
-**1985:** Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)” and “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/).”<br>
+**1985:** Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of “[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)” and “[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KLnISPhf)
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Zaragoza 05/06/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zDNk3-1NLB5Ele9zP7rXXd5)
 
-**2006:** Bruce and the Sessions Band appear on *The Tonight Show with Jay Leno.* Later that night (the Tonight Show tapes during the day), the band plays a show at the Greek Theater in L.A., where Roy Bittan guest-stars on “[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/).” Two videos of “[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)” below, both pro-shot–one from the Tonight Show and one from the concert.<br>
+**2006:** Bruce and the Sessions Band appear on *The Tonight Show with Jay Leno.* Later that night (the Tonight Show tapes during the day), the band plays a show at the Greek Theater in L.A., where Roy Bittan guest-stars on “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md).” Two videos of “[How Can a Poor Man Stand Such Times and Live](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)” below, both pro-shot–one from the Tonight Show and one from the concert.<br>
 
 [Watch on Youtube: Bruce Springsteen: How Can a Poor Man Stand Such Times and Live 6/5/06](https://www.youtube.com/watch?v=WOGGDRwy8zs)
 
@@ -70,7 +70,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live in Dublin](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZqlZZkO9kobqgum89LpuQ1)
 
-**2009:** Swedish fans at the second of three Working on a Dream shows in Stockholm are treated to the tour premiere of “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and the first of only three performances ever of “[Queen of the Supermarket](https://estreetshuffle.com/index.php/2018/10/04/roll-of-the-dice-queen-of-the-supermarket/).”<br>
+**2009:** Swedish fans at the second of three Working on a Dream shows in Stockholm are treated to the tour premiere of “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and the first of only three performances ever of “[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Downbound Train (Live Stockholm Stadion 2009 06 05)](https://www.youtube.com/watch?v=s9-T5AaHkik)
 
@@ -80,7 +80,7 @@
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Queen of the Supermarket, Stockholm 5th June 2009](https://www.youtube.com/watch?v=r9_wvmOitoo)
 
-**2016:** Bruce returns to Wembley Stadium in London, opening with two tour premieres: “[Does this Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” and “[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/).” Other highlights include the tour premiere of “[I’ll Work for Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)” (acoustic), and a dedication of “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” to the late, great Muhammad Ali.<br>
+**2016:** Bruce returns to Wembley Stadium in London, opening with two tour premieres: “[Does this Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” and “[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md).” Other highlights include the tour premiere of “[I’ll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)” (acoustic), and a dedication of “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” to the late, great Muhammad Ali.<br>
 
 [Watch on Youtube: 2016-06-05 Bruce Springsteen - Does This Bus Stop At 82nd Street (solo piano)](https://www.youtube.com/watch?v=VV9Rtf21lO8)
 
@@ -92,6 +92,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2022:** Bruce makes a surprise guest appearance with Coldplay at MetLife Stadium in East Rutherford, duetting with Chris Martin on “[Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)” and “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”<br>
+**2022:** Bruce makes a surprise guest appearance with Coldplay at MetLife Stadium in East Rutherford, duetting with Chris Martin on “[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)” and “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).”<br>
 
 [Watch on Youtube: "Working on a Dream & Dancing in the Dark" Coldplay & Bruce Springsteen@New York 6/5/22](https://www.youtube.com/watch?v=W6w3xLqR_Os)

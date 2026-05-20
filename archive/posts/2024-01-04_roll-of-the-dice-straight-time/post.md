@@ -1,10 +1,10 @@
 > "This is a song about a fellow who gets out of prison and is working hard to sort of integrate himself back into his family and into the world at large. But a change like that is a hard thing to do, because all your old habits end up feeling like your friends. Sometimes those very old habits, it's how we define ourselves, how we feel like we know who we are. Whether it's true or not, whether they kill us or not." *–Bruce Springsteen, December 3, 1995*<br>
 
-"Straight Time" was one of the first songs Springsteen wrote for *[The Ghost of Tom Joad,](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*at least a year before he even had a vision for the album. He recorded it, listened to it once, and then shelved it. "Basically, I threw it away," Bruce told Bob Costas in a 1995 interview, crediting Jon Landau for recognizing and advocating for its worth.
+"Straight Time" was one of the first songs Springsteen wrote for *[The Ghost of Tom Joad,](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)*at least a year before he even had a vision for the album. He recorded it, listened to it once, and then shelved it. "Basically, I threw it away," Bruce told Bob Costas in a 1995 interview, crediting Jon Landau for recognizing and advocating for its worth.
 
 The roots of "Straight Time" date back much further, though–all the way back to a 1978 neo-noir crime film of the same name starring Dustin Hoffman, and a pair of noir-ish, Nebraska-era outtakes*.*
 
-We took a look at "[James Lincoln Deere](https://estreetshuffle.com/index.php/2022/11/29/roll-of-the-dice-james-lincoln-deere/)" and "[Richfield Whistle](https://estreetshuffle.com/index.php/2022/12/01/roll-of-the-dice-richfield-whistle/)" last week. If you missed them, I recommend checking them out to appreciate how they both informed and influenced "Straight Time."
+We took a look at "[James Lincoln Deere](../2022-11-29_roll-of-the-dice-james-lincoln-deere/post.md)" and "[Richfield Whistle](../2022-12-01_roll-of-the-dice-richfield-whistle/post.md)" last week. If you missed them, I recommend checking them out to appreciate how they both informed and influenced "Straight Time."
 
 [Watch on Youtube: Straight Time](https://www.youtube.com/watch?v=IU7-W_EnJHY)
 

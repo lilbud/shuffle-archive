@@ -10,13 +10,13 @@
 
 **1974:** Bruce postpones a scheduled concert at Kent State University to June 1.<br>
 
-**1975:** At a *Born to Run* recording session at the Record Plant in New York City, Bruce begins work on "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)."<br>
+**1975:** At a *Born to Run* recording session at the Record Plant in New York City, Bruce begins work on "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)."<br>
 
 **1981:** Bruce plays his first-ever show in Norway, when the River Tour comes to Drammen.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fZwe49y9)
 
-**1982:** At The Power Station studio in New York City, Bruce and the E Street Band record "[Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)" "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)," "[A Good Man Is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)" and the still unreleased "Stop the War."<br>
+**1982:** At The Power Station studio in New York City, Bruce and the E Street Band record "[Glory Days,](../2024-06-04_roll-of-the-dice-glory-days/post.md)" "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," "[A Good Man Is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)" and the still unreleased "Stop the War."<br>
 
 [Watch on Youtube: Glory Days](https://www.youtube.com/watch?v=GLBnj159q3s)
 
@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1988-0505.jpg.webp)
 
-**1992:** The Recording Industry Association of America certifies "[Santa Claus Is Coming to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" as gold and "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" as platinum.<br>
+**1992:** The Recording Industry Association of America certifies "[Santa Claus Is Coming to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" as gold and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" as platinum.<br>
 
 [Watch on Youtube: Dancing In the Dark](https://www.youtube.com/watch?v=nCFTL4IO6t4)
 
@@ -58,7 +58,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1997-05-05.jpg.webp)
 
-**2005:** Bruce tour premieres "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" and an acoustic arrangement of "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" at his solo acoustic show at Oakland's Paramount Theater. For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/05/05/where-the-band-was-oakland-may-5-2005/).<br>
+**2005:** Bruce tour premieres "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)" and an acoustic arrangement of "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" at his solo acoustic show at Oakland's Paramount Theater. For more highlights from this show, see my [*Where the Band Was* report](../2018-05-05_where-the-band-was-oakland-may-5-2005/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - Land of Hope and Dreams - Oakland, May 5 2005](https://www.youtube.com/watch?v=psFjDUQuviY)
 
@@ -66,13 +66,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2005-05-05b.jpg.webp)
 
-**2006:** The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)" and "[Erie Canal](https://estreetshuffle.com/index.php/2019/11/02/cover-me-erie-canal/)."<br>
+**2006:** The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" and "[Erie Canal](../2019-11-02_cover-me-erie-canal/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/kPchYwxD)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Independent_Sat__May_6__2006_.jpg.webp)
 
-**2009:** Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls into Charlottesville, Virginia, for a show at the John Paul Jones arena. The set list includes a one-off cover (by request) of The Kinks' "[You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/)," along with the tour premieres of "[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)" and "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)."<br>
+**2009:** Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls into Charlottesville, Virginia, for a show at the John Paul Jones arena. The set list includes a one-off cover (by request) of The Kinks' "[You Really Got Me](../2020-12-01_cover-me-you-really-got-me/post.md)," along with the tour premieres of "[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" and "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - You Really Got Me - C'Ville-5/5/09](https://www.youtube.com/watch?v=-MMryww4Ae8)
 
@@ -88,7 +88,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band: "Land of Hope and Dreams" (live @ Dublin, 5.5.2023)](https://www.youtube.com/watch?v=GqK9Q3Dq5B8)
 
-**2024:** Bruce and the E Street Band kick off the European leg of their World Tour with the tour debut of "So Young and In Love" at Principality Stadium in Cardiff. Also tour premiering tonight by request: "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)."<br>
+**2024:** Bruce and the E Street Band kick off the European leg of their World Tour with the tour debut of "So Young and In Love" at Principality Stadium in Cardiff. Also tour premiering tonight by request: "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - So Young and in Love - Cardiff Show Opener 05/05/24](https://www.youtube.com/watch?v=n9vqhvbzgKw)
 

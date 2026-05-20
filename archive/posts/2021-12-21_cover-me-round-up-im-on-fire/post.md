@@ -1,4 +1,4 @@
-So I’ve had this dilemma for a while now: there are just too many great covers of “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” out there.
+So I’ve had this dilemma for a while now: there are just too many great covers of “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” out there.
 
 Over the past three years or so, I’ve featured no less than [sixteen covers](https://estreetshuffle.com/index.php/cover-index/) of Bruce’s 1985 Top Ten single, but they keep multiplying at an accelerating pace.
 
@@ -35,5 +35,3 @@ Finally (for now), we travel down under to check out the Nick Trovas Band. They�
 I hope you enjoyed this mini-tour. Personally, I find it fascinating how Bruce’s music resonates around the world in so many different ways, inspiring artists to uncover new elements and infuse new life into Bruce’s classics.
 
 We’ll do this again sometime… but not for a while. There are still a lot of great versions of less frequently covered songs to explore!
-
- 

@@ -124,7 +124,7 @@ Meanwhile, Mike Appel's and Marc Eliot's new tell-all *Down Thunder Road* garner
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yigN_x5AK9Q)
 
-**2010:** Bruce joins his good friend Alejandro Escovedo on stage at The Stone Pony for "Always a Friend," "[Faith](https://estreetshuffle.com/index.php/2019/11/04/matr-alejandro-escovedo-and-bruce-springsteen-faith/)," and "Beast of Burden."<br>
+**2010:** Bruce joins his good friend Alejandro Escovedo on stage at The Stone Pony for "Always a Friend," "[Faith](../2019-11-04_matr-alejandro-escovedo-and-bruce-springsteen-faith/post.md)," and "Beast of Burden."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aKRtfceQSrM)
 

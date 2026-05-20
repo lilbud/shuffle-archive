@@ -2,7 +2,7 @@ Oh, Bruce.
 
 I understand why you had to re-record the vocals for "One Way Street." The bootleg version we'd heard for years was lovely but a bit awkward at times. With lines like "If and oh my darling I, I must confess" and "It's mmmm we, we are the same kind," it's clear that this was a rehearsal run.
 
-And thanks for re-recording *all* the vocals over the original backing track. That hybrid mash-up of 30-year-old Bruce and 60-year-old Bruce that you used on other songs on *The Promise* is really jarring at times. (I'm looking at you, "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/).") Much better to just redo the vocals in their entirety.
+And thanks for re-recording *all* the vocals over the original backing track. That hybrid mash-up of 30-year-old Bruce and 60-year-old Bruce that you used on other songs on *The Promise* is really jarring at times. (I'm looking at you, "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md).") Much better to just redo the vocals in their entirety.
 
 Thanks also for keeping that gorgeous instrumental track, especially Clarence's solo. (Did you have to ditch Danny's though? Sure, the song was a bit long. Shaving a minute-and-a-half from the run time wasn't a bad decision, but Danny…)
 
@@ -28,7 +28,7 @@ Let's look at those original lyrics together:
 > *Our love was fine, our love was sweet*<br>
 > *But we were walking on the wild side, running down a one way street*<br>
 
-I'm picking up on your implications, Bruce. These lovers seem to be committed to others, but they've found temporary refuge in each other. Very "[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)."
+I'm picking up on your implications, Bruce. These lovers seem to be committed to others, but they've found temporary refuge in each other. Very "[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md)."
 
 But in that third line, you introduce a bit of bite to our protagonist: "you must go if you can't take the heat." So the guy is just fine with how things are, it's the girl who's having trouble with the situation. He seems to be saying: "Hey look: we both knew what we were getting into. This was never going to lead anywhere, but I thought we were both okay with it."
 

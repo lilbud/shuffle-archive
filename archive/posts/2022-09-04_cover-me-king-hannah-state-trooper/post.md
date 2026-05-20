@@ -4,7 +4,7 @@ Trust me, it's worth it.
 
 [Watch on Youtube: Bruce Springsteen - State Trooper (King Hannah Cover)](https://www.youtube.com/watch?v=VPZ1HBRr5dI)
 
-King Hannah's spectacular cover of "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)" is just getting started right about at the point we expect it to end, and then it continues for almost another three minutes. And those three minutes elevate their version from just a great cover to possibly the best version of "State Trooper" I've ever heard.
+King Hannah's spectacular cover of "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" is just getting started right about at the point we expect it to end, and then it continues for almost another three minutes. And those three minutes elevate their version from just a great cover to possibly the best version of "State Trooper" I've ever heard.
 
 Hannah Merrick's detached vocal performance perfectly nails the alienation in Springsteen's original, and her *whoop* that ushers in that tremendous outro is an arguable one-up.
 

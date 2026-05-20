@@ -1,4 +1,4 @@
-When "[River Deep – Mountain High](https://estreetshuffle.com/index.php/2021/02/18/matr-tina-turner-bruce-springsteen-little-richard-stevie-wonder-and-more-river-deep-mountain-high/)" tanked in early 1966, Phil Spector retreated (temporarily) from the music industry, and with him went his signature "wall of sound."
+When "[River Deep – Mountain High](../2021-02-18_matr-tina-turner-bruce-springsteen-little-richard-stevie-wonder-and-more-river-deep-mountain-high/post.md)" tanked in early 1966, Phil Spector retreated (temporarily) from the music industry, and with him went his signature "wall of sound."
 
 Well... not entirely. At the same time "River Deep – Mountain High" barely clawed its way into the Billboard Hot 100, The Walker Brothers' Spector-ian cover of "The Sun Ain't Gonna Shine Anymore" soared past it to peak at #13 in the U.S. and #1 in the U.K.
 
@@ -12,7 +12,7 @@ It's actually a cover, though: Frankie Valli recorded the original a year earlie
 
 Valli's original flew so under the radar that even Springsteen was unaware of it when he decided to record his own version for his 2022 vocal-centric album, *Only the Strong Survive.* Although Valli is certainly no slouch in the singing department, Bruce was captivated by Scott Walker's rich Orbisonian baritone that reminded him of his early work.
 
-"[T]here was an operatic part of my voice that I used on *Born To Run* and a little bit on [*Darkness*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)," he told *Rolling Stone's* Andy Greene, "but then I put it away and just sang with more of a barman's rock voice for the rest of my work life, for the most part. But on that song, I was able to bring it back again and really sing in that big, round tone that I love to use. "
+"[T]here was an operatic part of my voice that I used on *Born To Run* and a little bit on [*Darkness*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)," he told *Rolling Stone's* Andy Greene, "but then I put it away and just sang with more of a barman's rock voice for the rest of my work life, for the most part. But on that song, I was able to bring it back again and really sing in that big, round tone that I love to use. "
 
 [Watch on Youtube: Bruce Springsteen - The Sun Ain't Gonna Shine Anymore (Official Audio)](https://www.youtube.com/watch?v=B3ugToQv0c4)
 

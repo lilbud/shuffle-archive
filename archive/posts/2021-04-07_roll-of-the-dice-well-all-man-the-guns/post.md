@@ -68,7 +68,7 @@ There's never any indication in the song that Mary isn't faithfully waiting for 
 
 Still… it's hard to hear those lyrics and not wonder if Bruce hadn't also intended Mary to be a stand-in for America itself. Would the soldier's country stand by him when he returned?
 
-Bruce was exploring that theme long before "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)", and his atypical pre-song glibness suggests perhaps a bit of misdirection.
+Bruce was exploring that theme long before "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)", and his atypical pre-song glibness suggests perhaps a bit of misdirection.
 
 But then again, the kid was only twenty years old, and sometimes a cigar is just a cigar.
 

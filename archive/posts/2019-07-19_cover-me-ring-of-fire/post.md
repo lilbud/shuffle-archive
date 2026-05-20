@@ -24,7 +24,7 @@ Cash loved the song when he first heard it, but he had a vision of a mariachi ho
 
 [Watch on Youtube: Ring of Fire](https://www.youtube.com/watch?v=1WaV2x8GXj0)
 
-(That iconic horn riff is immediately recognizable, as Springsteen fans realized when they first heard Bruce's 2012 track, "[We Are Alive](https://estreetshuffle.com/index.php/2018/09/15/roll-of-the-dice-we-are-alive/).")
+(That iconic horn riff is immediately recognizable, as Springsteen fans realized when they first heard Bruce's 2012 track, "[We Are Alive](../2018-09-15_roll-of-the-dice-we-are-alive/post.md).")
 
 [Watch on Youtube: We Are Alive](https://www.youtube.com/watch?v=crzGQAoLKW0)
 

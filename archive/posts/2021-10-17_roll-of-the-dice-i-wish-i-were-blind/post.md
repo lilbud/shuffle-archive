@@ -26,7 +26,7 @@ With only an understated keyboard accompaniment underneath Bruce's vocals, the p
 
 By the second verse, I felt like I was hearing "I Wish I Were Blind" for the first time. And from the moment he switched over to the piano, my heart was breaking for our poor narrator, who until now seemed worthy only of parody rather than pity.
 
-I realized with surprise that like "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)," it wasn't the song I hated, it was just the track.
+I realized with surprise that like "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)," it wasn't the song I hated, it was just the track.
 
 "I Wish I Were Blind" works best (and possibly only) as a solo performance. I mean *of course* it does–just listen to the lyrics:
 

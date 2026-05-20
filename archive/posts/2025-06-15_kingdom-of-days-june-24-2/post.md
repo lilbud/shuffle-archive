@@ -6,7 +6,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1973-0624.jpg.webp)
 
-**1977:** Bruce and the E Street Band record “[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)” at Atlantic Studios in New York City.<br>
+**1977:** Bruce and the E Street Band record “[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)” at Atlantic Studios in New York City.<br>
 
 [Watch on Youtube: Streets of Fire](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
 
@@ -18,13 +18,13 @@
 
 **1984:** Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man’s West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.<br>
 
-**1989:** Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including “[Under the Boardwalk](https://estreetshuffle.com/index.php/2018/05/04/meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/).”<br>
+**1989:** Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including “[Under the Boardwalk](../2018-05-04_meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen with Bobby Bandiera - UNDER THE BOARDWALK 1989 (audio)](https://www.youtube.com/watch?v=j0h8kVXEdX0)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1989-06-24.jpg.webp)
 
-**1993:** A momentous night: Bruce and his touring band play a special “Concert to Fight Hunger” at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/).” For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
+**1993:** A momentous night: Bruce and his touring band play a special “Concert to Fight Hunger” at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md).” For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
 
 [Watch on Youtube: Seeds (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=gc2zE_AcJBc)
 
@@ -60,7 +60,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2006-06-24.jpg.webp)
 
-**2007:** Bruce performs “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for “[You Never Can Tell](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/).”<br>
+**2007:** Bruce performs “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for “[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md).”<br>
 
 [Watch on Youtube: Bruce with the JLB](https://www.youtube.com/watch?v=QIQjpeIfk9s)
 

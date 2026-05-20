@@ -1,4 +1,4 @@
-Let's see: Bruce has [written a song about Jesse James](https://estreetshuffle.com/index.php/2020/10/22/roll-of-the-dice-the-ballad-of-jesse-james/), recorded [a second one handed down from the Old West era](https://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/), and namechecked him in still another unreleased demo.
+Let's see: Bruce has [written a song about Jesse James](../2020-10-22_roll-of-the-dice-the-ballad-of-jesse-james/post.md), recorded [a second one handed down from the Old West era](../2019-07-10_roll-of-the-dice-cover-me-jesse-james/post.md), and namechecked him in still another unreleased demo.
 
 I think we can safely see that Bruce has a fascination with the man–so much so that he even wrote a song about the man who killed him.
 
@@ -55,7 +55,7 @@ The final verses are a bit hard to make out at times–the song was still unfini
 > *Well then I heard Jesse saying to himself*
 ***I'm sorry for what I've done***<br>
 
-**Those lines** are too close to a key couplet in "[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)" to be coincidence:<br>
+**Those lines** are too close to a key couplet in "[Outlaw Pete](../2021-12-29_roll-of-the-dice-outlaw-pete/post.md)" to be coincidence:<br>
 
 > *Dan smiled as he lay in his own blood dying in the sun*
 > *And whispered in Pete's ear, "We cannot undo these things we've done."*

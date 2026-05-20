@@ -44,19 +44,19 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-11-14.png.webp)
 
-**2002:** "[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)" makes a long-awaited return when the Rising Tour stops at Rupp Arena in Lexington. Until tonight, it hasn't been played for almost 24 years.<br>
+**2002:** "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" makes a long-awaited return when the Rising Tour stops at Rupp Arena in Lexington. Until tonight, it hasn't been played for almost 24 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Streets of Fire" - Lexington, 2002-11-14](https://www.youtube.com/watch?v=8CInxo96uLs)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Lexington_Herald_Leader_Fri__Nov_15__2002_-scaled.jpg.webp)
 
-**2006:** "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)" sees its Seeger Sessions Tour premiere (as a duet with Frank Bruno) in fellow former steel town Sheffield, and "[Froggie Went A-Courtin'](https://estreetshuffle.com/index.php/2021/01/26/roll-of-the-dice-cover-me-froggie-went-a-courtin/)" makes a rare appearance to close the show.<br>
+**2006:** "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" sees its Seeger Sessions Tour premiere (as a duet with Frank Bruno) in fellow former steel town Sheffield, and "[Froggie Went A-Courtin'](../2021-01-26_roll-of-the-dice-cover-me-froggie-went-a-courtin/post.md)" makes a rare appearance to close the show.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Youngstown" - Sheffield, 2006-11-14](https://www.youtube.com/watch?v=9uadDklikMA)
 
 [Watch on Youtube: Bruce Springsteen - Live In Sheffield 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=Jdn2hUqmElo)
 
-**2007:** Joe Grushecky makes a guest appearance when the Magic Tour comes to Pittsburgh's Mellon Arena, joining Bruce for the tour premiere of "[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)." Bruce also tour premieres "Youngstown" in an acoustic arrangement.<br>
+**2007:** Joe Grushecky makes a guest appearance when the Magic Tour comes to Pittsburgh's Mellon Arena, joining Bruce for the tour premiere of "[Code of Silence](../2018-08-27_codeofsilence/post.md)." Bruce also tour premieres "Youngstown" in an acoustic arrangement.<br>
 
 [Watch on Youtube: Bruce Springsteen Live 2007 - Reason to Believe](https://www.youtube.com/watch?v=EFe5vDXyMeA)
 

@@ -12,7 +12,7 @@
 
 **1977:** Bruce and the E Street Band hold a recording session in New York City for their upcoming album.<br>
 
-**1979:** Bruce and the band record “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” and an early arrangement of “[You Can Look (Buy You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)” during a recording session at the Power Station in New York City.<br>
+**1979:** Bruce and the band record “[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)” and an early arrangement of “[You Can Look (Buy You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)” during a recording session at the Power Station in New York City.<br>
 
 [Watch on Youtube: You Can Look (But You Better Not Touch)](https://www.youtube.com/watch?v=69Gz0eCDtXs)
 
@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Simi_Valley_Star_1981_08_26_34.jpg.webp)
 
-**1988:** Bruce makes a surprise appearance at Sting’s show at Madison Square Garden, dueting on “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” and “Message in a Bottle.” The two will shortly kick off a tour together in support of Amnesty International.<br>
+**1988:** Bruce makes a surprise appearance at Sting’s show at Madison Square Garden, dueting on “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)” and “Message in a Bottle.” The two will shortly kick off a tour together in support of Amnesty International.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NdZIIyTZ)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2002-08-24b.png.webp)
 
-**2008:** The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring *six* tour premieres (and two world debuts, including the first-ever “[Ricky Wants a Man of Her Own](https://estreetshuffle.com/index.php/2018/11/23/roll-of-the-dice-ricky-wants-a-man-of-her-own/)“), Max on lead vocals on “[Boys](https://estreetshuffle.com/index.php/2018/05/25/cover-me-boys/)“, a Soozie and Bruce duet on “[It’s All Over Now](https://estreetshuffle.com/index.php/2021/09/02/matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/),” and more. For more highlights from this show, see my [*Where the Band Was*](https://estreetshuffle.com/index.php/2018/08/24/where-the-band-was-kansas-city-august-24-2008/)[report](https://estreetshuffle.com/index.php/2018/08/24/where-the-band-was-kansas-city-august-24-2008/).<br>
+**2008:** The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring *six* tour premieres (and two world debuts, including the first-ever “[Ricky Wants a Man of Her Own](../2018-11-23_roll-of-the-dice-ricky-wants-a-man-of-her-own/post.md)“), Max on lead vocals on “[Boys](../2018-05-25_cover-me-boys/post.md)“, a Soozie and Bruce duet on “[It’s All Over Now](../2021-09-02_matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/post.md),” and more. For more highlights from this show, see my [*Where the Band Was*](../2018-08-24_where-the-band-was-kansas-city-august-24-2008/post.md)[report](../2018-08-24_where-the-band-was-kansas-city-august-24-2008/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - Ricky Wants A Man Of Her Own (2008-08-24)](https://www.youtube.com/watch?v=CTGny12oHMo)
 
@@ -58,7 +58,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2008-08-24b.jpg.webp)
 
-**2012:** The Wrecking Ball Tour heads north to Canada, starting with a show at the Rogers Center in Toronto, where an undisputed highlight is a rare solo piano “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”<br>
+**2012:** The Wrecking Ball Tour heads north to Canada, starting with a show at the Rogers Center in Toronto, where an undisputed highlight is a rare solo piano “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md).”<br>
 
 [Watch on Youtube: Incident On 57th Street Bruce Springsteen Toronto 24/8/12 Good quality!](https://www.youtube.com/watch?v=mIiL3kvbi34)
 

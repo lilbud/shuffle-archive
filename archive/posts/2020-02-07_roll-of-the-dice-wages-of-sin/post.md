@@ -1,6 +1,6 @@
-I don't know exactly why this 1982 outtake fascinates me so much. Bruce mined similar earth to more humorous effect both earlier ("[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)") and later ("[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)"); he'd write more probing and insightful relationship songs on [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) a few years later.
+I don't know exactly why this 1982 outtake fascinates me so much. Bruce mined similar earth to more humorous effect both earlier ("[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)") and later ("[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)"); he'd write more probing and insightful relationship songs on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) a few years later.
 
-Lyrically, Bruce would put some of these lines to better use in "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)." Metrically, "Wages of Sin" is one of the most awkward songs Bruce has ever written–he stumbles and trips his way through the entire song, at times veering perilously close to a train wreck but never quite leaving the track.
+Lyrically, Bruce would put some of these lines to better use in "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)." Metrically, "Wages of Sin" is one of the most awkward songs Bruce has ever written–he stumbles and trips his way through the entire song, at times veering perilously close to a train wreck but never quite leaving the track.
 
 And yet.
 
@@ -62,7 +62,7 @@ Either way, our lovers are caught in a death spiral, unable to let go even as th
 > *Wages of sin, well, I keep paying*<br>
 > *Wages of sin, one by one*<br>
 
-Let's take a moment and acknowledge the familiar lyrics in this dream sequence–familiar, at least, to fans of Springsteen's *Nebraska* album (or viewers of *Springsteen on Broadway*), because those very vivid first four lines eventually found their way to "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)," a superior song that put that scene to much, much more effective use.
+Let's take a moment and acknowledge the familiar lyrics in this dream sequence–familiar, at least, to fans of Springsteen's *Nebraska* album (or viewers of *Springsteen on Broadway*), because those very vivid first four lines eventually found their way to "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)," a superior song that put that scene to much, much more effective use.
 
 In "Wages of Sin," the memory evokes not just the fear of the dark unknown that pervades childhood, but also the distinct suggestion that as a boy, he'd try hard and fruitlessly to please his parents, and that perhaps that futile childhood quest colors his present romantic relationship. It certainly would explain his mounting frustration and despair.
 

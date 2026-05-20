@@ -12,11 +12,11 @@ True enough.
 
 Perhaps it was one of those comparisons that got Bruce's attention. Whatever it was, Bruce invited Jesse to join him on stage during his 2003 holiday benefit show stand in Asbury Park. Jesse got to play two of his own songs each night with Bruce, an invaluable visibility boost for a solo artist's debut album.
 
-We listened to one of those two songs, "[Wendy](https://estreetshuffle.com/index.php/2020/09/05/matr-jesse-malin-and-bruce-springsteen-wendy/)," a couple of years ago. But it was "Queen of the Underworld" that marked Jesse and Bruce's first on-stage collaboration, with a terrific performance that featured Jesse on lead vocals and Bruce on backing vocals and a prominent guitar solo.
+We listened to one of those two songs, "[Wendy](../2020-09-05_matr-jesse-malin-and-bruce-springsteen-wendy/post.md)," a couple of years ago. But it was "Queen of the Underworld" that marked Jesse and Bruce's first on-stage collaboration, with a terrific performance that featured Jesse on lead vocals and Bruce on backing vocals and a prominent guitar solo.
 
 [Watch Video Highlight](https://videopress.com/embed/tINU0O8J)
 
-Jesse would go on to perform with Bruce eight more times over the sixteen years that followed, and they collaborated in the studio as well, on "[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)." But while they would never play it again after those first shows in 2003, it was "Queen of the Underworld" that introduced and made Jesse Malin a welcome member of E Street Nation.
+Jesse would go on to perform with Bruce eight more times over the sixteen years that followed, and they collaborated in the studio as well, on "[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md)." But while they would never play it again after those first shows in 2003, it was "Queen of the Underworld" that introduced and made Jesse Malin a welcome member of E Street Nation.
 
 **Queen of the Underworld**<br>
 **First performed:** December 5, 2003 (Asbury Park, NJ)<br>

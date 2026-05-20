@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-12-10.png.webp)
 
-**1975:** Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play “[Party Lights](https://estreetshuffle.com/index.php/2022/06/01/cover-me-party-lights/)” for the last time to date.<br>
+**1975:** Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play “[Party Lights](../2022-06-01_cover-me-party-lights/post.md)” for the last time to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/32Ky6u31)
 

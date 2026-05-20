@@ -17,7 +17,7 @@ Research suggests that which one you see first has a lot to do with which one yo
 
 Bruce wrote two songs in "Independence Day"–one of youthful rebellion and escape, and another of empathy and love. Which one you hear first probably has a lot to do with which one you most relate to.
 
-Bruce wrote "Independence Day" for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) (and played it throughout much of that tour), and as such it holds true to that album's theme: the determination to slip our shackles, escape our circumstances, and realize our full potential.
+Bruce wrote "Independence Day" for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) (and played it throughout much of that tour), and as such it holds true to that album's theme: the determination to slip our shackles, escape our circumstances, and realize our full potential.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Independence Day (Live in Houston, 1978)](https://www.youtube.com/watch?v=z-UjhzfRcS0)
 
@@ -25,7 +25,7 @@ But he released it on *The River*, and it exemplifies that album's theme, too: t
 
 [Watch on Youtube: Independence Day](https://www.youtube.com/watch?v=9GggK3Sn258)
 
-"Independence Day" bridges the two albums. In a single song, we can hear the frustration of "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)" and "[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)" along with a tenderness Bruce had only hinted at before. To those who listen for it, "Independence Day" is one of the most revealing love songs in his catalog.
+"Independence Day" bridges the two albums. In a single song, we can hear the frustration of "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" and "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" along with a tenderness Bruce had only hinted at before. To those who listen for it, "Independence Day" is one of the most revealing love songs in his catalog.
 
 "Independence Day" is a song of farewell. It's the last conversation–for a while–between father and son, as they sit facing each other in their living room, desirous but unable to bridge the gap between them, both aware that the gap is necessary for their relationship's survival.
 
@@ -47,9 +47,9 @@ There's a sense of fatalism at work throughout "Independence Day," established i
 > *But they can't touch me now and you can't touch me now*<br>
 > *They ain't gonna do to me what I watched them do to you*<br>
 
-In fact, at least in lyrics we hear echoes of the [opening](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/) and [closing](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/) tracks of *Darkness on the Edge of Town*, but whereas those tracks are self-centered anthems of actualization, the narrator of "Independence Day" is more focused on what he's leaving behind than on where he's going.
+In fact, at least in lyrics we hear echoes of the [opening](../2019-05-20_roll-of-the-dice-badlands/post.md) and [closing](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md) tracks of *Darkness on the Edge of Town*, but whereas those tracks are self-centered anthems of actualization, the narrator of "Independence Day" is more focused on what he's leaving behind than on where he's going.
 
-We never get a hint of what's drawing him away from home–there's no dream, no mission, no job, no girl. He's running away, not toward–something Bruce makes explicit in the second chorus. And what he's running from is an existential threat: if he doesn't leave now, he'll end up defeated and broken like his father, consigned to a "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" life.
+We never get a hint of what's drawing him away from home–there's no dream, no mission, no job, no girl. He's running away, not toward–something Bruce makes explicit in the second chorus. And what he's running from is an existential threat: if he doesn't leave now, he'll end up defeated and broken like his father, consigned to a "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" life.
 
 > *So say goodbye, it's Independence Day*<br>
 > *It's Independence Day all down the line*<br>

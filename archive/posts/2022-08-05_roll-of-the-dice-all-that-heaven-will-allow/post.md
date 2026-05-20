@@ -42,11 +42,11 @@ If it was just the bridge's reference to dark skies and Mister Trouble, we might
 > *‘Cause I got something on my mind, yeah, that sets me straight and walking proud*<br>
 > *And I want all the time, yeah all that heaven will allow*<br>
 
-Bruce swiped that first couplet from his *Darkness* outtake "[City of Night](https://estreetshuffle.com/index.php/2020/06/28/roll-of-the-dice-city-of-night/)." He certainly could have written new lyrics if he'd wanted to, so we have to assume he raided his notebook for those specific lines for a reason.
+Bruce swiped that first couplet from his *Darkness* outtake "[City of Night](../2020-06-28_roll-of-the-dice-city-of-night/post.md)." He certainly could have written new lyrics if he'd wanted to, so we have to assume he raided his notebook for those specific lines for a reason.
 
 It might be another hat tip to the movie, as Hudson's character faces mortal peril towards the film's conclusion. (No spoilers!) More likely, though, it's a deliberate page turn from Bruce's earlier live-hard, drive-fast, take-your-stand songwriting to a more mature protagonist who leaves that life behind and looks forward to a life of love and companionship.
 
-Musically, "All That Heaven Will Allow" is a solo number. With the exception of Max Weinberg on drums (although it sounds more like he's playing the drumsticks), Bruce plays every instrument on the track. In concert, though, the feel-good song came alive in a full-band arrangement that stretched more than ten minutes, although most of that time belonged to a charming scene between Bruce and the Big Man (who gets some fine solo time), and a brief snippet of "[Here She Comes Walking.](https://estreetshuffle.com/index.php/2020/06/28/roll-of-the-dice-city-of-night/)"
+Musically, "All That Heaven Will Allow" is a solo number. With the exception of Max Weinberg on drums (although it sounds more like he's playing the drumsticks), Bruce plays every instrument on the track. In concert, though, the feel-good song came alive in a full-band arrangement that stretched more than ten minutes, although most of that time belonged to a charming scene between Bruce and the Big Man (who gets some fine solo time), and a brief snippet of "[Here She Comes Walking.](../2020-06-28_roll-of-the-dice-city-of-night/post.md)"
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kerAh8FGtvQ)
 

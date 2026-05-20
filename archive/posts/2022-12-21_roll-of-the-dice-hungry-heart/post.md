@@ -1,10 +1,10 @@
 Written for The Ramones, arranged after The Beach Boys, built around a Four Seasons riff and a Tennyson metaphor, sped up a la Alvin and The Chipmunks, and sporting deceptively dark lyrics, "Hungry Heart" was a longshot candidate for release at all, let alone a lead single.
 
-It became, of course, one of Bruce Springsteen's biggest hits. Even today, it remains Springsteen's best-charting single in North America, behind only "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."
+It became, of course, one of Bruce Springsteen's biggest hits. Even today, it remains Springsteen's best-charting single in North America, behind only "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Official Audio)](https://www.youtube.com/watch?v=boJhWtw-6Gg)
 
-As legend has it, the origin of "Hungry Heart" dates back to March 23rd 1979, when Bruce met The Ramones backstage at The Fast Lane in Asbury Park. Bruce had already donated two Top 20 singles ("Because the Night" and "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)") within the past year, so Joey Ramone may have only been half-kidding when he asked Bruce to write them a song.
+As legend has it, the origin of "Hungry Heart" dates back to March 23rd 1979, when Bruce met The Ramones backstage at The Fast Lane in Asbury Park. Bruce had already donated two Top 20 singles ("Because the Night" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)") within the past year, so Joey Ramone may have only been half-kidding when he asked Bruce to write them a song.
 
 [Watch Video Highlight](https://videopress.com/embed/evxQu4FX)
 
@@ -52,13 +52,13 @@ We meet our narrator as he tells his tale to Jack (that's us) from a neighboring
 > *Like a river that don't know where it's flowing*<br>
 > *I took a wrong turn and I just kept going*<br>
 
-Although it's not the only [song on the album to feature a river metaphor](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/), Bruce borrowed this particular one from [one of Bob Dylan's cocktail napkins](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/).
+Although it's not the only [song on the album to feature a river metaphor](../2021-03-04_roll-of-the-dice-the-river/post.md), Bruce borrowed this particular one from [one of Bob Dylan's cocktail napkins](../2021-01-04_cover-me-ballad-of-easy-rider/post.md).
 
 [Watch on Youtube: Roger McGuinn - "Ballad of Easy Rider"](https://www.youtube.com/watch?v=BWoMz6C7INQ)
 
 Dylan scrawled "*The river flows, it flows to the sea/Wherever that river goes, that's where I want to be"* and handed it to Peter Fonda, who gave it to Roger McGuinn, who developed it into the title song for Fonda's 1969 film, *Easy Rider*.
 
-"The Ballad of Easy Rider" clearly informed "Hungry Heart." (Bruce even [covered it once](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/) during the River Tour in 1981.) But while McGuinn's narrator is a blank slate with no ties to bind him, Bruce's character is anchored by commitment and obligation. He's restless, though, and like Dylan's river, he feels pulled… somewhere.
+"The Ballad of Easy Rider" clearly informed "Hungry Heart." (Bruce even [covered it once](../2021-01-04_cover-me-ballad-of-easy-rider/post.md) during the River Tour in 1981.) But while McGuinn's narrator is a blank slate with no ties to bind him, Bruce's character is anchored by commitment and obligation. He's restless, though, and like Dylan's river, he feels pulled… somewhere.
 
 > *Everybody's got a hungry heart*<br>
 > *Everybody's got a hungry heart*<br>

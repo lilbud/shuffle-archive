@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1985-0124.jpg.webp)
 
-**1987:** At his home studio in Holmdel, Bruce records two songs for [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/), neither of which will make it to the finished album. Both “Pretty Baby, Will You Be Mine” and “Things Ain’t That Way” remain unreleased to this day.<br>
+**1987:** At his home studio in Holmdel, Bruce records two songs for [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md), neither of which will make it to the finished album. Both “Pretty Baby, Will You Be Mine” and “Things Ain’t That Way” remain unreleased to this day.<br>
 
 **1988**: Bruce and the E Street Band rehearse for the Tunnel of Love Express Tour at the Expo Theater in Fort Monmouth, New Jersey.<br>
 

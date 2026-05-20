@@ -12,7 +12,7 @@ In this second home demo, the song is clearly much farther along. The lyrics are
 
 [Watch on Youtube: Bruce Springsteen You Can Look But You Better Not Touch #2](https://www.youtube.com/watch?v=eQsNaDhvDbk)
 
-By the spring, Bruce abandoned the reggae arrangement and cast about for something better suited to the song. Not long after recording those home demos, Bruce recorded a new song with the band in the studio, "[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)."
+By the spring, Bruce abandoned the reggae arrangement and cast about for something better suited to the song. Not long after recording those home demos, Bruce recorded a new song with the band in the studio, "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)."
 
 [Watch on Youtube: Held Up Without a Gun (Single B-side - 1980)](https://www.youtube.com/watch?v=gxBhIeTARBE)
 

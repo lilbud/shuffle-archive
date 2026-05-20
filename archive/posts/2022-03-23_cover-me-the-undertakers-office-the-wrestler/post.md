@@ -1,4 +1,4 @@
-Continuing our look at rarely-covered Springsteen songs, today we travel to Norway to appreciate this lovely cover of "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)" by Oslo based electronic-indie-pop-rock duo Lars Sundt and Kent Roise, otherwise known as The Undertaker's Office.
+Continuing our look at rarely-covered Springsteen songs, today we travel to Norway to appreciate this lovely cover of "[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)" by Oslo based electronic-indie-pop-rock duo Lars Sundt and Kent Roise, otherwise known as The Undertaker's Office.
 
 [Watch on Youtube: The Wrestler Bruce Springsteen Cover](https://www.youtube.com/watch?v=_DvjBUOAaV8)
 

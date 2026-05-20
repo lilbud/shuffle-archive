@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1977-03-05.jpg.webp)
 
-**1981:** At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play “[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)” for the last time until 2005.<br>
+**1981:** At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play “[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)” for the last time until 2005.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DteacuKH)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1999-03-05a.jpg.webp)
 
-**2001:** “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” are both certified gold by the Recording Industry Association of America.<br>
+**2001:** “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)” and “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” are both certified gold by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Working On A Dream](https://www.youtube.com/playlist?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
-**2023:** Bruce and the E Street Band bring their World Tour to Saint Paul, where they tour premiere “[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)” and “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”<br>
+**2023:** Bruce and the E Street Band bring their World Tour to Saint Paul, where they tour premiere “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)” and “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen- Pay Me My Money Down - St Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=QFvxomhYioc)
 

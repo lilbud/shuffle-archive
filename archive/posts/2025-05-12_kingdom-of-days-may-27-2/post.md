@@ -4,35 +4,35 @@
 
 [Watch Video Highlight](https://videopress.com/embed/10bHWUP3)
 
-**1978:** At Night Two in Philadelphia on the Darkness Tour, the core of the set finally gels, as fans hear the first consecutive plays of “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/),” “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/),” “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/),” “Thunder Road,” and “Jungleland.” This core five-pack will last throughout the rest of the tour.<br>
+**1978:** At Night Two in Philadelphia on the Darkness Tour, the core of the set finally gels, as fans hear the first consecutive plays of “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md),” “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md),” “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md),” “Thunder Road,” and “Jungleland.” This core five-pack will last throughout the rest of the tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/LvrfSAAA)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-05-26.jpg.webp)
 
-**1979:** Bruce joins Robert Gordon on stage for “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” at the Paramount Theater in Asbury Park. Garry joins them for “[Heartbreak Hotel](https://estreetshuffle.com/index.php/2021/04/11/matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/)” as well.<br>
+**1979:** Bruce joins Robert Gordon on stage for “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)” at the Paramount Theater in Asbury Park. Garry joins them for “[Heartbreak Hotel](../2021-04-11_matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/post.md)” as well.<br>
 
 [Watch on Youtube: Robert Gordon Bruce Springsteen duet-'79](https://www.youtube.com/watch?v=kdSQPILL2Nw)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1979-05-27.jpg.webp)
 
-**1981:** At the Brighton Center on the River Tour, Bruce and the E Street Band perform “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)” for the last time for 28 years.<br>
+**1981:** At the Brighton Center on the River Tour, Bruce and the E Street Band perform “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” for the last time for 28 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/sOEKNAFK)
 
 **1983:** Bruce and the E Street Band record at The Hit Factory in New York City for *Born in the U.S.A.*, although none of the tracks from today’s session will make the album.<br>
 
-**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell’s in Hoboken for the first of two days of filming for the video for “[Glory Days.](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” Watch local news coverage below.<br>
+**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell’s in Hoboken for the first of two days of filming for the video for “[Glory Days.](../2024-06-04_roll-of-the-dice-glory-days/post.md)” Watch local news coverage below.<br>
 
 [Watch on Youtube: Bruce Springsteen: Making of Glory Days video at Maxwell's, Hoboken, NJ 5-28-85](https://www.youtube.com/watch?v=NeJrkyzmyS0)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1985-05-27.jpg.webp)
 
-**1999:** Bruce and the E Street Band make a Reunion Tour stop at the Flanders Expo in Ghent, where Elliott Murphy guest-stars on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” and “Born to Run.”<br>
+**1999:** Bruce and the E Street Band make a Reunion Tour stop at the Flanders Expo in Ghent, where Elliott Murphy guest-stars on “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” and “Born to Run.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/n9SXCX1I)
 
-**2000:** Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the MGM Grand Garden Arena. Bruce opens and closes with the premiere of “[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/),” and he tour premieres “[Can’t Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)” for the occasion as well.<br>
+**2000:** Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the MGM Grand Garden Arena. Bruce opens and closes with the premiere of “[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md),” and he tour premieres “[Can’t Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)” for the occasion as well.<br>
 
 [Watch on Youtube: Las Vegas 27/05/2000](https://www.youtube.com/playlist?list=PLJTyL9twk3zC6-aOkAImq5An0nRfHsd63)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2001-05-27.jpg.webp)
 
-**2003:** At Night Two at London’s Crystal Palace on the Rising Tour, Bruce opens with a solo acoustic “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)”<br>
+**2003:** At Night Two at London’s Crystal Palace on the Rising Tour, Bruce opens with a solo acoustic “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)”<br>
 
 [Watch on Youtube: Bruce Springsteen - She's The One](https://www.youtube.com/watch?v=dlAdt0dbmIM)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2005-05-27b.jpg.webp)
 
-**2006:** The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a “[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)” / “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)” medley.<br>
+**2006:** The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a “[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)” / “[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)” medley.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AEGvmSmm)
 
@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2006-05-27.jpg.webp)
 
-**2012:** “[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)” makes its Wrecking Ball Tour premiere when Bruce and the band stop in Cologne, Germany. For the first time since *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*was released in 1978, no songs from that album are performed.<br>
+**2012:** “[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)” makes its Wrecking Ball Tour premiere when Bruce and the band stop in Cologne, Germany. For the first time since *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*was released in 1978, no songs from that album are performed.<br>
 
 [Watch on Youtube: Bruce Springsteen - Wrecking Ball (2012-05-27 - Cologne)](https://www.youtube.com/watch?v=ck5otci0htU)
 
@@ -84,7 +84,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Land Of Hope And Dreams (2012-05-27 - Cologne)](https://www.youtube.com/watch?v=lGa65Wt94Ws)
 
-**2016:** Bruce and the E Street Band play the first of two River Tour (2016 edition) shows at Croke Park in Dublin. “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)” and “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” both make their tour debuts.<br>
+**2016:** Bruce and the E Street Band play the first of two River Tour (2016 edition) shows at Croke Park in Dublin. “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)” and “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” both make their tour debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen Dublin 27/05/2016 tv report](https://www.youtube.com/watch?v=Nq28PzXDr8Y)
 
@@ -104,7 +104,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/05/2019-05-27.jpg.webp)
 
-**2023:** Bruce takes a tumble during “[Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)” when he and the E Street Band play their second of two nights in Amsterdam on their 2023 World Tour.<br>
+**2023:** Bruce takes a tumble during “[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)” when he and the E Street Band play their second of two nights in Amsterdam on their 2023 World Tour.<br>
 
 [Watch on Youtube: Bruce Springsteen - Ghosts (Amsterdam #2, 2023)](https://www.youtube.com/watch?v=S4PFmorEK0M)
 

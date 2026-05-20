@@ -36,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Sunday_Sun_Sun__May_17__1981_-scaled.jpg.webp)
 
-**1982:** Bruce works on "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)," "This Hard Land," "[Baby I'm So Cold](https://estreetshuffle.com/index.php/2019/05/04/roll-of-the-dice-baby-im-so-cold/)" and "Common Ground (Stay Hungry)" at The Power Station in New York City.<br>
+**1982:** Bruce works on "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "This Hard Land," "[Baby I'm So Cold](../2019-05-04_roll-of-the-dice-baby-im-so-cold/post.md)" and "Common Ground (Stay Hungry)" at The Power Station in New York City.<br>
 
 **1984:** Nils Lofgren officially joins The E Street Band and rehearses with his new bandmates at the former home of Big Man's West in Red Bank.<br>
 
@@ -58,7 +58,7 @@ Meanwhile back at home, the *Asbury Park Press* reports that the E Street Band i
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Asbury_Park_Press_Tue__May_11__1993_-scaled.jpg.webp)
 
-**2005:** One of the standout shows of the first leg of the Devils & Dust Tour. At the Rosemont Theater outside of Chicago, Bruce debuts "[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)" (with slightly different lyrics and phrasing than the version it would soon morph into) and plays the banjo for the first time (on "I'm on Fire"). During "[Land of Hope and Dreams,](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" Bruce breaks a guitar string and continues a capella without missing a beat until Kevin Buell restrings the guitar in the nick of time–a truly remarkable performance.<br>
+**2005:** One of the standout shows of the first leg of the Devils & Dust Tour. At the Rosemont Theater outside of Chicago, Bruce debuts "[Dream Baby Dream](../2020-04-02_cover-me-dream-baby-dream/post.md)" (with slightly different lyrics and phrasing than the version it would soon morph into) and plays the banjo for the first time (on "I'm on Fire"). During "[Land of Hope and Dreams,](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" Bruce breaks a guitar string and continues a capella without missing a beat until Kevin Buell restrings the guitar in the nick of time–a truly remarkable performance.<br>
 
 [Watch on Youtube: Bruce Springsteen - Land of Hope and Dreams, Rosemont 5/11/05](https://www.youtube.com/watch?v=iqy-o19coRw)
 
@@ -70,7 +70,7 @@ Meanwhile back at home, the *Asbury Park Press* reports that the E Street Band i
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-05-11b.jpg.webp)
 
-**2009:** By request, Bruce plays the tour premiere of "[Good Lovin'](https://estreetshuffle.com/index.php/2019/12/15/cover-me-good-lovin/)" when the Working on a Dream Tour stops at the Xcel Energy Center in St. Paul. Earlier that day, Governor Pawlenty signs "Springsteen's Law," passed by the state legislature to protect consumers from predatory behavior from online ticket sellers.<br>
+**2009:** By request, Bruce plays the tour premiere of "[Good Lovin'](../2019-12-15_cover-me-good-lovin/post.md)" when the Working on a Dream Tour stops at the Xcel Energy Center in St. Paul. Earlier that day, Governor Pawlenty signs "Springsteen's Law," passed by the state legislature to protect consumers from predatory behavior from online ticket sellers.<br>
 
 [Watch on Youtube: Bruce Springsteen Good Lovin' May 11, 2009 St. Paul, MN](https://www.youtube.com/watch?v=OfiAv6MFTzQ)
 

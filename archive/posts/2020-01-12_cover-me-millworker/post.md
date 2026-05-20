@@ -12,7 +12,7 @@ Perhaps the lack of a proper introduction threw him a bit, because he didn't see
 
 [Watch on Youtube: MILLWORKER by Bruce Springsteen](https://www.youtube.com/watch?v=1lNNMb_7qcE)
 
-That was a one-time-only performance–but just a couple months later, Bruce would release [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) and embark on a too-brief tour featuring a set list full of songs honoring good people who had to work too hard just to survive.
+That was a one-time-only performance–but just a couple months later, Bruce would release [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) and embark on a too-brief tour featuring a set list full of songs honoring good people who had to work too hard just to survive.
 
 "Millworker" was a fitting prologue for the year.
 

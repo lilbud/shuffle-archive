@@ -1,6 +1,6 @@
 To call The Cash Cows a cover band would be a disservice.
 
-The UK-based duo (and their extra-sized, brass-powered Extreme edition) dramatically reinterpret and reinvent each song they cover, and the most recent addition to the repertoire is Bruce’s “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”
+The UK-based duo (and their extra-sized, brass-powered Extreme edition) dramatically reinterpret and reinvent each song they cover, and the most recent addition to the repertoire is Bruce’s “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).”
 
 Now, I know you’re probably thinking that the world doesn’t need yet another cover of “Dancing in the Dark.”
 

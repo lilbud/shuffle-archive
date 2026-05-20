@@ -4,7 +4,7 @@ Take a listen and hear for yourself. (Hint: as with many of Bruce's songs, the s
 
 [Watch on Youtube: Bruce Springsteen - Meet Me In The City (Audio)](https://www.youtube.com/watch?v=dIni5l8oBXA)
 
-"Meet Me in the City" belongs to the collection of "hybrid" River outtakes, an amalgamation of a vintage 1979 backing track and backing vocals with a 2015 lead vocal. It works much better than some of the other outtakes included with *The Ties That Bind: The River* Collection though, in part because there aren't any traces of Bruce's 1979 vocals for contrast (see "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)" for a jarring example of a less successful patch job), and in part because of the meta nature of the song itself.
+"Meet Me in the City" belongs to the collection of "hybrid" River outtakes, an amalgamation of a vintage 1979 backing track and backing vocals with a 2015 lead vocal. It works much better than some of the other outtakes included with *The Ties That Bind: The River* Collection though, in part because there aren't any traces of Bruce's 1979 vocals for contrast (see "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md)" for a jarring example of a less successful patch job), and in part because of the meta nature of the song itself.
 
 Still, I can't help but suspect that the mix we hear in the clip above isn't what we might have heard had "Meet Me in the City" actually made the original *The River* album. Take a listen to this 1979 E Street Band rehearsal session–you'll hear a slightly slower and much brighter arrangement than on the record, thanks to Danny Federici's prominent glockenspiel, which is buried in the mix in the studio version.
 
@@ -33,7 +33,7 @@ At first read, that first line may seem out of place: e*verybody's lost in roman
 
 It's not, of course. Bruce isn't using "romance" in the colloquial sense here–he's using it in the literary sense. We know this because he bookends the verse with "I'm just searching… for what's real." In other words, "Meet Me in the City" is about the contrast of romanticism with realism–as, in a way, is *The River* itself.
 
-*The River* is a double album, but it's also a dichotomous one. Like "Meet Me in the City," *The River* is an amalgam, one of style rather than chronology. The songs on *The River* are mostly romantic (see "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)," "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)," and "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)"), but we see a few realistic ones as well ("[Sherry Darling,](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" "[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)," and the [title track](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).)
+*The River* is a double album, but it's also a dichotomous one. Like "Meet Me in the City," *The River* is an amalgam, one of style rather than chronology. The songs on *The River* are mostly romantic (see "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)," "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)," and "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)"), but we see a few realistic ones as well ("[Sherry Darling,](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)," and the [title track](../2021-03-04_roll-of-the-dice-the-river/post.md).)
 
 The cleverness of "Meet Me in the City" lies in the fact that it is a romantic song about realism–or perhaps more accurately, it's a song about a romantic who yearns to be a realist. But even that only captures the surface of the song. "Meet Me in the City" is also an artist's internal dialogue, a songwriter's message to his younger self across the years that span the creation of the song itself.
 
@@ -48,7 +48,7 @@ That's a lot for a three-and-a-half-minute rock song to carry, isn't it? Bear wi
 
 This is a decidedly romantic opening verse–necessarily so, in order to set us up for the realism that follows. It also sounds like a perfect pop song verse, which is not an accident.
 
-(**Note:** I'd be remiss if I didn't take a moment to note the lyrical and metaphorical similarity to Bruce's 2007 single, "[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)"–another meta commentary on popular music.
+(**Note:** I'd be remiss if I didn't take a moment to note the lyrical and metaphorical similarity to Bruce's 2007 single, "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)"–another meta commentary on popular music.
 
 > *I was trying to find my way home*<br>
 > *But all I heard was a drone*<br>
@@ -70,7 +70,7 @@ Let's move on to the part of the song that confuses many fans:
 
 In the first verse, the narrator is a disembodied voice riding the airwaves. In the second, we find out where he's transmitting from. Apparently, he's had a run-in with the law, and it's not his first time. It seems he has been arrested at least for public intoxication and probably for drug use–and for whatever disruptive or perhaps violent acts he committed while under the influence.
 
-Not only is our protagonist in prison, it also appears he's on death row, which makes us wonder if this is a "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)" scenario. But perhaps all is not quite what it seems, because if taken literally, the final four lines of the second verse are an awfully strange segue:
+Not only is our protagonist in prison, it also appears he's on death row, which makes us wonder if this is a "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" scenario. But perhaps all is not quite what it seems, because if taken literally, the final four lines of the second verse are an awfully strange segue:
 
 > *If you're sick, if you're tired, if you're bored*<br>
 > *Then check the line, check the time, check the action, check the score*<br>
@@ -88,7 +88,7 @@ And *now* the song snaps into focus, as the voice of an artist–or perhaps *the
 
 Filled with florid imagery and clever metaphor, laced with idealism and earnestness, romantic literature and music began to turn off nineteenth century artists and produced as a reaction a movement of art, literature, and music centered on ordinary people in ordinary circumstances–depicted in plain language and with outcomes that aren't always neat and tidy. In other words, a whole lot like the evolution of Bruce's songwriting at the time.
 
-Bruce's first three albums were *deeply*, almost archetypically romantic. Only with "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" on *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* did Bruce's songwriting verge into realism. *The River* features a few more experiments with realism, but it wasn't until his sixth album, *Nebraska*, that Bruce fully embraced the form.
+Bruce's first three albums were *deeply*, almost archetypically romantic. Only with "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" on *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)* did Bruce's songwriting verge into realism. *The River* features a few more experiments with realism, but it wasn't until his sixth album, *Nebraska*, that Bruce fully embraced the form.
 
 The bridge of "Meet Me in the City" sounds like the voice of the artist in 1979, growing bored with romantic songwriting and groping his way toward a more realistic catalog.
 

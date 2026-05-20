@@ -1,4 +1,4 @@
-We’ve known that Bruce is a fan of The Drifters long before he namechecked ~~Benny~~ Ben E. King in “[The Power of Prayer](https://estreetshuffle.com/index.php/2021/09/29/roll-of-the-dice-the-power-of-prayer/).”
+We’ve known that Bruce is a fan of The Drifters long before he namechecked ~~Benny~~ Ben E. King in “[The Power of Prayer](../2021-09-29_roll-of-the-dice-the-power-of-prayer/post.md).”
 
 He may not have played “This Magic Moment” in concert (yet), but he’s certainly played the group’s bigger hit from that year, “Save the Last Dance For Me.”
 

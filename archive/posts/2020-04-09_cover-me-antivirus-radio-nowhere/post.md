@@ -4,7 +4,7 @@ Even in the country most tragically impacted by the COVID-19 pandemic, music con
 
 More than thirty musicians from all over Italy (and a few from elsewhere) have come together–virtually of course–to create an epic jam video to raise money for the Italian Red Cross and the Lazzaro Spallanzani National Institute for Infectious Diseases.
 
-Led by Sebastiano Cavallo, they call their project **Antivirus: Rock Strikes Corona**, and the song they chose to cover is Bruce Springsteen's "[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)"–a song that resonates right now in an entirely different way than when Bruce first released it.
+Led by Sebastiano Cavallo, they call their project **Antivirus: Rock Strikes Corona**, and the song they chose to cover is Bruce Springsteen's "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)"–a song that resonates right now in an entirely different way than when Bruce first released it.
 
 [Watch on Youtube: RADIO NOWHERE (Bruce Springsteen Cover) - Antivirus - Rock Strikes Corona #covid19 #Togetherwecan](https://www.youtube.com/watch?v=90YjZJBcqPQ)
 

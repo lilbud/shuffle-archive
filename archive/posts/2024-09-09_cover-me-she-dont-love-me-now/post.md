@@ -8,14 +8,14 @@ I'm not saying *Only the Strong Survive* is a bad album–far from it. It's full
 
 But despite its subtitle, I'd argue that it's not so much a covers album as a vocals album, designed to highlight Springsteen as soul crooner rather than interpreter. Every song hews faithfully to its original arrangement. There's no reason to listen to any of the tracks except to hear what the song sounds like with Bruce's voice singing it.
 
-If we listen to "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)," "[Jersey Girl,](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" or anything from the [Seeger Sessions era](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/), by contrast, we glean a true appreciation for Bruce's ability to reinvigorate a song that was already great to begin with.
+If we listen to "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)," "[Jersey Girl,](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" or anything from the [Seeger Sessions era](../2022-07-17_album-companion-we-shall-overcome/post.md), by contrast, we glean a true appreciation for Bruce's ability to reinvigorate a song that was already great to begin with.
 
 Which is why it's so refreshing to hear Bruce's rendition of Jesse Malin's "She Don't Love Me Now,"
 a return to form for Bruce and a fitting tribute to [an artist we've featured here many times before](https://estreetshuffle.com/?s=jesse+malin).
 
 [Watch on Youtube: Bruce Springsteen/Jesse Malin - She Don't Love Me Now (Official Visualizer)](https://www.youtube.com/watch?v=gLK-Z9QilVk)
 
-Bruce and Jesse have performed many of Malin's songs on stage together over the years. Bruce even appears on the studio version of "[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)."
+Bruce and Jesse have performed many of Malin's songs on stage together over the years. Bruce even appears on the studio version of "[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md)."
 
 So why did Bruce choose to cover a song the pair have never performed? I'm guessing it has something to do with the original track's production. Recorded for Malin's 2015 album, *New York Before the War*, "She Don't Love Me Now" is clearly influenced by the classic Stax sound. Even without Jesse's admission in recent interviews, we can hear it almost immediately in the backing horns, an unusual presence in a Jesse Malin song.
 

@@ -20,15 +20,15 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1981-04-18-1.jpg.webp)
 
-**1999:** TNT airs a Johnny Cash tribute special, on which Bruce performs “[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/).”<br>
+**1999:** TNT airs a Johnny Cash tribute special, on which Bruce performs “[Give My Love to Rose](../2020-10-29_cover-me-give-my-love-to-rose/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
 
-**2000:** At their Reunion show in Houston, fans witness the E Street Band premiere of “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/).”<br>
+**2000:** At their Reunion show in Houston, fans witness the E Street Band premiere of “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MuIILEbI)
 
-**2003:** At the Corel Centre in Ottawa on the Rising Tour, Bruce plays “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” for the only time on the tour. In the encores, Clarence collides with Bruce during “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/),” falls on top of him, knocks them both to the ground, and they somehow manage to continue playing the entire time!<br>
+**2003:** At the Corel Centre in Ottawa on the Rising Tour, Bruce plays “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” for the only time on the tour. In the encores, Clarence collides with Bruce during “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md),” falls on top of him, knocks them both to the ground, and they somehow manage to continue playing the entire time!<br>
 
 [Watch on Youtube: Ramrod Bruce Springsteen 4/18/2003 Ottawa, ON](https://www.youtube.com/watch?v=iwyYmRypZGk)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Patti Scialfa - Live at The Hit Factory in New York City - 2004-04-18](https://www.youtube.com/watch?v=WMG0Ji8Qqi4)
 
-**2007:** Bruce and Jesse Malin film the video for Jesse’s single, “[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/).”<br>
+**2007:** Bruce and Jesse Malin film the video for Jesse’s single, “[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md).”<br>
 
 [Watch on Youtube: Jesse Malin - Broken Radio (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=dlmBCrBJokA)
 

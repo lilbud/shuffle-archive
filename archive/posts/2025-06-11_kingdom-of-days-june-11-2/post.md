@@ -32,7 +32,7 @@
 
 **2005:** A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern's fiancée passes away.<br>
 
-**2006:** The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "[Long Black Veil](https://estreetshuffle.com/index.php/2020/02/05/cover-me-long-black-veil/)" makes its American premiere.<br>
+**2006:** The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "[Long Black Veil](../2020-02-05_cover-me-long-black-veil/post.md)" makes its American premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen Jacob's ladder live in St. Paul](https://www.youtube.com/watch?v=OJZmPNby-9U)
 

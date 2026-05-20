@@ -1,4 +1,4 @@
-So the story goes that Bruce Springsteen wrote his [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)album in a ten-day spurt of creativity, crafting nine new songs and supplementing them with three never-released older ones.
+So the story goes that Bruce Springsteen wrote his [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md)album in a ten-day spurt of creativity, crafting nine new songs and supplementing them with three never-released older ones.
 
 That's not exactly true, though. In reality, a full half of the album's twelve songs were extant long before he wrote the other six in early 2019. But at least all twelve songs were recorded during a week-long session with the E Street Band that November, right?
 
@@ -6,7 +6,7 @@ Well… that might be a bit of a stretch also.
 
 Because not only is "Burnin' Train" almost thirty years old (it was first demoed during Bruce's Los Angeles residency back in 1993), I'm not sure the official studio track dates entirely from those November 2019 sessions.
 
-For one thing, Toby Scott carries an engineering credit not just on "Burnin' Train" but also on "[One Minute You're Here](https://estreetshuffle.com/index.php/2021/05/30/roll-of-the-dice-one-minute-youre-here/)" (which dates back to 2003) and "[Rainmaker](https://estreetshuffle.com/index.php/2021/02/12/roll-of-the-dice-rainmaker/)" (2004)–and Toby left Bruce's employ in 2017.
+For one thing, Toby Scott carries an engineering credit not just on "Burnin' Train" but also on "[One Minute You're Here](../2021-05-30_roll-of-the-dice-one-minute-youre-here/post.md)" (which dates back to 2003) and "[Rainmaker](../2021-02-12_roll-of-the-dice-rainmaker/post.md)" (2004)–and Toby left Bruce's employ in 2017.
 
 And interestingly, there is no footage of "Rainmaker" in the *Letter to You* documentary, and the only video for "One Minute You're Here" is of Bruce recording his vocals. There's some footage of band members recording "Burnin' Train" just before the end credits roll, but it's carefully edited enough that the sleuth in me suspects these may be hybrids of older recordings with more recent overdubs.
 
@@ -16,7 +16,7 @@ One thing is certain, though: "Burnin' Train" certainly doesn't *sound* like the
 
 A hard-charging, full-on rocker, "Burnin' Train has a completely unique sound compared to the rest of its album-mates. Although the song reportedly dates back to the immediately post-*Lucky Town* era, it doesn't sound very nineties, either.
 
-If anything, "Burnin' Train" seems to be a close musical cousin to "[Gypsy Biker,](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)" so similar are their backing tracks–particularly their guitar solos.
+If anything, "Burnin' Train" seems to be a close musical cousin to "[Gypsy Biker,](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" so similar are their backing tracks–particularly their guitar solos.
 
 [Watch on Youtube: Gypsy Biker](https://www.youtube.com/watch?v=uLqNoQpOfms)
 

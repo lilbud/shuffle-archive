@@ -31,7 +31,7 @@ But thematically, "Walking in the Street" (sometimes called "Lovers in the Cold"
 
 Billy carries a gun and walks Lexington Avenue, "casing the promised land." A getaway driver "waits outside the store. He pulls away just as Billy runs out the door. Oh, and Billy won't run any more, no no no…"
 
-They sound more like the lovers in "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" or "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)" than in "Thunder Road." (And having written that, I now wonder whether the story in "Walking in the Street" migrated to "Meeting Across the River" when the melody left town for "Thunder Road.")
+They sound more like the lovers in "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" or "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" than in "Thunder Road." (And having written that, I now wonder whether the story in "Walking in the Street" migrated to "Meeting Across the River" when the melody left town for "Thunder Road.")
 
 The chorus pairs a soaring melody with gorgeous but grounded imagery:
 

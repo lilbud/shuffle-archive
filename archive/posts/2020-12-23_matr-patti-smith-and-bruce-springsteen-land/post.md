@@ -8,7 +8,7 @@ During the *Born to Run/Horses* era, Bruce made a few appearances at Patti's con
 
 Patti played two shows at The Bottom Line in New York City that night, and Bruce joined her band for both of them. And when I say "joined her band," that's no exaggeration: Bruce performed seven songs at the early show and six at the late show–ten unique songs in all, and none of them his.
 
-Oh, and he didn't sing, either–Bruce was purely an instrumentalist that night, accompanying Patti and her band on guitar (and occasionally piano–check out "[We're Gonna Have a Real Good Time Together](https://estreetshuffle.com/index.php/2020/09/09/matr-the-patti-smith-group-and-bruce-springsteen-were-gonna-have-a-real-good-time-together/)").
+Oh, and he didn't sing, either–Bruce was purely an instrumentalist that night, accompanying Patti and her band on guitar (and occasionally piano–check out "[We're Gonna Have a Real Good Time Together](../2020-09-09_matr-the-patti-smith-group-and-bruce-springsteen-were-gonna-have-a-real-good-time-together/post.md)").
 
 At the late show, their first song was Patti's nine-and-a-half-minute opus, "Land." With an opening movement called "Horses," it's the closest the album has to a title track–a melange of punk, poetry, and even a classic rock cover ("Land of 1,000 Dances.")
 

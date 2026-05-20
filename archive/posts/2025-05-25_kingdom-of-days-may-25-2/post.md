@@ -6,9 +6,9 @@
 
 **1974:** A scheduled gig at Archbishop John Carroll High School in Radnor, Pennsylvania is cancelled due to low ticket sales.<br>
 
-**1979:** Bruce and the E Street Band work on "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" at the Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" at the Power Station in New York City.<br>
 
-**1982:** Bruce records "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" in his home studio. It will be released later on the year on *Nebraska*.<br>
+**1982:** Bruce records "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)" in his home studio. It will be released later on the year on *Nebraska*.<br>
 
 [Watch on Youtube: My Father's House](https://www.youtube.com/watch?v=r0NKGaPSSBQ)
 
@@ -28,7 +28,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/fOZ2sDFN)
 
-**1999:** The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays "[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)" for the very first time.<br>
+**1999:** The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)" for the very first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/EofiezBc)
 
@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1999-05-25.jpg.webp)
 
-**2006:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) is certified gold by the Recording Industry Association of America.<br>
+**2006:** [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) is certified gold by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Bruce Springsteen - Old Dan Tucker](https://www.youtube.com/watch?v=Iuh96kiIU2M?list=PLk9jHCsuoh6mPdX4YMgcpjjqh2IW4oDmZ)
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 25/05/2008 Full Concert](https://www.youtube.com/watch?v=0ojWymGABfs)
 
-**2012:** Frankfurt fans get tour premieres of "[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)," "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)," and "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" as the Wrecking Ball Tour reaches Germany.<br>
+**2012:** Frankfurt fans get tour premieres of "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)," and "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" as the Wrecking Ball Tour reaches Germany.<br>
 
 [Watch on Youtube: Bruce Springsteen - Badlands (end) + We Take Care Of Our Own (2012-05-25 - Frankfurt)](https://www.youtube.com/watch?v=dDd6mLOGLrc)
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out (2012-05-25 - Frankfurt)](https://www.youtube.com/watch?v=N4xxbtynLbU)
 
-**2016:** Of all the tour premieres one might predict for the River Tour's stop in Manchester, "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" probably wouldn't be one of them (but that's what it was).<br>
+**2016:** Of all the tour premieres one might predict for the River Tour's stop in Manchester, "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" probably wouldn't be one of them (but that's what it was).<br>
 
 [Watch on Youtube: Santa claus is coming to town bruce springsteen etihad manchester 2016 live](https://www.youtube.com/watch?v=lrkI254iEaU)
 

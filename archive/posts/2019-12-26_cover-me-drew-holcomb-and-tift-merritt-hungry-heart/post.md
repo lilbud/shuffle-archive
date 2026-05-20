@@ -1,4 +1,4 @@
-There was always a country song deep down in Bruce Springsteen's "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," and Drew Holcomb and Tift Merritt found it back in 2017 when they appeared together on [an episode of eTown](https://www.etown.org/broadcasts/drew-holcomb-neighbors-tift-merritt/).
+There was always a country song deep down in Bruce Springsteen's "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," and Drew Holcomb and Tift Merritt found it back in 2017 when they appeared together on [an episode of eTown](https://www.etown.org/broadcasts/drew-holcomb-neighbors-tift-merritt/).
 
 Skip past the first minute of rehearsal footage if you must, but don't miss their gorgeous cover performance that follows–it's one of my favorite covers of a Springsteen song.
 

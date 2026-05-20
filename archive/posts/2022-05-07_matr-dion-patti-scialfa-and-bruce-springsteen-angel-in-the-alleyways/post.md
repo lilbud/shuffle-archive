@@ -1,6 +1,6 @@
 Some team-ups are too good to be one-offs.
 
-In 2020, Patti Scialfa and Bruce Springsteen lent their talents to Dion for a new arrangement of Dion's "[Hymn to Him](https://estreetshuffle.com/index.php/2021/04/26/matr-dion-bruce-springsteen-and-patti-scialfa-hymn-to-him/)" paean on his *Blues With Friends* album, with Patti arranging and providing beautiful background vocals and Bruce contributing a guitar solo.
+In 2020, Patti Scialfa and Bruce Springsteen lent their talents to Dion for a new arrangement of Dion's "[Hymn to Him](../2021-04-26_matr-dion-bruce-springsteen-and-patti-scialfa-hymn-to-him/post.md)" paean on his *Blues With Friends* album, with Patti arranging and providing beautiful background vocals and Bruce contributing a guitar solo.
 
 "Hymn to Him" turned out so nicely that the three reunited for Dion's follow-up album, *Stomping Ground*, in 2021.
 

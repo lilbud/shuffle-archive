@@ -2,7 +2,7 @@ I think we’re gonna have to take this one on faith.
 
 On the night of September 4, 1977, Bruce Springsteen made an unannounced guest appearance at The Stone Pony with the club’s new house band, The Shots.
 
-Taking the baton from from Southside Johnny and The Asbury Jukes, The Shots were led by lead guitarist Billy Hector, who has a Springsteen recording credit to his name: we can hear him on Bruce’s 2009 “[Savin’ Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)” duet with John Luraschi on Luraschi’s *The End of the Road* album.
+Taking the baton from from Southside Johnny and The Asbury Jukes, The Shots were led by lead guitarist Billy Hector, who has a Springsteen recording credit to his name: we can hear him on Bruce’s 2009 “[Savin’ Up](../2018-05-14_roll-of-the-dice-cover-me-clarence-clemons-savin-up/post.md)” duet with John Luraschi on Luraschi’s *The End of the Road* album.
 
 [Watch on Youtube: "Savin' Up" ~ John Luraschi & Bruce Springsteen ~ Video by Rose A Montana](https://www.youtube.com/watch?v=EzhuwnTFqfg)
 

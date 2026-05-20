@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1968-0619.jpg.webp)
 
-**1970:** Steel Mill takes a trip down to Richmond, where they play the first of two nights at The String Factory. The set list includes a twenty-minute "[Garden State Parkway Blues](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)" and the only known performance of "[Where Was Jesus in Ohio](https://estreetshuffle.com/index.php/2020/07/06/roll-of-the-dice-where-was-jesus-in-ohio/)?"<br>
+**1970:** Steel Mill takes a trip down to Richmond, where they play the first of two nights at The String Factory. The set list includes a twenty-minute "[Garden State Parkway Blues](../2018-11-30_roll-of-the-dice-garden-state-parkway-blues/post.md)" and the only known performance of "[Where Was Jesus in Ohio](../2020-07-06_roll-of-the-dice-where-was-jesus-in-ohio/post.md)?"<br>
 
 [Watch on Youtube: Where Was Jesus In Ohio? - Bruce Springsteen (Very Rare)](https://www.youtube.com/watch?v=75UD5Xo01M4)
 
@@ -32,13 +32,13 @@
 
 [Watch on Youtube: Bruce Springsteen Born To Run ( Acoustic ) Live From Hippodrome de Vincennes 19/06/1988](https://www.youtube.com/watch?v=McWF04ZD7qw)
 
-**1999:** At Night One in Arnhem on the Reunion Tour, Bruce and the E Street Band tour premiere "[Stand On It.](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)"<br>
+**1999:** At Night One in Arnhem on the Reunion Tour, Bruce and the E Street Band tour premiere "[Stand On It.](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/EHBMBZae)
 
 [Watch Video Highlight](https://videopress.com/embed/oiYswN6O)
 
-**2003:** The Rising Tour stops in Oslo for a night, where "[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)" gets a rare outing. Word gets out about where Bruce and the band are staying, and crowds form to greet him as he leaves for the show.<br>
+**2003:** The Rising Tour stops in Oslo for a night, where "[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)" gets a rare outing. Word gets out about where Bruce and the band are staying, and crowds form to greet him as he leaves for the show.<br>
 
 [Watch on Youtube: Springsteen and The E Street Band in Oslo 2003](https://www.youtube.com/watch?v=NCAYMEGXfXo)
 
@@ -50,7 +50,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/14y2ksQZ)
 
-**2005:** Bruce plays "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)" for the first time on the Devils & Dust Tour, opening with it at his solo acoustic show in Rotterdam. Before the show, Bruce sits down for an interview with a local reporter.<br>
+**2005:** Bruce plays "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" for the first time on the Devils & Dust Tour, opening with it at his solo acoustic show in Rotterdam. Before the show, Bruce sits down for an interview with a local reporter.<br>
 
 [Watch on Youtube: Interview Springsteen Netherlands 2005 (part 1 of 3)](https://www.youtube.com/watch?v=7YGNzMtCMqo)
 
@@ -62,13 +62,13 @@
 
 [Watch on Youtube: Two Faces (solo piano) Bruce Springsteen June 19, 2005 Rotterdam, NED](https://www.youtube.com/watch?v=zO9akJo53-8)
 
-**2006:** The Seeger Sessions Tour stops at the Performing Arts Center in Saratoga Springs, where "[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)" makes its final tour appearance.<br>
+**2006:** The Seeger Sessions Tour stops at the Performing Arts Center in Saratoga Springs, where "[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)" makes its final tour appearance.<br>
 
 [Watch on Youtube: Bruce Springsteen & The Sessions Band, Buffalo Gals, Live](https://www.youtube.com/watch?v=-Pi4xwctX_o)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2006-06-19.jpg.webp)
 
-**2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" and "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)."<br>
+**2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Montpellier 2012 06 19 Spirit in the Night Growin' Up](https://www.youtube.com/watch?v=oj8ss5Pt6TI)
 
@@ -78,7 +78,7 @@
 
 [Watch on Youtube: Bruce Springsteen Montpellier 2012 06 19 Tenth Avenue Freeze out](https://www.youtube.com/watch?v=OaymbCdxrvM)
 
-**2016:** Bruce and the E Street Band tour premiere "[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)" at their tour stop in Berlin. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14116/Bruce-Springsteen-mp3-flac-download-6-19-2016-Olympiastadion-Berlin-Berlin-DE.html).<br>
+**2016:** Bruce and the E Street Band tour premiere "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)" at their tour stop in Berlin. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14116/Bruce-Springsteen-mp3-flac-download-6-19-2016-Olympiastadion-Berlin-Berlin-DE.html).<br>
 
 [Watch on Youtube: Bruce Springsteen Berlin Full Concert 19/06/2016 Part 1](https://www.youtube.com/watch?v=l-pvsoFf9KM)
 
@@ -106,6 +106,6 @@
 
 > *I've played this show 146 nights with basically the same set list, but tonight calls for something different…*<br>
 
-Bruce then played "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of ["Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" to drive home his message. The set list change will stick. In attendance tonight: Christina Aguilera.
+Bruce then played "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in place of ["Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" to drive home his message. The set list change will stick. In attendance tonight: Christina Aguilera.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2018-06-19.png.webp)

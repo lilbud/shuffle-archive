@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-05-26.jpg.webp)
 
-**1979:** Bruce joins Robert Gordon on stage for “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” at the Paramount Theater in Asbury Park. Garry joins them for “Heartbreak Hotel” as well.<br>
+**1979:** Bruce joins Robert Gordon on stage for “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)” at the Paramount Theater in Asbury Park. Garry joins them for “Heartbreak Hotel” as well.<br>
 
 [Watch on Youtube: Robert Gordon Bruce Springsteen duet-'79](https://www.youtube.com/watch?v=kdSQPILL2Nw)
 

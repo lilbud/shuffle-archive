@@ -1,8 +1,8 @@
-I can't fault Bruce for leaving "City of Night" off of [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
+I can't fault Bruce for leaving "City of Night" off of [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
 
 That album already had two great songs about driving around in cars; a third might have tipped the album over the line from thematic to obsessive.
 
-Still, there's something hypnotic and wonderful about this lost lovely. Take a listen: (You can stop the video before the "hidden" bonus of "[The Way](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/)" after the three-minute mark.)
+Still, there's something hypnotic and wonderful about this lost lovely. Take a listen: (You can stop the video before the "hidden" bonus of "[The Way](../2021-08-06_roll-of-the-dice-the-way/post.md)" after the three-minute mark.)
 
 [Watch on Youtube: City of Night](https://www.youtube.com/watch?v=rtI5TxfhhUU)
 
@@ -23,7 +23,7 @@ There's not a lot in "City of Night" that asks for analysis, but there are a cou
 
 First, there's the title itself, another in a long, *long* list of Springsteen songs inspired by potboilers and film noir. This one takes its name from John Rechy's 1963 novel (famously namechecked by The Doors in "L.A. Woman") .
 
-Then there's that lyric: "Some people wanna die young and gloriously." That line will resurface a decade later in "[All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)" (another borrowed title). Although we're used to hearing Bruce's lyrics pop up in other songs, at first listen "City of Night" and "All That Heaven Will Allow" couldn't seem more dissimilar. We might change our mind on repeat listen, however: both narrators are walking on air with only love on their minds.
+Then there's that lyric: "Some people wanna die young and gloriously." That line will resurface a decade later in "[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)" (another borrowed title). Although we're used to hearing Bruce's lyrics pop up in other songs, at first listen "City of Night" and "All That Heaven Will Allow" couldn't seem more dissimilar. We might change our mind on repeat listen, however: both narrators are walking on air with only love on their minds.
 
 > *I don't believe what I see in this street*
 > *I don't know how people they can take the heat*

@@ -32,7 +32,7 @@ Lyrically, "Jenny Jenny" is actually a very different song, but there's no mista
 
 Little Richard's version not only charted, it peaked at #10 on the Billboard Hot 100. By strange coincidence, when Ryder covered "Jenny Jenny" (re-titled "Jenny Take a Ride"), once again Ryder's version peaked at the exact same spot as Little Richard's version.
 
-But even though Ryder's version featured Jenny as the title character, she doesn't appear until halfway through the song. Instead, Ryder starts the song with the blues classic "[C.C. Rider](https://estreetshuffle.com/index.php/2021/08/29/cover-me-c-c-rider/)."
+But even though Ryder's version featured Jenny as the title character, she doesn't appear until halfway through the song. Instead, Ryder starts the song with the blues classic "[C.C. Rider](../2021-08-29_cover-me-c-c-rider/post.md)."
 
 [Watch on Youtube: Mitch Ryder & The Detroit Wheels - Jenny Take A Ride C C Rider (1965)](https://www.youtube.com/watch?v=Zf1KiQuW2BE)
 

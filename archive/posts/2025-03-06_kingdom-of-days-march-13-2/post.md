@@ -44,7 +44,7 @@
 
 **2009**: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg’s benefit.<br>
 
-**2016:** The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highlights, see my [*Where the Band Was*](https://estreetshuffle.com/index.php/2018/03/13/where-the-band-was-oakland-march-13-2016/) report for that show.<br>
+**2016:** The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highlights, see my [*Where the Band Was*](../2018-03-13_where-the-band-was-oakland-march-13-2016/post.md) report for that show.<br>
 
 [Watch on Youtube: Candys Room - Bruce Springsteen - Oakland - 13th March 2016](https://www.youtube.com/watch?v=YckePW-ReLw)
 

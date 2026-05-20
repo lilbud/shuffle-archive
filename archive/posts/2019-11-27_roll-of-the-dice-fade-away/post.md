@@ -1,10 +1,10 @@
-With "Fade Away," Bruce absolutely nails it: his lyrics, music, and vocals absolutely ooze desperation. It's a young man's "[Back in Your Arms,](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" covering the same emotional ground but without his older self's wisdom, insight, and self-awareness. "Fade Away" is all anguish, and anguish never sounded sweeter.
+With "Fade Away," Bruce absolutely nails it: his lyrics, music, and vocals absolutely ooze desperation. It's a young man's "[Back in Your Arms,](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" covering the same emotional ground but without his older self's wisdom, insight, and self-awareness. "Fade Away" is all anguish, and anguish never sounded sweeter.
 
 [Watch on Youtube: Fade Away](https://www.youtube.com/watch?v=WP9PHwClSfE)
 
 I usually start these essays by breaking down the lyrics, but the music does at least as much heavy lifting here, so let's start by acknowledging: "Fade Away" is a Danny Federici showcase. His organ evokes a retro feel, even for 1980, with a lush, aching melody that would sound right at home accompanying the Drifters or Platters.
 
-And that bridge–oh, that bridge: Bruce kicks it off with an impassioned "oh girl," but Danny takes it and soars. In much the same way that Clarence's solo on "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" says more than Bruce's vocals and lyrics ever could, Danny is the hero of "Fade Away."
+And that bridge–oh, that bridge: Bruce kicks it off with an impassioned "oh girl," but Danny takes it and soars. In much the same way that Clarence's solo on "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" says more than Bruce's vocals and lyrics ever could, Danny is the hero of "Fade Away."
 
 But let's talk about those vocals, too, because they're some of Bruce's finest, and certainly among his most impassioned.
 

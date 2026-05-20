@@ -20,7 +20,7 @@ Among the songs they played that night was "Allentown," with Bruce and Billy tra
 
 [Watch on Youtube: Allentown | Billy Joel & Bruce Springsteen (Live at the Hammerstein Ballroom - October 2008)](https://www.youtube.com/watch?v=O_MZd3PSBcc)
 
-"Allentown" was just one of the Billy Joel songs that Billy and Bruce performed that night–see "[The River of Dreams](https://estreetshuffle.com/index.php/2020/10/27/matr-billy-joel-and-bruce-springsteen-the-river-of-dreams/)," "[Movin' Out (Anthony's Song)](https://estreetshuffle.com/index.php/2020/04/27/matr-billy-joel-and-bruce-springsteen-movin-out-anthonys-song/)" and "[A Matter of Trust](https://estreetshuffle.com/index.php/2020/03/17/matr-billy-joel-and-bruce-springsteen-a-matter-of-trust/)" for more amazing one-time-only performances.
+"Allentown" was just one of the Billy Joel songs that Billy and Bruce performed that night–see "[The River of Dreams](../2020-10-27_matr-billy-joel-and-bruce-springsteen-the-river-of-dreams/post.md)," "[Movin' Out (Anthony's Song)](https://estreetshuffle.com/index.php/2020/04/27/matr-billy-joel-and-bruce-springsteen-movin-out-anthonys-song/)" and "[A Matter of Trust](../2020-03-17_matr-billy-joel-and-bruce-springsteen-a-matter-of-trust/post.md)" for more amazing one-time-only performances.
 
 **Allentown**<br>
 **First performed:** October 16, 2008 (New York City, NY)<br>

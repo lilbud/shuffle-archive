@@ -24,11 +24,11 @@ Then again, he wasn't the first cover artist who felt the need to invert "Then H
 
 "Then She Kissed Me" was an early highlight each time it appeared in Bruce's set, and yet it was gone from his set lists by the time Labor Day rolled around.
 
-Bruce didn't perform it again for thirty-three years… to the day. Whether he knew it or not (probably not), Bruce chose the anniversary of the day he'd last played "Then She Kissed Me" to perform it again, opening his instantly legendary Magic Tour show in St. Louis with it on [August 23, 2008](https://estreetshuffle.com/index.php/2018/08/23/where-the-band-was-st-louis-august-23-2008/).
+Bruce didn't perform it again for thirty-three years… to the day. Whether he knew it or not (probably not), Bruce chose the anniversary of the day he'd last played "Then She Kissed Me" to perform it again, opening his instantly legendary Magic Tour show in St. Louis with it on [August 23, 2008](../2018-08-23_where-the-band-was-st-louis-august-23-2008/post.md).
 
 [Watch on Youtube: Bruce Springsteen--Then She Kissed Me (Scottrade Center, St. Louis, August 23, 2008)](https://www.youtube.com/watch?v=hUzP8DQyBD0)
 
-That was no audible, and to the best of my knowledge it wasn't by request. Bruce just seemed to be in a 1975 mood that night–those of us in the lottery line outside the arena were able to hear him soundcheck not just "Then She Kissed Me" but also "[When You Walk in the Room](https://estreetshuffle.com/index.php/2020/10/08/cover-me-when-you-walk-in-the-room/)" and "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)," two other notable 1975 tour covers. Not only that, he even played "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)" during the show by request. (You can listen in on that soundcheck below.)
+That was no audible, and to the best of my knowledge it wasn't by request. Bruce just seemed to be in a 1975 mood that night–those of us in the lottery line outside the arena were able to hear him soundcheck not just "Then She Kissed Me" but also "[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)" and "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)," two other notable 1975 tour covers. Not only that, he even played "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)" during the show by request. (You can listen in on that soundcheck below.)
 
 https://www.youtube.com/watch?v=geYTbeoe2Lc
 

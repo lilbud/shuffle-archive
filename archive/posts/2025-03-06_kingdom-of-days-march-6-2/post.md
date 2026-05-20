@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-03-06.png.webp)
 
-**1995:** Bruce joins Soul Asylum on stage at Tramps in New York City for "[The Tracks of My Tears](https://estreetshuffle.com/index.php/2019/10/16/matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/)."<br>
+**1995:** Bruce joins Soul Asylum on stage at Tramps in New York City for "[The Tracks of My Tears](../2019-10-16_matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Soul Asylum - "Tracks of My Tears" 1995-03-06](https://www.youtube.com/watch?v=PlhXokknEVc)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2000-03-06b.jpg.webp)
 
-**2003:** Bruce Hornsby and former Steel Mill bandmate Robbin Thompson join Bruce and the band for Hank Ballard's "[Let's Go, Let's Go, Let's Go](https://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)" during the Rising Tour's stop at the Coliseum in Richmond.<br>
+**2003:** Bruce Hornsby and former Steel Mill bandmate Robbin Thompson join Bruce and the band for Hank Ballard's "[Let's Go, Let's Go, Let's Go](../2018-09-26_matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/post.md)" during the Rising Tour's stop at the Coliseum in Richmond.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Let's Go, Let's Go, Let's Go" - 2003-03-06](https://www.youtube.com/watch?v=0R97Ohj_qdE)
 
@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2008-03-06b.jpg.webp)
 
-**2012:** Bruce releases his seventeenth studio album, *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/).*<br>
+**2012:** Bruce releases his seventeenth studio album, *[Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md).*<br>
 
 [Watch on Youtube: We Take Care Of Our Own - Bruce Springsteen](https://www.youtube.com/watch?v=fkEU3JjNARs?list=OLAK5uy_m9imIkWn-NTaCynnLiLR9Xsrfnhth8sx0)
 
@@ -52,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2012-03-05b.png.webp)
 
-**2016:** The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lucky (and talented) fan Tom England gets to join the band on-stage for "[Working on the Highway.](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)"<br>
+**2016:** The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lucky (and talented) fan Tom England gets to join the band on-stage for "[Working on the Highway.](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - Stolen Car- St. Louis 03/06/2016](https://www.youtube.com/watch?v=GZswWtjvWGQ)
 

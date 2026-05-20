@@ -14,19 +14,19 @@ The energy level was off the charts from the get-go, even if the opening third o
 
 I have to admit, I was taken aback by the European energy level of the crowd–it pains me to admit it, but they put Philly to shame. And that was *before* the wild cards came.
 
-First request: "[Seventh Son,](https://estreetshuffle.com/index.php/2020/08/04/cover-me-seventh-son/)" a cover of a 1965 Johnny Rivers song. Another confession: it was the first and only time I didn't know a cover request, and neither did any of my colleagues. It was pretty darn obscure, but the crowd ate it up:
+First request: "[Seventh Son,](../2020-08-04_cover-me-seventh-son/post.md)" a cover of a 1965 Johnny Rivers song. Another confession: it was the first and only time I didn't know a cover request, and neither did any of my colleagues. It was pretty darn obscure, but the crowd ate it up:
 
 [Watch on Youtube: Bruce Springsteen Greensboro 5-2-09 7th Son](https://www.youtube.com/watch?v=YvGzfGxFdjE)
 
-But it was the next song that blew the lid of the place. I'm talking an encore-level, house-lights-on, deafening sing-along to "[Hang on Sloopy](https://estreetshuffle.com/index.php/2020/04/07/cover-me-hang-on-sloopy/)." Watching the crowd, you'd swear he must have been playing "Born to Run."
+But it was the next song that blew the lid of the place. I'm talking an encore-level, house-lights-on, deafening sing-along to "[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md)." Watching the crowd, you'd swear he must have been playing "Born to Run."
 
 [Watch on Youtube: Bruce Springsteen Greensboro 5-2-09 Hang On Sloopy](https://www.youtube.com/watch?v=NfXi1CnA0Bg)
 
-Rare outings for "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)," "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)," and a set-closing surprise "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" made for a fantastic main set. "Cadillac" was one of several songs performed with full house lights on–Bruce was clearly enjoying watching the crowd that night.
+Rare outings for "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," and a set-closing surprise "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" made for a fantastic main set. "Cadillac" was one of several songs performed with full house lights on–Bruce was clearly enjoying watching the crowd that night.
 
 [Watch on Youtube: Bruce Springsteen Greensboro 5-2-09 Cadillac Ranch](https://www.youtube.com/watch?v=bYntXbo-MTg)
 
-For the final encore, Bruce gave us a fitting "Glory Days," with a surprise, brief "[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)" tacked on to the very end.
+For the final encore, Bruce gave us a fitting "Glory Days," with a surprise, brief "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)" tacked on to the very end.
 
 [Watch on Youtube: Bruce Springsteen, Greensboro, NC, 02 May 09, Glory Days, Working On A Dream Tour Final Encore](https://www.youtube.com/watch?v=Tkz5v0YnWxY)
 

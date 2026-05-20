@@ -10,7 +10,7 @@
 
 **1972:** The Bruce Springsteen Band continues a three-night gig at The Captain's Garter in Neptune, New Jersey.<br>
 
-**1974:** Bruce and the band open for Freddie King at Muther's Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he'd hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" below.<br>
+**1974:** Bruce and the band open for Freddie King at Muther's Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he'd hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" below.<br>
 
 [Watch on Youtube: Bruce Springsteen - INCIDENT ON 57TH STREET 1974 (audio)](https://www.youtube.com/watch?v=vi3gv3GLZ3s)
 
@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1981-01-29a.jpg.webp)
 
-**1991:** Bruce records "[Goin' Cali](https://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/)" at A&M Studios in Los Angeles. It will be released seven years later on *Tracks*.<br>
+**1991:** Bruce records "[Goin' Cali](../2019-01-01_roll-of-the-dice-goin-cali/post.md)" at A&M Studios in Los Angeles. It will be released seven years later on *Tracks*.<br>
 
 [Watch on Youtube: Goin' Cali (Studio Outtake - 1991)](https://www.youtube.com/watch?v=hSwtuwgZ9J4)
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Bruce stone pony 1/30/2011](https://www.youtube.com/watch?v=l7420VsTrPU)
 
-**2014:** The final night in Cape Town brings *sixteen* tour premieres, including the first-ever performance of "[This Is Your Sword.](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)" Mos Def guest-stars in the encore for "Sun City."<br>
+**2014:** The final night in Cape Town brings *sixteen* tour premieres, including the first-ever performance of "[This Is Your Sword.](../2021-02-04_roll-of-the-dice-this-is-your-sword/post.md)" Mos Def guest-stars in the encore for "Sun City."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/20140129-CapeTown-Centermic-After.jpg.webp)
 

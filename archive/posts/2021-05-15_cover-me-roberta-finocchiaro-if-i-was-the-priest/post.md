@@ -1,10 +1,10 @@
 If you're a Springsteen fan, have musical talent, and think you can bring a fresh perspective to one of Bruce's songs, there's still time to enter the s[econd annual Cover Me contest!](https://www.noiespringsteen.com/contest/)
 
-Last June, I featured the Critics' Prize winner from the first edition here on the Shuffle: Light of Day alum Roberta Finnochiaro and her [wonderful cover](https://estreetshuffle.com/index.php/2020/06/07/cover-me-roberta-finocchiaro-new-york-city-serenade/) of "New York City Serenade."
+Last June, I featured the Critics' Prize winner from the first edition here on the Shuffle: Light of Day alum Roberta Finnochiaro and her [wonderful cover](../2020-06-07_cover-me-roberta-finocchiaro-new-york-city-serenade/post.md) of "New York City Serenade."
 
 [Watch on Youtube: Roberta Finocchiaro - New York City Serenade ( Bruce Springsteen )](https://www.youtube.com/watch?v=UHO55kfKwB4?start=211)
 
-Roberta's back for this year's contest, and her entry is just as deep a cut as her first one: "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)," one of Bruce's oldest or newest songs, depending on your perspective.
+Roberta's back for this year's contest, and her entry is just as deep a cut as her first one: "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)," one of Bruce's oldest or newest songs, depending on your perspective.
 
 Roberta has a terrific voice, but as with her cover of "New York City Serenade," the highlight of her rendition of "If I Was the Priest" is her guitar playing. She's arranged the song for a solo electric performance, and the last funky minute in particular is bound to get you grooving.
 

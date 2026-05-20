@@ -1,6 +1,6 @@
 I realize that Springsteen covers are a mixed bag; just because we love the song when performed by its original artists doesn't mean the song translates well to others.
 
-But trust me on this: stop what you're doing for a minute, and listen to this absolutely gorgeous cover of "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)," one of Bruce's finest songs. It's brand new (released just days ago as I write this), but it's immediately cemented as one of my top ten Springsteen covers of all-time.
+But trust me on this: stop what you're doing for a minute, and listen to this absolutely gorgeous cover of "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)," one of Bruce's finest songs. It's brand new (released just days ago as I write this), but it's immediately cemented as one of my top ten Springsteen covers of all-time.
 
 [Watch on Youtube: Danny Gone 'If I Should Fall Behind' (Springsteen Cover)](https://www.youtube.com/watch?v=VHZv3mQkpJk)
 

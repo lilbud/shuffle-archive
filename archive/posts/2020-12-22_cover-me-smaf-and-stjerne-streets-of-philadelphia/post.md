@@ -1,6 +1,6 @@
 SMAF is a German combo that describe their music as "a soundtrack Quentin Tarantino would dance to on acid at a soul music party," inspired by "spaghetti westerns, Motown, and reggae."
 
-I don't know about any of that, but I do know that their recently released cover of "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" (filmed in late 2019) is absolutely stunning.
+I don't know about any of that, but I do know that their recently released cover of "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" (filmed in late 2019) is absolutely stunning.
 
 [Watch on Youtube: Streets of Philadelphia (Cover) - Bruce Springsteen - SMAF-a-licious Session feat. Stjerne](https://www.youtube.com/watch?v=N-w-jcAkIRU)
 

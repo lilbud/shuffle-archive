@@ -1,4 +1,4 @@
-We took a look at Bruce Springsteen's abandoned "[Stockton Boys](https://estreetshuffle.com/index.php/2019/01/10/roll-of-the-dice-stockton-boys/)" home demos a year or so ago; today we'll listen to their sister song.
+We took a look at Bruce Springsteen's abandoned "[Stockton Boys](../2019-01-10_roll-of-the-dice-stockton-boys/post.md)" home demos a year or so ago; today we'll listen to their sister song.
 
 Truthfully, "Stockton Girls" really shouldn't qualify as a separate song–it's more of a "Stockton Boys" variation than anything else. The melody is identical, as is the theme. If it weren't for the fact that Bruce rewrote the entire set of lyrics, we'd consider it an experiment in gender-fluid songwriting.
 
@@ -8,7 +8,7 @@ But Bruce did rewrite the lyrics, and it's instructive to take a close listen an
 
 The exact chronology of the Stockton siblings is unclear–we don't know whether the girls came first, last, or somewhere in between the four "Stockton Boys" demos. All five of the demos (four boys, one girl) feature partially or heavily bluffed lyrics, so there's little we can glean by comparing the lyrical completeness.
 
-The most we can infer is that Bruce was clearly reaching for a song about working men and women looking for release on a Friday night, rather than setting up a romance. If anything, the Stockton songs feel like a precursor to "[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)" (which was also recorded around this time).
+The most we can infer is that Bruce was clearly reaching for a song about working men and women looking for release on a Friday night, rather than setting up a romance. If anything, the Stockton songs feel like a precursor to "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" (which was also recorded around this time).
 
 The song construction of "Stockton Boys" and "Stockton Girls" is similar: it's Friday night (5:30 for the boys, 8pm for the girls), it's payday, and the boys and girls are ready to let off some steam.
 
@@ -42,7 +42,7 @@ Even the second verses are parallel, with the Stockton Boys leaving their wives 
 > *They come running down from the factory*
 > *I love those Stockton girls*
 
-Bruce never finished either song (that we know of), although he would develop a similar theme in "Out on the Street" and repurpose a couple of "Stockton Boys" lyrics for "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)."
+Bruce never finished either song (that we know of), although he would develop a similar theme in "Out on the Street" and repurpose a couple of "Stockton Boys" lyrics for "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."
 
 In the end, both "Stockton Boys" and "Stockton Girls" are curiosities, signposts on the road to *The River*.
 

@@ -39,7 +39,7 @@ That entire verse is a finalist for Bruce's raunchiest songwriting.
 > *Oh she's the slickest thing that I've ever seen*<br>
 > *Oh, Street Queen*<br>
 
-Let me pause here just to say: *thank goodness* Bruce finally got around to writing and releasing "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" so he could get "[long and dark](https://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/)," and "[shiny and black](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)" out of his system. Those phrases can be found floating around his unreleased songs for over a decade before he finally gave them a permanent home.
+Let me pause here just to say: *thank goodness* Bruce finally got around to writing and releasing "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" so he could get "[long and dark](../2019-06-10_roll-of-the-dice-mr-outside/post.md)," and "[shiny and black](../2018-11-30_roll-of-the-dice-garden-state-parkway-blues/post.md)" out of his system. Those phrases can be found floating around his unreleased songs for over a decade before he finally gave them a permanent home.
 
 Anyway, let's continue, because Bruce is about to go, um, all in.
 

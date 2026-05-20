@@ -1,4 +1,4 @@
-Bruce captured "Spare Parts" on the second take of the very first day of recording for the album that would become [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/). Wham, bam, thank you, ma'am.
+Bruce captured "Spare Parts" on the second take of the very first day of recording for the album that would become [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md). Wham, bam, thank you, ma'am.
 
 And that's as apt a metaphor as any for a song that's otherwise devoid of it.
 
@@ -20,7 +20,7 @@ Here's an actual full-band performance (with everyone in the same room) from the
 
 [Watch on Youtube: Bruce Springsteen - Spare Parts (Official Video - DVD Version)](https://www.youtube.com/watch?v=HKH3C3b2HzU)
 
-By 1988, Bruce had learned the risk of having his material misinterpreted. (See "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)")
+By 1988, Bruce had learned the risk of having his material misinterpreted. (See "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)")
 
 Perhaps that's why he took the time almost every night on the *Tunnel of Love Express* Tour to introduce "Spare Parts" and explain it.
 

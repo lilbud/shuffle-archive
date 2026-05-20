@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1978-12-05.png.webp)
 
-**1987:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, including “[Wooly Bully](https://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)” and “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/).”<br>
+**1987:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, including “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)” and “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/).”<br>
 
 [Watch on Youtube: Bruce Springsteen & Cats on a Smooth Surface - Asbury Park, 1987-12-05](https://www.youtube.com/watch?v=aXcPqvpqdos)
 
@@ -64,7 +64,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2002-12-05b.png.webp)
 
-**2003:** After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury Park holiday show tradition, holding the first of three benefit concerts at Convention Hall in support of local charities. The Max Weinberg 7 once again serves as the house band, and this year guests include the Victorious Gospel Choir, Bobby Bandiera, Soozie Tyrell, Patti Scialfa, Jesse Malin, Garland Jeffreys, Steve Van Zandt, Southside Johnny, Sam Moore, the Alliance Singers, Lisa Lowell, and Nils Lofgren. Lots of gems in the setlist, including the world premiere of “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/).”<br>
+**2003:** After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury Park holiday show tradition, holding the first of three benefit concerts at Convention Hall in support of local charities. The Max Weinberg 7 once again serves as the house band, and this year guests include the Victorious Gospel Choir, Bobby Bandiera, Soozie Tyrell, Patti Scialfa, Jesse Malin, Garland Jeffreys, Steve Van Zandt, Southside Johnny, Sam Moore, the Alliance Singers, Lisa Lowell, and Nils Lofgren. Lots of gems in the setlist, including the world premiere of “[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Xz5q8X5g)
 

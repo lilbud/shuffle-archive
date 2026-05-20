@@ -16,9 +16,9 @@ Clarence may have been the song's focal point, but that didn't mean he was the o
 
 The instrumental might have been new and untitled, but longtime fans might have been experiencing some serious deja vu, because that song sounded awfully familiar.
 
-That's because "Paradise by the 'C'" was built on the same chassis as "A Love So Fine" (which Bruce played throughout 1974 and 1975) and "[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)" (a nightly staple on the 1977 tour).
+That's because "Paradise by the 'C'" was built on the same chassis as "A Love So Fine" (which Bruce played throughout 1974 and 1975) and "[Action in the Streets](../2022-06-27_roll-of-the-dice-action-in-the-streets/post.md)" (a nightly staple on the 1977 tour).
 
-All three songs were unreleased, and all sounded so similar that fans could be forgiven for assuming they were one and the same, not realizing that Bruce had completely dismantled and rebuilt the song from one tour to the next. (None of the three songs would see a studio release until 1998's *Tracks*, and then it was in the form of fourth and fifth variants: "So Young and In Love" and "[Give the Girl a Kiss.](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)")
+All three songs were unreleased, and all sounded so similar that fans could be forgiven for assuming they were one and the same, not realizing that Bruce had completely dismantled and rebuilt the song from one tour to the next. (None of the three songs would see a studio release until 1998's *Tracks*, and then it was in the form of fourth and fifth variants: "So Young and In Love" and "[Give the Girl a Kiss.](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)")
 
 For years, Bruce maddened bootleggers by never actually stating the name of the instrumental, introducing it only by way of acknowledging the featured soloist: "Coming direct from that paradise by the sea: The Big Man, Clarence Clemons!"
 
@@ -38,7 +38,7 @@ Flash forward to 2015, and the release of *The Ties That Bind: The River Collect
 
 That was a genuine surprise, as no record of such a recording previously existed. Brucebase suggests that this is not actually a studio recording but rather a multi-track live recording (likely a soundcheck) from Bruce's 1978 show in Phoenix, but notes that this is "in some dispute."
 
-(It does sound like a live recording to my ears, but the band chatter sounds too staged (a la "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)") for it to be spontaneous, so I suspect that if nothing else, it was at least recorded for possible inclusion somewhere, someday.)
+(It does sound like a live recording to my ears, but the band chatter sounds too staged (a la "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)") for it to be spontaneous, so I suspect that if nothing else, it was at least recorded for possible inclusion somewhere, someday.)
 
 Live or canned, this was still the first time that "Paradise by the 'C" was included on an official studio release, 27 years after the E Street Band last performed it.
 

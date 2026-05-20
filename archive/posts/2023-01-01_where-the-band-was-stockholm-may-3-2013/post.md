@@ -20,7 +20,7 @@ Two hours later my company and I are inside the venue and to our surprise IN the
 
 Bruce Springsteen and the extended E Street Band get on stage around eight o'clock. Bruce is wearing black: jeans, a shirt and a vest. His face is slightly tanned.
 
-The show starts off in familiar fashion for the *Wrecking Ball* Tour: "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)*," "*[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)," and "[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)" immediately receive a loud and energetic response from the crowd.
+The show starts off in familiar fashion for the *Wrecking Ball* Tour: "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)*," "*[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," and "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" immediately receive a loud and energetic response from the crowd.
 
 [Watch Video Highlight](https://videopress.com/embed/cgvnjE9h)
 
@@ -32,7 +32,7 @@ He admits that he has been thinking about how to surprise us tonight, and becaus
 
 It is certainly not the first time Springsteen performs an entire album. It happened a few times during the *Working on a Dream* Tour in 2009. Since then, the *Born to Run* album has been played live 12 times in its entirety. Yet, there are at least two reasons why this particular gig in the Friends Arena is special. For all the previous occasions, an album show has been advertised in advance. Tonight's a surprise AND it is the first time an entire album is played live outside the United States.
 
-The audience respond with a stadium-wide sing-along to "Thunder Road" as the band begin the album performance. "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)," featuring the tribute to Clarence Clemons and Danny Federici playing on the large video screens in the background, immediately makes the atmosphere more tranquil and sentimental.
+The audience respond with a stadium-wide sing-along to "Thunder Road" as the band begin the album performance. "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)," featuring the tribute to Clarence Clemons and Danny Federici playing on the large video screens in the background, immediately makes the atmosphere more tranquil and sentimental.
 
 The Big Man has been replaced by an entire horn section(!), of which the nephew Jake Clemons is a part. His face looks serious and concentrated.
 
@@ -42,7 +42,7 @@ The album section of the show ends with the classic "Jungleland," where Little S
 
 [Watch Video Highlight](https://videopress.com/embed/jehqBkAY)
 
-The show then continues with a more traditional setlist. Songs from the latest album are mixed with classic hits and the venue is boiling. Bruce has collected several sign requests from the audience in the course of the evening, but only one makes an appearance (as an encore). It's the rare cover "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)." Springsteen says: "This is a song the band used to play, going back to the early '70s — Michelle Moore was not even born yet!" Bruce chooses to perform the song solo on acoustic guitar, substituting a whistling solo in place of the song's usual piano one.
+The show then continues with a more traditional setlist. Songs from the latest album are mixed with classic hits and the venue is boiling. Bruce has collected several sign requests from the audience in the course of the evening, but only one makes an appearance (as an encore). It's the rare cover "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)." Springsteen says: "This is a song the band used to play, going back to the early '70s — Michelle Moore was not even born yet!" Bruce chooses to perform the song solo on acoustic guitar, substituting a whistling solo in place of the song's usual piano one.
 
 [Watch on Youtube: "Mountain of Love" Bruce Springsteen, Stockholm may 3, 2013 (HD)](https://www.youtube.com/watch?v=58NpP-QArRw)
 

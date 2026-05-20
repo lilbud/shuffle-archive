@@ -2,7 +2,7 @@ For every song that made it on a Springsteen album, there's one (and usually a l
 
 Many of the outtakes eventually make their way into circulation, either officially or unofficially, and you can usually understand why they were left off the album. Not because they weren't great songs, though–Bruce has very few clunkers.
 
-Sometimes, it's because the song didn't fit the theme of the album or the message Bruce was trying to convey. (Bruce had enough recorded material to fuel an entire power pop album instead of [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) had he so desired. Sometimes, the song might be too close in theme or sound to other material. And sometimes, it's just a matter of how much music you can fit on one piece of vinyl (or CD).
+Sometimes, it's because the song didn't fit the theme of the album or the message Bruce was trying to convey. (Bruce had enough recorded material to fuel an entire power pop album instead of [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) had he so desired. Sometimes, the song might be too close in theme or sound to other material. And sometimes, it's just a matter of how much music you can fit on one piece of vinyl (or CD).
 
 But for the life of me, I cannot fathom why Bruce left "My Love Will Not Let You Down" off of *Born in the U.S.A*.
 
@@ -12,7 +12,7 @@ Seriously. Turn up the volume, press play below, and tell me you don't get an ad
 
 Had this song made it onto *Born in the U.S.A.* (reportedly, Bruce's manager Jon Landau wanted it as the opener to Side 2), there's no doubt in my mind that it would have been an absolute monster hit. Instead, it was released 16 years after it was recorded buried smack in the middle of the *Tracks* box set of coulda-shoulda outtakes.
 
-It's not only the most powerful rock anthem Bruce ever wrote (IMHO)–it's also a fascinating counterpoint to "[Dancing in the Dark](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)." (In my dream album sequence for *Born in the U.S.A.*, "Dancing' would open side two, and "My Love' would close it.)
+It's not only the most powerful rock anthem Bruce ever wrote (IMHO)–it's also a fascinating counterpoint to "[Dancing in the Dark](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)." (In my dream album sequence for *Born in the U.S.A.*, "Dancing' would open side two, and "My Love' would close it.)
 
 In "Dancing in the Dark," the narrator is nocturnal, isolated and disconnected:
 

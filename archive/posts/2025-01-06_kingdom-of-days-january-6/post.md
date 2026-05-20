@@ -22,6 +22,6 @@ That afternoon, before the show, Bruce and the band rehearse "[Does This Bus Sto
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/poll-Daily_World_Tue__Jan_6__1987_.jpg.webp)
 
-**1993:** Bruce sings "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" at the funeral of Kristen Ann Carr, his managers' daughter. After Carr dies of cancer at the age of 21, her family establishes The Kristen Ann Carr Fund to raise money for the fight against cancer. Bruce will play several benefits for the organization over the years that follow.<br>
+**1993:** Bruce sings "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" at the funeral of Kristen Ann Carr, his managers' daughter. After Carr dies of cancer at the age of 21, her family establishes The Kristen Ann Carr Fund to raise money for the fight against cancer. Bruce will play several benefits for the organization over the years that follow.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/carr93.jpg.webp)

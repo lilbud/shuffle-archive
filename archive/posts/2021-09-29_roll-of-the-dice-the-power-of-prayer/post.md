@@ -16,7 +16,7 @@ Bruce may have grown more intentional about it as he's aged, but he's been showi
 
 Bruce constructed "The Power of Prayer" in the mold of the songs he sings about. It's a three-and-a-half minute nostalgic callback to the R&B singles of the sixties, with lyrical subtlety that's offset by an E Street Band performance dripping with emotion from the nostalgic opening bars of Roy Bittan's piano intro to the caution-thrown-to-wind bridge to that tender final verse.
 
-"The Power of Prayer" boasts the strongest arrangement on [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)and one of Bruce's best in recent years. It allows him to take an understated approach with his lyrics, trusting that the music will inform us about what the song is truly about.
+"The Power of Prayer" boasts the strongest arrangement on [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md)and one of Bruce's best in recent years. It allows him to take an understated approach with his lyrics, trusting that the music will inform us about what the song is truly about.
 
 > *Dreamy afternoon ‘neath the summer sun*<br>
 > *We'd lie by the lake till the evening comes*<br>

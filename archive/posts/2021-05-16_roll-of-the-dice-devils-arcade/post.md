@@ -6,13 +6,13 @@ In 2007, Bruce Springsteen updated the metaphor for modern times and crafted one
 
 Bruce likes to close his albums on notes of hope, faith and optimism, and "Devil's Arcade" fits that bill nicely.
 
-(Before anyone comments: yes, I know "[Terry's Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)" is also on the disc following "Devil's Arcade." But it's listed as a bonus track for a reason: it's not part of the album's narrative. The physical disc may end with "Terry's Song," but the album ends with "Devil's Arcade.")
+(Before anyone comments: yes, I know "[Terry's Song](../2018-07-30_roll-of-the-dice-terrys-song/post.md)" is also on the disc following "Devil's Arcade." But it's listed as a bonus track for a reason: it's not part of the album's narrative. The physical disc may end with "Terry's Song," but the album ends with "Devil's Arcade.")
 
 "Devil's Arcade" is immediately arresting. It commands our attention and holds it through a carefully crafted arrangement, a precisely engineered soundstage, and (in the song's second half) a disorientingly syncopated rhythm.
 
 Unusually (although certainly not uniquely), Bruce narrates "Devil's Arcade" in a female voice, one that belongs to the devoted lover of a soldier wounded and traumatized by his experiences in combat. Our only insight into the soldier's state of mind is through our narrator's desperate attempts to connect with him, and to use that connection as a lifeline to tether him to the present and to their shared life. "Devil's Arcade" is too quickly classified as a war song, but it isn't. It's a love song.
 
-Bruce's female, second-person narration is an exceptionally powerful and sophisticated songwriting device. In Bruce's similarly-themed 1983 outtake, "[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)," Bruce uses first-person narration to take us into the traumatized mind of a returning soldier. In the second-person "Devil's Arcade," we feel the soldier's dissociation just as powerfully as in "Shut Out the Light," but Bruce also and simultaneously creates deep empathy for the soldier's lover as well. That's the difference a quarter-century of additional songwriting craft makes.
+Bruce's female, second-person narration is an exceptionally powerful and sophisticated songwriting device. In Bruce's similarly-themed 1983 outtake, "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)," Bruce uses first-person narration to take us into the traumatized mind of a returning soldier. In the second-person "Devil's Arcade," we feel the soldier's dissociation just as powerfully as in "Shut Out the Light," but Bruce also and simultaneously creates deep empathy for the soldier's lover as well. That's the difference a quarter-century of additional songwriting craft makes.
 
 We'll delve into Bruce's lyrics momentarily, but we first need to acknowledge the importance of his music. Perhaps more than in any other song in his catalog, Bruce uses music as part of his storytelling–more than one might realize at a casual listen.
 
@@ -20,7 +20,7 @@ Bruce actually uses his musical score to create a secondary narrative from the p
 
 Notice how the song starts with twenty seconds of tranquil, domestic but distant keyboard tones in our left ear. These are the sounds of our home, family, and daily life. At the twenty-second mark, ominous guitar distortion creeps into our right ear. These are the memories of war and battle that haunt us. Bruce has sonically placed us in the head of the soldier, unable to fully connect with his home life or shake the invasion of his war trauma.
 
-Like the soldier, we are literally caught between these two worlds. But at the thirty-second mark, something magical happens: a cello (played by Daniel Laufer, whose contributions also infuse "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)" and "[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)" — the cello is a remarkably essential element on *Magic*) takes center stage in the soundscape.
+Like the soldier, we are literally caught between these two worlds. But at the thirty-second mark, something magical happens: a cello (played by Daniel Laufer, whose contributions also infuse "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)" and "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" — the cello is a remarkably essential element on *Magic*) takes center stage in the soundscape.
 
 Laufer's cello establishes the narrator's theme as if in a soundtrack; each time we hear it, it represents the narrator announcing her presence and asserting her love as a beacon for her lover. Her presence breaks through (but does not completely drown out) the noise in both of our ears and creates a powerful and instant connection.
 
@@ -96,7 +96,7 @@ It's a long and arduous journey, but we're going to make it. Together.
 
 ---
 
-Bruce constructed his Magic Tour set lists around a five-song sequence that closed almost every show through the spring of 2008. Together, "Devil's Arcade," "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)," "Last to Die," "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)," and "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)" created core tour themes of sacrifice, heroism, betrayal, resistance, and defiance, and until the tour began loosening as spring turned to summer, "Devil's Arcade" served as an important anchor.
+Bruce constructed his Magic Tour set lists around a five-song sequence that closed almost every show through the spring of 2008. Together, "Devil's Arcade," "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)," "Last to Die," "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)," and "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" created core tour themes of sacrifice, heroism, betrayal, resistance, and defiance, and until the tour began loosening as spring turned to summer, "Devil's Arcade" served as an important anchor.
 
 In all, Bruce performed "Devil's Arcade" 73 times on that tour–but never since, not even once.
 

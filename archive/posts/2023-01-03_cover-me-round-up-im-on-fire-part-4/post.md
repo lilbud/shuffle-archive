@@ -1,8 +1,6 @@
-It’ s time for our first “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” round-up of 2022, and we’ve got some great ones to enjoy today. Each of today’s artists gifts us with a different spin on Bruce’s oft-covered classic.
+It’ s time for our first “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” round-up of 2022, and we’ve got some great ones to enjoy today. Each of today’s artists gifts us with a different spin on Bruce’s oft-covered classic.
 
 Let’s start off with singer-songwriter Stefanie Joyce’s country arrangement. “This song is so fun because it’s been covered by so many artists in so many drastically different ways,” Stefanie wrote on her YouTube page. “I’m partial to the Whitey Morgan version. We tried to do something a bit country, a bit bluegrass, and a whole lotta dark.”
-
- 
 
 Stefanie enlisted Danya Olsen on fiddle and Nick Halsted on percussion and backing vocals for an intimate trio arrangement that serves the song admirably. If you’re interested in hearing Stefanie’s own music, check out her site [here](https://stefaniejoycemusic.com/#:~:text=Steeped%20in%20the%20tradition%20of,redemption%2C%20and%20everything%20in%20between.).
 
@@ -31,5 +29,3 @@ Finally (for now), let’s make a return visit to Pennsylvania, a little further
 [Watch on Youtube: I'm On Fire - Bruce Springsteen (cover by The Evergreens)](https://www.youtube.com/watch?v=7ZxORhHKrVM)
 
 That’s it for today, but new covers of “I’m on Fire” seem to find me faster than I can write about them, so rest assured: we’ll be back again before too long with another installment.
-
- 

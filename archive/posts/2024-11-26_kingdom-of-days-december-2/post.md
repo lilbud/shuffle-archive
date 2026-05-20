@@ -1,6 +1,6 @@
 ***New for 2024:** Article for 1984; review for 2002; new entry for 2023*<br>
 
-**1975:** Bruce and the E Street Band usher in the holiday season with their first of two shows at Boston’s Music Hall. On the set list: Bruce’s very first performance of “[Party Lights](https://estreetshuffle.com/index.php/2022/06/01/cover-me-party-lights/),” and the earliest captured performance of “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/).”<br>
+**1975:** Bruce and the E Street Band usher in the holiday season with their first of two shows at Boston’s Music Hall. On the set list: Bruce’s very first performance of “[Party Lights](../2022-06-01_cover-me-party-lights/post.md),” and the earliest captured performance of “[Santa Claus is Comin’ to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - PARTY LIGHTS 1975 (audio)](https://www.youtube.com/watch?v=_CqYpjOqG80)
 
@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/33929295148_2d852ea582_o.jpg.webp)
 
-**1977:** Bruce joins Robert Gordon and Link Wray on stage at NYU for a cover of “[Heartbreak Hotel.](https://estreetshuffle.com/index.php/2021/04/11/matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/)”<br>
+**1977:** Bruce joins Robert Gordon and Link Wray on stage at NYU for a cover of “[Heartbreak Hotel.](../2021-04-11_matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/post.md)”<br>
 
 [Watch on Youtube: Robert Gordon & Bruce Springsteen duet '77](https://www.youtube.com/watch?v=LBkx1AWpJ-8)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-02b.png.webp)
 
-**1996:** Dion DiMucci guest stars on “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” when Bruce plays his first of two solo acoustic shows at the Sunrise Musical Theater in Florida.<br>
+**1996:** Dion DiMucci guest stars on “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” when Bruce plays his first of two solo acoustic shows at the Sunrise Musical Theater in Florida.<br>
 
 [Watch on Youtube: Bruce Springsteen and Dion, "If I Should Fall Behind" - Sunrise, FL, 1996-12-02](https://www.youtube.com/watch?v=Pi5wsCgXMhw)
 
@@ -52,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1996-12-02c.png.webp)
 
-**2002:** “[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)” makes its Rising Tour premiere at Philips Arena in Atlanta, and Brendan O’Brien joins Bruce and the Band for “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” and “Born to Run.”<br>
+**2002:** “[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)” makes its Rising Tour premiere at Philips Arena in Atlanta, and Brendan O’Brien joins Bruce and the Band for “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)” and “Born to Run.”<br>
 
 [Watch on Youtube: Bruce Springsteen - GLORY DAYS + BORN TO RUN 2002 - live](https://www.youtube.com/watch?v=H1mWL7ktCnY)
 
@@ -64,7 +64,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Atlanta_Constitution_2002_12_03_B3.jpg.webp)
 
-**2004:** Bruce joins Joe Grushecky and The Houserockers for a special Flood Aid concert in Pittsburgh, benefiting local residents impacted by Hurricane Ivan. Bruce joins opening act Exit 105 for “[All Along the Watchtower](https://estreetshuffle.com/index.php/2020/08/13/matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/)” before playing a brief acoustic set and finally joining Joe and the Band for their set. Jesse Malin makes a guest appearance on the show-closing “Santa Claus is Comin’ to Town.”<br>
+**2004:** Bruce joins Joe Grushecky and The Houserockers for a special Flood Aid concert in Pittsburgh, benefiting local residents impacted by Hurricane Ivan. Bruce joins opening act Exit 105 for “[All Along the Watchtower](../2020-08-13_matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/post.md)” before playing a brief acoustic set and finally joining Joe and the Band for their set. Jesse Malin makes a guest appearance on the show-closing “Santa Claus is Comin’ to Town.”<br>
 
 [Watch on Youtube: All Along the Watchtower w/Bruce Springsteen (rehearsal)](https://www.youtube.com/watch?v=-rywffsiwsw)
 

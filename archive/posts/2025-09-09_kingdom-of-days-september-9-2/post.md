@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1977*<br>
 
-**1972:** Bruce makes a guest appearance with Odin at the Highlands Art and Music Fair in Highlands, New Jersey, playing a loose four-song mini-set (including a composed-on-the-spot "[Water Station](https://estreetshuffle.com/index.php/2023/12/24/roll-of-the-dice-water-station/)") through two power outages. The band closes with a cover of Big Joe Williams' "Baby, Please Don't Go"... sort of. Whether an intentional mashup or because he simply doesn't know the words, Bruce instead sings the lyrics for "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)," making this the first known recording of these words in public. Take a listen to this pristine, historic recording.<br>
+**1972:** Bruce makes a guest appearance with Odin at the Highlands Art and Music Fair in Highlands, New Jersey, playing a loose four-song mini-set (including a composed-on-the-spot "[Water Station](../2023-12-24_roll-of-the-dice-water-station/post.md)") through two power outages. The band closes with a cover of Big Joe Williams' "Baby, Please Don't Go"... sort of. Whether an intentional mashup or because he simply doesn't know the words, Bruce instead sings the lyrics for "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)," making this the first known recording of these words in public. Take a listen to this pristine, historic recording.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3)
 
@@ -12,7 +12,7 @@
 
 **1977:** Bruce holds a recording session at The Record Plant in New York City.<br>
 
-**1978:** The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)" and his first known performance of "[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)."<br>
+**1978:** The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)" and his first known performance of "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4EmmyA9O)
 
@@ -34,11 +34,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1985-0908.jpg.webp)
 
-**1992:** "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)" is nominated for Best Male Video at the MTV Video Music Awards but loses to Eric Clapton's "Tears in Heaven."<br>
+**1992:** "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" is nominated for Best Male Video at the MTV Video Music Awards but loses to Eric Clapton's "Tears in Heaven."<br>
 
 [Watch on Youtube: Bruce Springsteen - Human Touch (Official HD Video)](https://www.youtube.com/watch?v=85cNRQo1m3A)
 
-**1999:** Bruce and the reunited E Street Band play their second of two shows at The Palace of Auburn Hills, opening with a Motown special snippet of "[Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/)" before launching into "[Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)."<br>
+**1999:** Bruce and the reunited E Street Band play their second of two shows at The Palace of Auburn Hills, opening with a Motown special snippet of "[Dancing in the Street](../2020-09-12_cover-me-dancing-in-the-street/post.md)" before launching into "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/UijHwg1p)
 

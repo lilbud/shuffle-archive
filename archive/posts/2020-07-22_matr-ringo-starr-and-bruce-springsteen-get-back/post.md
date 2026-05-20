@@ -22,7 +22,7 @@ Still, before Bruce walked on stage that night, Ringo and his band hadn't ever p
 
 For those fortunate enough to have been there, it was a special night, and not just for the historic team-up. No one knew it at the time, but that performance would turn out to be Bruce's final public performance with members of the E Street Band before they went their separate ways that autumn.
 
-(Interested in checking out some of the other songs they played that night? Check out entries on "[Photograph](https://estreetshuffle.com/index.php/2018/04/29/matr-bruce-springsteen-and-ringo-starr-and-his-all-starr-band-photograph/)" and "[With a Little Help From My Friends](https://estreetshuffle.com/index.php/2018/06/03/matr-ringo-starrs-all-starr-band-bruce-springsteen-and-john-candy-with-a-little-help-from-my-friends/).")
+(Interested in checking out some of the other songs they played that night? Check out entries on "[Photograph](../2018-04-29_matr-bruce-springsteen-and-ringo-starr-and-his-all-starr-band-photograph/post.md)" and "[With a Little Help From My Friends](../2018-06-03_matr-ringo-starrs-all-starr-band-bruce-springsteen-and-john-candy-with-a-little-help-from-my-friends/post.md).")
 
 **Get Back**<br>
 **First performed:** August 11, 1989 (Holmdel, NJ)<br>

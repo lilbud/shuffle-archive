@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1977*<br>
 
-**1967:** The Castiles play the Surf ‘N’See Club in Sea Bright, New Jersey. That night, Bruce and some of his bandmates catch The Blues Magoos and The Who opening for Herman’s Hermits at Convention Hall in Asbury Park. Just a few weeks later, the band will cover The Blues Magoos’ “[One By One](https://estreetshuffle.com/index.php/2020/07/28/cover-me-one-by-one/)” in concert themselves.<br>
+**1967:** The Castiles play the Surf ‘N’See Club in Sea Bright, New Jersey. That night, Bruce and some of his bandmates catch The Blues Magoos and The Who opening for Herman’s Hermits at Convention Hall in Asbury Park. Just a few weeks later, the band will cover The Blues Magoos’ “[One By One](../2020-07-28_cover-me-one-by-one/post.md)” in concert themselves.<br>
 
 **1972:** Bruce plays his fourth of six two-shows-a-night solo gigs at Max’s Kansas City that week.<br>
 
@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0812.jpg.webp)
 
-**1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record “[Gotta Get That Feeling.](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/)” It will be released 38 years later.<br>
+**1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record “[Gotta Get That Feeling.](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)” It will be released 38 years later.<br>
 
 [Watch on Youtube: Bruce Springsteen Get that Feeling](https://www.youtube.com/watch?v=DQ1LfLDrDrU)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1998-08-11b.png.webp)
 
-**1999:** Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand at the Meadowlands with two long-awaited and inevitable bookends: the show-opening tour premiere of “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and the show-closing one-off performance of “Rosalita (Come Out Tonight).” During the encores, Jon Bon Jovi, Richie Sambora, and Melissa Etheridge join Bruce and the band for “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”<br>
+**1999:** Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand at the Meadowlands with two long-awaited and inevitable bookends: the show-opening tour premiere of “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and the show-closing one-off performance of “Rosalita (Come Out Tonight).” During the encores, Jon Bon Jovi, Richie Sambora, and Melissa Etheridge join Bruce and the band for “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Jersey Girl (Live 1999 08 12)](https://www.youtube.com/watch?v=DNzLnlxJh20)
 
@@ -52,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-08-12.png.webp)
 
-**2002:** Bruce and the E Street Band bring the Rising Tour to Madison Square Garden, where they play the second of four identical set lists in one week. When the show ends, a new video of an acoustic arrangement of “[Countin’ on a Miracle](https://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/)” (directed by Danny Clinch) debuts.<br>
+**2002:** Bruce and the E Street Band bring the Rising Tour to Madison Square Garden, where they play the second of four identical set lists in one week. When the show ends, a new video of an acoustic arrangement of “[Countin’ on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md)” (directed by Danny Clinch) debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen Madison Square Garden New York 12/08/2002 Full Concert](https://www.youtube.com/watch?v=bFys3yQTPIc)
 

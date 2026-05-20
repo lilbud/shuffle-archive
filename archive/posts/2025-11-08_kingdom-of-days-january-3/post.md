@@ -1,4 +1,4 @@
-**1982:** At home in Colts Neck, Bruce records demos for “[Johnny 99,](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)” “[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/),” “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/),” and “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/).” These demos will eventually be released on *Nebraska*.<br>
+**1982:** At home in Colts Neck, Bruce records demos for “[Johnny 99,](../2020-07-20_roll-of-the-dice-johnny-99/post.md)” “[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md),” “[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md),” and “[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md).” These demos will eventually be released on *Nebraska*.<br>
 
 [Watch on Youtube: Johnny 99](https://www.youtube.com/watch?v=f8UAvl-CAgM)
 

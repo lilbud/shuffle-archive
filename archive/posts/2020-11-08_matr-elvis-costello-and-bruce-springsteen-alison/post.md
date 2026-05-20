@@ -14,7 +14,7 @@ Elvis only joined Bruce for two brief numbers, one of which was a cover. The oth
 
 [Watch Video Highlight](https://videopress.com/embed/yWeJgOPo)
 
-(Apologies for the abrupt ending; Elvis segued into "[The Tracks of My Tears](https://estreetshuffle.com/index.php/2019/10/16/matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/)" from there.)
+(Apologies for the abrupt ending; Elvis segued into "[The Tracks of My Tears](../2019-10-16_matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/post.md)" from there.)
 
 Despite a few additional appearances together (most notably on Elvis' late, lamented *Spectacle* series), this was the only time Bruce has ever performed "Alison" live.
 

@@ -46,11 +46,11 @@ If there's any nuance to be found in "The Ballad of Jesse James," it's in that p
 
 Either way, in my opinion it's not enough to elevate "The Ballad of Jesse James" to a release-worthy Bruce Springsteen Band recording.
 
-Bruce could have given us the light-on-its feet "[I'm in Love Again](https://estreetshuffle.com/index.php/2020/05/23/roll-of-the-dice-im-in-love-again/)," the Van Morrison-esque "[Natural Magic](https://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/)," or the lovely, lonely "[She's Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)." Maybe someday he still will.
+Bruce could have given us the light-on-its feet "[I'm in Love Again](../2020-05-23_roll-of-the-dice-im-in-love-again/post.md)," the Van Morrison-esque "[Natural Magic](../2020-05-19_roll-of-the-dice-natural-magic/post.md)," or the lovely, lonely "[She's Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)." Maybe someday he still will.
 
 But for now we have "The Ballad of Jesse James," and it seems like that wasn't a choice Bruce made lightly. In April 2017, the core of the Bruce Springsteen Band reunited alongside a host of additional Asbury Park musical legends.
 
-This mighty one-time-only "Upstage Jam Band" tore through a set list of classic rock covers and a pair of Springsteen originals: "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" (a lock, given the presence of Southside Johnny) and "The Ballad of Jesse James."
+This mighty one-time-only "Upstage Jam Band" tore through a set list of classic rock covers and a pair of Springsteen originals: "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" (a lock, given the presence of Southside Johnny) and "The Ballad of Jesse James."
 
 Here's that performance–its first in 46 years–performed by the original Bruce Springsteen Band line-up of Bruce, David Sancious, Garry Tallent, Steve Van Zandt, and (in a curve ball) Vini Lopez on lead vocals.
 

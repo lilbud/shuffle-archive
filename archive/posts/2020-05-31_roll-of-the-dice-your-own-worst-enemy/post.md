@@ -1,10 +1,10 @@
-Most accounts (including Bruce's) contend that Bruce's *Working on a Dream* album began with the recording of "[What Love Can Do](https://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/)" during the *Magic* mixing sessions.
+Most accounts (including Bruce's) contend that Bruce's *Working on a Dream* album began with the recording of "[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)" during the *Magic* mixing sessions.
 
 But if you ask me, we can trace the true transition directly to "Your Own Worst Enemy," one of the strongest tracks on *Magic.*
 
 Both *Magic* and *Working on a Dream* have distinct musical styles, with the latter characterized primarily by a lush California sound. They also have very specific lyrical themes: *Magic* is a political record, whereas *Working on a Dream* is a treatise on growing older (very much a sonic and thematic prelude to *Western Stars*).
 
-There are two songs on *Magic* that sound like they'd be much more at home on *Working on a Dream.* The first, "[Girls in Their Summer Clothes,](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)" fits the latter album like a glove. In both words and music, it's clear that Bruce had already transitioned to his next album theme.
+There are two songs on *Magic* that sound like they'd be much more at home on *Working on a Dream.* The first, "[Girls in Their Summer Clothes,](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)" fits the latter album like a glove. In both words and music, it's clear that Bruce had already transitioned to his next album theme.
 
 The second, however, is more curious: "Your Own Worst Enemy" definitely *sounds* like a *Working on a Dream* song, but lyrically it's 100% *Magic.* I don't have any inside info to support my hypothesis, but I believe that "Your Own Worst Enemy" represents Bruce's true demarcation point, where he became newly re-captivated by the west coast sound but hadn't yet worked his politically charged lyrics out of his system.
 
@@ -96,7 +96,7 @@ That final couplet is one of Bruce's best ever, certainly in its use of metaphor
 
 The American flag–the very symbol of our patriotism–flying so high that it drifts away is Bruce's brilliant metaphor for how patriotism-turned-nationalism can lead you astray from the very one you profess to love.
 
-For my money, "Your Own Worst Enemy" is tied with "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" as the strongest thematic track on *Magic.* ("Girls in Their Summer Clothes" is still my favorite album track overall, even though it sticks out like a sore thumb on the disc). Both use layered metaphor to make incisive social commentary, but only "Long Walk Home" gets the recognition it deserves.
+For my money, "Your Own Worst Enemy" is tied with "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" as the strongest thematic track on *Magic.* ("Girls in Their Summer Clothes" is still my favorite album track overall, even though it sticks out like a sore thumb on the disc). Both use layered metaphor to make incisive social commentary, but only "Long Walk Home" gets the recognition it deserves.
 
 Part of the reason "Your Own Worst Enemy" flies under the radar lies in how infrequently Bruce performs it in concert. During the Magic Tour, he performed "Long Walk Home" nightly, but "Your Own Worst Enemy" a mere half-dozen times. If you were fortunate enough to be in the house one of those six nights (as I was, in Seattle), it was probably apparent why Bruce didn't play it more often: the lush production of the album track couldn't fully translate to the stage.
 

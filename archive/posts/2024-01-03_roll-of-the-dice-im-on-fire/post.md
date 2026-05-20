@@ -18,7 +18,7 @@ Could that be the reason for its everlasting popularity? Did Bruce, Max, and Roy
 
 But it had been years since Cash had enjoyed chart success anywhere near where "I'm on Fire" was flying, and when "I'm on Fire" was peaking, it was surrounded on the charts by slicker, poppier hits from Madonna, Phil Collins, Debarge, and The Commodores. Bruce's song kind of stood out.
 
-Maybe it's the video? Other than "Glory Days," which uses its story as a framing sequence, "I'm on Fire" is really the only Springsteen video that attempts to tell a story rather than spotlight Bruce's performance (at least until "[Hunter of Invisible Game](https://estreetshuffle.com/index.php/2022/01/18/roll-of-the-dice-hunter-of-invisible-game/)").
+Maybe it's the video? Other than "Glory Days," which uses its story as a framing sequence, "I'm on Fire" is really the only Springsteen video that attempts to tell a story rather than spotlight Bruce's performance (at least until "[Hunter of Invisible Game](../2022-01-18_roll-of-the-dice-hunter-of-invisible-game/post.md)").
 
 [Watch on Youtube: Bruce Springsteen - I'm On Fire (Official Video)](https://www.youtube.com/watch?v=lrpXArn3hII)
 
@@ -36,7 +36,7 @@ Joel's video was nominated for a Best Video VMA in 1984 but lost; "I'm on Fire" 
 
 Except that video has long since faded from the zeitgeist, so it doesn't fully explain the song's strange popularity either.
 
-So maybe it's the lyrics. Unlike "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" and "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" (the only songs that previously outperformed it), both of which require close attention to understand thanks to their belying backing tracks, Bruce's words in "I'm on Fire" are simple, direct, and frank–and in perfect comity with his music.
+So maybe it's the lyrics. Unlike "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" (the only songs that previously outperformed it), both of which require close attention to understand thanks to their belying backing tracks, Bruce's words in "I'm on Fire" are simple, direct, and frank–and in perfect comity with his music.
 
 It's almost silly to try and analyze "I'm on Fire," so blatant are its lyrics.
 

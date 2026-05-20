@@ -16,7 +16,7 @@ With its lyrics of persistence, perseverance, and ultimate deliverance, The Impr
 
 [Watch on Youtube: My city of ruins - live @ apollo theater 09-03-2012 - Bruce Springsteen](https://www.youtube.com/watch?v=lm1Yyx2-wlI)
 
-And then of course, there’s “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” which draws heavily on both stage and album from both “People Get Ready” and the even older “This Train” which uses similar train imagery.
+And then of course, there’s “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)” which draws heavily on both stage and album from both “People Get Ready” and the even older “This Train” which uses similar train imagery.
 
 [Watch on Youtube: Land of Hope and Dreams](https://www.youtube.com/watch?v=KHpJhS99Q60)
 

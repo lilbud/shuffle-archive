@@ -26,7 +26,7 @@ In the second verse, the divergence becomes more obvious. In this version, Bruce
 > *Young boys for hire waiting to blow us all down*
 > *There are strange flashes in the sky up above*
 
-That's some impressionistic imagery there (and yes, that first line would end up in "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" five years later); Bruce paints a gritty street scene as backdrop for the lovers. Six years later, the song would instead be set against a town dying a slow economic death. (It would be easy, in fact, to imagine the 1982 version of Frankie set in the same place is "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).")
+That's some impressionistic imagery there (and yes, that first line would end up in "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" five years later); Bruce paints a gritty street scene as backdrop for the lovers. Six years later, the song would instead be set against a town dying a slow economic death. (It would be easy, in fact, to imagine the 1982 version of Frankie set in the same place is "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md).")
 
 In both versions, though, Bruce takes his time painting a stark backdrop so he can play up his hero's romance in the foreground, and when his lyrics open up, we feel our hearts open, too:
 
@@ -58,7 +58,7 @@ That third and final verse though… boy, that early version is dark:
 > *When all of the fury in this desperate land*
 > *Will rise like raindrops in the palm of my hand*
 
-It's also somewhat familiar–when I listen to this version of "Frankie" and reach this point, I feel as if I'm back in the world of "[Incident on 57th Street.](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" Our narrator could easily pass for Spanish Johnny, and our lovers' shining, hidden world of the street (Bruce would rescue that imagery for "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)") feels like the very same streets of "Incident," the romance of two not-so-innocent lovers falling in love against a seedy, seamy backdrop.
+It's also somewhat familiar–when I listen to this version of "Frankie" and reach this point, I feel as if I'm back in the world of "[Incident on 57th Street.](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" Our narrator could easily pass for Spanish Johnny, and our lovers' shining, hidden world of the street (Bruce would rescue that imagery for "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)") feels like the very same streets of "Incident," the romance of two not-so-innocent lovers falling in love against a seedy, seamy backdrop.
 
 If the theme and setting are tried and true, however, Bruce's skill with imagery and metaphor has grown rapidly in the not-even-three years that separates the songs. That final line–"when all of the fury in this desperate land will rise like raindrops in the palm of my hand"–is just beautiful. And even those raindrops are a metaphor inside of a metaphor, as we realize when Bruce improvs a few lines that implore Frankie to let her sadness rise.
 
@@ -114,7 +114,7 @@ And all through the years, the coda remains true, with Bruce pleading:
 
 ---
 
-Bruce performed "Frankie" so frequently in April 1976 that fans who witnessed it must have been certain it was destined for his next album. "Frankie" is lush, long, romantic, and has that "epic" sweep that's hard to define but which clearly includes songs like "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)," "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)," "Jungleland," and "Incident on 57th Street" in scope and grandeur.
+Bruce performed "Frankie" so frequently in April 1976 that fans who witnessed it must have been certain it was destined for his next album. "Frankie" is lush, long, romantic, and has that "epic" sweep that's hard to define but which clearly includes songs like "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)," "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "Jungleland," and "Incident on 57th Street" in scope and grandeur.
 
 But it wasn't to be.
 

@@ -1,8 +1,8 @@
 There are so many covers of Bruce Springsteen's songs out there that I sometimes wonder if I'll ever be able to catalog them all.
 
-Most are the usual suspects: "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)," "Because the Night," "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)," and "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" all get lots and lots of love.
+Most are the usual suspects: "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "Because the Night," "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" all get lots and lots of love.
 
-Sometimes, though, an artist takes a crack at one of Bruce's deep cuts, and they don't get much deeper than "[Lift Me Up.](https://estreetshuffle.com/index.php/2018/05/20/roll-of-the-dice-lift-me-up/)"
+Sometimes, though, an artist takes a crack at one of Bruce's deep cuts, and they don't get much deeper than "[Lift Me Up.](../2018-05-20_roll-of-the-dice-lift-me-up/post.md)"
 
 Bruce recorded "Lift Me Up" for the movie *Limbo*, and it was released on the soundtrack in 1999. Sung in a falsetto, Bruce's voice is almost unrecognizable to the uninitiated, but it spoke to Swedish singer/songwriter Jennie Abrahamson nonetheless. Here's how she describes it:
 

@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8)
 
-**1999:** It's Night Eight of fifteen on the opening American stand of the Reunion Tour, and this show brings the tour premiere of "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" and the one and only performance to date of "Trouble River."<br>
+**1999:** It's Night Eight of fifteen on the opening American stand of the Reunion Tour, and this show brings the tour premiere of "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" and the one and only performance to date of "Trouble River."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QYAgcBKx)
 
@@ -66,7 +66,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kJ5JII8CMig)
 
-**2003:** At the first of two shows at Gillette Stadium in Foxboro, Bruce opens the encores with a cover of "[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)" in memory of Sam Phillips, who passed away two days prior.<br>
+**2003:** At the first of two shows at Gillette Stadium in Foxboro, Bruce opens the encores with a cover of "[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)" in memory of Sam Phillips, who passed away two days prior.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/a0fJ1kW8)
 
@@ -84,7 +84,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2005-08-01.png.webp)
 
-**2009:** Bruce tour premieres "[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)" at the penultimate show of the European Working on a Dream Tour in Valladolid, Spain.<br>
+**2009:** Bruce tour premieres "[Great Balls of Fire](../2022-08-10_matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/post.md)" at the penultimate show of the European Working on a Dream Tour in Valladolid, Spain.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2CuHgNWv5HE)
 

@@ -8,7 +8,7 @@
 
 **1976:** Bruce and the E Street Band play a sparsely attended show at Knoxville Civic Auditorium in Knoxville, Tennessee.<br>
 
-**1980:** At Clover Studios in Los Angeles, Bruce works on the final mixes for "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and "[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)."<br>
+**1980:** At Clover Studios in Los Angeles, Bruce works on the final mixes for "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)."<br>
 
 [Watch on Youtube: You Can Look (But You Better Not Touch)](https://www.youtube.com/watch?v=2QFJkYm-kYk)
 
@@ -24,7 +24,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 [Watch on Youtube: Gary U.S. Bonds - Dedication](https://www.youtube.com/playlist?list=PLp6WWcZCHeSjGcXK0zGNeNmaNxB4g5WKR)
 
-**1983:** Bruce works on "[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)" at his home studio in Los Angeles.<br>
+**1983:** Bruce works on "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" at his home studio in Los Angeles.<br>
 
 [Watch on Youtube: Bruce Springsteen - Cynthia (V1) - Home Demo (04/21/1983)](https://www.youtube.com/watch?v=SqpZGA_kEjE)
 
@@ -38,7 +38,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2000-04-21b.jpg.webp)
 
-**2005:** Bruce plays his first public warm-up show for his upcoming solo tour, a benefit for World Hunger Year at the Paramount in Asbury Park. Several *Devils & Dust* tracks get their live premieres and "[Part Man, Part Monkey](https://estreetshuffle.com/index.php/2022/02/19/roll-of-the-dice-part-man-part-monkey/)" is played for the first time in 17 years.<br>
+**2005:** Bruce plays his first public warm-up show for his upcoming solo tour, a benefit for World Hunger Year at the Paramount in Asbury Park. Several *Devils & Dust* tracks get their live premieres and "[Part Man, Part Monkey](../2022-02-19_roll-of-the-dice-part-man-part-monkey/post.md)" is played for the first time in 17 years.<br>
 
 [Watch on Youtube: Bruce Springsteen Tougher Than The Rest (Piano 2005 04 21) Audio](https://www.youtube.com/watch?v=C7kHCfWJ6mY)
 
@@ -52,7 +52,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-21.jpg.webp)
 
-**2009:** At the first of two nights at Boston's TD Garden, Bruce and the band play "[I'm Bad, I'm Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)" (by request) for the first time in 25 years.<br>
+**2009:** At the first of two nights at Boston's TD Garden, Bruce and the band play "[I'm Bad, I'm Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md)" (by request) for the first time in 25 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm Bad, I'm Nationwide (Live April 21, 2009 Boston, Massachusetts)](https://www.youtube.com/watch?v=ONBtIdJnY-g)
 
@@ -86,7 +86,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 [Watch on Youtube: Springsteen al benefit della Kristen Ann Carr Fund by Instagram George Zaver](https://www.youtube.com/watch?v=VSDq3QbDQgY)
 
-**2024:** Bruce opens his show in Columbus with the tour premiere of "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)." More surprises await lucky fans mid-show: the tour premieres of "[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)" and "[I'm Goin' Down.](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)"<br>
+**2024:** Bruce opens his show in Columbus with the tour premiere of "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)." More surprises await lucky fans mid-show: the tour premieres of "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" and "[I'm Goin' Down.](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - "Youngstown" - Columbus, Ohio - April 21, 2024](https://www.youtube.com/watch?v=AGY1lYBCe1s)
 

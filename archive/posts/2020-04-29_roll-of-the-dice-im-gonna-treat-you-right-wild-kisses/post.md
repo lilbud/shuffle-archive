@@ -23,7 +23,7 @@ We can understand enough of the lyrics to understand why it was left off of *Dar
 > *And now my wild world's tumblin' and dancin'*
 > *I'm looking for true romancin'*
 
-But it would have been perfectly suited for *The River*, and a brilliant live addition to the Darkness Tour. Bruce is clearly getting his Buddy Holly on in that rehearsal tape, and with a little polish, "I'm Gonna Treat You Right" would have made a great pairing or alternate for Bruce's cover of Holly's "[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)" that frequently graced Bruce's 1978 set lists.
+But it would have been perfectly suited for *The River*, and a brilliant live addition to the Darkness Tour. Bruce is clearly getting his Buddy Holly on in that rehearsal tape, and with a little polish, "I'm Gonna Treat You Right" would have made a great pairing or alternate for Bruce's cover of Holly's "[Rave On](../2019-03-25_matr-bruce-springsteen-and-gary-busey-rave-on/post.md)" that frequently graced Bruce's 1978 set lists.
 
 Alas, "I'm Gonna Treat You Right" appears to be lost to history; it doesn't look like it ever even made it to the vault.
 

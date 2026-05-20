@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1986-01-27.png.webp)
 
-**1994:** Bruce debuts "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" at the *Commitment to Life* AIDS benefit in Los Angeles.<br>
+**1994:** Bruce debuts "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" at the *Commitment to Life* AIDS benefit in Los Angeles.<br>
 
 [Watch on Youtube: Bruce Springsteen - Los Angeles - 1994-01-27 news coverage](https://www.youtube.com/watch?v=lhL-btWA-o4)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2009-01-27b.png.webp)
 
-**2016:** The River Tour (2016 Edition) moves on to Madison Square Garden, where "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)" makes its tour premiere.<br>
+**2016:** The River Tour (2016 Edition) moves on to Madison Square Garden, where "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)" makes its tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen "Meet Me in the City" MSG NYC 1/27/16](https://www.youtube.com/watch?v=2vkOSjgsP0s)
 
@@ -52,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg.webp)
 
-**2017:** Night 3 in Perth features the first and only performance of "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" in Australia to date.<br>
+**2017:** Night 3 in Perth features the first and only performance of "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" in Australia to date.<br>
 
 [Watch on Youtube: Bruce Springsteen Perth Australia 2017. Drive All Night.](https://www.youtube.com/watch?v=tMo4WuOlqV8)
 

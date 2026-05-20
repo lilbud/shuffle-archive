@@ -4,7 +4,7 @@ Patti's *Rumble Doll* album was a tremendous debut, firmly establishing her sing
 
 [Watch on Youtube: Patti Scialfa - As Long As I (Can Be With You)](https://www.youtube.com/watch?v=oqUoSit3qaU)
 
-Although Bruce doesn't play on the studio track, he occasionally teased the song with Patti during the band intro break in "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)" during the Reunion Tour.
+Although Bruce doesn't play on the studio track, he occasionally teased the song with Patti during the band intro break in "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" during the Reunion Tour.
 
 More than a decade after its release, Bruce took his first full run through the song in April 2004, supporting Patti at her show at the Hit Factory in New York, celebrating the release of her second album.
 

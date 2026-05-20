@@ -4,7 +4,7 @@ After all, that's what made U2's original Grammy-winning video so memorable.
 
 [Watch on Youtube: U2 - Where The Streets Have No Name (Official Music Video)](https://www.youtube.com/watch?v=GzZWSrr5wFI)
 
-That amazing video (staged as a tribute to The Beatles famous rooftop concert) was conceived and directed by Meiert Avis, who also directed some of Bruce's best videos ("[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)," "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)," "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)," "Born to Run" (the acoustic version), "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)," and "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)").
+That amazing video (staged as a tribute to The Beatles famous rooftop concert) was conceived and directed by Meiert Avis, who also directed some of Bruce's best videos ("[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)," "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)," "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)," "Born to Run" (the acoustic version), "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)," and "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)").
 
 Avis' video captured what actually went down that day. The police really did attempt to and ultimately succeed at shutting down the production, which was what the band was secretly hoping for. Both the song and the video became smash hits for the already mega-popular U2 (peaking at #13 on the Billboard Hot 100), and "Where the Streets Have No Name" remains one of the band's most popular songs.
 
@@ -14,7 +14,7 @@ The only problem was the show almost had to be cancelled before it was even anno
 
 The result was a surprise show by "U2 Minus 1," announced just hours before the show took place. U2 played two short sets, each with a different frontman. Chris Martin of Coldplay helped the band open the show; Bruce Springsteen helped close it.
 
-Bruce and U2 performed two songs together: "[I Still Haven't Found What I'm Looking For,](https://estreetshuffle.com/index.php/2019/02/25/matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/)" which they'd played together a couple of times before, and "Where the Streets Have No Name," which remains a one-time-only performance to this day.
+Bruce and U2 performed two songs together: "[I Still Haven't Found What I'm Looking For,](../2019-02-25_matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/post.md)" which they'd played together a couple of times before, and "Where the Streets Have No Name," which remains a one-time-only performance to this day.
 
 [Watch on Youtube: U2 Minus 1 & Bruce Springsteen - Where The Streets Have No Name](https://www.youtube.com/watch?v=r4amdEdc76o)
 

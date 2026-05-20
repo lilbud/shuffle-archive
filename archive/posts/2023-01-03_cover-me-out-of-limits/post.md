@@ -26,11 +26,11 @@ But I digress. Let's get to the Springsteen connection, shall we?
 
 On Halloween Eve in 1980, Bruce and the E Street Band brought the original River Tour to the Los Angeles Sports Arena, and the boys were in a mood to mark the occasion.
 
-They took to the stage with a cover of Johnny Fuller's "[Haunted House](https://estreetshuffle.com/index.php/2021/10/30/cover-me-haunted-house/)," and when it came time to kick off the second set of the evening, the E Street Band pulled out their one-time-only cover of The Marketts' smash hit.
+They took to the stage with a cover of Johnny Fuller's "[Haunted House](../2021-10-30_cover-me-haunted-house/post.md)," and when it came time to kick off the second set of the evening, the E Street Band pulled out their one-time-only cover of The Marketts' smash hit.
 
 [Watch on Youtube: Out of Limits - Bruce Springsteen (live at the Los Angeles Memorial Sports Arena 1981)](https://www.youtube.com/watch?v=72_lUSEeIJg)
 
-Bruce had started using [an instrumental](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/) as a second set-opener a few years earlier on the Darkness Tour. Since many audience members tended to straggle back from the restroom for a few minutes after the show resumed, instrumentals tended to be good ways to resume the action while the latecomers took their seats.
+Bruce had started using [an instrumental](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md) as a second set-opener a few years earlier on the Darkness Tour. Since many audience members tended to straggle back from the restroom for a few minutes after the show resumed, instrumentals tended to be good ways to resume the action while the latecomers took their seats.
 
 Bruce paused that practice on the River Tour, but "Out of Limits" proved a fitting one-time exception on that Halloween night.
 
