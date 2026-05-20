@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Cats on a Smooth Surface: Rock Baby, Rock It"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen joins Stone Pony house band Cats on a Smooth Surface to cover a lost rockabilly classic."
+tags: cats-on-a-smooth-surface johnny-caroll rock-baby-rock-it
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/rock-baby.jpg
+post_id: 13920
+---
 Johnny Carroll is one of rockabilly's unsung heroes.
 
 He never had a hit during his original run in the 1950s, but he was a critical darling and had a resurgence of sorts in the late seventies and early eighties.

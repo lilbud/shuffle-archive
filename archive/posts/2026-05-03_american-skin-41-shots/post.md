@@ -1,3 +1,11 @@
+---
+layout: post
+title: "American Skin (41 Shots)"
+author: "Ken"
+excerpt: "Amadou Diallo was a citizen of the world, but he dreamed of the United States of America. Born to Guinean parents living in Liberia, he…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/04/41shots-e1433007783680.webp
+post_id: 68737
+---
 Amadou Diallo was a citizen of the world, but he dreamed of the United States of America.
 
 Born to Guinean parents living in Liberia, he spent his early childhood in Togo and Guinea and went to high school in Thailand. When the dot-com era exploded, Amadou enrolled in a Cambridge University-sponsored IT program in Singapore.

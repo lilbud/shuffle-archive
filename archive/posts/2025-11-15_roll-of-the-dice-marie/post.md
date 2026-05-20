@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Marie"
+author: "Ken"
+excerpt: "In 1972, Bruce exorcised his toxic relationship demons with this harsh but beautiful character study."
+tags: marie
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/marie.jpg
+post_id: 30736
+---
 > "I had a gal in New Jersey who broke my heart, ripped it to shreds, trampled on it, and sent it to me COD in a paper bag. So I was out of there on the first ride west, no looking back. I was going to build a new life in California, three thousand miles away from the pain. But it didn't take long before my luck ran out and my money ran out. And it just wasn't gonna happen." — Bruce Springsteen, *Western Stars* (2019)
 
 In the waning days of 1971, Bruce Springsteen left New Jersey, headed west and didn't look back.

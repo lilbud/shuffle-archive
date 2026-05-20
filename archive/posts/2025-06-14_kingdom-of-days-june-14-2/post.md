@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 14"
+author: "Ken"
+excerpt: "Happy Birthday, Western Stars, released on this day in 2019. Plus: watch and listen to Bruce play with Phish, Neil Young, Jackson Browne, and Gary U.S. Bonds. More highlights inside."
+tags: 23rd-street-lullaby asbury-park bonnaroo cardiff child copenhagen darkness-tour down-by-the-river eyes-on-the-prize gary-u-s-bonds glory-days jackson-browne long-island madison-square-garden magic-tour milwaukee mustang-sally neil-young new-york-city omaha patti-scialfa phish rising-tour river-tour-2016 save-tillie seeger-sessions-tour springsteen-on-broadway steel-mill the-hague the-netherlands uk wales western-stars
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/westernstars.jpg
+post_id: 57090
+---
 ***New for 2025:** New entry for 1977, 1979, and 2024; review for 1978; video for 2006*<br>
 
 **1969:** Child plays at The Auction Coffee House in Long Branch, New Jersey.<br>

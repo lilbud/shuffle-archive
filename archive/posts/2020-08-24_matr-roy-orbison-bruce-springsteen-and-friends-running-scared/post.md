@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison, Bruce Springsteen and Friends: Running Scared"
+author: "Ken"
+excerpt: "One time only: Bruce joins Roy Orbison and an all-star backing band in a show-stopping performance of “Running Scared.”"
+tags: black-and-white-night roy-orbison running-scared
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/Roy-Orbison-Running-Scared-1522163688-640x634-1.jpg
+post_id: 20596
+---
 Okay, so maybe this particular team-up is a bit one-sided: although we can see Bruce playing guitar over Roy Orbison's shoulder, it's clear he's humbled by talent before him and around him.
 
 [Watch on Youtube: Roy Orbison - "Running Scared" from Black and White Night](https://www.youtube.com/watch?v=DAYyMIZNxfM)

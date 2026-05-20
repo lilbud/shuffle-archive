@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: King Tut"
+author: "Ken"
+excerpt: "What do you do when you need a break from rehearsing the intense setlist for the Darkness Tour? You cover the novelty song of the summer."
+tags: king-tut saturday-night-live steve-martin
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/kingtut.jpg
+post_id: 7168
+---
 In 1978, if you weren't out on a Saturday night, you were more than likely at home watching *Saturday Night Live–*the 43-year old TV mainstay has never been more popular than it was during the last two seasons of the 1970s.
 
 So on Saturday night, April 22nd, it's quite possible that Bruce Springsteen and the E Street Band were watching SNL when Steve Martin debuted his instant classic, "King Tut."

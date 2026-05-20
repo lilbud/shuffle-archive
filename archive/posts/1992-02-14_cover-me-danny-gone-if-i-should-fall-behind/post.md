@@ -1,4 +1,14 @@
-One of the greatest delights of writing this blog is discovering independent musicians with an appreciation for Bruce’s music, artists I would likely never encounter otherwise.
+---
+layout: post
+title: "Danny Gone: If I Should Fall Behind"
+author: "Ken"
+excerpt: "Brand new but instantly one of my top ten favorite Springsteen covers: take a listen to Danny Gone’s gorgeous rendition of “If I Should Fall Behind.”"
+tags: danny-gone if-i-should-fall-behind
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/danny.jpg
+post_id: 14456
+---
+One of the greatest delights of writing this blog is discovering independent musicians with an appreciation for Bruce's music, artists I would likely never encounter otherwise.
 
 Every once in a while, I come across a cover from an unknown artist that makes me stop in my tracks. Whatever I had queued up next for the blog gets shoved back so I can call into the ether, *listen to this.*
 
@@ -6,6 +16,6 @@ Listen to this.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VHZv3mQkpJk)
 
-I’m completely unfamiliar with Danny Gone, but his absolutely gorgeous cover of “If I Should Fall Behind” is better than any other I’ve encountered. It’s brand new (released just days ago as I write this), but it’s immediately cemented as one of my all-time favorite Springsteen covers.
+I'm completely unfamiliar with Danny Gone, but his absolutely gorgeous cover of "If I Should Fall Behind" is better than any other I've encountered. It's brand new (released just days ago as I write this), but it's immediately cemented as one of my all-time favorite Springsteen covers.
 
 © November 23, 2019

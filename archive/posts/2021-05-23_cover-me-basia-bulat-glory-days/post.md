@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Basia Bulat: Glory Days"
+author: "Ken"
+excerpt: "Watch Toronto-based Basia Bulat’s solo autoharp cover of Bruce’s nostalgic “Glory Days.”"
+tags: basia-bulat glory-days
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/basia.jpg
+post_id: 26702
+---
 In September 2013, *The Independent* named Toronto-based Basia Bulat's "Tall Tall Shadow" their song of the week... along with Bruce Springsteen's "Stolen Car."
 
 "I could do a lot worse!" she told an interviewer.

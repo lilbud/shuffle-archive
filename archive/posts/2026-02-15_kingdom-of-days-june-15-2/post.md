@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 15"
+author: "Ken"
+excerpt: "Bruce kicks off World Tour 1992, continues the Reunion Tour’s last stand, premieres “Take ‘Em as They Come,” and more. Plus: Patti Scialfa releases her second album and plays a mini-concert in New York City."
+tags: 23rd-street-luallaby austin born-in-the-usa-tour countin-on-a-miracle country-joe-mcdonald devils-and-dust-tour frankfurt gary-u-s-bonds germany italy london lucky-girl madison-square-garden new-york-city offenbach patti-scialfa reunion-tour rome springsteen-on-broadway stockholm sweden take-em-as-they-come this-little-girl tunnel-of-love-tour uk west-germany world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/PATTI_art1.jpg
+post_id: 57091
+---
 **1973:** At Madison Square Garden, Bruce and his band play their thirteenth and final show as the opening act for Chicago. This was a notoriously bad tour for the band, playing to huge but unreceptive (and sometimes booing) crowds. Bruce resolves never to play big halls again, and he sticks to it… for a while.<br>
 
 **1974:** Under record label pressure to release a new single, Bruce and the E Street Band cancel a show at Armadillo World Headquarters in Austin.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 7"
+author: "Ken"
+excerpt: "On this date: Born in the U.S.A. hits #1, Bruce wraps up the European leg of the BITUSA Tour, and at the Roxy in 1978, Bruce delivers one of his greatest performances of all time."
+tags: born-in-the-usa born-in-the-usa-tour bryn-mawr darkness-tour denmark dublin for-you germany ireland leeds leipzig los-angeles magic-tour main-point norway oslo point-blank roskilde roxy steve-van-zandt the-e-street-shuffle the-roots tunnel-of-love-tour uk wrecking-ball-tour you-never-can-tell
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/roxy78.jpg
+post_id: 57649
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>

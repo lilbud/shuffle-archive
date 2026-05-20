@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Seven Nights to Rock"
+author: "Ken"
+excerpt: "On the Rising Tour (and pretty much every year since) Bruce resurrected an obscure single from one of rock’s great but forgotten influencers."
+tags: moon-mullican seven-nights-to-rock
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/seven-nights.jpg
+post_id: 26456
+---
 Aubrey "Moon" Mullican was never the crossover star he should have been.
 
 Born in 1909, Mullican was too old to ride the rock and roll wave when it crested, even though he helped create it.

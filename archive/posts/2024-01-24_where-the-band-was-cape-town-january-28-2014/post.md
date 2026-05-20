@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Cape Town, January 28, 2014"
+author: "Ken"
+excerpt: "A return to the Seeger Sessions tour, or so it seemed at Cape Town Night 2."
+tags: cape-town high-hopes-tour open-all-night pete-seeger south-africa this-little-light-of-mine we-shall-overcome
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/capetown2-1.jpg
+post_id: 455
+---
 I knew I was in for an unpredictable, unforgettable experience when I made the trip from Seattle to Cape Town for Bruce’s three-show stand (his first shows in South Africa) in 2014.
 
 I expected setlist surprises, guest-stars and memorable audience moments (and we got all of them). What I didn’t expect was to get a taste of three different tours on three separate nights.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Scary Pockets: Blinded by the Light"
+author: "Ken"
+excerpt: "Scary Pockets makes their third appearance on the Shuffle with their fresh and funky cover of “Blinded by the Light.”"
+tags: blinded-by-the-light manfred-mann scary-pockets
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/scary.jpg
+post_id: 31933
+---
 I try to keep a rotating spotlight on fresh new cover artists here, but every once in a while an artist earns a second look.
 
 Today makes the first time I've featured a three-peat, however. That's because Los Angeles-based funk combo Scary Pockets is just *so* darn good, and it seems like every year at this time they gift us with a creative take on one of Bruce Springsteen's classic songs.

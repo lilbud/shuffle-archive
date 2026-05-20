@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 6"
+author: "Ken"
+excerpt: "Highlights from this date: a great recording of an early version of “Rosalita,” a guest-appearance by Joan Baez, an abandoned “Dancing in the Dark” video,, and more. Plus: the E Street Band (and the fans!) get an on-stage surprise in Indianapolis."
+tags: bring-em-home cats-on-a-smooth-surface chicago concord darkness-tour devils-and-dust-tour incident-on-57th-street indianapolis italy mtv new-york-city philadelphia rome rosalita seeger-sessions-tour springsteen-on-broadway stone-pony the-castiles world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/20060606_front.jpg
+post_id: 57021
+---
 **1968:** The Castiles open for Lord Sutch at the Hullabaloo in Freehold.<br>
 
 **1973:** Bruce and the E Street Band (not yet named, however) open for Chicago at the Spectrum in Philadelphia. In typical Philly fashion, Bruce is booed by a crowd unfamiliar with his music and impatient for the headliners. A studio-mixed recording of a very early version of "Rosalita (Come Out Tonight)" with different lyrics stems from this date, and you can listen to it below.<br>

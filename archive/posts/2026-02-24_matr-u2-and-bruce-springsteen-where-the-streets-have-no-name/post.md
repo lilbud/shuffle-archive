@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Streets Have No Name"
+author: "Ken"
+excerpt: "One time only: Bruce stands in for Bono at a surprise World AIDS Day benefit concert in Times Square, in a callback to the band’s famous 1987 video."
+tags: u2 where-the-streets-have-no-name
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/admin-ajax-27.jpg
+post_id: 21636
+---
 If Bruce was only ever going to perform U2's "Where the Streets Have No Name" once, there was only really one right way to do it: as an impromptu live performance at a busy city intersection.
 
 After all, that's what made U2's original Grammy-winning video so memorable.

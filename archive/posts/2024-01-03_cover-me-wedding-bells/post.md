@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Wedding Bells"
+author: "Ken"
+excerpt: "In the summer of 1978, Bruce became fascinated with the music of Hank Williams, whose music quickly started surfacing in Bruce’s soundchecks."
+tags: hank-williams wedding-bells
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/hank.png
+post_id: 25335
+---
 > “What I’ve been listening to now… is a lot of Hank Williams. He was fantastic. God, he’s just incredible.” — *Bruce Springsteen to Ed Sciaky, August 19, 1978*
 
 In the summer of 1978, Bruce Springsteen was practically obsessed with the music of Hank Williams. It was the beginning of his fascination with country music and his determination to infuse some of Hank’s spirit into his own material.

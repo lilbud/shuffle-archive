@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Crazy Rocker"
+author: "Ken"
+excerpt: "Listen to Bruce’s greatest unfinished rocker from the Darkness sessions and imagine what a show-stopper we *almost* had."
+tags: crazy-rocker
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/crocker.jpg
+post_id: 7796
+---
 I don't bring request signs to Springsteen concerts; I prefer to just let the night unfold around me.
 
 But if I *did* bring a sign to show, it would be for "Crazy Rocker."

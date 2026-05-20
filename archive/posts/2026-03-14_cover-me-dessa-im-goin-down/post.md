@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Dessa: I'm Goin' Down"
+author: "Ken"
+excerpt: "Indie rapper/singer Dessa dials up the melancholy to eleven in her moody acoustic cover of Bruce’s 1985 single."
+tags: dessa im-goin-down parts-of-speech
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/dessa.jpg
+post_id: 29229
+---
 Chances are that if I told you that a notable rapper/hip-hop singer covered a Bruce Springsteen song, neither Dessa nor "I'm Goin' Down" would immediately spring to mind as likely candidates.
 
 And even if they did, you probably wouldn't expect a moody, acoustic, and gorgeously atmospheric track like this.

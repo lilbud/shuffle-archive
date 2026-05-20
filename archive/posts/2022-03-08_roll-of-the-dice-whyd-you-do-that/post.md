@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Roll of the Dice: Why'd You Do That"
+author: "Ken"
+excerpt: "One of the slightest songs in Bruce’s catalog, “Why’d You Do That” at least provides the framework for some epic jams."
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/whydidyou.png
+post_id: 33061
+---
 Today, Bruce Springsteen is known for his sophisticated, sensitive, and literary songwriting, but back in his Steel Mill Days, it was all about the guitar.
 
 We've listened to dozens of original songs that Bruce wrote during that brief, barely-a-year era, and we'll listen to many more before we bring this odyssey to an end. Some of these songs are more substantial than others, and today's entry is definitely on the slighter side–lyrically speaking, at least.

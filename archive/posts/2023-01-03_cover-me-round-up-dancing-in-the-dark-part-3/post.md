@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me Round-Up: Dancing in the Dark (Part 3)"
+author: "Ken"
+excerpt: "Six new takes on Bruce’s most popular song–each with its own unique spin."
+tags: benny-sings dancing-in-the-dark downtown-boys half-measure onevoice sad-little-attic-boy the-ruth-moody-band
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/ruthmoody.jpg
+post_id: 31272
+---
 Welcome to a new installment of *Cover Me Round-Up!*
 
 Today's curated collection is my favorite one to date. When it comes to "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" covers, you might think you've heard them all–after all, we've featured *thirty-eight* different renditions here on the Shuffle over the past four years.

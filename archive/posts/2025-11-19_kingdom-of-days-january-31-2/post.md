@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 31"
+author: "Ken"
+excerpt: "Rare performances of lost classics in amazing clarity, a benefit team-up with Jon Bon Jovi, and more."
+tags: bishop-danced bobby-bandiera come-together ghost-of-tom-joad-tour japan jon-bon-jovi loose-change max-weinberg maxs-kansas-city new-york-city newark patrick-king river-tour-2016 saga-of-the-architect-angel song-for-orphans southside-johnny springsteen-on-broadway steve-van-zandt this-time-its-for-real tokyo tracks video-anthology
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/maxkc.jpg
+post_id: 55826
+---
 **1973:** Bruce and the band eventually known as E Street open a six-night, two-shows-nightly stand at Max’s Kansas City in New York City, opening for Biff Rose. Several tracks from this show are professionally recorded for use on The King Biscuit Flower Hour, but only “[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)” will be aired. That “Bishop Danced” recording, however, will see the light of day again 25 years later, when it is released on *Tracks*.<br>
 
 [Watch on Youtube: Bishop Danced (Live at Max's Kansas City - January 1973)](https://www.youtube.com/watch?v=j3k_B-pvusI)

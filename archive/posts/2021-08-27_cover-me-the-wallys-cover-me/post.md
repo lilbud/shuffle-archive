@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Wallys: Cover Me"
+author: "Ken"
+excerpt: "This Italian country band manages to make “Cover Me” cool."
+tags: cover-me the-wallys
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/coverme.jpg
+post_id: 29119
+---
 If I keep stumbling across [brilliant](../2021-01-16_cover-me-13th-alibi-and-dilia-cover-me/post.md) [covers](../2021-05-07_cover-me-the-album-show-cover-me/post.md) of "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)," I may just have to re-evaluate my opinion of my least favorite Springsteen song.
 
 Because this cool but sultry rooftop performance by The Wallys is wonderful in every respect, from Valeria Colombo's commanding vocals and charismatic presence to Adriano Cuccinella's upright bass that keeps the song bouncing along.

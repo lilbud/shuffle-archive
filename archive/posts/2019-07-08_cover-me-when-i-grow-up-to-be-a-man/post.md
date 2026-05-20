@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: When I Grow Up (To Be a Man)"
+author: "Ken"
+excerpt: "One time only: Facing his largest audience ever, performing for the first time as a married man, Bruce shared what was on his mind by covering The Beach Boys’ “When I Grow Up (To Be a Man).”"
+tags: the-beach-boys when-i-grow-up-to-be-a-man
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/the-beach-boys-when-i-grow-up-to-be-a-man-1964-7.jpg
+post_id: 11227
+---
 When Brian Wilson and Mike Love were just 18 and 19 respectively, they took a peek over the precipice of adulthood and recorded "When I Grow Up (To Be a Man)."
 
 Released as a single in 1964, The Beach Boys scored a Top Ten hit with it across the Billboard Hot 100, Cash Box, and Variety charts.

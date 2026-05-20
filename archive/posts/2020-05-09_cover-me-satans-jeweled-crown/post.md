@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Satan's Jeweled Crown"
+author: "Ken"
+excerpt: "In the spring of 1993, Bruce leaned further into his new band’s strengths with their gorgeous cover of a country-gospel classic."
+tags: emmylou-harri satans-jeweled-crown the-louvin-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/satan.jpg
+post_id: 18173
+---
 By the time Bruce resumed his World Tour in 1993 after a three-month winter break, he'd grown more comfortable with his new band. He'd begun seeding more of his E Street material back into the set, and more importantly he started leaning in to the gospel vocal strengths of his back-up singers.
 
 First came a stunning gospel arrangement of Jimmy Cliff's "[Many Rivers to Cross,](../2018-07-28_cover-me-many-rivers-to-cross/post.md)" which remained a set list staple for the remainder of the tour. By late spring, Bruce had added The Louvin Brothers' "Satan's Jeweled Crown" as well.

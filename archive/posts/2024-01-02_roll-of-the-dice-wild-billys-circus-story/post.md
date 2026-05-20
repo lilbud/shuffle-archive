@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Wild Billy's Circus Story"
+author: "Ken"
+excerpt: "More an impressionistic scene than a story, “Wild Billy’s Circus Story” is one of Bruce’s most carefully crafted early songs, full of delightful musical and lyrical detail. Insights, backstory, and some remarkable early performances inside."
+tags: circus-song wild-billys-circus-story
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/circus.jpg
+post_id: 7877
+---
 > "…I think when you're a kid, the things you notice about the circus aren't the things you're meant to notice. But those are the things that are fascinating to you. You know what you're watching, that right underneath it… you'd walk down the midway, but I was always interested in what's going on down that side alley back by that trailer. And then late at night, if you happened to be stranded there at 11:30, midnight, after it had shut down, it was the province of local hoodlums at the time, and it was really scary for a little boy."–*Bruce Springsteen to Elvis Costello, Spectacle, September 25, 2009*<br>
 
 "Wild Billy's Circus Story" is a stand-out track on Bruce's second album, but not in a good/bad way. It stands out because it sounds like a holdover from [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md), or even earlier, if you're familiar with his pre-Columbia recordings.

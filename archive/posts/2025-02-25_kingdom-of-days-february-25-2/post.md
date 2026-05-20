@@ -1,10 +1,20 @@
-**1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of "[Down to the Riverside](../2021-10-15_roll-of-the-dice-down-to-the-riverside/post.md)."<br>
+---
+layout: post
+title: "February 25"
+author: "Ken"
+excerpt: "On this day in Springsteen history: The Tunnel of Love Express Tour kicks off, the E Street Band plays their last concert to date, the inspiration for one of Bruce’s most controversial songs, and a whole lot more."
+tags: 634-5789 amadou-diallo american-skin-41-shots asbury-park auckland boccigalupe-and-the-bad-boys born-to-run bruce-springsteen-band bryn-mawr buffalo detroit-medley ghost-of-tom-joad-tour glory-days hold-on-im-coming hungry-heart im-a-coward knock-on-wood lawsuit-tour magic-tour memphis miami-horns michael-strollo new-zealand one-step-up purdue-university richmond river-tour river-tour-2016 rosalita rotterdam soul-man tenth-avenue-freeze-out the-main-point the-netherlands tony-strollo tracks tunnel-of-love-express-tour walk-like-a-man worcester you-can-look-but-you-better-not-touch
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/TOL-Express.jpg
+post_id: 56002
+---
+**1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of “[Down to the Riverside](../2021-10-15_roll-of-the-dice-down-to-the-riverside/post.md).”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3)
 
-**1974:** Sick with the flu, Bruce somehow manages to perform at The Main Point in Bryn Mawr, Pennsylvania, but he is forced to sit for the entire performance. Even though he's sick, a photo from this evening will become the cover of *Tracks* 24 years later. (photo credits: Phil Ceccola)<br>
+**1974:** Sick with the flu, Bruce somehow manages to perform at The Main Point in Bryn Mawr, Pennsylvania, but he is forced to sit for the entire performance. Even though he’s sick, a photo from this evening will become the cover of *Tracks* 24 years later. (photo credits: Phil Ceccola)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1974-02-25.jpg.webp)
 
@@ -16,21 +26,21 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1977-02-25.png.webp)
 
-**1981:** The River Tour makes a stop at the Mid-South Coliseum in Memphis. Meanwhile, Bruce loses the Best Rock Vocal Performance (Male) Grammy Award to Billy Joel's *Glass Houses*. (Bruce was nominated for "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/).")<br>
+**1981:** The River Tour makes a stop at the Mid-South Coliseum in Memphis. Meanwhile, Bruce loses the Best Rock Vocal Performance (Male) Grammy Award to Billy Joel’s *Glass Houses*. (Bruce was nominated for “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/).”)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/The_Memphis_Press_Scimitar_Thu__Feb_26__1981_-scaled.jpg.webp)
 
-**1986:** Grammy-nominated "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" loses the Record of the Year award to "[We Are the World](../2022-01-30_matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/post.md)" (which at least features Bruce's vocals).<br>
+**1986:** Grammy-nominated “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” loses the Record of the Year award to “[We Are the World](../2022-01-30_matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/post.md)” (which at least features Bruce’s vocals).<br>
 
 [Watch on Youtube: U.S.A. For Africa - We Are the World](https://www.youtube.com/watch?v=9AjkUyX0rVw)
 
 **1988:** The Tunnel of Love Express Tour kicks off in Worcester, Massachusetts. Most *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*songs receive their first concert airings, and old standards are played with new arrangements. Unheard outtakes and covers round out a tightly thematic set list and a very different Springsteen show than most fans have ever heard. The Miami Horns join the E Street Band for this tour, temporarily renamed The Horns of Love.<br>
 
-Listen in on the soundcheck...
+Listen in on the soundcheck…
 
 [Watch Video Highlight](https://videopress.com/embed/ty4DZGd4)
 
-..while the media covers the anticipation for and reaction to tonight's tour opener:
+..while the media covers the anticipation for and reaction to tonight’s tour opener:
 
 [Watch on Youtube: ABC News coverage of Bruce Springsteen tour - February 25, 1988](https://www.youtube.com/watch?v=CwePYvMQ3UA)
 
@@ -56,21 +66,21 @@ Listen in on the soundcheck...
 
 [Watch Video Highlight](https://videopress.com/embed/Mn7BVXOQ)
 
-**1998:** Nominated for the Best Male Rock Vocal Performance Grammy for "Thunder Road," Bruce loses to Bob Dylan's "Cold Irons Bound."<br>
+**1998:** Nominated for the Best Male Rock Vocal Performance Grammy for “Thunder Road,” Bruce loses to Bob Dylan’s “Cold Irons Bound.”<br>
 
 **2000:** Four New York City police officers are acquitted of all charges in the shooting death of Amadou Diallo, an immigrant from West Africa who was shot at 41 times by the police even though he was unarmed. Bruce will shortly write a song about it and perform it to much controversy in New York at the end of the Reunion Tour.<br>
 
-**2005:** Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for "[Code of Silence](../2018-08-27_codeofsilence/post.md)."<br>
+**2005:** Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for “[Code of Silence](../2018-08-27_codeofsilence/post.md).”<br>
 
 [Watch on Youtube: Code of Silence (Live at Madison Square Garden, New York, NY - June 2000)](https://www.youtube.com/watch?v=qmliFFBFQAQ)
 
 **2008:** Bruce and the E Street Band rehearse for the next leg of the Magic Tour at Convention Hall in Asbury Park.<br>
 
-**2012:** Bruce makes a surprise appearance at an Asbury Park benefit concert in memory of his personal trainer Tony Strollo, who died earlier that month; at the show he plays guitar while Tony's brother Michael sings "[Could Die Young Tonight](../2020-06-01_matr-michael-strollo-and-bruce-springsteen-could-die-young-tonight/post.md)..."<br>
+**2012:** Bruce makes a surprise appearance at an Asbury Park benefit concert in memory of his personal trainer Tony Strollo, who died earlier that month; at the show he plays guitar while Tony’s brother Michael sings “[Could Die Young Tonight](../2020-06-01_matr-michael-strollo-and-bruce-springsteen-could-die-young-tonight/post.md)…”<br>
 
 [Watch on Youtube: "Could Die Young Tonight" by Michael Strollo Feat. Bruce Springsteem @ The Press Room](https://www.youtube.com/watch?v=d9Lw3sUj-Q8)
 
-...and then he plays a cover-heavy set with Boccigalupe and the Badboys:
+…and then he plays a cover-heavy set with Boccigalupe and the Badboys:
 
 [Watch on Youtube: Bruce Spingsteen plays Rosalita @ The Press Room 2.25.12](https://www.youtube.com/watch?v=TbyKaYQKKQQ)
 
@@ -88,7 +98,7 @@ Listen in on the soundcheck...
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2012-02-25.jpg.webp)
 
-**2016:** The River Tour (2016 Edition) moves on to the First Niagara Center in Buffalo, where "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" makes its tour debut.<br>
+**2016:** The River Tour (2016 Edition) moves on to the First Niagara Center in Buffalo, where “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” makes its tour debut.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN, CADILLAC RANCH LIVE IN BUFFALO NY](https://www.youtube.com/watch?v=RZ7_HRv0_CA)
 
@@ -96,14 +106,14 @@ Listen in on the soundcheck...
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Buffalo_News_2016_02_26_14.jpg.webp)
 
-**2017:** The Summer 2017 Tour ends in Auckland with a solo performance of "Thunder Road." It will be six years before the band plays together in concert again.<br>
+**2017:** The Summer 2017 Tour ends in Auckland with a solo performance of “Thunder Road.” It will be six years before the band plays together in concert again.<br>
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road (acoustic) - Auckland, NZ - 25 02 2017](https://www.youtube.com/watch?v=lDwzH92dZhI)
 
-**2023:** The E Street Choir is short-handed tonight, with both Lisa Lowell and Curtis King down for the count with COVID-19. Still, Bruce and the band deliver a great show at the Moda Center in Portland, tour premiering "[I'm on Fire.](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)"<br>
+**2023:** The E Street Choir is short-handed tonight, with both Lisa Lowell and Curtis King down for the count with COVID-19. Still, Bruce and the band deliver a great show at the Moda Center in Portland, tour premiering “[I’m on Fire.](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)”<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm On Fire, Portland OR, 2/25/2023 Live](https://www.youtube.com/watch?v=rLY9_P57_kE)
 
 [Watch on Youtube: Bruce Springsteen - No Surrender, Portland OR, 2/25/2023 Live](https://www.youtube.com/watch?v=jCQH8NRuLVg)
 
-[Watch on Youtube: Bruce Springsteen Encore Portland 2023](https://www.youtube.com/watch?v=xmaKw7uL2yU?start=1)
+[Watch on Youtube: Bruce Springsteen Encore Portland 2023](https://www.youtube.com/watch?v=xmaKw7uL2yU)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Jeannie, I Want to Thank You"
+author: "Ken"
+excerpt: "Danny took the spotlight and Bruce earned his fastest-guitar-in-the east reputation when Steel Mill broke out Bruce’s original song, “Jeannie, I Want to Thank You.” Even if you’re not a Steel Mill fan, this one’s a must-listen."
+tags: danny-federici jeannie-i-want-to-thank-you steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/19700113_front.jpg
+post_id: 13617
+---
 I'm well aware that not all of my readers appreciate Bruce's pre-label music as much as I do–I only need to look at my site's traffic on the days when I spotlight the Steel Mill era to see that.
 
 But since you're already reading, trust me: you should *really* listen to this one, because "Jeannie, I Want to Thank You" is a jaw-dropper.

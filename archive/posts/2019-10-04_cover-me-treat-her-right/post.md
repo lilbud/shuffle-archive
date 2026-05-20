@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Treat Her Right"
+author: "Ken"
+excerpt: "Bruce was right: the song has magic in it. Watch what happens when a fan requests a cover of Roy Head’s 1965 classic, “Treat Her Right.”"
+tags: roy-head-and-the-traits treat-her-right
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/roy-head-and-the-traits-treat-her-right-sonet.jpg
+post_id: 13045
+---
 > "The song has magic in it! Magic in it, I tell you." *–Bruce Springsteen, May 13, 2014*
 
 One of my favorite moments in a tour full of them came late in the all-too-brief High Hopes Tour.

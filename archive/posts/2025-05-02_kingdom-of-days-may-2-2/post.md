@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 2"
+author: "Ken"
+excerpt: "As on-this-date highlights go, it’s hard to top Bruce’s first meeting with John Hammond. But there’s much more, including Bruce’s first guest turn with Cats on a Smooth Surface and some truly epic shows."
+tags: be-true bishop-danced cats-on-a-smooth-surface child columbia-records copenhagen danny-devito denmark devils-and-dust-tour ghost-of-tom-joad-tour glory-days greensboro hang-on-sloopy hollywood i-wanna-be-with-you its-all-over-now john-hammond jungleland magic-tour manchester mountain-view new-jersey-hall-of-fame new-york-city newark north-carolina red-headed-woman rendezvous reunion-tour soozie-tyrell springsteen-on-broadway steel-mill stone-pony sunrise switzerland the-weight tunnel-of-love-express-tour uk working-on-a-dream-tour wrecking-ball-tour zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/19880502_front.jpg
+post_id: 56668
+---
 ***New for 2025:** New entry for 1980 and 2002; review for 2009*<br>
 
 **1969:** Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.<br>

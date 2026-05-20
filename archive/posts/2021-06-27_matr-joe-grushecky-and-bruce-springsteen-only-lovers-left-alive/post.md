@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky and Bruce Springsteen: Only Lovers Left Alive"
+author: "Ken"
+excerpt: "Joe Grushecky’s American Babylon album ends on an unsettling note with a song that could be the mirror image of “Hungry Heart.”"
+tags: joe-grushecky only-lovers-left-alive
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/onlylovers.jpg
+post_id: 27328
+---
 > I was sitting on that title for years and years. I actually had a book called *Only Lovers Left Alive* when I was in high school, because I read that the Rolling Stones had licensed that book to make a movie. This is early, like when the Stones first hit. I had the book for years and years. It probably just fell apart, it was a little paperback, and I always liked the title of it: *Only Lovers Left Alive*. So I fashioned a story.
 >
 > — *Joe Grushecky, July 2020*<br>
@@ -14,7 +24,7 @@ The father never returns, and looking for a place to belong, the son takes up wi
 
 The song ends on an unresolved note; we never do find out whether the son takes after his father. "Only Lovers Left Alive" lingers long after its last notes close out *American Babylon*, a fitting way to end an album that questions what happens when we lose our ability to tell right from wrong.
 
-Joe and Bruce have never performed "Only Lovers Left Alive" in concert, but Bruce's guitar can be heard on the studio track. Intriguingly, Joe told me in our *American Babylon* conversation last year that an alternate but unreleased version exists with a long guitar solo by Bruce. If we're lucky, maybe that will see the light of day someday...
+Joe and Bruce have never performed "Only Lovers Left Alive" in concert, but Bruce's guitar can be heard on the studio track. Intriguingly, Joe told me in our *American Babylon* conversation last year that an alternate but unreleased version exists with a long guitar solo by Bruce. If we're lucky, maybe that will see the light of day someday…
 
 **Update 10/29/21:** That track has seen the light of day! Take a listen to this terrific demo (that term hardly seems to do it justice) of "Only Lovers Left Alive" with a terrific Springsteen guitar solo, from the brand-new [25th anniversary edition of *American Babylon*](https://orcd.co/JoeGrusheckyAmericanBabylon25).<br>
 

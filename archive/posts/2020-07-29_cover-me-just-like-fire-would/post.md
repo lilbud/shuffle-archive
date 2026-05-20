@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Just Like Fire Would"
+author: "Ken"
+excerpt: "A one-off cover for local flavor turned rare studio cover, The Saints’ “Just Like Fire Would” is a natural fit for Bruce’s set lists."
+tags: high-hopes just-like-fire-would the-saints
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/firewould.jpg
+post_id: 18568
+---
 When Bruce pulled out a surprise two songs into his Brisbane show in 2013, set list watchers back in the U.S. must have been scratching their heads: What was this song?
 
 [Watch on Youtube: Bruce Springsteen | Just Like Fire Would - Brisbane - 14/03/2013 (Dubbed)](https://www.youtube.com/watch?v=UBkBSSWQunQ)

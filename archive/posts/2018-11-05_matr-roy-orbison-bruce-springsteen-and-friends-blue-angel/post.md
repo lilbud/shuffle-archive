@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison, Bruce Springsteen and Friends, Blue Angel"
+author: "Ken"
+excerpt: "Originally cut from the Black & White Night broadcast and home video release, “Blue Angel” spotlights Roy Orbison’s amazing vocals, backed by a stellar band that includes Bruce."
+tags: black-white-night blue-angel los-angeles roy-orbison
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/roy-orbison.png
+post_id: 5415
+---
 On September 30 1987, an all-star array of musical talent gathered at the Cocoanut Grove in Los Angeles for the filming of *Roy Orbison & Friends: A Black & White Night*.
 
 Bruce has always been a big Orbison fan, so it's not surprising to learn that he volunteered to be part of Roy's backing band. He can be seen prominently throughout the concert, which was broadcast on Cinemax in 1988 and issued (several times) on home video over the years.

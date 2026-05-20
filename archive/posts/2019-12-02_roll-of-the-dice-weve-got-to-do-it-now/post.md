@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: We've Got to Do It Now"
+author: "Ken"
+excerpt: "“We’ve Got to Do It Now” is a Steel Mill-era anti-war song with co-lead vocals by Bruce and Robbin Thompson."
+tags: steel-mill weve-got-to-do-it-now
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/19701127_front.jpg
+post_id: 6937
+---
 What to say about "We've Got to Do It Now…"
 
 Well, for starters: it's one of the few early, early unreleased Springsteen songs for which we have both a high-quality live recording *and* hand-written song lyrics (which fetched $1,195 in a 2008 auction). So that's pretty cool.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Bruce Hornsby, You Sexy Thing"
+author: "Ken"
+excerpt: "It doesn’t get steamier than two Bruces teaming up for an accordion-powered duet on Hot Chocolate’s 1975 surprise hit, “You Sexy Thing.”"
+tags: bruce-hornsby hot-chocolate you-sexy-thing
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/sexything.jpg
+post_id: 13047
+---
 What’s more unlikely than Bruce Springsteen covering “You Sexy Thing,” the surprise 1975 B-side smash hit (it ranked #22 for the entire year) by Hot Chocolate?
 
 [Watch on Youtube: Hot Chocolate - You Sexy Thing (ZDF Disco, 24.04.1976)](https://www.youtube.com/watch?v=4DwEni2N_-A)

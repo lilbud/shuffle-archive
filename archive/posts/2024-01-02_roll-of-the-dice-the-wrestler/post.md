@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Wrestler"
+author: "Ken"
+excerpt: "A gift to an old friend became the award-winning title song for one of the best films of 2008 and one of the most deeply empathic songs in Bruce’s catalog."
+tags: the-wrestler working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/wrestlerspringsteinsong.jpg
+post_id: 22143
+---
 > "I'm grounding ["The Wrestler"] in something I've experienced myself: You can find your identity in the damage that's been done to you. In your wounds, in your scars, in the places where you've been beat up. And you turn them into a medal. In my own life I've built a lot, but… I don't kid myself." — Bruce Springsteen to Mark Hagen, *The Guardian*, January 18, 2009
 
 One week before *The Guardian* published that interview, Bruce stood on the stage at the Beverly Hilton Hotel in Los Angeles and accepted his Best Original Song Golden Globe Award for "The Wrestler."

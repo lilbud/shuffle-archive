@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Clouds"
+author: "Ken"
+excerpt: "“Clouds” is the first entry in Bruce’s legendary lost 1968 Notebook. Likely performed in his solo acoustic shows that year, “Clouds” is the lament of a Vietnam soldier clinging desperately to visions of home, love, and life."
+tags: 1968-notebook clouds
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/clouds.jpg
+post_id: 6806
+---
 It's time for another visit to eighteen-year-old Bruce Springsteen's [1968 Notebook](https://estreetshuffle.com/?s=notebook).
 
 The 1968 Notebook was unveiled at an auction in 2006. where it was snapped up for more than $57,000 by a lucky bidder with some very deep pockets. It contains some of Bruce's earliest songwriting exercises.

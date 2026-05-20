@@ -1,3 +1,13 @@
+---
+layout: post
+title: "New York Skyline"
+author: "Ken"
+excerpt: "From Bruce’s legendary 2001 holiday shows, Garland Jeffreys takes the spotlight (with Bruce’s backing vocals and guitar) on a contemplative performance of “New York Skyline.”"
+tags: garland-jeffreys new-york-skyline
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/garland-jeffreys-new-york-skyline-am.jpg
+post_id: 8282
+---
 After a self-imposed hiatus, Garland Jeffreys re-emerged on the New York music scene in the summer of 2001. By that winter, Bruce had asked his friend and contemporary to join him on stage in Asbury Park at Bruce's annual holiday concerts.
 
 Among the songs Garland and Bruce performed together that night: Garland's love song to his hometown, "New York Skyline," from his 1977 album *Ghost Writer.*

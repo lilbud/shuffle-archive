@@ -1,12 +1,22 @@
+---
+layout: post
+title: "January 17"
+author: "Ken"
+excerpt: "Bruce joins The Who on stage, plays a “surprise” Light of Day set, and more."
+tags: barack-obama cleveland del-fuegos earth ghost-of-tom-joad-tour janey-dont-you-lose-heart joe-grushecky john-fogerty light-of-day long-tall-sally nils-lofgren rock-and-roll-hall-of-fame southside-johnny springsteen-on-broadway the-who willie-nile
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/lodjam.jpg
+post_id: 55605
+---
 **1969:** For a short time, Bruce led a band called Earth. On this date, the band plays a two-hour show at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1969-0117.jpg.webp)
 
-**1985:** On a "rest" day during the Born in the U.S.A. Tour, Bruce and Nils stop by the Rhinoceros Club in Greensboro to catch the Del Fuegos. Bruce compliments the band on their album, and the band invites him to join them on stage–which of course he does, playing "[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md)" and "[Stand by Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)."<br>
+**1985:** On a “rest” day during the Born in the U.S.A. Tour, Bruce and Nils stop by the Rhinoceros Club in Greensboro to catch the Del Fuegos. Bruce compliments the band on their album, and the band invites him to join them on stage–which of course he does, playing “[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md)” and “[Stand by Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md).”<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/Richmond_Times_Dispatch_Thu__Jan_24__1985_.jpg.webp)
 
-**1990:** At the Rock and Roll Hall of Fame induction ceremony at New York's Waldorf-Astoria Hotel, Bruce joins the all-star jam, trading lead vocals with John Fogerty on "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)."<br>
+**1990**: At the Rock and Roll Hall of Fame induction ceremony at New York’s Waldorf-Astoria Hotel, Bruce joins the all-star jam, trading lead vocals with John Fogerty on “[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xqFLtRiw)
 
@@ -18,11 +28,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/CkoS0nnL)
 
-**2009:** Bruce rehearses at the Lincoln Memorial for his upcoming performance at Barack Obama's presidential inauguration.<br>
+**2009:** Bruce rehearses at the Lincoln Memorial for his upcoming performance at Barack Obama’s presidential inauguration.<br>
 
 [Watch on Youtube: Inaugural Concert, Bruce Springsteen rehearsal Part 2](https://www.youtube.com/watch?v=7IqJ-yR41Hs)
 
-**2015:** Another "surprise" Light of Day appearance. Bruce plays with Willie Nile, La Bamba's Big Band and Friends, Southside Johnny, and Joe Grushecky and the Houserockers. A highlight of the show: a rare and gorgeous solo performance of "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)."<br>
+**2015:** Another “surprise” Light of Day appearance. Bruce plays with Willie Nile, La Bamba’s Big Band and Friends, Southside Johnny, and Joe Grushecky and the Houserockers. A highlight of the show: a rare and gorgeous solo performance of “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Janey Don't you Lose Heart LOD 15 Asbury Park 1:17:15](https://www.youtube.com/watch?v=lwYr6N4JExc)
 
@@ -44,7 +54,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2020:** Bruce and Patti chair the U.S. Equestrian Team Foundation's fundraising gala. After personally raising $350,000 by auctioning off a signed motorcycle, signed guitar, front-row concert tickets and dinner, Bruce and Patti join the house band for a Wilson Pickett double-shot.<br>
+**2020:** Bruce and Patti chair the U.S. Equestrian Team Foundation’s fundraising gala. After personally raising $350,000 by auctioning off a signed motorcycle, signed guitar, front-row concert tickets and dinner, Bruce and Patti join the house band for a Wilson Pickett double-shot.<br>
 
 [Watch on Youtube: Bruce Springsteen performs at USET "Take Me To Tokyo" Gala](https://www.youtube.com/watch?v=61HO5agQlIs)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Summer Night"
+author: "Ken"
+excerpt: "“Summer Night” is one for the completists–a Nebraska-era home demo with a lovely melody but mostly bluffed lyrics."
+tags: summer-night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/summernight.jpg
+post_id: 19178
+---
 Here's another one for the completists, because good luck trying to make out most of what Bruce is singing in this Nebraska-era home demo.
 
 [Watch Video Highlight](https://videopress.com/embed/aQ663nco)

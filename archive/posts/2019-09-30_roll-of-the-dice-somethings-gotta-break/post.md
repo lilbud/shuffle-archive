@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Something's Gotta Break"
+author: "Ken"
+excerpt: "Let’s go way back to the Steel Mill era and see what we can make of this elusive Springsteen original."
+tags: somethings-gotta-break steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/gottabreak-1.png
+post_id: 12715
+---
 Now here's a maddening one.
 
 We know that "Something's Gotta Break" is an original Springsteen song from the Steel Mill era, and we know that the band performed it least twice way back in 1970–because we have surviving recordings of both performances.
@@ -12,52 +22,52 @@ See what I mean? The first half is actually pretty easy to track, but when the t
 
 So let's look at the first half at least. Special props to the folks at [Springsteenlyrics.com](https://www.springsteenlyrics.com/lyrics.php?song=somethingsgottabreak) for carrying the baton on this one–I've made a few corrections in bold where I'm reasonably confident I hear something different.
 
-> *Hey Ma, won't you give me a chance*
-> *To show you what a son your man is*
-> *Now I know that you're confused, yeah, and so alone*
-> *Oh, but that's a chance that you take*
-> *Something's gotta break*
+> *Hey Ma, won't you give me a chance*<br>
+> *To show you what a son your man is*<br>
+> *Now I know that you're confused, yeah, and so alone*<br>
+> *Oh, but that's a chance that you take*<br>
+> *Something's gotta break*<br>
 
 Based on this first verse, "Something's Gotta Break" sounds like it treads similar ground as "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" will more than a decade later. A son entreats his mother to stay strong and let him help provide for their family. The title phrase is a statement both of faith and desperation–these characters need to hold fast to the notion that something has to change someday, because their current situation seems untenable, as Bruce explains in the next verse:
 
-> *Hey I know you know just what's goin' on*
-> *But you say that's all right, yeah, that's all right*
-> *We're gonna let everything stay the same*
-> *You said it ain't hell that you're thinkin' of and that it don't matter*
+> *Hey I know you know just what's goin' on*<br>
+> *But you say that's all right, yeah, that's all right*<br>
+> *We're gonna let everything stay the same*<br>
+> *You said it ain't hell that you're thinkin' of and that it don't matter*<br>
 *But you're **scared** that someone might say*
-> *Something's gotta break*
+> *Something's gotta break*<br>
 
 Bruce flips the meaning of the title phrase at the end of that verse: here, it becomes a statement of fear rather than faith–fear that even the tenuous grasp on life that mother and son have might be at risk.
 
 And unfortunately, that's about where my grasp on the clarity of the lyrics starts to disintegrate. I can make out much of the final verse before the tempo changes, enough to posit that Bruce is arguing to enjoy whatever life you have while you have it, but not enough to know where the song is headed.
 
-> *Gather up your roses before it's too late*
+> *Gather up your roses before it's too late*<br>
 *Don't forget to have everything that you **make***
-> *By remembering now girl ???*
-> *Any excuses you make to your mind, so silently break*
+> *By remembering now girl ???*<br>
+> *Any excuses you make to your mind, so silently break*<br>
 
 I'll reprint the lyrics as transcribed by Springsteenlyrics below, but honestly I don't hear them when I listen with my own ears, so you decide for yourself where the song heads from this point on.
 
 Me, I'm just gonna enjoy the guitar jam. I'll catch up with you afterward.
 
-> *Where does your mind come from, ah won't you tell me if it's for me*
-> *If it is then we'll ??? but ya tell me nothin's for free*
-> *But I remember that once*
-> *She left me to make her way from me*
-> *Melinda go and sell flowers*
-> *Oh how she wants real love*
-> *But she thought that she would be alone*
-> *Thought that she would be alone*
+> *Where does your mind come from, ah won't you tell me if it's for me*<br>
+> *If it is then we'll ??? but ya tell me nothin's for free*<br>
+> *But I remember that once*<br>
+> *She left me to make her way from me*<br>
+> *Melinda go and sell flowers*<br>
+> *Oh how she wants real love*<br>
+> *But she thought that she would be alone*<br>
+> *Thought that she would be alone*<br>
 
 It's really tough to make out what Bruce and the boys are singing throughout that entire section. If you think you know, please leave a comment and enlighten me.
 
 But for now, since the tempo has slowed down again, let's pick the narrative back up as Bruce ends close to where he started, with the son encouraging his mother (unless the context shifted somewhere to another woman–it's a bit unusual to refer to one's mom as "girl") to stay true and positive.
 
-> *You can't go on living life that way*
-> *End them tears that you been cryin' girl*
+> *You can't go on living life that way*<br>
+> *End them tears that you been cryin' girl*<br>
 ***They don't wanna drown in them one day***<br>
-> *I know you're disillusioned at the mass hysteria, and ???*
-> *Something gotta break*
+> *I know you're disillusioned at the mass hysteria, and ???*<br>
+> *Something gotta break*<br>
 
 A note about that line in bold: I realize that the Springsteenlyrics transcription ("They are gonna drown a man one day") makes more sense than my edit. But that particular line of the song is actually very clear to my ears, and while I can't be 100% sure of my transcription because of it reads strangely (who does the "they" refer to?), I definitely hear "they don't wanna" instead of "they are gonna," so I'm sticking with it unless someone with better ears than mine wants to take a crack at it.
 

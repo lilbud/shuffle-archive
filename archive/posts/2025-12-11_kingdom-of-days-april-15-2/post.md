@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 15"
+author: "Ken"
+excerpt: "Two interviews and guest-stars galore: Rosanne Cash, John Cafferty, Wolfgang Niedecken, and Tom Morello all share the stage with Bruce on this date."
+tags: austin beaver-brown blinded-by-the-light born-in-the-usa-tour bruce-springsteen-band chicken-scratch-tour cologne columbus father-bill-ayres germany high-hopes-tour japan los-angeles louisville lucky-town pittsburgh reunion-tour rosanne-cash rutgers-university sheffield the-ghost-of-tom-joad tokyo tom-morello tunnel-of-love-express wolfgang-niedecken working-on-a-dream-tour world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/officiallivedownloads_2014-04-15.jpg
+post_id: 56454
+---
 **1972:** The Bruce Springsteen Band headlines a show at Rutgers University.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1972-04-15.jpg.webp)

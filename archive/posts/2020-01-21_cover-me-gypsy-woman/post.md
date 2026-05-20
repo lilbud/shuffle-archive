@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Gypsy Woman"
+author: "Ken"
+excerpt: "Bruce’s officially-released cover of Curtis Mayfield’s “Gypsy Woman” adds a hint of danger to the mystery of the original. Take a listen and watch Bruce’s only known performance inside."
+tags: a-tribute-to-curtis-mayfield curtis-mayfield gypsy-woman the-impressions
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/gypsywoman.jpg
+post_id: 15416
+---
 Curtis Mayfield may have had much bigger hits than "Gypsy Woman," but "Gypsy Woman" is the track that paved the way for them.
 
 Mayfield wrote "Gypsy Woman" after becoming the lead singer for The Impressions. Peaking at #20 on the Top 100 and stopping just short of the top spot on the R&B chart, the 1961 song became the first of a string of hits for Mayfield and the group.

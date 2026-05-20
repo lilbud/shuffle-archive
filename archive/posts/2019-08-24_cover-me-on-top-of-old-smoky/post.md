@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: On Top of Old Smoky"
+author: "Ken"
+excerpt: "One time only: Bruce pays tribute to the resilience of Pacific Northwesterners in the shadow of the recently erupted Mount St. Helens."
+tags: on-top-of-old-smoky pete-seeger the-weavers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/smoky.png
+post_id: 12294
+---
 No one knows just when or by whom "On Top of Old Smoky" was written, but there are recordings of the famous folk-turned-novelty song as far back as the 1920s.
 
 [Watch on Youtube: Bradley Kincaid - On Top Of Old Smoky (1929).](https://www.youtube.com/watch?v=P-H1THCp0Ws)

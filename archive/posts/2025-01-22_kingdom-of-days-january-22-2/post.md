@@ -1,30 +1,42 @@
-**1949:** "Mad Dog" Vini Lopez, original E Street Band drummer, is born in Neptune Township, New Jersey.<br>
+---
+layout: post
+title: "January 22"
+author: "Ken"
+excerpt: "A very busy day in Springsteen history: Bruce takes home a Golden Globe, kicks off an Australian tour, performs for benefits and TV specials, and more. Lots of great footage today!"
+tags: australia blood-brothers cbs-sunday-morning donald-trump ghost-of-tom-joad-tour golden-globes hope-for-haiti new-orleans new-york-city-serenade pegasus perth rolling-stone san-francisco steel-mill streets-of-philadelphia sundance-blues-band the-upstage vini-lopez we-shall-over-come
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/26274125167_c9ec18b421_o.jpg
+post_id: 55628
+---
+**1949:** “Mad Dog” Vini Lopez, original E Street Band drummer, is born in Neptune Township, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/vini.jpg.webp)
 
 **1970:** Bruce and Steel Mill open for the Elvin Bishop Band at The Matrix in San Francisco.<br>
 
-**1971:** Steel Mill's last stand, the first of two nights at The Upstage in Asbury Park. Late in the show, the band makes a PSA to support The Upstage, and Bruce talks about how hard it's been finding gigs thanks to the [Clearwater incident](../2025-09-11_kingdom-of-days-september-11-2/post.md/) from last summer.<br>
+**1971**: Steel Mill’s last stand, the first of two nights at The Upstage in Asbury Park. Late in the show, the band makes a PSA to support The Upstage, and Bruce talks about how hard it’s been finding gigs thanks to the [Clearwater incident](../2025-09-11_kingdom-of-days-september-11-2/post.md/) from last summer.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/09-PSA.flac?_=2](https://estreetshuffle.com/wp-content/uploads/2018/01/09-PSA.flac?_=2)
+
+<https://estreetshuffle.com/wp-content/uploads/2018/01/09-PSA.flac>
 
 [Watch on Youtube: Steel Mill - Live at the Upstage - 1971-01-22](https://www.youtube.com/watch?v=ko8iLPOFVdw)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1971-01-22.jpg.webp)
 
-**1972:** Bruce and the Sundance Blues Band open for Ruby Falls and the Rock City Band at The Captain's Garter in Neptune, New Jersey.<br>
+**1972:** Bruce and the Sundance Blues Band open for Ruby Falls and the Rock City Band at The Captain’s Garter in Neptune, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1972-0122.jpg.webp)
 
-**1977:** Springsteen guests with Pegasus at The Jail in Hillsdale, New Jersey for "[Carol](../2022-02-17_cover-me-carol/post.md)" and "Rosalita (Come Out Tonight)."<br>
+**1977:** Springsteen guests with Pegasus at The Jail in Hillsdale, New Jersey for “[Carol](../2022-02-17_cover-me-carol/post.md)” and “Rosalita (Come Out Tonight).”<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1977-122.jpg.webp)
 
-**1994:** Bruce wins the Best Original Song Golden Globe for "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)."<br>
+**1994:** Bruce wins the Best Original Song Golden Globe for “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Wins Best Original Song - Golden Globes 1994](https://www.youtube.com/watch?v=En4D3L5EGZc)
 
-**1996:** *CBS Sunday Morning* airs a segment profiling Bruce and his recent performance in Youngstown.<br>
+**1996**: *CBS Sunday Morning* airs a segment profiling Bruce and his recent performance in Youngstown.<br>
 
 [Watch on Youtube: Bruce Springsteen on CBS Sunday Morning - 1996-01-22](https://www.youtube.com/watch?v=_kKjwMysxNk)
 
@@ -32,27 +44,27 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 [Watch Video Highlight](https://videopress.com/embed/7yl9qLlX)
 
-**1998:** Bruce, Danny, Jim Hanson, Marty Rifkin, and Gary Mallaber perform "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" and "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)" for a Rolling Stone 30th anniversary special. It won't be aired until May, though.<br>
+**1998**: Bruce, Danny, Jim Hanson, Marty Rifkin, and Gary Mallaber perform “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” and “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)” for a Rolling Stone 30th anniversary special. It won’t be aired until May, though.<br>
 
 [Watch on Youtube: Bruce Springsteen Rolling Stone State of the Union](https://www.youtube.com/watch?v=XT0OxAS5wg0)
 
-**2010:** Bruce performs "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)" at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.<br>
+**2010**: Bruce performs “[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)” at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.<br>
 
 [Watch on Youtube: We Shall Overcome Bruce Springsteen Hope For Haiti January 22 2010](https://www.youtube.com/watch?v=HtC_NIBXrH4)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2010-01-22.png.webp)
 
-**2014:** Bruce releases his official video for "[Just Like Fire Would](../2020-05-24_cover-me-just-like-fire-would/post.md)."<br>
+**2014:** Bruce releases his official video for “[Just Like Fire Would](../2020-05-24_cover-me-just-like-fire-would/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Just Like Fire Would (Official Video)](https://www.youtube.com/watch?v=hJ4a_tgJp4I)
 
-**2016:** Bruce and Patti chair the 2016 USET Olympic and Paralympic benefit for the U.S. Equestrian Team. (Their daughter Jessica is a champion equestrian.) Bruce and Patti perform "[Money (That's What I Want)](https://estreetshuffle.com/index.php/2019/11/26/matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/)" with the house band.<br>
+**2016:** Bruce and Patti chair the 2016 USET Olympic and Paralympic benefit for the U.S. Equestrian Team. (Their daughter Jessica is a champion equestrian.) Bruce and Patti perform “[Money (That’s What I Want)](https://estreetshuffle.com/index.php/2019/11/26/matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/)” with the house band.<br>
 
 [Watch on Youtube: Bruce Springsteen performs at USET Rockin' Rio Gala](https://www.youtube.com/watch?v=e6n2jeN_x7E)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Asbury_Park_Press_2016_01_29_Page_J3.jpg.webp)
 
-**2017:** Bruce and the E Street Band kick off their Australian Summer tour in Perth. This is the first show after Donald Trump's inauguration, and Bruce makes reference to it right off the bat, both at an afternoon press conference and at the top of the show. This first show of 2017 feels like a continuation of the 2016 "autobiography tour," but this will prove to be the last such set list. An encore highlight: an ultra-rare acoustic "[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)."<br>
+**2017:** Bruce and the E Street Band kick off their Australian Summer tour in Perth. This is the first show after Donald Trump’s inauguration, and Bruce makes reference to it right off the bat, both at an afternoon press conference and at the top of the show. This first show of 2017 feels like a continuation of the 2016 “autobiography tour,” but this will prove to be the last such set list. An encore highlight: an ultra-rare acoustic “[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Perth media conference 22 January 2017](https://www.youtube.com/watch?v=_hXG_TjbgpE)
 

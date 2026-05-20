@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Secret Garden"
+author: "Ken"
+excerpt: "“Secret Garden” is one of Bruce’s best love songs. It’s also one of his least romantic."
+tags: blood-brothers greatest-hits secret-garden
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/BRUCE_SPRINGSTEEN_SECRETGARDEN-48404.jpg
+post_id: 10187
+---
 Let's just get this out of the way up front: we're not going to discuss that horrendous "Jerry Maguire Mix."
 
 It's not that I have something against the movie. In fact, it's actually one of my top three all-time favorites. And I certainly don't have anything against the song–"Secret Garden" ranks among my favorites as well.

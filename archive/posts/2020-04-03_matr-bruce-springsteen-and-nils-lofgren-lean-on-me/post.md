@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Nils Lofgren and Bruce Springsteen: Lean on Me"
+author: "Ken"
+excerpt: "One time only: Bruce and Nils celebrate their friendship in a 1989 performance of Bill Withers’ greatest hit."
+tags: bill-wither lean-on-me nils-lofgren
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/Bill-Withers-Lean-On-Me-1551467944-compressed.jpg
+post_id: 17514
+---
 > "Bill Withers is the closest thing black people have to a Bruce Springsteen." *–Questlove, Rolling Stone, April 2015*
 
 We lost a great one this week.

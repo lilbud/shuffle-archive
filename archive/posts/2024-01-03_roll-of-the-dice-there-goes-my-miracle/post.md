@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: There Goes My Miracle"
+author: "Ken"
+excerpt: "The second single from Western Stars is a standout, from Bruce’s Orbisonian vocals to his anti-thematic lyrics."
+tags: there-goes-my-miracle western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/miracle.jpg
+post_id: 25933
+---
 When Bruce dropped his second single a month in advance of *Western Stars*, my wife remarked, "I didn't know he could still sing like that."
 
 To which I replied, "I didn't know he could *ever* sing like that."

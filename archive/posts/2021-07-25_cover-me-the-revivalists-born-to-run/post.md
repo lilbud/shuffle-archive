@@ -1,10 +1,20 @@
-When your band plays its first shows in over a year…
+---
+layout: post
+title: "Cover Me, The Revivalists: Born to Run"
+author: "Ken"
+excerpt: "When The Revivalists played their first post-pandemic shows at Red Rocks, there was only one song that deserved to be their final encore."
+tags: born-to-run the-revivalists
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/Born-To-Run-THumbnail.jpg
+post_id: 28459
+---
+When your band plays its first shows in over a year...
 
-When that year has felt like a death trap…
+When that year has felt like a death trap...
 
-When you've felt like a scared and lonely rider…
+When you've felt like a scared and lonely rider...
 
-When you get to the place where you really want to go, and that place is Colorado's famous Red Rocks Amphitheater…
+When you get to the place where you really want to go, and that place is Colorado's famous Red Rocks Amphitheater...
 
 What song absolutely *has* to be the final encore of your opening stand?
 
@@ -12,7 +22,7 @@ You already know, don't you? The Revivalists sure did, too–they closed out the
 
 [Watch on Youtube: Bruce Springsteen - Born To Run (The Revivalists Cover - Live At Red Rocks)](https://www.youtube.com/watch?v=CeYAP4iLRgM)
 
-Saxophonist Rob Ingraham (who more than does justice to Clarence's famous solo) told fans, "This was the release to end all releases- our first ‘normal' shows in over a year at one of the greatest venues in the world, Red Rocks. I can't put what it meant into words, but this video of us closing out the weekend with one of rock's greatest anthems captures the feeling."
+Saxophonist Rob Ingraham (who more than does justice to Clarence's famous solo) told fans, "This was the release to end all releases- our first 'normal' shows in over a year at one of the greatest venues in the world, Red Rocks. I can't put what it meant into words, but this video of us closing out the weekend with one of rock's greatest anthems captures the feeling."
 
 The band's performance is respectfully faithful to Bruce's original arrangement–so much so that I wouldn't ordinarily feature it here.
 

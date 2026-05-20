@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 11"
+author: "Ken"
+excerpt: "On this date: The Big Man is born, and Bruce wins a Golden Globe. Plus: video highlights from Springsteen on Broadway."
+tags: clarence-clemons detroit ghost-of-tom-joad-tour golden-globes louisville springsteen-on-broadway the-wrestler
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/clarence.jpg
+post_id: 55577
+---
 **1942:** Clarence “Big Man” Clemons is born in Norfolk, Virginia.<br>
 
 **1973:** Bruce and the band continue their Boston residency with two shows at Paul’s Mall.<br>

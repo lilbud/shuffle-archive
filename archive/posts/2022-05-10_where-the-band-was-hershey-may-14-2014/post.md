@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Hershey, May 14, 2014"
+author: "Ken"
+excerpt: "Everyone has to have a least favorite show, and this was mine. It had it’s moments, though."
+tags: be-true clampdown for-you hershey high-hopes-tour lost-in-the-flood roulette surprise-surprise
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/officiallivedownloads_2014-05-14.jpg
+post_id: 2109
+---
 There’s a reason it’s called a “concert.” There’s a big difference between an artist performing for themselves and an artist interacting with–in *concert* with–an audience. A great crowd can rocket an ordinary setlist into the stratosphere; a dull crowd can suck the life out of the most unpredictable show.
 
 For those who think I’m impossible to disappoint when it comes to Springsteen shows, here’s your evidence to the contrary: this show is at the bottom of my 64-show list, with no real competition, thanks to a crowd that was just… ugly (at least the part around me).

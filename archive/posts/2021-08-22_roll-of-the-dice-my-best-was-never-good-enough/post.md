@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Best Was Never Good Enough"
+author: "Ken"
+excerpt: "Beneath this two-minute trifle lurks dark and complex inspiration."
+tags: my-best-was-never-good-enough the-ghost-of-tom-joad the-killer-inside-me
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/killer.jpg
+post_id: 28661
+---
 > "Well, I tell you," I drawled. "I tell you the way I look at it, a man doesn't get any more out of life than what he puts into it."
 >
 > "Umm," he said, fidgeting. "I guess you're right, Lou."

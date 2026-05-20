@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Richfield Whistle"
+author: "Ken"
+excerpt: "A year after recording “James Lincoln Deere,” Bruce revisits his anti-hero and crafts a much strong and grayer tale."
+tags: james-lincoln-deere richfield-whistle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/whistle.jpeg
+post_id: 39588
+---
 Earlier this week, we took a listen to Bruce Springsteen's unreleased *Nebraska*-era work-in-progress, "[James Lincoln Deere](../2022-11-29_roll-of-the-dice-james-lincoln-deere/post.md)."
 
 Springsteen's 1982 acoustic home demo featured a protagonist driven to cold-blooded murder by unemployment and a brutal economy. "James Lincoln Deere" was too heavy-handed to earn an official release, but Bruce wasn't ready to give up on his protagonist just yet.

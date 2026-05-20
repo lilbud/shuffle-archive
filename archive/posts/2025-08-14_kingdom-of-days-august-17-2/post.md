@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Kingdom of Days: August 17"
+author: "Ken"
+excerpt: "Bruce plays “I’m Goin’ Down” for the first time, wraps up his legendary 1975 stand at the Bottom Line, and more. Plus: a half-hour of 1992 Detroit soundcheck and performance footage!"
+tags: auburn-hills born-in-the-usa-tour born-to-run-tour bottom-line child detroit east-rutherford im-goin-down los-angeles new-york-city red-rocks rising-tour river-tour springsteen-on-broadway world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/19750817_2_front.jpg
+post_id: 59369
+---
 ***New for 2025:** Audio for 1975*<br>
 
-**1969:** Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that’s where the band wants to be–but they honor their commitment.<br>
+**1969:** Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.<br>
 
-**1975:** Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce’s career and the remainder of the Born to Run Tour.<br>
+**1975:** Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce's career and the remainder of the Born to Run Tour.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1975-08-17 Bottom Line (The), New York City, NY (Early Show)](https://www.youtube.com/watch?v=4Y-7c4n2eaE)
 
@@ -10,7 +20,7 @@
 
 [Watch on Youtube: August 17th, 1981 - Morrison, CO](https://www.youtube.com/playlist?list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL)
 
-**1984:** The Born in the U.S.A. Tour’s ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)” and the tour premiere of “Follow That Dream.”<br>
+**1984:** The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" and the tour premiere of "Follow That Dream."<br>
 
 [Watch on Youtube: Bruce Springsteen - first ever "I'm Goin' Down" - 1984-08-17](https://www.youtube.com/watch?v=_PJFou1o1JE)
 
@@ -24,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-17b.png.webp)
 
-**1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to “scheduling conflicts.”<br>
+**1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1999-08-16.png.webp)
 
@@ -38,7 +48,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** *Springsteen on Broadway* resumes its limited return engagement at the St. James Theater in New York City after a month-long break. During the hiatus, the pandemic has resurged and masks are a requirement among the audience again. Bruce also winks at the recent “Thunder Road” debate, definitively and repetitively singing “sways” to put the matter to rest.<br>
+**2021:** *Springsteen on Broadway* resumes its limited return engagement at the St. James Theater in New York City after a month-long break. During the hiatus, the pandemic has resurged and masks are a requirement among the audience again. Bruce also winks at the recent "Thunder Road" debate, definitively and repetitively singing "sways" to put the matter to rest.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: "Take It Easy""
+author: "Ken"
+excerpt: "Another great one gone too soon: Bruce Springsteen pays tribute to Glenn Frey, one day following his death on January 18, 2016."
+tags: chicago don-henley take-it-easy
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/eagles.jpg
+post_id: 220
+---
 Another great one gone too soon: Bruce Springsteen pays tribute to Glenn Frey, one day following his death on January 18, 2016.
 
 [Watch on Youtube: Bruce Springsteen - Take It Easy](https://www.youtube.com/watch?v=U0i7CFQHEtI)

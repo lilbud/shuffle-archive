@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The River"
+author: "Ken"
+excerpt: "Into the river we dive, as we appreciate one of Bruce’s finest and most heartbreaking songs."
+tags: the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/river-1.jpg
+post_id: 24353
+---
 *(**Updated 3/4/2021:** Friend of the blog Steven Semeraro pointed out that while Mary was 17 when they met, the narrator is likely eighteen by implication. I've updated some timing references accordingly.)*
 
 What's worse than a lie?

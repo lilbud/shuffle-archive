@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Have a Good Time… But Get Out Alive!"
+author: "Ken"
+excerpt: "The album that led to a legendary lifelong friendship gets a 40th anniversary reissue today. Let’s take a listen and look back on Joe Grushecky and the Iron City Houserockers’ watershed album."
+tags: have-a-good-time-but-get-out-alive joe-grushecky steve-van-zandt
+categories: spare-parts
+post_id: 18388
+---
 "…the strongest album an American band has made this year, and when the year ends, the word "American" may come off." — *Village Voice*
 
 "A new American classic… the Iron City Houserockers take for granted an authenticity that Springsteen has to strive for." — *Rolling Stone*

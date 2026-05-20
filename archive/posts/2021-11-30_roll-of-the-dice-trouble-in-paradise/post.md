@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Trouble in Paradise"
+author: "Ken"
+excerpt: "This understated, underrated 1989 outtake puts a period at the end of “Brilliant Disguise.”"
+tags: brilliant-disguise tracks trouble-in-paradise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/troublepar.jpg
+post_id: 30734
+---
 Bruce Springsteen released "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" in October 1987, but he apparently didn't finish writing it for another two years after that.
 
 Because "Trouble in Paradise" is most definitely the period at the end of his earlier song's sentence.

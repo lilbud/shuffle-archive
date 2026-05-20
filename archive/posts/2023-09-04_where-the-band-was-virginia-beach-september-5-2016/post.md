@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Virginia Beach, September 5, 2016"
+author: "Ken"
+excerpt: "A hurricane-induced rainout leads to a scorching show before a small but mighty audience in Virginia Beach."
+tags: because-the-night dancing-in-the-dark does-this-bus-stop-at-82nd-street factory for-you greensboro growin-up hungry-heart pink-cadillac river-tour-2016 rosalita save-my-love shout the-e-street-shuffle this-hard-land thunder-road virginia-beach
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/officiallivedownloads_2016-09-05.jpg
+post_id: 4188
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/vb.jpg.webp)
 
 So yeah… I really did fly across the country into a hurricane on an ill-considered whim because I was able to get a ridiculously cheap pit ticket for a Bruce Springsteen concert.

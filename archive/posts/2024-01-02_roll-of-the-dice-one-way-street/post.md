@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: One Way Street"
+author: "Ken"
+excerpt: "A tale of two one-way streets: one bitter, one sad, both sweet."
+tags: one-way-street the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/oneway.jpg
+post_id: 6889
+---
 Oh, Bruce.
 
 I understand why you had to re-record the vocals for "One Way Street." The bootleg version we'd heard for years was lovely but a bit awkward at times. With lines like "If and oh my darling I, I must confess" and "It's mmmm we, we are the same kind," it's clear that this was a rehearsal run.

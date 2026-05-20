@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 23"
+author: "Ken"
+excerpt: "On this date: Bruce releases his Letter to You album, meets Bob Dylan for the first time and bids farewell to John Hammond."
+tags: barack-obama bob-dylan bruce-springsteen-band charlottesville cherokee-queen coming-home forever-young fresno ghost-of-tom-joad-tour give-the-girl-a-kiss john-hammond lost-highway-band mike-porco phil-hamilton reunion-tour richmond river-tour seaside-bar-song seattle steel-mill when-you-dance wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/d0576b-20200910-bruce-springsteen-letter-to-you.jpg
+post_id: 61205
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1970:** Steel Mill headlines a show at the University of Richmond.<br>

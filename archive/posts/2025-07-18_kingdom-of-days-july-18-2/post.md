@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 18"
+author: "Ken"
+excerpt: "Bruce makes a surprise “guest” appearance with Joe Grushecky (if 15 of 18 songs can be considered a guest appearance), Bruce teases an injured Jake, the Devils and Dust Tour set list busts open, and more."
+tags: be-true born-in-the-usa-tour bruce-springsteen-band buffalo chain-smokin chicago child darkness-tour devils-and-dust-tour dublin east-rutherford garland-jeffreys giants-stadium i-wanna-be-with-you jackson jake-clemons joe-grushecky loose-ends maxs-kansas-city never-be-enough-time philadelphia reunion-tour rising-tour river-tour roesmont sherry-darling spirit-in-the-night steel-mill wailers wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/19990718.jpeg
+post_id: 57749
+---
 ***New for 2025:** Review for 1973; new entry for 1975 and 2024; audio for 1999*<br>
 
 **1969:** Child plays their fourth of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.<br>

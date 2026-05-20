@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Tucson Train"
+author: "Ken"
+excerpt: "The third single off Western Stars is one of Bruce’s most hopeful, optimistic, and joyous songs–a masterpiece of a pop song that ranks among his very best."
+tags: tucson-train western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/tucson.jpg
+post_id: 18295
+---
 > I've spent my 10,000 hours (and then some) learning my musical craft. But I've spent a lot more time than that, some 35 years, trying to learn how to let go of the destructive parts of my character. They did not go easily into that good night. For a long time, if I loved you and if I felt a deep attachment to you, I would hurt you if I could. It was a sin, and I still have days when I struggle with it. But I've gotten better. Through the love of my family, my good friends, I've learned how to love. And to be compassionate with those close to me, and to try and live with some small honor. "Tucson Train" is about a guy who's trying to follow his better angels, working in the sun for a new start. He's trying to change. — Bruce Springsteen, *Western Stars* (2019)
 
 *Western Stars* is a career summation featuring Bruce at his very peak as a songwriter, arranger, and even as a vocalist. It's a deeply felt, nuanced treatise on life and living.

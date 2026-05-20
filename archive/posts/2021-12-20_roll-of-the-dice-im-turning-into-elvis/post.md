@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'm Turning into Elvis"
+author: "Ken"
+excerpt: "A themed benefit concert invite provided the spark for Bruce’s original talking blues. Take a listen and laugh along inside."
+tags: im-turning-into-elvis
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/elvis3.jpg
+post_id: 16360
+---
 In the spring of 1995, Sting and Trudie Styler invited Bruce Springsteen to perform at their annual Rainforest Foundation benefit show. This year's theme: Elvis.
 
 "Oh no," Bruce said, "Because when you sing Elvis, you lose. You're not going to sing those songs better than he sang them."

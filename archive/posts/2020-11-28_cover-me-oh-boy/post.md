@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Oh Boy"
+author: "Ken"
+excerpt: "Bruce covered Buddy Holly’s hit “Oh Boy!” three times on the Darkness tour."
+tags: buddy-holly oh-boy sonny-west
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/ohboy.jpg
+post_id: 2174
+---
 “Oh Boy!” was originally written and recorded by Sonny West, but it was Buddy Holly and the Crickets’ version that broke through to become a hit (peaking at number 10 in the US) and an enduring classic.
 
 Bruce counts Buddy Holly among his big influences, so it’s not surprising that Bruce performed “Oh Boy” a few times during the Darkness on the Edge of Town tour.

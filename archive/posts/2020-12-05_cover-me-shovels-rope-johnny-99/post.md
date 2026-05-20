@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Shovels & Rope: Johnny 99"
+author: "Ken"
+excerpt: "Love it or hate it, Shovels & Rope certainly captures the bravado and unraveling desperation of Bruce’s classic anti-hero."
+tags: johnny-99 shovels-rope
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/shovels.jpg
+post_id: 5303
+---
 You're either going to love this or hate it.
 
 Me, I'm fascinated by it.

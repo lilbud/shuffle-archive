@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: May 18"
+author: "Ken"
+excerpt: "On this date: The Castiles lay down their first tracks, the High Hopes Tour reaches its anything-goes finale, and Bruce premieres… “Hava Nagila?” Listen, watch, and read more inside."
+tags: baby-i castiles france ghost-of-tom-joad-tour hava-nagila high-hopes-tour little-latin-lupe-lu london madison-square-garden new-york-city new-york-new-york nice reunion-tour springsteen-on-broadway tex-vinyard thats-what-you-get the-e-street-shuffle tunnel-of-love-express-tour uk uncasville washington-dc where-the-bands-are working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/nice97.jpg
+post_id: 56782
+---
 ***New for 2025:** Audio for 1999 and 2014; video for 2014 and 2023*<br>
 
-**1966:** Bruce enters a recording studio for the very first time when The Castiles record their first two songs: “[Baby I](../2018-12-20-roll-of-the-dice-baby-i/post.md/)” and “[That’s What You Get](../2019-11-30_roll-of-the-dice-thats-what-you-get/post.md).” Both are co-written by Bruce and George Theiss. The former will be officially released on *Chapter & Verse* in 2016; the latter is still unreleased but can be heard below.<br>
+**1966:** Bruce enters a recording studio for the very first time when The Castiles record their first two songs: "[Baby I](../2018-12-20-roll-of-the-dice-baby-i/post.md/)" and "[That's What You Get](../2019-11-30_roll-of-the-dice-thats-what-you-get/post.md)." Both are co-written by Bruce and George Theiss. The former will be officially released on *Chapter & Verse* in 2016; the latter is still unreleased but can be heard below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Baby I (2016) [Chapter and Verse]](https://www.youtube.com/watch?v=aTeJTkSJMVE)
 
@@ -8,11 +18,11 @@
 
 **1973:** Bruce cancels a scheduled performance at Michigan Technological University to make room for studio time for the Wild and Innocent sessions.<br>
 
-**1988:** Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. Bruce and the band exit to a “[New York, New York](../2021-06-26_cover-me-new-york-new-york/post.md)” instrumental.<br>
+**1988:** Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. Bruce and the band exit to a "[New York, New York](../2021-06-26_cover-me-new-york-new-york/post.md)" instrumental.<br>
 
 [Watch on Youtube: Bruce Springsteen, "New York, New York" - MSG May 18, 1988](https://www.youtube.com/watch?v=fNUAkKLceYQ)
 
-**1997:** Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26013/Bruce-Springsteen-mp3-flac-download-5-18-1997-Palais-des-Congr%C3%A8s-Acropolis-Nice-FR.html).<br>
+**1997:** Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26013/Bruce-Springsteen-mp3-flac-download-5-18-1997-Palais-des-Congr%C3%A8s-Acropolis-Nice-FR.html).<br>
 
 [Watch on Youtube: Bruce Springsteen "Murder Incorporated", Nice, France 5/18/97](https://www.youtube.com/watch?v=Av1n3isTar0)
 
@@ -28,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Fulham_and_Hammersmith_Chronicle_Thu__May_20__1999_.jpg.webp)
 
-**2002:** Bruce attends the opening dedication ceremony for Freehold’s Vinyard Park to honor his early patron and supporter, “Tex” Vinyard.<br>
+**2002:** Bruce attends the opening dedication ceremony for Freehold's Vinyard Park to honor his early patron and supporter, "Tex" Vinyard.<br>
 
 [Watch on Youtube: Vinyard Park](https://www.youtube.com/watch?v=NewO6pq-crY)
 
@@ -36,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2002-05-18b.jpg.webp)
 
-**2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: “[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/),” “Hava Nagila”(!) and “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md).”<br>
+**2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," "Hava Nagila"(!) and "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qDmdrtO6)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Ninety-Nine and a Half (Won't Do)"
+author: "Ken"
+excerpt: "Twice only: Bruce paid tribute to Wilson Pickett with his own version of “Ninety-Nine and a Half (Won’t Do).” Just don’t call it a cover."
+tags: ninety-nine-and-a-half-wont-do wilson-pickett
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/99andahalf.jpg
+post_id: 21637
+---
 (Actually, I'm not sure this even counts as a cover, but I don't have a "Pay Homage to Me" category.)
 
 "Ninety-Nine and a Half (Won't Do)" peaked at #53 on the Pop Singles chart and #13 on the R&B Singles chart when Pickett released it on his 1966 album, *The Exciting Wilson Pickett.*

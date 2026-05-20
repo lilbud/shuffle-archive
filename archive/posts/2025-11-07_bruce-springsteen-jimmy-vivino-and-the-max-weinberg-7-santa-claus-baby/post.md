@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Santa Claus Baby"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen, Jimmy Vivino, and The Max Weinberg 7 rescue a lost Christmas classic from obscurity."
+tags: jimmy-vivino santa-claus-baby the-max-weinberg-7 the-voices
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/santa.png
+post_id: 14598
+---
 Bruce has covered many Christmas classics over the years, but one of his most obscure holiday covers is almost certainly "Santa Claus Baby" by The Voices, a Los Angeles-based doo-wop duo, who recorded and released their holiday heartbreak song in 1955.
 
 [Watch on Youtube: Santa Claus Baby](https://www.youtube.com/watch?v=vtbM3wLLz9Q)

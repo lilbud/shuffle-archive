@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Remember"
+author: "Ken"
+excerpt: "Even fifty years ago, Bruce Springsteen was stopping audiences in their tracks with this fifteen-minute, preachifying, testifying, rueful improv piece."
+tags: i-remember the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/remember.jpg
+post_id: 34540
+---
 Oh, how I love this song.
 
 I'm a sucker for Bruce Springsteen Band material in general, but "I Remember" stops me in my tracks every single time.

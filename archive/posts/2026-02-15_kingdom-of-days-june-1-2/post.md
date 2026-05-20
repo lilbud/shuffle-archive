@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 1"
+author: "Ken"
+excerpt: "On this date: Bruce begins recording the Darkness album, convenes his new band for their first rehearsal, plays his first show as a married man, and wraps up World Tour 1993. These highlights and more inside."
+tags: barcelona born-in-the-usa-tour born-to-be-wild chicago child darkness-of-the-edge-of-town devils-and-dust-tour glasgow ireland john-eddie london new-york-city norway oslo richmond river-tour river-tour-2016 scotland spain springsteen-on-broadway stone-pony uk waitin-on-a-sunny-day world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/glas.jpg
+post_id: 56993
+---
 **1969:** Bruce performs in Virginia for the first time when Child plays a free outdoor concert at Monroe Park in Richmond. Noise complaints from local college students(!) force an early end to the show. The band drives back to New Jersey, where they headline that evening at Pandemonium in Wanamassa.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Richmond_Times_Dispatch_Mon__Jun_2__1969_-scaled.jpg.webp)

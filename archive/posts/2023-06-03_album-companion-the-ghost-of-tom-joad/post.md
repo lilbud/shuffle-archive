@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Album Companion: The Ghost of Tom Joad"
+author: "Ken"
+excerpt: "Bruce Springsteen’s eleventh studio album is one of his best-sounding and most thematically cohesive. It wears its influences on its sleeves, and we’ll explore them inside."
+tags: devils-dust nebraska the-ghost-of-tom-joad western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/tomjoad.jpg
+post_id: 43459
+---
 Editor's Note
 
 *The Ghost of Tom Joad* is the sixth Springsteen studio album to receive the complete *Roll of the Dice* treatment.

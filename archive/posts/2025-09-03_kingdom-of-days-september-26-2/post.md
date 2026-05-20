@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: September 26"
+author: "Ken"
+excerpt: "On this date: Bruce debuts “Meeting Across the River,” the Lawsuit Tour kicks off, River Tour rehearsals are filmed, and more."
+tags: ann-arbor bobby-bandiera born-in-the-usa-tour born-to-run-tour bruce-springsteen-band ghost-of-tom-joad-tour iowa-city its-my-life lawsuit-tour los-angeles meeting-across-the-river miami-horns morristown new-york-city phoenix plane-wreck-at-los-gatos-deportee river-tour something-in-the-night southside-johnny springsteen-on-broadway stone-pony student-prince
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/19750926_3_front.jpg
+post_id: 59722
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1971-0924.jpg.webp)
 
-**1975:** “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)” makes its debut when the Born to Run Tour stops at the University of Iowa in Iowa City.<br>
+**1975:** "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" makes its debut when the Born to Run Tour stops at the University of Iowa in Iowa City.<br>
 
 [Watch on Youtube: Bruce Springsteen - MEETING ACROSS THE RIVER 1975 (audio)](https://www.youtube.com/watch?v=_faCjM2_xbY)
 
@@ -12,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1975-09-26-scaled.jpg.webp)
 
-**1976:** The Lawsuit Tour kicks off at the Arizona Veterans Memorial Coliseum in Phoenix, with a new Miami Horns Quartet along for the ride. Check out the horn-accompanied arrangement of an early “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” below, along with the first-ever “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” interlude.<br>
+**1976:** The Lawsuit Tour kicks off at the Arizona Veterans Memorial Coliseum in Phoenix, with a new Miami Horns Quartet along for the ride. Check out the horn-accompanied arrangement of an early "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" below, along with the first-ever "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" interlude.<br>
 
 [Watch on Youtube: Bruce Springsteen -SOMETHING IN THE NIGHT 1976 (audio)](https://www.youtube.com/watch?v=hsJjFUCRk7k)
 
@@ -46,11 +56,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/09/1984-09-26.jpg.webp)
 
-**1985:** The scheduled opener for the Born in the U.S.A. Tour’s final stand becomes the closing show instead when Bruce postpones this Los Angeles show to make room for a previous rescheduled show in Denver.<br>
+**1985:** The scheduled opener for the Born in the U.S.A. Tour's final stand becomes the closing show instead when Bruce postpones this Los Angeles show to make room for a previous rescheduled show in Denver.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-26.jpg.webp)
 
-**1991:** Bruce joins Southside Johnny and The Asbury Jukes at The Stone Pony, where the show is filmed for a promotional *Having a Party With Southside Johnny* video release to support Southside’s *Better Days* album. Watch the show along with news coverage of the event below. (Bruce only appears during “It’s Been a Long Time” at the 56 minute mark, but the entire show is well worth watching.)<br>
+**1991:** Bruce joins Southside Johnny and The Asbury Jukes at The Stone Pony, where the show is filmed for a promotional *Having a Party With Southside Johnny* video release to support Southside's *Better Days* album. Watch the show along with news coverage of the event below. (Bruce only appears during "It's Been a Long Time" at the 56 minute mark, but the entire show is well worth watching.)<br>
 
 [Watch on Youtube: Southside Johnny & The Asbury Jukes, Stone Pony show September 26, 1991](https://www.youtube.com/watch?v=uN_88I-2HDM)
 
@@ -60,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1991-09-26b.jpg.webp)
 
-**1996:** At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce reprises his newest song, “[In Michigan](../2022-04-12_roll-of-the-dice-in-michigan/post.md)” and plays “[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)” for the first time in fifteen years.<br>
+**1996:** At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce reprises his newest song, "[In Michigan](../2022-04-12_roll-of-the-dice-in-michigan/post.md)" and plays "[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" for the first time in fifteen years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Deportee" - Live in Ann Arbor, MI - 9/26/1996](https://www.youtube.com/watch?v=Y_HHMd94a0s)
 
@@ -70,7 +80,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/The_Flint_Journal_1996_09_27_26.jpg.webp)
 
-**1997:** Bruce plays “[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)” and “[Lucille](../1976-01-07_cover-me-lucille/post.md/)” with Bobby Bandiera at Cheers in Long Branch.<br>
+**1997:** Bruce plays "[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)" and "[Lucille](../1976-01-07_cover-me-lucille/post.md/)" with Bobby Bandiera at Cheers in Long Branch.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1997-0926.jpg.webp)
 

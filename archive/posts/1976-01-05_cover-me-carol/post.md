@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Carol"
+author: "Ken"
+excerpt: "On the Born to Run Tour, Chuck Berry’s 1958 classic made frequent encore appearances."
+tags: carol check-berry
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/Chuck-Berry-Carol.webp
+post_id: 24477
+---
 It wasn't his biggest hit (it wasn't even his biggest hit that year), but it was one of his most influential.
 
 Chuck Berry recorded "Carol" on May 2, 1958, and by mid-September it had caught fire thanks to its famous guitar lick, reaching #9 on the Billboard R&B chart and #18 on the Hot 100.
@@ -16,11 +26,11 @@ Berry's stamp was all over Bruce Springsteen's Born to Run Tour too, with "Carol
 
 [Watch on Youtube: Carol (Live at The Roxy, West Hollywood, CA - 10/18/1975)](https://www.youtube.com/watch?v=kDnTDJjMi1s)
 
-According to Bruce, he'd been playing "Carol" on stage in bars long before that night, since right about the time The Stones released their version. No record of him covering it that early survives, but there are certainly many surviving recordings from post-*Born to Run* bar gigs: no less than twenty known performances between 1977 and 1989, with artists like former Steel Mill bandmate Robbin Thompson....
+According to Bruce, he'd been playing "Carol" on stage in bars long before that night, since right about the time The Stones released their version. No record of him covering it that early survives, but there are certainly many surviving recordings from post-*Born to Run* bar gigs: no less than twenty known performances between 1977 and 1989, with artists like former Steel Mill bandmate Robbin Thompson….
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3)
 
-...and future E Street bandmate Nils Lofgren.
+…and future E Street bandmate Nils Lofgren.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3)
 

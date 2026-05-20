@@ -1,16 +1,26 @@
+---
+layout: post
+title: "Kingdom of Days: October 10"
+author: "Ken"
+excerpt: "Tour premieres galore at shows across the years, plus Bruce makes a promotional book tour appearance, and previews continue for his Broadway show."
+tags: all-the-way-home born-to-run-book chicago cynthia east-rutherford graham-norton italy lawsuit-tour magic magic-tour mike-appel river-tour rome seeger-sessions-tour springsteen-on-broadway your-own-worst-enemy
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/rome06.jpg
+post_id: 61098
+---
 ***New for 2025:** New entry for 1983; audio for 2006*<br>
 
 **1973:** Bruce plays at Grendel's Lair Coffee House in Philadelphia.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1973-10-09.png.webp)
 
-**1976:** Bruce and the E Street Band play a Lawsuit Tour show at Miami University in Oxford, Ohio. Based on the student newspaper clipping below, it seems that Bruce’s shows are not necessarily easy to book or facilitate due to Bruce’s legal battle with Mike Appel. At one point, the school seemed unsure about whether this concert would happen.<br>
+**1976:** Bruce and the E Street Band play a Lawsuit Tour show at Miami University in Oxford, Ohio. Based on the student newspaper clipping below, it seems that Bruce's shows are not necessarily easy to book or facilitate due to Bruce's legal battle with Mike Appel. At one point, the school seemed unsure about whether this concert would happen.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1976-1010.jpg.webp)
 
-**1980:** Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/).”<br>
+**1980:** Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/OALtiJWP)
 
@@ -18,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1980-10-10.jpg.webp)
 
-**1983:** Bruce completes “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” during a mixing and overdub session at The Hit Factory in New York City.<br>
+**1983:** Bruce completes "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" during a mixing and overdub session at The Hit Factory in New York City.<br>
 
 [Watch on Youtube: Bobby Jean](https://www.youtube.com/watch?v=iGR_Rk74tOk)
 
@@ -26,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/rollingstone.jpg.webp)
 
-**2006:** Bruce’s Italian tour comes to a close in Rome, where he and the Sessions Band tour premiere “[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29845/bruce-springsteen-palalottomatica-rome-it-10-10-2006.html).<br>
+**2006:** Bruce's Italian tour comes to a close in Rome, where he and the Sessions Band tour premiere "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29845/bruce-springsteen-palalottomatica-rome-it-10-10-2006.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - Long Black Veil - Live from Rome (10/10/2006)](https://www.youtube.com/watch?v=zfy9Q9vWsvU)
 
@@ -36,7 +46,7 @@
 
 [Watch on Youtube: Long Black Veil (Live at Palalottomatica, Rome, Italy - 10/10/2006)](https://www.youtube.com/watch?v=Bt7QcIUERsc)
 
-**2007:** The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band tour premiere “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md),” “[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md),” “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)” and the live debut of “[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)” at their Magic show at the Continental Airlines Arena.<br>
+**2007:** The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band tour premiere "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)," "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)," "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and the live debut of "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" at their Magic show at the Continental Airlines Arena.<br>
 
 [Watch on Youtube: Bruce Springsteen And The E Street Band - Radio Nowhere - 10/10/07 - Izod Center (PROSHOT)](https://www.youtube.com/watch?v=ZgVyP3aoOGw)
 

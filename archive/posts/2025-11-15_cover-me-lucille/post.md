@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Lucille"
+author: "Ken"
+excerpt: "Bruce has played Little Richard’s “Lucille” dozens of times in bars and clubs over the years, but exceedingly rarely with the E Street Band. Check out some great performances of this early rock classic inside."
+tags: beaver-brown levon-helm little-richard lucille
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/lucille.webp
+post_id: 5815
+---
 Bruce has been covering Little Richard's "Lucille" in concert for decades, but you'd be forgiven for not knowing it: believe it or not, he performed it more than *forty times* in bar and club shows between the 35 years that separated his first two E Street Band performances.*
 
 Here's one of the earliest times: Bruce with Beaver Brown on stage at Big Man's West in Red Bank in the summer of 1982.

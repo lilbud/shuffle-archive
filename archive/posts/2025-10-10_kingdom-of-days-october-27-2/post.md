@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 27"
+author: "Ken"
+excerpt: "Happy Birthday, Garry Tallent, born on this day in 1949. Also on this date: Bruce films a BBC documentary, gets politically active, and more."
+tags: a-secret-history barack-obama bbc born-to-run-book canada england garry-tallent joe-grushecky lawsuit-tour london los-angeles newsweek-magazine no-surrender oakland philadelphia pittsburgh pretty-flamingo proposition-209 rising-tour river-tour springsteen-on-broadway talk-to-me tenth-avenue-freeze-out the-promised-land time-magazine toronto uk wembley wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/20121027_3_booklet2.jpg
+post_id: 61239
+---
 ***New for 2025:** New entry for 1983; audio for 2002*<br>
 
 **1949:** E Street Band bassist and tuba-ist Garry W. Tallent is born in Detroit.<br>
@@ -8,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/10/Intelligencer_Journal_1974_10_26_page_7.jpg.webp)
 
-**1976:** Bruce’s second ever show at the Philadelphia Spectrum features a unique “[Something in the Night,](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” with a new last verse that is never heard again.<br>
+**1976:** Bruce's second ever show at the Philadelphia Spectrum features a unique "[Something in the Night,](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" with a new last verse that is never heard again.<br>
 
 [Watch on Youtube: Bruce Springsteen - Something in the Night 76](https://www.youtube.com/watch?v=mzDqyQhidyA)
 
@@ -16,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1976-10-27.png.webp)
 
-**1977:** At The Record Plant in New York City, Bruce records “[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)” and “[Preacher’s Daughter.](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)” The former will not be released for more than two decades; the latter remains in the vault to this day.<br>
+**1977:** At The Record Plant in New York City, Bruce records "[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)" and "[Preacher's Daughter.](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)" The former will not be released for more than two decades; the latter remains in the vault to this day.<br>
 
 [Watch on Youtube: Iceman (Studio Outtake - 1977)](https://www.youtube.com/watch?v=38uXE7CPDYY)
 
@@ -28,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46735344874_c8e2fd32b2_o.jpg.webp)
 
-**1983:** At The Hit Factory in New York City, Bruce and the E Street Band record “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md).”<br>
+**1983:** At The Hit Factory in New York City, Bruce and the E Street Band record "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)."<br>
 
 [Watch on Youtube: No Surrender](https://www.youtube.com/watch?v=txKhQ9cbhgo)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-10-27c.png.webp)
 
-**1998:** Bruce grants an interview for BBC’s *A Secret History* documentary and performs a couple of songs for the show at The Saint in Asbury Park. The documentary will air in December to promote the upcoming *Tracks* collection.<br>
+**1998:** Bruce grants an interview for BBC's *A Secret History* documentary and performs a couple of songs for the show at The Saint in Asbury Park. The documentary will air in December to promote the upcoming *Tracks* collection.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/3Q8W4UOi)
 
@@ -58,7 +68,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2002-10-27.png.webp)
 
-**2012:** Bruce performs an acoustic set at a re-election rally for President Obama at Soldiers & Sailors Memorial Hall in Pittsburgh. Later that night, he tour premieres “[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)” followed by a rare “[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)” at his Wrecking Ball show at the Consol Arena. Joe and Johnny Grushecky guest-star during the encores.<br>
+**2012:** Bruce performs an acoustic set at a re-election rally for President Obama at Soldiers & Sailors Memorial Hall in Pittsburgh. Later that night, he tour premieres "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" followed by a rare "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" at his Wrecking Ball show at the Consol Arena. Joe and Johnny Grushecky guest-star during the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen "No Surrender" Obama Rally Pittsburgh 10-27-2012](https://www.youtube.com/watch?v=axnr88woH6A)
 

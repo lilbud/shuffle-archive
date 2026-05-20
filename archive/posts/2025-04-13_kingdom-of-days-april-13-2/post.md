@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 13"
+author: "Ken"
+excerpt: "Happy birthday, Mighty Max Weinberg! Plus: Bruce releases 18 Tracks, Jon Bon Jovi makes a guest appearance, and much, much more."
+tags: 18-tracks beaver-brown born-in-the-usa-tour buffalo buffalo-gals calgary canada child clarence-clemons dallas france frankie genoa germany ghost-of-tom-joad-tour glory-days hall-and-oates houston italy japan jon-bon-jovi lyon magic-tour max-weinberg munich penn-state philadelphia ramrod reunion-tour rising-tour stone-pony tokyo tunnel-of-love-express-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/18tracks.jpg
+post_id: 56452
+---
 ***New for 2025:** Audio for 1976 and 1996; review for 2012; new entry for 2018*<br>
 
 **1951:** E Street Band drummer and late night telly-vision personality Max Weinberg is born in Newark, New Jersey.<br>

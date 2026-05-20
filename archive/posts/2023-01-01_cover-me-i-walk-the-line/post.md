@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I Walk the Line"
+author: "Ken"
+excerpt: "Twice only: Bruce paid tribute to The Man in Black after his passing by opening his shows with a lovely acoustic cover of “I Walk the Line.”"
+tags: i-walk-the-line johnny-cash
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/walkline.jpg
+post_id: 18898
+---
 The late, great Johnny Cash passed away on September 12, 2003.
 
 Bruce Springsteen was scheduled to perform the following evening at FedExField in Landover, and it was a pretty safe bet that he’d tip his hat to the Man in Black. The only question was: which song would he choose?

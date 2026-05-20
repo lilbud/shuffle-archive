@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Seventh Son"
+author: "Ken"
+excerpt: "One time only: Honoring a young fan’s request (or perhaps his parents’), Bruce and the E Street Band delivered a crowd-pleasing cover of Johnny Rivers’ 1965 hit."
+tags: johnny-rivers seventh-son willie-dixon willie-mabon
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/johnny_rivers-the_seventh_son_s_1.jpg
+post_id: 19800
+---
 When the Working on a Dream Tour stopped in Greensboro, Bruce honored a sign request from a young boy who, I suspect, had a little bit of prompting from his parents.
 
 The boy was holding a sign for "Seventh Son," written by Willie Dixon and first recorded by Willie Mabel in 1955 in an R&B arrangement.

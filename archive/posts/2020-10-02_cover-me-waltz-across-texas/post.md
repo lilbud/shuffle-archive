@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Waltz Across Texas"
+author: "Ken"
+excerpt: "When the River Tour stopped in Austin, a serendipitously slipped Ernest Tubb record led to a lovely one-time-only cover of Ernest Tubb’s “Waltz Across Texas.”"
+tags: ernest-tubb waltz-across-texas
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/texas.jpg
+post_id: 19491
+---
 Even though we know Bruce has covered countless songs across a spectrum of styles, most of us still wouldn’t expect Ernest Tubb’s “Waltz Across Texas” to be on that list.
 
 [Watch on Youtube: Ernest Tubb - Waltz Across Texas](https://www.youtube.com/watch?v=K16ZNrWRzo0)

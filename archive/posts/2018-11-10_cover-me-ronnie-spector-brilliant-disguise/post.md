@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Ronnie Spector: Brilliant Disguise"
+author: "Ken"
+excerpt: "Ronnie Spector does an admirable cover of “Brilliant Disguise” — right up until the coda. You might not be able to unhear that part."
+tags: brilliant-disguise ronnie-spector
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/ronniebruce.jpg
+post_id: 5522
+---
 Here's a Springsteen cover that's flown largely under the radar... perhaps deservedly so.
 
 Don't get me wrong: I'm a huge Ronnie Spector fan, and it's nice to hear her take a run at one of Bruce's songs given their long association and friendship.

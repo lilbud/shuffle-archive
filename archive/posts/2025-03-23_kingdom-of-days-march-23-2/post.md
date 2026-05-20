@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 23"
+author: "Ken"
+excerpt: "On this date: Bruce holds a one-off benefit show with a wild setlist in ’93, the first Working on a Dream preview show in ’09, and the legendary ’77 Boston stand continues. More highlights inside."
+tags: american-skin-41-shots asbury-park atlanta australia born-in-the-usa-tour boston john-eddie lawsuit-tour lou-reed phoenix providence river-tour sydney talk-to-me tampa tunnel-of-love-express-tour working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-23-buffalo-ny-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56285
+---
 ***New for 2025:** New entry for 1978, 1996, and 2018; audio for 1988; video for 1993*<br>
 
 **1973:** Bruce opens for Lou Reed at the Palace Concert Theater in Providence.<br>

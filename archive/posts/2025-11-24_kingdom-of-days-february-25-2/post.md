@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 25"
+author: "Ken"
+excerpt: "On this day in Springsteen history: The Tunnel of Love Express Tour kicks off, the E Street Band plays their last concert to date, the inspiration for one of Bruce’s most controversial songs, and a whole lot more."
+tags: 634-5789 amadou-diallo american-skin-41-shots asbury-park auckland boccigalupe-and-the-bad-boys born-to-run bruce-springsteen-band bryn-mawr buffalo detroit-medley ghost-of-tom-joad-tour glory-days hold-on-im-coming hungry-heart im-a-coward knock-on-wood lawsuit-tour magic-tour memphis miami-horns michael-strollo new-zealand one-step-up purdue-university richmond river-tour river-tour-2016 rosalita rotterdam soul-man tenth-avenue-freeze-out the-main-point the-netherlands tony-strollo tracks tunnel-of-love-express-tour walk-like-a-man worcester you-can-look-but-you-better-not-touch
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/TOL-Express.jpg
+post_id: 56002
+---
 **1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of “[Down to the Riverside](../2021-10-15_roll-of-the-dice-down-to-the-riverside/post.md).”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)

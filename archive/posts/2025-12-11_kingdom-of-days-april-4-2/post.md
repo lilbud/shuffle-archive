@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 4"
+author: "Ken"
+excerpt: "A one-off cover of “Oh, What a Beautiful Mornin” and the taping of VH1 Storytellers leads the highlights from this date in Bruce history. Watch two full shows, rare clips, and more highlights inside."
+tags: australia candys-room child dortmund east-rutherford germany largo magic-tour martin-luther-king melbourne michigan new-york-city oprah-winfrey reunion-tour sacramento seattle spirit-in-the-night springsteen-on-broadway tacoma the-promised-land tony-goldwyn tunnel-of-love-express vh1-storytellers what-a-beautiful-mornin working-on-the-highway world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/storytell.jpg
+post_id: 56368
+---
 **1969:** Child continues their opening stand at the Pandemonium in Wanamassa, New Jersey. The band will play here for much of April. Red Bank's *Daily Register* spotlights the band in today's paper.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1969-04-04.jpg.webp)

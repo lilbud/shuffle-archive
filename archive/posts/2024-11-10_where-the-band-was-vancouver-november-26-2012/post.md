@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Vancouver, November 26, 2012"
+author: "Ken"
+excerpt: "A solid setlist, a loose performance, and some surprising placements made for a great night in Vancouver on the Wrecking Ball Tour."
+tags: badlands because-the-night born-to-run canada cover-me dancing-in-the-dark darlington-county death-to-my-hometown does-this-bus-stop-at-82nd-street hungry-heart land-of-hope-and-dreams my-city-of-ruins racing-in-the-street radio-nowhere raise-your-hand red-headed-woman santa-claus-is-comin-to-town shackled-and-drawn shes-the-one spirit-in-the-night streets-of-fire tenth-avenue-freeze-out the-rising vancouver waitin-on-a-sunny-day we-take-care-of-our-own wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/20121126_front.jpg
+post_id: 5781
+---
 If you go see Bruce Springsteen after Thanksgiving, you better watch out, and you better not cry. And you better bring your Santy Claus hats, because odds are you’re gonna need them.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/15178199_10154174869751158_5701225122112296324_n.jpg.webp)

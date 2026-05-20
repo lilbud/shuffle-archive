@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Your Love is All Around Me"
+author: "Ken"
+excerpt: "One of the earliest demos recorded during the Born in the U.S.A. sessions, “Your Love Is All Around Me” made it maddeningly far before Bruce abandoned it. Take a listen to this shoulda-been classic inside."
+tags: your-love-is-all-around-me
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/admin-ajax-56.jpg
+post_id: 11789
+---
 We've examined a lot of Bruce's unfinished, never-released home demos on this blog. Many of them are mere seeds, hooks, or riffs with which Bruce seemed momentarily infatuated. Others seem like great-grandparents to songs that eventually got released, with lyrical or melodic DNA propagated throughout Bruce's catalog.
 
 But today's roll of the dice is different: it's a song that dates back to the earliest period of the Born in the U.S.A. sessions, and even in its rough, unfinished, acoustic demo form, one can't help but immediately sense that "Your Love Is All Around Me" should have been destined for classic Springsteen status.

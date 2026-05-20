@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 19"
+author: "Ken"
+excerpt: "On this date: Rosie goes missing, Queen of the Supermarket turns up, Philly Elvis makes his debut, and more. Plus: highlights from the star-studded Alliance of Neighbors benefit concert."
+tags: albuquerque all-just-to-get-to-you all-shook-up all-the-way-home alliance-of-neighbors american-babylon-tour bon-jovi born-in-the-usa-tour born-to-run-book born-to-run-tour boston canada earth england garry-tallent ghost-of-tom-joad-tour jesse-james joan-jett joe-ely joe-grushecky land-of-hope-and-dreams london los-angeles madrid max-weinberg michelle-moore my-city-of-ruins new-mexico ottawa patti-scialfa philadelphia philly-elvis phoebe-snow queen-of-the-supermarket schenectady seeger-sessions-tour spain springsteen-on-broadway stand-by-me street-fighting-man tacoma uk when-you-walk-in-the-room wild-innocent-tour wooly-bully working-on-a-dream-tour wrecking-ball-tour you-can-look-but-you-better-not-touch
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/20011019_front.jpg
+post_id: 61152
+---
 ***New for 2025:** Audio for 2004, 2006, and 2018*<br>
 
 **1968:** Earth plays a show at Le Teendezvous in New Shrewsbury, New Jersey.<br>

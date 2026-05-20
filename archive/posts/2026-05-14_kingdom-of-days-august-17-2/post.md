@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 17"
+author: "Ken"
+excerpt: "Bruce plays “I’m Goin’ Down” for the first time, wraps up his legendary 1975 stand at the Bottom Line, and more. Plus: a half-hour of 1992 Detroit soundcheck and performance footage!"
+tags: auburn-hills born-in-the-usa-tour born-to-run-tour bottom-line child detroit east-rutherford im-goin-down los-angeles new-york-city red-rocks rising-tour river-tour springsteen-on-broadway world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/admin-ajax-78.jpg
+post_id: 59369
+---
 **1969:** Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.<br>
 
 **1975:** Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce's career and the remainder of the Born to Run Tour.<br>

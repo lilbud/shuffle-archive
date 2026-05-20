@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 19"
+author: "Ken"
+excerpt: "This date in history was the source of five tracks from Live 1975-85 plus the official video for Born to Run. Plus: Bruce brings back two Tunnel of Love tour staples after a 20-year absence, and more."
+tags: aint-that-loving-you-baby born-in-the-usa-tour born-to-run darkness-tour east-rutherford gary-busey giants-stadium hartford hershey john-eddie johnny-99 live-1975-85 magic-tour miami-horns part-man-part-monkey philadelphia reason-to-believe sha-la-la working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/bbyrne.jpg
+post_id: 59371
+---
 **1978:** Bruce debuts his cover of "Good Rockin' Tonight" to open Night Two at the Philadelphia Spectrum on the Darkness Tour. Gary Busey guest stars on "Rave On."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XRS3x3_mdys)

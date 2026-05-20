@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Scialfa and Bruce Springsteen: Looking for Elvis"
+author: "Ken"
+excerpt: "One time only: Bruce takes a supporting role in Patti’s outstanding civic anthem."
+tags: looking-for-elvis play-it-as-it-lays
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/lookingelvis.jpg
+post_id: 27456
+---
 > "To me, Elvis was a metaphor for your more patriotic ideas and dreams for your country… and the guys, everybody, you and everybody, played the hell out of it. It was actually one of my angriest songs that I've ever written." — Patti Scialfa to Bruce Springsteen, *From My Home to Yours, Volume 9*<br>
 
 "Looking For Elvis" is more than just one of Patti Scialfa's angriest songs; it's also one of her best.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 16"
+author: "Ken"
+excerpt: "A fascinating 2012 interview and great Australian performances from 2014 and 2017 highlight this day in Springsteen history."
+tags: australia beatles born-in-the-usa born-to-run brisbane columbus ghost-of-tom-joad-tour growin-up high-hopes-tour lakeland lawsuit-tour lucky-town meeting-across-the-river melbourne paris refrigerator-blues river-tour river-tour-2016 roulette sunrise the-price-you-pay wrecking-ball
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/2023-02-16-austin-tx.webp
+post_id: 55948
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_.jpg.webp)
 
 **1964:** The Beatles make their second appearance on the Ed Sullivan show, and Bruce is watching.<br>

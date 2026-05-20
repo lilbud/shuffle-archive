@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Ain't Too Proud to Beg"
+author: "Ken"
+excerpt: "“Ain’t Too Proud to Beg” paved the way for “Back in Your Arms” and other down-on-my-knees Springsteen classics. Hear Bruce and the band cover it inside."
+tags: aint-too-proud-to-beg born-to-run-tour detroit limerick the-temptations wrecking-ball-tour
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/ainttoo.jpg
+post_id: 4894
+---
 If there was no “Ain’t Too Proud to Beg” by The Temptations, there would probably be no “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)” by Bruce Springsteen.
 
 When the quintet charted with their 1966 hit, it was their fourth #1 on the US R&B chart, and their sixth Top 20 hit on the pop chart. But whereas their previous hits had been romantic ballads like “[My Girl](../2022-10-26_matr-the-temptations-the-wallflowers-and-bruce-springsteen-my-girl/post.md)” or confident struts like “Get Ready,” “Ain’t Too Proud to Beg” starts off without any introduction–just a plea of desperation.

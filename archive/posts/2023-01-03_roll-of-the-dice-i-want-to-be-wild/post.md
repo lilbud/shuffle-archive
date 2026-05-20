@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Want to Be Wild"
+author: "Ken"
+excerpt: "In 1977, Bruce had a killer backing track in search of some lyrics. The search continues."
+tags: dont-say-no i-want-to-be-wild
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/247601-Want-To-Be-Wild-1.jpg
+post_id: 24826
+---
 This one is (as they say) for the collectors.
 
 About a year-and-a-half ago, we took a listen to Bruce's unreleased 1977 outtake "[Don't Say No](../2019-10-15_roll-of-the-dice-dont-say-no/post.md)," and scratched our heads trying to make heads or tails of Bruce's vocals, which were buried so far down in the mix that they challenge even the most astute of listeners.

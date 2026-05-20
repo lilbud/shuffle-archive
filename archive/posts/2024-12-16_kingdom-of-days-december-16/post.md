@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 16"
+author: "Ken"
+excerpt: "It’s the debut of “Brothers Under the Bridge,” the release of “The Wrestler,” and the last “Crush on You” for 28 years as Bruce’s tours start to wind down for the year."
+tags: atlanta bobby-bandiera born-in-the-usa-tour born-to-run-tour boston brothers-under-the-bridge columbus crush-on-you darkness-tour fire for-you ghost-of-tom-joad-tour joe-grushecky laura-dern oswego pittsburgh rendezvous rising-tour river-tour san-francisco springsteen-on-broadway steve-van-zandt the-promised-land two-hearts winterland world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/winter2.jpg
+post_id: 55343
+---
 ***New for 2024:** Advertisement for 1973*<br>
 
 **1973:** Bruce cancels a scheduled show in Willimantic, Connecticut only a day or two before the show.![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/Valley_Advocate_Amherst_1973_12_26_14-scaled.jpg.webp)<br>

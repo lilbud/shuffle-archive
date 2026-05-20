@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Crystal"
+author: "Ken"
+excerpt: "Another entry from the lost notebook–this one had some real potential."
+tags: 1968-notebook crystal the-notebook
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1968_lyricsnotebook.jpg
+post_id: 2111
+---
 Today, the dice land on another entry from 18-year-old Bruce's handwritten notebook of mystery songs, never recorded and possibly never performed. (See "[Until the Rain Comes](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)" for the backstory.)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Garden State Parkway Blues"
+author: "Ken"
+excerpt: "Is a discarded fifty-years-old, thirty-minutes-long opus really the secret origin of “Kitty’s Back,” “Cadillac Ranch,” and “One Step Up?” Just listen and decide for yourself."
+tags: a-day-in-the-life cadillac-ranch child garden-state-parkway-blues kittys-back one-step-up steel-mill theyre-coming-to-take-me-away-ha-haaa
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/gsp-blues.jpg
+post_id: 6175
+---
 Before "Rosalita (Come Out Tonight)" and "[Kitty's Back,](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" before even "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," there was "Garden State Parkway Blues" — Bruce's prototype for the epic show-stopping, song-changing, band-vamping showcase that brings his main sets to their will-it-ever-end end.
 
 Because its *such* a long song (thirty freaking minutes!), unrecorded and raw, it's tempting to dismiss "Garden City Parkway Blues" as early self-indulgence or an excuse for an extended jam session.

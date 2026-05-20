@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Guess Things Happen That Way"
+author: "Ken"
+excerpt: "One time only: Bruce and the E Street Band soundcheck an early classic by The Man in Black."
+tags: guess-things-happen-that-way johnny-cash
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/guessthings.jpg
+post_id: 33130
+---
 On September 20, 1978, Bruce Springsteen had Johnny Cash on his mind.
 
 He was sound-checking with the E Street Band at the Capitol Theater in Passaic before the second of his now-legendary three-show stand on the Darkness Tour, and as usual he was interweaving a handful of rock and country classics with his own material.

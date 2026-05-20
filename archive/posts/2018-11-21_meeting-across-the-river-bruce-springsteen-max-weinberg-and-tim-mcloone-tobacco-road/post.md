@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Max Weinberg, and Tim McLoone: Tobacco Road"
+author: "Ken"
+excerpt: "One time only (that was recorded, anyway): Bruce, Max, and Tim McLoone cover John D. Loudermilk’s “Tobacco Road.”"
+tags: john-d-loudermilk max-weinberg the-nashville-teens tim-mcloone tobacco-road
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/tobacco-road.png
+post_id: 5747
+---
 In 1960, John D. Loudermilk wrote and recorded a semi-autobiographical blues song called "Tobacco Road." It went nowhere.
 
 [Watch on Youtube: Tobacco Road](https://www.youtube.com/watch?v=-YhPjRIpqqM)

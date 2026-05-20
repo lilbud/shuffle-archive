@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Meeting Across the River: Patti Scialfa and Bruce Springsteen, "Rose""
+author: "Ken"
+excerpt: "Spotlight on Patti today, as Bruce backs her on one of her earliest songs. Great archive footage from 1980 on this one!"
+tags: 23rd-street-lullaby patti-scialfa rose
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/rose.jpg
+post_id: 1225
+---
 Spotlight on Patti Scialfa today:
 
 Although Patti released "Rose" on her 2004 album *23rd Street Lullaby*, well-connected Bruce fans were already familiar with the song from the legendary Asbury Park all-start holiday concerts that Bruce hosted in 2000. Patti performed the song with Bruce backing her at both holiday shows that year:
 
 [https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3)
 
-...but the song dates much farther back than that.
+…but the song dates much farther back than that.
 
 How far back, I don't know. But we do know that Patti performed it more than 20 years prior to those holiday shows, at a *Sounds of Asbury Park* concert at the Paramount Theater on August 30, 1980–and amazingly, we have a wonderful video recording of that performance:
 

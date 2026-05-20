@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 16"
+author: "Ken"
+excerpt: "On this date: a mini-Seeger Sessions reunion, an Edwin Starr guest appearance, the release of “We’ve Got the Love,” and more."
+tags: amsterdam birmingham cats-on-a-smooth-surface clarence-clemons crying denmark edinburgh edwin-starr france germany ghost-of-tom-joad-tour herning i-wish-i-were-blind jersey-artists-for-mankind jesse-james julianne-phillips madison-square-garden montpellier munich my-oklahoma-home new-york-city o-mary-dont-you-weep pay-me-my-money-down reunion-tour river-tour scotland seeger-sessions-tour springsteen-on-broadway stone-pony the-netherlands tunnel-of-love-express-tour uk war weve-got-the-love world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/220506_bs880516-700x700-1.jpg
+post_id: 56768
+---
 ***New for 2025:** New entry for 1973, 1975, and 2024; audio for 1999*<br>
 
 **1973:** Bruce cancels a scheduled performance at Minnesota State University and instead records "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" at 914 Sound Studios in Blauvelt, New York. It will remain in the vault for 26 years until Bruce finally releases it on *Tracks*.<br>

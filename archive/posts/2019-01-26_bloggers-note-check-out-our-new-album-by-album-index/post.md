@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Blogger's Note: Check out our new Album-by-Album index"
+author: "Ken"
+excerpt: "We now have an Album-by-Album Index for the Roll of the Dice series! Check it out and see if we’ve covered your favorite song yet."
+tags: index roll-of-the-dice
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/albums.jpg
+post_id: 7341
+---
 I'm pleased to announce a new feature of the site–one that several of you have written me to request:
 
 We now have an [Album-by-Album Index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) for the *Roll of the Dice* series, added to our top menu.

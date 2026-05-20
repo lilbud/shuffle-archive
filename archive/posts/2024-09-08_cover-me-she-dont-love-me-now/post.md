@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: She Don't Love Me Now"
+author: "Ken"
+excerpt: "A return to form for Bruce as a cover artist and a fitting tribute for an artist we’ve featured here may times before."
+tags: jake-clemons jesse-malin she-dont-love-me-now silver-patron-saints
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/shedontlovemenow.jpg
+post_id: 54352
+---
 The mark of a great cover artist is the ability to find something that was always hidden within a song but that wasn't brought to light by the original artist.
 
 Bruce Springsteen is a great cover artist.

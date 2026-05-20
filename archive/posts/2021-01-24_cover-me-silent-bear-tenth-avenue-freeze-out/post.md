@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Silent Bear: Tenth Avenue Freeze-Out"
+author: "Ken"
+excerpt: "Deep into his cover of “Tenth Avenue Freeze-Out,” Silent Bear sense a new context for Bruce’s classic song and took it in a daring new direction."
+tags: pete-seeger silent-bear tenth-avenue-freeze-out
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/silentbear.jpg
+post_id: 24580
+---
 Even Bruce Springsteen couldn't tell you what a "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" is.
 
 But deep into his epic cover of the E Street Band's origin story, Silent Bear figured it out for himself.

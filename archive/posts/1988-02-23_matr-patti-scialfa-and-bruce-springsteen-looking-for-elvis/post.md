@@ -1,4 +1,13 @@
-> "To me, Elvis was a metaphor for your more patriotic ideas and dreams for your country… and the guys, everybody, you and everybody, played the hell out of it. It was actually one of my angriest songs that I've ever written." — Patti Scialfa to Bruce Springsteen, *From My Home to Yours, Volume 9*
+---
+layout: default-post
+title: "Looking for Elvis"
+author: "Ken"
+excerpt: "One time only: Bruce takes a supporting role in Patti’s outstanding civic anthem."
+tags: looking-for-elvis play-it-as-it-lays
+categories: cover-me meeting-across-the-river
+post_id: 27456
+---
+> "To me, Elvis was a metaphor for your more patriotic ideas and dreams for your country… and the guys, everybody, you and everybody, played the hell out of it. It was actually one of my angriest songs that I've ever written." — Patti Scialfa to Bruce Springsteen, *From My Home to Yours, Volume 9*<br>
 
 "Looking For Elvis" is more than just one of Patti Scialfa's angriest songs; it's also one of her best.
 
@@ -8,20 +17,20 @@ Patti doesn't verge into the civic arena with her songwriting very often, but wi
 
 I'm always struck by the middle verse in particular–there's an economy of language paired with powerful metaphor that just blows me away every time I hear it.
 
-> *I remember*
-> *All those Septembers*
-> *The pledges of allegiance*
-> *The prayers of trust*
-> *I slept on those beds of hope and promise*
-> *Woke up choking on cheap paint and carnival dust*
+> *I remember*<br>
+> *All those Septembers*<br>
+> *The pledges of allegiance*<br>
+> *The prayers of trust*<br>
+> *I slept on those beds of hope and promise*<br>
+> *Woke up choking on cheap paint and carnival dust*<br>
 
-> *So where are you now*
-> *With all those illusions*
-> *Fallen dreams and charity*
-> *If faith restores you*
-> *And truth delivers*
-> *Then don't tell me that I'm standing*
-> *When I'm on my knees*
+> *So where are you now*<br>
+> *With all those illusions*<br>
+> *Fallen dreams and charity*<br>
+> *If faith restores you*<br>
+> *And truth delivers*<br>
+> *Then don't tell me that I'm standing*<br>
+> *When I'm on my knees*<br>
 
 Patti released "Looking For Elvis" as the lead-off track for her 2007 album, *Play It As It Lays*. Bruce released an album of his own that year, and for the life of me, I cannot figure out why he didn't add "Looking For Elvis" to his tour set lists instead of "Town Called Heartbreak" (the first single from Patti's album).
 

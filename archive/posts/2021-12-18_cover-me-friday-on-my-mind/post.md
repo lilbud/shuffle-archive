@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Friday on My Mind"
+author: "Ken"
+excerpt: "Bruce’s “Out in the Street” is essentially the same song as The Easybeats’ “Friday on My Mind,” a fact Bruce playfully acknowledged by playing them back-to-back in Sydney."
+tags: friday-on-my-mind out-in-the-street the-easybeats
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/easybeats.jpg
+post_id: 10478
+---
 > “When I wrote [“Out in the Street”] I was trying to copy one of my all time favorite songs, “Friday On My Mind” by the Easybeats. I have always loved that song. The structure on that is just incredible, and it had that unbelievable exhilaration when they broke into the chorus. You know, its Friday and you are out of school or out of work and you're just *out there*!” — Bruce Springsteen to Molly Meldrum, April 7, 1995
 
 The Easybeats’ “Friday On My Mind” may have only reached #16 in the U.S., but it was a bona fide smash hit around the world, peaking at #6 in the U.K. and #1 in Australia.

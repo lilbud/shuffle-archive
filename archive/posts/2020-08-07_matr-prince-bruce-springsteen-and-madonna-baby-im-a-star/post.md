@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Prince, Bruce Springsteen, and Madonna: Baby I'm a Star"
+author: "Ken"
+excerpt: "One time only: Pop’s triumvirate unites on stage for the first and only time when the Purple Rain Tour stops in L.A."
+tags: baby-im-a-star madonna prince
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/babyimastar.jpg
+post_id: 20372
+---
 In the golden age of pop music that was the 1980s, a triumvirate of mega-stars reigned over the charts: Bruce Springsteen, Madonna, and Prince.
 
 The three icons seemed to perpetually jostle for position in the Top 20, with Bruce notching eleven hits throughout the decade, Prince fourteen, and Madonna a whopping seventeen. (Prince famously denied Bruce his one chance at a number one hit when "When Doves Cry" stubbornly clung to the top rung despite a fierce challenge from "Dancing in the Dark.")

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison, Bruce Springsteen, and Friends: Candy Man"
+author: "Ken"
+excerpt: "One time only: Bruce joins Roy Orbison and an all-star backing band for a great cover of Roy’s 1961 B-side."
+tags: black-and-white-night candy-man roy-orbison
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/candyman.jpg
+post_id: 30867
+---
 It may not have enjoyed quite the success that its A-side did, but Roy Orbison's 1961 B-side "Candy Man" still managed to claw its way to #25 on the Billboard Hot 100.
 
 [Watch on Youtube: Candy Man](https://www.youtube.com/watch?v=VWoA74YyDWY)

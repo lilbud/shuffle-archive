@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Resurrection"
+author: "Ken"
+excerpt: "Bruce grappled with his religion through as far back as his teen years, but with a lot less subtlety. Listen to him challenge the church in his 1969 Steel Mill crowd-pleaser."
+tags: resurrection steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Resurrection.jpg
+post_id: 10636
+---
 Even casual Springsteen listeners quickly realize that Bruce's music is replete with religious themes and imagery.
 
 Sometimes Bruce addresses religion directly (for example, "[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md)"), but more often than not he employs its vocabulary and mythology to comment on more earthly matters. Either way, though, when Bruce writes about religion, he tends to do so thoughtfully and respectfully.

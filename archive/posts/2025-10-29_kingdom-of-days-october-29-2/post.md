@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 29"
+author: "Ken"
+excerpt: "Bruce headlines an all-star roster of talent at the Rock and Roll Hall of Fame 25th Anniversary concerts. Also on this date: Bruce plays at Tom Petty’s house, Gary U.S. Bonds’ first appearance on an E Street stage, and more."
+tags: barack-obama billy-joel born-in-the-usa-tour born-to-run-tour boston bruce-springsteen-band darlene-love dr-john gary-u-s-bonds ghost-of-tom-joad-tour jackson-browne jeff-lynne john-fogerty john-kerry lawsuit-tour livin-in-the-future los-angeles magic-tour miami new-york-city new-york-state-of-mind night norway oslo peter-wolf quarter-to-three reason-to-beleive rock-and-roll-hall-of-fame roger-mcguinne sam-moore seattle seeger-sessions-tour soul-man the-main-point the-promise tom-morello tom-petty
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/hof.jpg
+post_id: 61241
+---
 ***New for 2025:** Audio for 2006; video for 209*<br>
 
 **1971:** The Bruce Springsteen Band headlines a show at St. Jerome School in West Long Branch, New Jersey. Later in the evening (technically the wee hours of the following day), Bruce jams with local musicians at The Upstage in his last-ever appearance at the legendary club.<br>

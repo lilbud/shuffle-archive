@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: She's a Woman"
+author: "Ken"
+excerpt: "“She’s a Woman” is one for the completists, a funky guitar showcase with substandard lyrics. Bruce would get it right a few years later with “She’s the One.”"
+tags: shes-a-woman the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/woman.jpg
+post_id: 15117
+---
 Warning: this is another one for the completists out there–the folks who want to hear everything Bruce has ever played at least once, regardless of quality.
 
 If you're still with me, you're my kind of people.
@@ -12,21 +22,21 @@ Lyrically, we can make out enough of "She's a Woman" to get a sense of the song.
 
 Whoever this woman is, Bruce seems more obsessed by her effect on him rather than on anything about the woman herself. "She's a Woman" is more about wordplay and guitar jams than it is a tale, romantic or otherwise.
 
-> *She brings me down, she sends me down*
-> *She brings me down, she's my woman*
-> *Now she'll pick me up, she picks me up on Saturday*
-> *She drinks me up, oh but my woman…*
+> *She brings me down, she sends me down*<br>
+> *She brings me down, she's my woman*<br>
+> *Now she'll pick me up, she picks me up on Saturday*<br>
+> *She drinks me up, oh but my woman…*<br>
 
-> *She lays me down, she plays me down, she weighs me down*
-> *She's my woman, she's my queen, she's my woman*
+> *She lays me down, she plays me down, she weighs me down*<br>
+> *She's my woman, she's my queen, she's my woman*<br>
 
-> *She makes me smile, she drives me wild*
-> *She ???, she's my woman*
-> *She cries "Where you been?"*
-> *She can make you grin*
-> *She can put you in, I'm her partner*
+> *She makes me smile, she drives me wild*<br>
+> *She ???, she's my woman*<br>
+> *She cries "Where you been?"*<br>
+> *She can make you grin*<br>
+> *She can put you in, I'm her partner*<br>
 
-> *She weighs me down, she blows me down, she slays me down…*
+> *She weighs me down, she blows me down, she slays me down…*<br>
 
 (I'm certain many of these lyrics are at least partially incorrect, so feel free to take your own stab at them.)
 

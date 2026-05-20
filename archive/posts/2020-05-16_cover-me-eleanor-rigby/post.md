@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Eleanor Rigby"
+author: "Ken"
+excerpt: "It takes guts to cover The Beatles’ orchestral “Eleanor Rigby” with just a four-person high school rock band, but Bruce Springsteen has never lacked in the guts department. Listen to The Castiles’ daring cover inside."
+tags: eleanor-rigby the-beatles the-castiles
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/beatles-eleanor-520x520-1.jpg
+post_id: 18300
+---
 "Eleanor Rigby" ranks among The Beatles' best-known and most-loved songs, even though none of The Beatles actually play on the track. Employing an unusual (for a rock song) string octet, "Eleanor Rigby" is essentially a Paul McCartney vocal track with backgrounds from John and George.
 
 [Watch on Youtube: The Beatles - Eleanor Rigby (From "Yellow Submarine")](https://www.youtube.com/watch?v=HuS5NuXRb5Y)

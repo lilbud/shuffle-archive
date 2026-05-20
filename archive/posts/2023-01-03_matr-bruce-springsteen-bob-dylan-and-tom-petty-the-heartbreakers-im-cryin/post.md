@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Tom Petty & The Heartbreakers, Bruce Springsteen, and Bob Dylan: I'm Cryin'"
+author: "Ken"
+excerpt: "Bruce covered The Animals as far back as his Castiles days, but he saved one of their greatest hits for his first and only on-stage team-up with Tom Petty."
+tags: bob-dylan im-crying the-animals tom-petty-and-the-heartbreakers
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/crying.jpg
+post_id: 25004
+---
 Bruce Springsteen is no stranger to Eric Burdon and The Animals.
 
 Bruce’s intense covers of “[It’s My Life](../2021-11-23_cover-me-its-my-life/post.md)” (performed a remarkable 88 times over a three-year span in the mid-1970s) are legendary, certainly ranking among Bruce’s all-time best covers.

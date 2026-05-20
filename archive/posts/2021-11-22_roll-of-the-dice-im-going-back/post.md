@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'm Going Back"
+author: "Ken"
+excerpt: "One of the rare outtakes from the Greatest Hits sessions that never evolved into a full song, “I’m Going Back” provides a fascinating glimpse at the newly reunited E Street Band working out new material."
+tags: im-going-back
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/goingback.jpg
+post_id: 31030
+---
 If you've been riding along with me these past four years, you know there are a lot of unreleased Springsteen works-in-progress floating around out there.
 
 We've listened to early prototypes of familiar songs, partially bluffed outtakes that contributed lyrical or musical DNA to other songs, and sometimes just musical dead ends.

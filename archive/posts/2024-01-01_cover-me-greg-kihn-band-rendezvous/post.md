@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Greg Kihn Band: Rendezvous"
+author: "Ken"
+excerpt: "When “Rendezvous” didn’t make the cut for the Darkness album, Bruce went to Greg Kihn to make sure it found a good home."
+tags: greg-kihn rendezvous
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/kihn.jpg
+post_id: 3133
+---
 Greg Kihn did more than cover "Rendezvous" — he gave it a home.
 
 Kihn was one of the earliest artists to cover Bruce–his take on "For You" was distinctive, and Bruce admired it so much that he sought out Kihn when "Rendezvous" didn't make the cut for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).

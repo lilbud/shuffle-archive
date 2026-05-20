@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 14"
+author: "Ken"
+excerpt: "Both River tours ended on this date; check out highlights from each inside, plus: Ed Norton interviews Bruce on stage in Toronto, and on the Rising Tour, Bruce starts rediscovering his missing years."
+tags: argentina blinded-by-the-light born-in-the-usa-tour born-to-run-tour buenos-aires chapel-hill cincinnati dallas dancing-in-the-dark ed-norton foxborough houston joe-ely living-proof miami-horns peter-wolf philadelphia rising-tour river-tour river-tour-2016 rosalita tenth-avenue-freeze-out the-promise this-little-light-of-mine toronto washington-dc wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/officiallivedownloads_2016-09-14.jpg
+post_id: 59655
+---
 ***New for 2025:** Audio for 1973 and 1984; new entry for 1977, 1983, 1989, and 2024*<br>
 
 **1973:** A scheduled gig at Syracuse University is cancelled to make room for production work on *The Wild, The Innocent, and the E Street Shuffle* at 914 Sound Studios in Blauvelt, New York. Today Bruce completes "New York City Serenade."<br>

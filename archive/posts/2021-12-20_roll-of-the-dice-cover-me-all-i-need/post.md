@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice/Cover Me: All I Need"
+author: "Ken"
+excerpt: "One of the best full-band outtakes from the Nebraska era, the E Street Band’s recording of “All I Need” made for a fine deep cut for Gary U.S. Bonds."
+tags: all-i-need gary-u-s-bonds on-the-line
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/all-i-need.jpg
+post_id: 14369
+---
 In the early summer of 1981, inspiration struck (as it often did), and Bruce captured it on tape in his home studio in the form of a mostly-bluffed new song called "All I Need."
 
 [Watch on Youtube: Bruce Springsteen All I Need](https://www.youtube.com/watch?v=KfD2XtK0hQQ)

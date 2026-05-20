@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 9"
+author: "Ken"
+excerpt: "On this date: The E Street Band debuts their new name, Jon Landau sees the future of rock and roll, and Bruce makes his first appearance on Saturday Night Live. New video and more highlights inside."
+tags: atlantic-city bloomington bonnie-raitt cambridge chicken-scratch-tour e-street-band ghost-of-tom-joad-tour jon-landau london madrid mobile poland santiago saturday-night-live seeger-sessions-tour spain springsteen-on-broadway st-lukes straight-time the-ghost-of-tom-joad tunnel-of-love-express-tour warsaw world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/snlbruce.jpg
+post_id: 56719
+---
 ***New for 2025:** Audio for 1974; review for 1976; new entry for 1980 and 2024; video for 2023*<br>
 
 **1974:** A watershed moment for Bruce, when he plays two shows opening for Bonnie Raitt at the Harvard Square Theater in Cambridge, Massachusetts. Not only is his band introduced as "The E Street Band" for the very first time at the early show, but Jon Landau attends the late show and is moved to write his famous "rock and roll future" review.<br>

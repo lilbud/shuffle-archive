@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Don't Know"
+author: "Ken"
+excerpt: "Bruce recorded a home demo of “I Don’t Know” in 1979. What’s it about? Like the song says…"
+tags: i-dont-know
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/idunno.jpg
+post_id: 5305
+---
 Sometime in the autumn of 1979, at his home in Holmdel, Bruce recorded this little ditty:
 
 [Watch on Youtube: Bruce Springsteen, "I Don't Know" unreleased outtake](https://www.youtube.com/watch?v=KOya_GIgR-I)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Big Payback"
+author: "Ken"
+excerpt: "“The Big Payback” is a Nebraska-era B-side obscurity, as tight, taut, and sinister as anything on the album it didn’t make but a whole lot more fun to sing."
+tags: nebraska open-all-night the-big-payback
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/bruce-springsteen-the-big-payback-cbs.jpg
+post_id: 5534
+---
 Talk about an obscurity: "The Big Payback" is one of the least-known officially released Springsteen songs.
 
 That's probably because it was an afterthought of sorts to *Nebraska*, recorded (along with "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)") in 1981, a few months after the rest of the songs that formed Bruce's first acoustic album.

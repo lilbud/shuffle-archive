@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Bobby Bandiera, "Under the Boardwalk""
+author: "Ken"
+excerpt: "Bruce and Bobby cover “Under the Boardwalk” on the Jersey Shore on the third day of summer. There’s no setting more perfect for that song."
+tags: bobby-bandiera stone-pony the-drifters under-the-boardwalk
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/boardwalk.jpg
+post_id: 1913
+---
 Can anything scream “summer at the Jersey shore” more than Bruce Springsteen singing “Under the Boardwalk?” I don’t think so.
 
 Here’s the first time Bruce played the The Drifters’ 1964 classic, with Bobby Bandiera at The Stone Pony on June 24, 1989.

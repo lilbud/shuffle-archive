@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: My Ride's Here"
+author: "Ken"
+excerpt: "One time only: Bruce paid tribute to Warren Zevon by opening his next show with a cover of his newly departed friend’s morbidly funny song."
+tags: my-rides-here warren-zevon
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/myride.jpg
+post_id: 33466
+---
 If you didn't know better, you'd swear he knew it was coming.
 
 It's been twenty years since Warren Zevon released his eleventh studio album, *My Ride's Here*. Zevon described the album as a meditation on death, attacking a morbid subject with verve and his trademark wit and wordplay, particularly in the title track that closes the album.

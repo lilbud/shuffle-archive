@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 16"
+author: "Ken"
+excerpt: "On this date: Bruce debuts “Long Time Comin'” nine years before its album release, a star-studded show at the Roxy, Bruce and Billy Joel perform for Barack Obama, and more."
+tags: barack-obama barcelona billy-joel born-to-run-tour boston bruce-springsteen-band carole-king castiles change-rocks dancing-in-the-dark denver ghost-of-tom-joad-tour its-been-a-long-time joe-grushecky john-legend lawsuit-tour little-kids-rock live-in-barcelona long-time-comin los-angeles new-york-city rising-tour robert-de-niro spain springsteen-on-broadway steve-van-zandt student-prince until-the-good-is-gone wild-innocent-tour williamsburg
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/71FYJtE7uuL._SL1500_.jpg
+post_id: 61115
+---
 ***New for 2025:** New entry for 1974; audio for 2008*<br>
 
 **1966:** The Castiles play a show at the VFW Hall in Middletown, New Jersey.<br>

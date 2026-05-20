@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: St. Paul, June 28 – July 2, 1984 (Kevin's story)"
+author: "Ken"
+excerpt: "Guest blogger Kevin Doyle was at the “Dancing in the Dark” video shoot as well, and he provides new detail and some stunning photos inside."
+tags: courtney-cox dancing-in-the-dark st-paul
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/Bruce-629.jpg
+post_id: 11266
+---
 Editor's Note
 
 ***Editor's Note:*** *I wasn't planning on having another guest blogger so soon, but a funny thing happened after I published [Sandi Pederson's Where the Band Was report](../2019-06-28_where-the-band-was-st-paul-june-28-1984/post.md) from Bruce's "Dancing in the Dark" video shoot and opening Born in the U.S.A. Tour shows the other day: Another fan who was there for both the shoot and those opening shows read Sandi's article and reached out to me with more detail about the video shoot and some absolutely stunning photos from those shows.*<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "One Step Up"
+author: "Ken"
+excerpt: "“One Step Up” is one of Bruce’s finest moments as singer, songwriter, and actor. It’s a brutally honest, self-aware inner dialogue of a man about to stray, and it gave rise to one of the most emotional performances I’ve ever seen live."
+tags: high-hopes-tour houston one-step-up tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1987/01/B1et5pHIaWS._UF10001000_QL80_.jpg
+post_id: 3758
+---
 Let's get this out of the way first: "One Step Up" is, without a doubt, one of the finest songs Bruce has ever written, and one of the most emotionally honest songs by *anyone* about the internal struggle that leads us astray from a relationship.
 
 Bruce is at the top of his craft: the lyrics are poetic, steeped in metaphor but with no trace of his usual tropes save for the "old Ford." Bruce's catalog is littered with lyrical cross-pollination, but "One Step Up" shares no DNA with any of them. It is a complete, stand-alone creation.

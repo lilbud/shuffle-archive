@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 4"
+author: "Ken"
+excerpt: "First meetings with Clarence, Jackson Browne, and Bonnie Raitt; guest appearances with Sting, Jackson, Southside, and The Wallflowers; and a new album from Patti."
+tags: beaver-brown bonnie-raitt born-in-the-usa-tour bryn-mawr chimes-of-freedom clarence-clemons david-blue france funky-broadway human-rights-now-tour jackson-browne maxs-kansas-city mtv new-york-city one-headlight paris patti-scialfa play-it-as-it-lays pontiac southside-johnny springsteen-on-broadway steve-van-zandt sting stone-pony the-main-point the-river the-shots the-wallflowers were-havin-a-party worcester
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/playit.jpg
+post_id: 59549
+---
 ***New for 2025:** Review for 1984*<br>
 
 **1971:** On a blustery night in Asbury Park, The Bruce Springsteen Band plays their second night of their residency at the Student Prince, while at the nearby Wonder Bar, Norman Seldin and the Joyful Noyze is in session. During an intermission at the Wonder Bar, new Joyful Noyze member Clarence Clemons walks over to the Student Prince to check out the talent. According to legend, the door blows off its hinges when Clarence opens it, leading to a memorable first meeting between Bruce and Clarence. (Joyful Noyze photo credit: Billy Smith)<br>

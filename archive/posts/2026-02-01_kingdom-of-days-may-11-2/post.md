@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 11"
+author: "Ken"
+excerpt: "On this date: Nils Lofgren joins the E Street Band, Bruce enjoys a final night out as a bachelor, Bruce plays “Dream Baby Dream” for the first time, and more."
+tags: albama barcelona castiles chicken-scratch-tour child columbus devils-and-dust-tour dream-baby-dream fairleigh-dickinson good-lovin im-on-fire land-of-hope-and-dreams new-orleans new-york-city newcastle nils-lofgren richie-havens river-tour rosemont springsteen-on-broadway st-paul stockholm sweden this-land-is-your-land uk working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/nils-and-bruce.jpg
+post_id: 56751
+---
 **1968:** The Castiles play a gig at The Hullabaloo in Freehold.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1968-0511.jpg.webp)

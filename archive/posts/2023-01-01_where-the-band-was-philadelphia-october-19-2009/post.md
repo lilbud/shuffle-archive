@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Philadelphia, October 19, 2009"
+author: "Ken"
+excerpt: "Bookended by a wild card opener and closer, punctuated by a full Born to Run album performance and the debut of Philly Elvis, my last show at the Spectrum was a memorable one."
+tags: all-shook-up backstreets hungry-heart i-wanna-marry-you its-hard-to-be-a-saint-in-the-city land-of-hope-and-dreams philadelphia philly-elvis spectrum when-you-walked-in-the-room working-on-a-dream-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/20091019_2_front.jpg
+post_id: 5135
+---
 Of all the Philadelphia shows I've seen, this was the Philly-est of all.
 
 From the "Holy moley" flashback opener "[When You Walked in the Room](https://estreetshuffle.com/?p=21789)" to the Philly special "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)" closer, this was the last concert I saw at the Spectrum before its destruction, and boy was it was a memorable one.

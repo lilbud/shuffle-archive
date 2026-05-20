@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Paul McCartney, Billy Joel, Bruce Springsteen and more: Let It Be"
+author: "Ken"
+excerpt: "One time only: Bruce backs Paul McCartney, Billy Joel, Eric Clapton, and an all-star jam band for a closing cover of “Let it Be” at the 1999 Rock and Roll Hall of Fame induction ceremony."
+tags: bono eric-clapton let-it-be paul-mccartney rock-and-roll-hall-of-fame the-beatles
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/letitbe.jpg
+post_id: 22771
+---
 Bruce Springsteen wasn't the only Rock and Roll Hall of Fame inductee in 1999.
 
 Among the other legends welcomed into the Hall that year were Billy Joel and Sir Paul McCartney. Both icons were present along with Bruce for the induction ceremony on March 15th, and all three were on stage for the traditional closing jam.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: American Beauty"
+author: "Ken"
+excerpt: "Recycled melange or original organ donor? Either way, “American Beauty” ranks among the best songs of Bruce’s Magic period."
+tags: american-beauty down-in-the-hole frankie-fell-in-love gypsy-biker high-hopes magic my-lucky-day
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/Bruce-Springsteen-American-Beauty.jpg
+post_id: 7529
+---
 What are we to make of "American Beauty?"
 
 [Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=4lYz9yibNuA)
@@ -32,26 +42,26 @@ There's something *there*.
 
 But "American Beauty" takes it even a step further. Listen to (or read) the lyrics closely:
 
-> *Everything in your shadow turns to vapor*
-> *You pierce my heart like it was paper*
-> *Radio's crackling with the headlines*
-> *Something on your shoulder, winds in the phone line*
-> *American beauty will you be mine*
-> *Out on this highway counting white lines*
+> *Everything in your shadow turns to vapor*<br>
+> *You pierce my heart like it was paper*<br>
+> *Radio's crackling with the headlines*<br>
+> *Something on your shoulder, winds in the phone line*<br>
+> *American beauty will you be mine*<br>
+> *Out on this highway counting white lines*<br>
 
-> *Hot and bloody summer, drifting blue eyes*
-> *We're in the high grass, I finger your hemline*
-> *Boot heels click clacking, honey, when you shine*
-> *Autumn blue skies, hair sweet as the southern pines*
-> *American beauty forever in time*
-> *Out on this highway counting white lines*
+> *Hot and bloody summer, drifting blue eyes*<br>
+> *We're in the high grass, I finger your hemline*<br>
+> *Boot heels click clacking, honey, when you shine*<br>
+> *Autumn blue skies, hair sweet as the southern pines*<br>
+> *American beauty forever in time*<br>
+> *Out on this highway counting white lines*<br>
 
-> *Your hand cups your breast, pledging your time*
-> *Things we carried, shining skylines*
-> *Falling sparrow, sky torn apart*
-> *Dark shining arrow, your kiss pierces my heart*
-> *American beauty forever mine*
-> *Out on this highway counting white lines*
+> *Your hand cups your breast, pledging your time*<br>
+> *Things we carried, shining skylines*<br>
+> *Falling sparrow, sky torn apart*<br>
+> *Dark shining arrow, your kiss pierces my heart*<br>
+> *American beauty forever mine*<br>
+> *Out on this highway counting white lines*<br>
 
 What is the American Beauty that Bruce is singing of?
 

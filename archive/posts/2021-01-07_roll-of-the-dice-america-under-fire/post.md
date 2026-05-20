@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: America Under Fire"
+author: "Ken"
+excerpt: "The generals can’t see the reason there’s such a high percentage of treason. They’re quite sure it must just be the season."
+tags: american-under-fire steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/america-under-fire.jpg
+post_id: 24435
+---
 What must it be like to return home to your country after years in service abroad, only to find your country-men and -women unrecognizable?
 
 To find them meaner, madder, and so far removed from norms and reason that you feel completely estranged from them?

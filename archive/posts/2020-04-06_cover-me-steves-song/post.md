@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Steve's Song"
+author: "Ken"
+excerpt: "One time only, more than a half-century ago: seventeen-year-old Bruce Springsteen plays Steve Katz’s signature song."
+tags: steves-song the-blues-project the-castiles
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/stevesong.jpg
+post_id: 16556
+---
 In 1967, The Blues Project released their one and only studio album, *Projections*, featuring an eclectic collection of songs that spanned a spectrum of styles–appropriately so, for the impossible-to-classify group.
 
 On that album was a lovely, lilting ballad called "Steve's Song." Written by Steve Katz (who would shortly go on to become a founding member of Blood, Sweat & Tears), "Steve's Song" is notable for its almost two-minute baroque-ish flute introduction before the song properly begins.

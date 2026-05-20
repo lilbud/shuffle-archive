@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Coma Girl"
+author: "Ken"
+excerpt: "One time only: Bruce opened his performance at the 2009 Glastonbury Festival with an acoustic cover of Joe Strummer’s posthumous single “Coma Girl.”"
+tags: coma-girl glastonbury-festival joe-strummer
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/JoeStrummer_ComaGirl-258683b.jpg
+post_id: 7818
+---
 In the summer of 2009, Bruce Springsteen and the E Street Band hit the festival circuit for the first time. One of their first stops was a headlining gig at England's Glastonbury Festival, where Bruce paid tribute to Joe Strummer with an acoustic cover of "Coma Girl," accompanied only by Clarence.
 
 [Watch on Youtube: Bruce Springsteen - "Coma Girl" - 2009-06-27](https://www.youtube.com/watch?v=CidvmRntFu8)

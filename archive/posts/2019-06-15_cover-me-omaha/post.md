@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Omaha"
+author: "Ken"
+excerpt: "Set the wayback machine to September 16, 1967, and we’ll listen to 17-year-old Bruce Springsteen tear up Mobey Grape’s “Omaha” in the earliest known live Springsteen recording."
+tags: moby-grape omaha the-castiles
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/omaha.jpg
+post_id: 10474
+---
 Let's go way, way, *way* back for today's installment. So far back, in fact, that we arrive at the earliest known live Springsteen recording, on September 16, 1967.
 
 On that night, 17-year-old Bruce Springsteen and his high school band The Castiles played a show at the short-lived The Left Foot teen club in Bruce's hometown of Freehold, New Jersey.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Rockaway the Days"
+author: "Ken"
+excerpt: "This under-the-radar Born in the U.S.A. outtake is the darkest in Bruce’s “car crash song” mini-genre."
+tags: losin-kind rockaway-the-days
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/rockaway.jpg
+post_id: 25700
+---
 There's a strange but genuine tradition in rock and pop music: the [car crash song](https://en.wikipedia.org/wiki/List_of_car_crash_songs).
 
 Its emergence and ascendance roughly paralleled the actual automotive fatality rate as it rose throughout the early decades of rock and roll, but it continues to this day despite safer vehicles and roads.

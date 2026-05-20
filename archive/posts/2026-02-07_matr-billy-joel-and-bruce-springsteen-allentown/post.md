@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Allentown"
+author: "Ken"
+excerpt: "One time only: Bruce and Billy Joel team up on Billy’s ode to blue-collar communities. Could there be a song better suited for a Billy and Bruce duet?"
+tags: allentown billy-joel
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/allentown.jpg
+post_id: 25519
+---
 How is it possible they've only performed this together *once*?
 
 If there's any song in either of their catalogs that's better suited for a Billy Joel/Bruce Springsteen duet, I can't think of it.

@@ -1,18 +1,28 @@
+---
+layout: post
+title: "Kingdom of Days: December 14"
+author: "Ken"
+excerpt: "On this date: not one but two TV appearances–one in New York and one in Spain. Plus: Bruce joins Billy Joel on stage for the fist time, the soundtrack release of Springsteen on Broadway, and more."
+tags: billy-joel born-in-the-usa born-in-the-usa-tour boston charlotte darlene-love david-letterman detroit-medley drift-away ghost-of-tom-joad-tour heavy-trucking idina-menzel james-taylor lisa-fischer madrid memphia merry-christmas-baby new-york-city peter-wolf rainforest-fund ronnie-spector rutgers-university spain springsteen-on-broadway steve-van-zandt sting the-promised-land this-hard-land world-tour-1992 youngstown
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/sobroadway.jpg
+post_id: 55341
+---
 ***New for 2024:** Video for 1995*<br>
 
 **1973:** Bruce and his band-with-no-name headline an intimate show (less than 200 were in attendance) at the Pinecrest Country Club in Shelton, Connecticut.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1973-12-14.jpg.webp)
 
-**1974:** Bruce attends his second Billy Joel concert in three weeks, this time at Rutgers University, where Billy dedicates “The Entertainer” to Bruce. During the encores, Bruce joins Billy on stage for “Twist and Shout.” After the show, Bruce walks over to the Rutgers Student Center, where he jams with the band Heavy Trucking into the wee hours of the morning.<br>
+**1974:** Bruce attends his second Billy Joel concert in three weeks, this time at Rutgers University, where Billy dedicates "The Entertainer" to Bruce. During the encores, Bruce joins Billy on stage for "Twist and Shout." After the show, Bruce walks over to the Rutgers Student Center, where he jams with the band Heavy Trucking into the wee hours of the morning.<br>
 
-**1984:** Bruce and the band play their second of two Born in the U.S.A. shows at the Mid-South Coliseum in Memphis, where Little Steven makes a surprise appearance, joining the band for the last six songs, including a beautiful version of “[Drift Away](../1976-01-16_cover-me-drift-away/post.md/).”<br>
+**1984:** Bruce and the band play their second of two Born in the U.S.A. shows at the Mid-South Coliseum in Memphis, where Little Steven makes a surprise appearance, joining the band for the last six songs, including a beautiful version of "[Drift Away](../1976-01-16_cover-me-drift-away/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Drift Away" - Memphis, 1984-12-14](https://www.youtube.com/watch?v=BXBwzXjApLk)
 
-[Watch on Youtube: Bruce Springsteen - Live in Memphis - December 14th, 1984](https://www.youtube.com/watch?v=JgkdNhsBPbA)
+[Watch on Youtube: Bruce Springsteen - Live in Memphis - December 14th, 1984](https://www.youtube.com/watch?v=JgkdNhsBPbA?start=2)
 
-**1992:** Peter Wolf makes a guest appearance during Bruce’s second World Tour 1992 show at Boston Garden, joining the band for a show-closing tour premiere of “[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)“–the last time Bruce will play this song on tour for 20 years. Watch it below.<br>
+**1992:** Peter Wolf makes a guest appearance during Bruce's second World Tour 1992 show at Boston Garden, joining the band for a show-closing tour premiere of "[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)"–the last time Bruce will play this song on tour for 20 years. Watch it below.<br>
 
 [Watch on Youtube: Bruce Springsteen Boston MA 12-14-1992](https://www.youtube.com/watch?v=1jEiPrnmFxk)
 
@@ -22,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-14c.png.webp)
 
-**1995:** Bruce performs “[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)” on *Late Show with David Letterman* in New York City.<br>
+**1995:** Bruce performs "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" on *Late Show with David Letterman* in New York City.<br>
 
 [Watch on Youtube: Youngstown - Bruce Springsteen (live on the Late Show with David Letterman 1995)](https://www.youtube.com/watch?v=InaLZEgy9r4)
 
@@ -36,13 +46,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1996-12-14c.png.webp)
 
-**1998:** Bruce is interviewed and performs “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “This Hard Land” on Spanish television show *Musica Si* in Madrid.<br>
+**1998:** Bruce is interviewed and performs "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "This Hard Land" on Spanish television show *Musica Si* in Madrid.<br>
 
 [Watch on Youtube: Bruce Springsteen - Born In The USA (acoustic)](https://www.youtube.com/watch?v=d8TwMqpBeL4)
 
 [Watch on Youtube: Bruce Springsteen - This Hard Land (acoustic)](https://www.youtube.com/watch?v=G7Jz7UWZKNw)
 
-**2016:** Bruce makes an appearance at Carnegie Hall for Sting and Trudie Styler’s Rainforest Fund Concert. Bruce plays three songs, including a “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” duet with Lisa Fischer, and joins the evening’s artists (including Darlene Love, Ronnie Spector, Idina Menzel, James Taylor, and more) for a Christmas carol encore. For more highlights from this show, see [my *Where the Band Was* report.](../2018-12-14_where-the-band-was-new-york-city-december-14-2016/post.md)<br>
+**2016:** Bruce makes an appearance at Carnegie Hall for Sting and Trudie Styler's Rainforest Fund Concert. Bruce plays three songs, including a "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" duet with Lisa Fischer, and joins the evening's artists (including Darlene Love, Ronnie Spector, Idina Menzel, James Taylor, and more) for a Christmas carol encore. For more highlights from this show, see [my *Where the Band Was* report.](../2018-12-14_where-the-band-was-new-york-city-december-14-2016/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen, "Santa Claus Is Coming To Town", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=vKDxpiv7AiA)
 
@@ -52,9 +62,9 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2018:** Bruce releases the soundtrack album for *Springsteen on Broadway*. Plus: It’s the penultimate show for the theatrical run of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. In attendance tonight: actress Mariska Hargitay and singer-songwriter Joe Sumner.<br>
+**2018:** Bruce releases the soundtrack album for *Springsteen on Broadway*. Plus: It's the penultimate show for the theatrical run of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. In attendance tonight: actress Mariska Hargitay and singer-songwriter Joe Sumner.<br>
 
-[Watch on Youtube: Growin' Up (Introduction) (Live at the Walter Kerr Theatre, New York, NY - July 2018)](https://www.youtube.com/watch?v=JyTytz0G38I)
+[Watch on Youtube: Growin' Up (Introduction) (Live at the Walter Kerr Theatre, New York, NY - July 2018)](https://www.youtube.com/watch?v=JyTytz0G38I?list=OLAK5uy_nzSdXDtjjfquP68oBjbVMPkmHb1AeCjHQ)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/2018-12-14.jpg.webp)
 

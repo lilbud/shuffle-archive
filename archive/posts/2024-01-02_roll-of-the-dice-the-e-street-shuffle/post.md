@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The E Street Shuffle"
+author: "Ken"
+excerpt: "An unlikely origin song and musical melange in every incarnation, “The E Street Shuffle” introduced and knighted Bruce’s destined-for-legend band."
+tags: the-e-street-shuffle the-wild-the-innocent-and-the-e-street-shuffle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/estreetshuffle.jpg
+post_id: 18561
+---
 > "It's just a place. Our piano player lives there, lives on that street. It's just a place.'" *–Bruce Springsteen, 1975*<br>
 
 On the face of it, "The E Street Shuffle" is an odd origin story for the name that Bruce would eventually bestow on his band, almost a full year after they first performed the song.

@@ -1,12 +1,22 @@
+---
+layout: post
+title: "Kingdom of Days: December 12"
+author: "Ken"
+excerpt: "On this date: Bruce records one of the most beloved, evergreen holiday pop songs ever. Plus: the first “It’s My Life,” a Hurricane Sandy telethon performance and more."
+tags: antwerp belgium bobby-bandiera born-to-run-tour bruce-springsteen-band ghost-of-tom-joad-tour greenvale hartford highway-29 holiday-shows hurricane-sandy jackson-cage jon-bon-jovi magic-tour nashville new-york-city patti-scialfa river-tour santa-claus-is-comin-to-town soozie-tyrell southside-johnny springsteen-on-broadway steel-mill student-prince the-river who-says-you-cant-go-home
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/greenvale.jpg
+post_id: 55289
+---
 ***New for 2024:** New entry for 1970, 2008, and 2023; audio and for 1975*<br>
 
-**1969:** Steel Mill (or as the poster puts it, “Child under an assumed name”) headlines at Monmouth College in West Long Branch, New Jersey.<br>
+**1969:** Steel Mill (or as the poster puts it, "Child under an assumed name") headlines at Monmouth College in West Long Branch, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1969-1212.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1969-12-12.png.webp)
 
-**1970:** Steel Mill replaces scheduled headliner Flock at Asbury Park’s Sunshine In when flight delays force to cancel at the last minute, leaving the local press to scratch their heads at why Bruce and company are settling for fill-in status.<br>
+**1970:** Steel Mill replaces scheduled headliner Flock at Asbury Park's Sunshine In when flight delays force to cancel at the last minute, leaving the local press to scratch their heads at why Bruce and company are settling for fill-in status.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/Asbury_Park_Press_1970_12_14_Page_22.jpg.webp)
 
@@ -14,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-12-10.png.webp)
 
-**1975:** Bruce and the E Street Band take the Born to Run Tour to C.W. Post College in Greenvale, New York, where Bruce debuts his cover of “[It’s My Life](../2021-11-23_cover-me-its-my-life/post.md),” apparently (according to Max) played as an audible with no prior rehearsal. The band’s encore performance of “[Santa Claus is Comin’ to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)” is recorded and officially released–it’s the version you’ll hear on the radio at least once this month. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28028/Bruce-Springsteen-mp3-flac-download-12-12-1975-Post-Dome-CW-Post-College-Greenvale-NY.html).<br>
+**1975:** Bruce and the E Street Band take the Born to Run Tour to C.W. Post College in Greenvale, New York, where Bruce debuts his cover of "[It's My Life](../2021-11-23_cover-me-its-my-life/post.md)," apparently (according to Max) played as an audible with no prior rehearsal. The band's encore performance of "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" is recorded and officially released–it's the version you'll hear on the radio at least once this month. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28028/Bruce-Springsteen-mp3-flac-download-12-12-1975-Post-Dome-CW-Post-College-Greenvale-NY.html).<br>
 
 [Watch on Youtube: Santa Claus Is Comin' to Town (Live at C.W. Post College, Greenvale, NY - December 1975)](https://www.youtube.com/watch?v=fLI-vMZ4HEw)
 
@@ -36,13 +46,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1995-12-12.png.webp)
 
-**1996:** Patti and Soozie make several guest appearances throughout Bruce’s solo acoustic show at Ryman Auditorium in Nashville. In attendance tonight: Emmylou Harris, Mary Chapin Carpenter, and Amy Grant.<br>
+**1996:** Patti and Soozie make several guest appearances throughout Bruce's solo acoustic show at Ryman Auditorium in Nashville. In attendance tonight: Emmylou Harris, Mary Chapin Carpenter, and Amy Grant.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uosEtWY7)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1996-12-12.png.webp)
 
-**2006:** Bruce closes the show at Bobby Bandiera’s All-Star Holiday Concert at the Count Basie Theater in Red Bank, joining Bobby’s band, Southside Johnny and the Asbury Jukes, Jon Bon Jovi, The Grinch, and some muppets for some holiday fun.<br>
+**2006:** Bruce closes the show at Bobby Bandiera's All-Star Holiday Concert at the Count Basie Theater in Red Bank, joining Bobby's band, Southside Johnny and the Asbury Jukes, Jon Bon Jovi, The Grinch, and some muppets for some holiday fun.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4ERUSA81)
 
@@ -52,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2006-12-12.png.webp)
 
-**2007:** Bruce tour premieres “Because the Night” at his Magic Tour stop in Antwerp.<br>
+**2007:** Bruce tour premieres "Because the Night" at his Magic Tour stop in Antwerp.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live @ Sportpaleis Antwerpen @ 12 december 2007](https://www.youtube.com/watch?v=0O-p-K2tO9k)
 
@@ -60,7 +70,7 @@
 
 **2008:** Bruce takes his daughter Jessica and friends to the Z100 Jingle Ball at Madison Square Garden and meets Lady Gaga for the first time backstage.<br>
 
-**2012:** Bruce and the E Street Band join a line-up of stellar talent at Madison Square Garden for a benefit show to help the Robin Hood Relief Fund for Hurricane Sandy victims in the tri-state area. The show is televised and streamed, starting with Bruce’s opening four-song set (including “Born to Run” with a Jon Bon Jovi guest appearance) and Bruce’s guest-star turn with Bon Jovi (on “[Who Says You Can’t Go Home](../2019-06-22_matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/post.md)“) during his set.<br>
+**2012:** Bruce and the E Street Band join a line-up of stellar talent at Madison Square Garden for a benefit show to help the Robin Hood Relief Fund for Hurricane Sandy victims in the tri-state area. The show is televised and streamed, starting with Bruce's opening four-song set (including "Born to Run" with a Jon Bon Jovi guest appearance) and Bruce's guest-star turn with Bon Jovi (on "[Who Says You Can't Go Home](../2019-06-22_matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/post.md)") during his set.<br>
 
 [Watch on Youtube: Bon Jovi / Bruce Springsteen - Who Says You Can't Go Home 2012 Live](https://www.youtube.com/watch?v=NQWFklgKA_E)
 
@@ -82,10 +92,10 @@
 
 **2018:** *Springsteen on Broadway* enters the final week of its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Bruce Willis and Billy Joel.<br>
 
-**2020:** Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform “[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)” and “[I’ll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)” on *Saturday Night Live*.<br>
+**2020:** Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)" and "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" on *Saturday Night Live*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2OZScE6v)
 
 [Watch Video Highlight](https://videopress.com/embed/Ia5NayNl)
 
-**2023:** Bruce’s scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.<br>
+**2023:** Bruce's scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.<br>

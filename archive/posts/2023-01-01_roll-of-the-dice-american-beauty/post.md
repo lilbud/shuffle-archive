@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: American Beauty"
+author: "Ken"
+excerpt: "Recycled melange or original organ donor? Either way, “American Beauty” ranks among the best songs of Bruce’s Magic period."
+tags: american-beauty down-in-the-hole frankie-fell-in-love gypsy-biker high-hopes magic my-lucky-day
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/Bruce-Springsteen-American-Beauty.jpg
+post_id: 7529
+---
 What are we to make of "American Beauty?"
 
 [Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=4lYz9yibNuA)

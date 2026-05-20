@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: August 10"
+author: "Ken"
+excerpt: "On this date: The Castiles play their final show, Bruce’s 1972 performance at Max’s Kansas City is captured on video, and Bruce’s eleven-night World Tour 1992 Meadowlands stand wraps up in style. More highlights inside."
+tags: born-to-run-tour carole-king castiles chimes-of-freedom cleveland darkness-tour devils-and-dust-tour east-ruterford growin-up henry-boy maxs-kansas-city montana new-york-city portland rising-tour rochester solar-circus southside-johnny springsteen-on-broadway the-fanatics the-promised-land toby-scott washington-dc world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/19720810_front.jpg
+post_id: 58367
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1968:** The Castiles play their final gig ever, one last show at Le Teendezvous in New Shrewsbury, New Jersey. Bruce has already assembled a new band, which will come to be known as Earth.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1968-0810.jpg.webp)
 
-**1972:** Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max’s Kansas City in New York. At one of these shows, Bruce opens with “[Henry Boy](../2022-04-08_roll-of-the-dice-henry-boy/post.md)” and closes with “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” and both are captured on video by Barry Rebo.<br>
+**1972:** Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max's Kansas City in New York. At one of these shows, Bruce opens with "[Henry Boy](../2022-04-08_roll-of-the-dice-henry-boy/post.md)" and closes with "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and both are captured on video by Barry Rebo.<br>
 
 [Watch on Youtube: Bruce Springsteen Henry Boy 1972](https://www.youtube.com/watch?v=BpKsq8Y7_EY)
 
@@ -12,7 +22,7 @@
 
 **1974:** Bruce cancels a scheduled gig in Port Chester, New York to make room for ongoing *Born to Run* recording sessions.<br>
 
-**1975:** There’s a *before* and an *after* with Bruce’s career, and both pivot around Bruce’s legendary residency at New York’s Bottom Line. This is the last *before* show at the Allen Theater in Cleveland. Bruce closes the show with a solo piano tour premiere of “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)” — a quiet end to this phase of Bruce’s career.<br>
+**1975:** There's a *before* and an *after* with Bruce's career, and both pivot around Bruce's legendary residency at New York's Bottom Line. This is the last *before* show at the Allen Theater in Cleveland. Bruce closes the show with a solo piano tour premiere of "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" — a quiet end to this phase of Bruce's career.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8b5JAfx4)
 
@@ -20,11 +30,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/The_Plain_Dealer_1975_08_11_29.jpg.webp)
 
-**1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record an alternate arrangement of “[Racing in the Street.](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” Almost four decades later, Bruce will complete and release it on *The Promise.*<br>
+**1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record an alternate arrangement of "[Racing in the Street.](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" Almost four decades later, Bruce will complete and release it on *The Promise.*<br>
 
-[Watch on Youtube: Bruce Springsteen Racing in the Street Alternate Version with Harp](https://www.youtube.com/watch?v=ikEcHsEHuU4)
+[Watch on Youtube: Bruce Springsteen Racing in the Street Alternate Version with Harp](https://www.youtube.com/watch?v=ikEcHsEHuU4?list=PLp97J3OSn7Isbkt20--RCkDWLCYDDJ3wX)
 
-**1978:** Bruce and the E Street Band take the Darkness Tour to the Community War Memorial in Rochester. Listen to the boys open the second set with “[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)” below.<br>
+**1978:** Bruce and the E Street Band take the Darkness Tour to the Community War Memorial in Rochester. Listen to the boys open the second set with "[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)" below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/PLGJLODI)
 
@@ -32,7 +42,7 @@
 
 **1982:** Bruce (along with most of the E Street Band and Asbury Jukes) attends and performs at the wedding of Southside Johnny Lyon and Jill Glasner.<br>
 
-**1992:** Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)” (with only Roy as accompaniment) and the only tour performance of “Rosalita (Come Out Tonight).” Steve Van Zandt joins the band for “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)” and “[Darlington County.](../2020-09-10_roll-of-the-dice-darlington-county/post.md)”<br>
+**1992:** Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" (with only Roy as accompaniment) and the only tour performance of "Rosalita (Come Out Tonight)." Steve Van Zandt joins the band for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" and "[Darlington County.](../2020-09-10_roll-of-the-dice-darlington-county/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cFhy9Txg)
 
@@ -40,7 +50,7 @@
 
 [Watch on Youtube: Badlands Bruce Springsteen 8/10/1992 NJ](https://www.youtube.com/watch?v=2rbXzurBHHA)
 
-Entertainment Tonight airs a segment covering the end of the marathon run of shows. Here it is, with footage from tonight’s show:
+Entertainment Tonight airs a segment covering the end of the marathon run of shows. Here it is, with footage from tonight's show:
 
 [Watch on Youtube: Bruce Springsteen - Entertainment Tonight, 1992-08-10](https://www.youtube.com/watch?v=5NN9Pfopm8w)
 
@@ -56,17 +66,17 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1995-08-10b.png.webp)
 
-**1996:** After practicing with the band the night prior, Bruce joins local band The Fanatics for six songs at Toby Scott’s wedding in Whitefish, Montana, including “[Hold On, I’m Comin’](../2019-04-24_matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/post.md),” and “[Long Tall Sally.](../2019-04-19_cover-me-long-tall-sally/post.md)”<br>
+**1996:** After practicing with the band the night prior, Bruce joins local band The Fanatics for six songs at Toby Scott's wedding in Whitefish, Montana, including "[Hold On, I'm Comin'](../2019-04-24_matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/post.md)," and "[Long Tall Sally.](../2019-04-19_cover-me-long-tall-sally/post.md)"<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1996-08-10.jpg.webp)
 
-**2002:** Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” and replaces it with the tour premiere of “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md).”<br>
+**2002:** Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" and replaces it with the tour premiere of "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Atz3RHXN)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2002-08-10.png.webp)
 
-**2005:** Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acoustic tour into its home stretch in the Pacific Northwest, starting with this gorgeous set in Portland. Bruce opens with the tour premiere of “[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)” (played here for the first and only time since the 1992-93 tour to date) and plays beautiful renditions of “[Valentine’s Day,](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)” “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/),” and “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” as well. For more highlights from this show, see my [Where the Band Was report](../2018-08-10_where-the-band-was-portland-august-10-2005/post.md).<br>
+**2005:** Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acoustic tour into its home stretch in the Pacific Northwest, starting with this gorgeous set in Portland. Bruce opens with the tour premiere of "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)" (played here for the first and only time since the 1992-93 tour to date) and plays beautiful renditions of "[Valentine's Day,](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)" "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)," and "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" as well. For more highlights from this show, see my [Where the Band Was report](../2018-08-10_where-the-band-was-portland-august-10-2005/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - SOUL DRIVER 2005 (audio)](https://www.youtube.com/watch?v=-hWWOHqCtLU)
 

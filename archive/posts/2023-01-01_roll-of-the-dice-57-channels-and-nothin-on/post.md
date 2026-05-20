@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: 57 Channels (And Nothin' On)"
+author: "Ken"
+excerpt: "It started as a lark but ended up biting social commentary. Let’s trace the curious evolution of “57 Channels.”"
+tags: 57-channels-and-nothin-on human-touch
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/57channels.jpg
+post_id: 18167
+---
 In 2002, Bruce Springsteen released *The Rising*, an album of songs that sounded like they were written for that post-9/11 moment, even though most of them weren't. "[Nothing Man](../2020-08-29_roll-of-the-dice-nothing-man/post.md)" was recorded in 1994; "My City of Ruins" debuted in 2000; even "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)" probably originated pre-9/11.
 
 By that point in his career, Bruce was so skillful at recontextualizing and rearranging old songs to serve new purposes that most listeners never suspected their origins.

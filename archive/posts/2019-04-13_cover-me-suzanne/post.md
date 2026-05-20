@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Suzanne"
+author: "Ken"
+excerpt: "Bruce’s one-time-only cover of Leonard Cohen’s “Suzanne,” with the Castiles in 1967."
+tags: leonard-cohen suzanne the-castiles
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/suzanne.jpg
+post_id: 1231
+---
 Bruce covered Leonard Cohen’s “Suzanne” just once, with the Castiles, the same year that Cohen released his debut single.
 
 This performance is from the Castiles’ show at The Left Foot in Freehold on September 16, 1967:

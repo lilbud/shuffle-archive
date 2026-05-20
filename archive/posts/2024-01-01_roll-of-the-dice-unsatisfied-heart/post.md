@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Unsatisfied Heart"
+author: "Ken"
+excerpt: "The curious tale of “Unsatisifed Heart,” never released but with DNA that would influence several later songs."
+tags: fugitive-dreams the-war-on-drugs unsatisfied-heart
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/unsat.jpg
+post_id: 4347
+---
 Hailing back to early 1983, in the midst of what would become known retroactively as the *Born in the U.S.A. Sessions*, "Unsatisfied Heart" exists in the wild only as a demo recorded by Bruce in his home studio.
 
 The lineage of "Unsatisfied Heart" is a bit of a mystery, however. We know that at pretty much any point in time, Bruce has any number of songs in various stages of completion, so it shouldn't be too surprising to discover that Bruce was working on two concurrent songs that shared virtually the same lyrics: one was "[Fugitive's Dream](../2019-10-19_roll-of-the-dice-fugitives-dream/post.md)" (which I'll discuss at length in a future article; the other was "Unsatisfied Heart."

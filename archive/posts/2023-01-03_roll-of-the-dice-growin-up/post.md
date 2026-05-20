@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Roll of the Dice: Growin' Up"
+author: "Ken"
+excerpt: "An ode to never growing up that never gets old."
+tags: eloise greetings-from-asbury-park growin-up
+categories: roll-of-the-dice
+post_id: 38034
+---
 The irony was there at the outset.
 
 Long before "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," Bruce Springsteen was pairing lyrics that said one thing with music that said the opposite, with a wink that conveyed confidence one wouldn't expect from a struggling 22-year-old singer-songwriter.

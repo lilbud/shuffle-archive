@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Wrecking Ball"
+author: "Ken"
+excerpt: "A farewell to an aging stadium became a life-affirming title track."
+tags: wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/wball.jpg
+post_id: 36967
+---
 The wrecking ball first took a swing at my dad about fifteen years ago, maybe twenty. Time blurs.
 
 He'd gone in for a routine angioplasty one winter morning and was prescribed the customary post-op blood thinners to aid his circulation. The doctors told him to take it easy, but my dad never met a doctor whose orders he'd follow. He went outside to fetch the paper on a brittle morning, lost his balance on the ice, fell to the ground and didn't get up.

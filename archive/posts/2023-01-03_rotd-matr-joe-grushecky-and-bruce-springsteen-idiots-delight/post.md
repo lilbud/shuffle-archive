@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/MatR: Joe Grushecky and Bruce Springsteen: Idiot's Delight"
+author: "Ken"
+excerpt: "Bruce and Joe Grushecky wrote this under-the-radar song together in the summer of ’95; it keeps popping up in new forms ever since."
+tags: coming-home idiots-delight joe-grushecky
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/idiot.jpg
+post_id: 25187
+---
 In the summer of 1995, Bruce joined Joe Grushecky on stage at Tradewinds on the Jersey Shore, where they debuted much of Joe's upcoming Bruce-produced *American Babylon* album.
 
 *American Babylon* featured two songs co-written by Joe and Bruce–Joe sent Bruce his lyrics for "[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)" and "Dark and Bloody Ground," and Bruce set them to music. (See my [in-depth interview with Joe](../2020-10-17_american-babylon-a-retrospective/post.md) for more background on their *American Babylon* collaboration.)

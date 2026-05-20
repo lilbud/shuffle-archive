@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Angel Eyes"
+author: "Ken"
+excerpt: "Listen closely to Little Steven’s love song “Angel Eyes,” and you’ll hear the unmistakable (but uncredited) backing vocals of Bruce Springsteen."
+tags: angel-eyes little-steven-and-the-disciples-of-soul men-without-women steve-van-zandt
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/little-steven-and-the-disciples-of-soul-angel-eyes-emi-america.jpg
+post_id: 11078
+---
 They've never performed it live together, and he's not credited on the album.
 
 Nevertheless, those are unmistakably Bruce Springsteen's backing vocals on "Angel Eyes," Little Steven's standout track from his 1982 debut album, *Men Without Women*.

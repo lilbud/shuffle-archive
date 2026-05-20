@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 6"
+author: "Ken"
+excerpt: "A rare performance of “Lion’s Den” and a surprise cover of Van Halen’s “Jump” lead today’s highlights."
+tags: cleveland dallas high-hopes-tour jump kid-leo lions-den new-york-city springsteen-on-broadway steve-van-zandt trouble-river underground-garage wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/20140406_6_front.jpg
+post_id: 56370
+---
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg.webp)

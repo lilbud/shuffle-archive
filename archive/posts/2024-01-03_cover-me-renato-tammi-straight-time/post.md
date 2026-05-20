@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Renato Tammi: Straight Time"
+author: "Ken"
+excerpt: "Italian musician and Springsteen fan Renato Tammi turns in a haunting cover of this deep cut from The Ghost of Tom Joad."
+tags: dancing-in-the-dark renato-tammi straight-time
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/renato.jpg
+post_id: 26450
+---
 Full transparency: this is another plug for this year’s [*Cover Me* contest.](https://www.noiespringsteen.com/contest/)
 
 You know, the one I get to be on the [Critics Award Jury](../2021-04-01_cover-me-lorde-and-marlon-williams-tougher-than-the-rest/post.md) for. (Hey, I’ve never been asked to do anything like this before–I’m pretty excited about it!)

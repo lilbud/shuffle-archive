@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jane Willow: Dancing in the Dark"
+author: "Ken"
+excerpt: "Jane Willow captured the sense of isolation and frustration we all felt early in the pandemic with her cover of “Dancing in the Dark.” Now she’s updated it for what it feels like a year later."
+tags: dancing-in-the-dark jane-willow
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/willow.png
+post_id: 27322
+---
 I told myself I'd lay low with the "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" covers for a bit, but I love this new one too much to keep it on the shelf.
 
 Jane Willow is a Dutch-turned-Irish folk artist with wonderful original music featured on [her web site](https://www.janewillow.com/media).

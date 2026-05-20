@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Long Way Home"
+author: "Ken"
+excerpt: "This brief instrumental from Bruce’s Nebraska period never saw the light of day, but you can listen to it inside."
+tags: long-way-home
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/longwayhome.jpg
+post_id: 35372
+---
 I know, I know: I skipped a couple of *Roll of the Dice/Cover Me/Meeting Across the River* days this month. What can I say? It's summer, and outside is calling.
 
 Apologies and fair warning that it may happen again before the summer is out, but for now here's a bonus post to help me get back on my normal alternate-day publishing schedule.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 6"
+author: "Ken"
+excerpt: "Bruce wraps up one Wembley stand, kicks off another, records performances for Live 1975-85, and more. Plus: Listen to a 1984 soundcheck that includes a never-played “The Good, The Bad, and The Ugly.”"
+tags: born-in-the-usa-tour bryn-mawr cadillac-ranch castiles cincinnati east-rutherford gary-busey independence-day live-1975-85 london main-point racing-in-the-street river-tour springsteen-on-broadway steve-van-zandt the-good-the-bad-and-the-ugly uk wembley with-every-wish world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/402079678_881981446617483_64730822691675907_n.jpg
+post_id: 57607
+---
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1968-0706.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Clarence Clemons, and Danny Clinch: Rockin' Pneumonia And The Boogie Woogie Flu"
+author: "Ken"
+excerpt: "Three times only: Bruce teamed up with The Red Bank Rockers and The Tangiers Blues Band on Huey Smith’s barroom classic."
+tags: clarence-clemons-and-the-red-bank-rockers danny-clinch huey-piano-smith rockin-pneumonia-and-the-boogie-woogie-flu tangiers-blues-band
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/huey.jpg
+post_id: 32366
+---
 Too soon?
 
 Probably, but that didn't keep it from becoming a hit.

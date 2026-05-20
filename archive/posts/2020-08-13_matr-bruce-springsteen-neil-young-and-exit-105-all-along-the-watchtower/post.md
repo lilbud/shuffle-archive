@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Neil Young, and Exit 105: All Along the Watchtower"
+author: "Ken"
+excerpt: "First with Neil Young, then with Exit 105, Bruce turns in covers of Bob Dylan’s classic that are epic in both length and intensity."
+tags: all-along-the-watchtower bob-dylan exit-105 jimi-hendrix neil-young solar-circus
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/bob-dylan-all-along-the-watchtower-cbs-3.jpg
+post_id: 19804
+---
 Some songs need no introduction.
 
 "All Along the Watchtower" is firmly embedded in the popular consciousness in two stellar versions–Bob Dylan's 1967 original...

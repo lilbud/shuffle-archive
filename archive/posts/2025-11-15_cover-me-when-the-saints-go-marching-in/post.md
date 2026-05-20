@@ -1,3 +1,13 @@
+---
+layout: post
+title: "When the Saints Go Marching In"
+author: "Ken"
+excerpt: "When the city of New Orleans needed it most, Bruce found a heart of redemption in the city’s unofficial song."
+tags: when-the-saints-go-marching-in
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/when-the-saints-go-marching-in-song-lyrics.jpg
+post_id: 25932
+---
 No one quite knows where "When The Saints Go Marching In" came from. Like many folk songs, it's origins and earliest days are murky and multi-threaded. But the earliest known recording dates back to 1923 by the Paramount Jubillee Singers.
 
 [Watch on Youtube: When All The Saints Come Marching In (Take 1)](https://www.youtube.com/watch?v=hpuFgqlDP4c)

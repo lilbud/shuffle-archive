@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Loose Ends"
+author: "Ken"
+excerpt: "This lush but dark River-era outtake is one of Bruce’s best songs that never made an official studio album."
+tags: loose-ends the-river-single-album tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/loose-ends-cropped.jpg
+post_id: 35521
+---
 How could something so bad come from something so good?
 
 That's the question at the heart of "Loose End,"* one of the best Springsteen tracks to ever get left off an album.

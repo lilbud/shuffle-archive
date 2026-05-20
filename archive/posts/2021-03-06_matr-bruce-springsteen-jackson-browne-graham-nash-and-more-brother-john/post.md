@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Jackson Browne, Graham Nash, and more: Brother John"
+author: "Ken"
+excerpt: "One time only: Bruce joins an all-star Survival Sunday line-up to cover The Neville Brothers’ “Brother John.”"
+tags: brother-john brother-john-is-gone gary-u-s-bonds graham-nash jackson-browne survival-sunday the-neville-brothers the-wild-tchoupitoulas
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/brotherjohn.jpg
+post_id: 25698
+---
 On March 4, 1972, John "Scarface" Williams was stabbed in the heart with a seven-inch butcher knife during a New Orleans bar fight. He died on the spot.
 
 Born to a sixteen-year-old mother in 1938 and adopted by a gospel singer, Williams sang all his life and was a revered fixture of the New Orleans music scene. As a member of Huey Smith and the Clowns, Williams sang lead vocals on "Rockin' Pneumonia and the Boogie Woogie Flu," which peaked at #52 in 1957.

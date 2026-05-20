@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Walking in the Rain"
+author: "Ken"
+excerpt: "Ronnie Spector (August 10, 1943 – January 12, 2022) – one of the greatest voices to ever grace the E Street stage."
+tags: ronnie-spector walking-in-the-rain
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/walkingrain-1.jpg
+post_id: 32316
+---
 > "I went in the booth, closed my eyes and boom! I said, "Shall I do it again?' And they said, ‘No, that was it.' Back in the '60s, you hadn't the technology, so you had to do each song, or vocal, over and over. But this was one take. So it means more to me than just the lyrics. It was the fact I had my eyes closed, I stepped up to the mic and it just melted out of me."
 >
 > — Ronnie Spector, *Uncut* (April 2016)

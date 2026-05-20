@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 14"
+author: "Ken"
+excerpt: "On this date: not one but two TV appearances–one in New York and one in Spain. Plus: Bruce joins Billy Joel on stage for the fist time, the soundtrack release of Springsteen on Broadway, and more."
+tags: billy-joel born-in-the-usa born-in-the-usa-tour boston charlotte darlene-love david-letterman detroit-medley drift-away ghost-of-tom-joad-tour heavy-trucking idina-menzel james-taylor lisa-fischer madrid memphia merry-christmas-baby new-york-city peter-wolf rainforest-fund ronnie-spector rutgers-university spain springsteen-on-broadway steve-van-zandt sting the-promised-land this-hard-land world-tour-1992 youngstown
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/sobroadway.jpg
+post_id: 55341
+---
 ***New for 2024:** Video for 1995*<br>
 
 **1973:** Bruce and his band-with-no-name headline an intimate show (less than 200 were in attendance) at the Pinecrest Country Club in Shelton, Connecticut.<br>

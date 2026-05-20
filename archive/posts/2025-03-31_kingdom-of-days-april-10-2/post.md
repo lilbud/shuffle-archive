@@ -1,14 +1,24 @@
+---
+layout: post
+title: "Kingdom of Days: April 10"
+author: "Ken"
+excerpt: "On this date: Bruce Springsteen meets Jon Landau and Ennio Morricone, plays his first show in Japan, inducts his band into the Rock and Roll Hall of Fame, and more."
+tags: beaver-brown before-the-fame big-mans-west born-in-the-usa-tour boston chicken-scratch-tour child denver ennio-morricone gotj-tour greensboro hall-of-fame italy japan johnny-99 jon-landau kittys-back new-york-city river-tour-2016 rome springsteen-on-broadway stone-pony tokyo working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/esbhof.jpg
+post_id: 56431
+---
 ***New for 2025:** New entry for 1979 and 1980*<br>
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/19690402_Advert_02.jpg.webp)
 
-**1971:** The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the “Bruce Springsteen Acoustyc Jam.”<br>
+**1971:** The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the "Bruce Springsteen Acoustyc Jam."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1971-0410.jpg.webp)
 
-**1974:** Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of *The Wild, The Innocent & The E Street Shuffle* during the break between two shows at Charlie’s Place in Cambridge, Massachusetts.<br>
+**1974:** Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of *The Wild, The Innocent & The E Street Shuffle* during the break between two shows at Charlie's Place in Cambridge, Massachusetts.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1974-0412.jpg.webp)
 
@@ -18,11 +28,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0410.jpg.webp)
 
-**1979:** Bruce and the E Street Band work on “[The Ties that Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)” at the Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on "[The Ties that Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" at the Power Station in New York City.<br>
 
 **1980:** Bruce works on mixing and overdubs for several *The River* tracks at Clover Studios in Los Angeles.<br>
 
-**1982:** Bruce sits in with Beaver Brown for four songs at Big Man’s West in Red Bank.<br>
+**1982:** Bruce sits in with Beaver Brown for four songs at Big Man's West in Red Bank.<br>
 
 [Watch on Youtube: Bruce Springsteen and Beaver Brown - Red Bank - 1982-04-10](https://www.youtube.com/watch?v=xEk_SHW1r30)
 
@@ -38,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live Santa Cecilia 1996](https://www.youtube.com/watch?v=j2Wx5WNOidc)
 
-**2001:** Bruce’s 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist’s permission.<br>
+**2001:** Bruce's 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist's permission.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/bootleg_btf.jpg.webp)
 
@@ -48,7 +58,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9hgdYBzC)
 
-**2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including “[Racing in the Street,](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” “[Tougher Than the Rest,](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” “[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md),” and “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md).”<br>
+**2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including "[Racing in the Street,](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" "[Tougher Than the Rest,](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)," and "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)."<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - JOHNNY 99 - DENVER 2009](https://www.youtube.com/watch?v=FDfLsusF-S8)
 
@@ -62,12 +72,12 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2014-04-10-rotated.jpg.webp)
 
-**2016:** A scheduled show in Greensboro is cancelled due to the state’s adoption of an anti-transgender law.<br>
+**2016:** A scheduled show in Greensboro is cancelled due to the state's adoption of an anti-transgender law.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/2016-0408.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contributes to three tracks for John’s upcoming album, *Strictly a One-Eyed Jack.*<br>
+**2021:** Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contributes to three tracks for John's upcoming album, *Strictly a One-Eyed Jack.*<br>
 
 [Watch on Youtube: John Mellencamp - Wasted Days (Visualizer) ft. Bruce Springsteen](https://www.youtube.com/watch?v=B1Rz8rPdIDE)

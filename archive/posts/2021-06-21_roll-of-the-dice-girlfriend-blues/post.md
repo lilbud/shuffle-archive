@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Girlfriend Blues"
+author: "Ken"
+excerpt: "This remarkable (and remarkably clear) 1970 blues is marred only by Bruce’s cringe-y (but historically significant) on-stage story."
+tags: girlfriend-blues steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/gfblues.png
+post_id: 28158
+---
 I know we've been spending a lot of time in the pre-Street past lately, and we'll return to Bruce's modern era shortly. But first, take fifteen minutes and listen to this entire 1970 performance, because it is remarkable*—*in ways both jaw-dropping and cringe-inducing.
 
 As I often do with Bruce's early material, I feel compelled to emphasize Bruce's tender age of twenty on the date this was recorded. Usually, I do that to underline how impressive and accomplished his performances were; this time it's also a reminder that we've all said things at that age that we're fortunate were never captured on tape for posterity.

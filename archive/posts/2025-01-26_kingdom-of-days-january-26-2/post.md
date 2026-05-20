@@ -1,4 +1,14 @@
-**1968:** The Castiles (Bruce's first band) play a gig at The Left Foot in Bruce's hometown of Freehold.<br>
+---
+layout: post
+title: "January 26"
+author: "Ken"
+excerpt: "On this date: Tom Morello joins the E Street Band, Bruce plays South Africa for the first time, the United Steelworkers honor Bruce, and much more."
+tags: born-in-the-usa-tour cape-town castiles chicago dallas free-nelson-mandela ghost-of-tom-joad-tour high-hopes-tour norfolk river-tour south-africa south-bend springsteen-on-broadway syracuse tom-morello
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/72x800-jo-lopez-capetown-_surfs-up.bruce-capetown-jo-lopez-jan-25-20147E1A6843.jpg
+post_id: 55809
+---
+**1968:** The Castiles (Bruce’s first band) play a gig at The Left Foot in Bruce’s hometown of Freehold.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1968-0126.jpg.webp)
 
@@ -10,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1974-0126.jpg.webp)
 
-**1981:** On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: "[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)" (after teaching the lyrics to the band during intermission) and "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)."<br>
+**1981:** On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: “[Double Shot (of My Baby’s Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)” (after teaching the lyrics to the band during intermission) and “[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1N1myPz6)
 
@@ -18,13 +28,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1981-01-26b.png.webp)
 
-**1985:** During intermission at the Carrier Dome in Syracuse, the United Steelworkers of America recognize and honor Bruce's contributions to food banks along the *Born in the U.S.A.* Tour.<br>
+**1985:** During intermission at the Carrier Dome in Syracuse, the United Steelworkers of America recognize and honor Bruce’s contributions to food banks along the *Born in the U.S.A.* Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/85FTtPOe)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1985-01-26a.jpg.webp)
 
-**1996:** Bruce plays solo at the Bronco Bowl in Dallas, debuting "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" for the first time on the Ghost of Tom Joad Tour.<br>
+**1996:** Bruce plays solo at the Bronco Bowl in Dallas, debuting “[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)” for the first time on the Ghost of Tom Joad Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NFPZTvFe)
 
@@ -34,11 +44,11 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3](https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3)
 
-**2014:** The *High Hopes* Tour kicks off in Cape Town South Africa, with the live debut of "[Free Nelson Mandela](../2018-07-10_cover-me-free-nelson-mandela/post.md)" and the concert premieres of "[Heaven's Wall.](../2020-02-02_roll-of-the-dice-heavens-wall/post.md)" Tom Morello joins the E Street Band for this show and will remain a touring band member throughout the entire tour. (Photo credit: Jo Lopez)<br>
+**2014:** The *High Hopes* Tour kicks off in Cape Town South Africa, with the live debut of “[Free Nelson Mandela](../2018-07-10_cover-me-free-nelson-mandela/post.md)” and the concert premieres of “[Heaven’s Wall.](../2020-02-02_roll-of-the-dice-heavens-wall/post.md)” Tom Morello joins the E Street Band for this show and will remain a touring band member throughout the entire tour. (Photo credit: Jo Lopez)<br>
 
 [Watch on Youtube: Bruce Springsteen: Mandela Was The Real Boss](https://www.youtube.com/watch?v=FOCnZ6xwxTI)
 
-[Watch on Youtube: Bruce Springsteen Interview In Cape Town, Bellville 2014](https://www.youtube.com/watch?v=s1MJtrNTQgo?start=37)
+[Watch on Youtube: Bruce Springsteen Interview In Cape Town, Bellville 2014](https://www.youtube.com/watch?v=s1MJtrNTQgo)
 
 [Watch on Youtube: Bruce Springsteen - "Heaven's Wall" - Cape Town, Bellville Sound Check](https://www.youtube.com/watch?v=-GZ-Vbr01CI)
 

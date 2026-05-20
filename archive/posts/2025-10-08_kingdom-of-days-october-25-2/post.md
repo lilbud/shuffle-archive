@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Kingdom of Days: October 25"
+author: "Ken"
+excerpt: "On this date: Bruce headlines at the Philadelphia Spectrum for the first time, Western Stars debuts in movie theaters, and Clarence Clemons joins the E Street Band. Lots more highlights inside."
+tags: artists-united-against-apartheid born-in-the-usa-tour born-to-run-tour danny-federici for-you ghost-of-tom-joad-tour hartford lawsuit-tour los-angeles magic-tour oakland on-top-of-old-smoky oregon philadelphia portland reunion-tour river-tour santa-barbara santander seeger-sessions-tour spain spectrum springfield springsteen-on-broadway stephen-colbert steve-van-zandt sun-city the-ghost-of-tom-joad there-will-never-be-any-other-for-me-but-you this-hard-land working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/western.jpg
+post_id: 61196
+---
 ***New for 2025:** New entry for 1983, 1993, and 2024; audio for 2006 and 2012*<br>
 
 **1970:** Steel Mill performs at the Richmond Arena.<br>
 
-**1972:** Bruce and what will eventually be named the E Street Band (including new member Clarence Clemons) rehearse for their upcoming Greetings from Asbury Park Tour at Bill Herring’s guitar store in Point Pleasant, New Jersey. That night, they play an impromptu performance at The Shipbottom Lounge in the Beacon Hotel.<br>
+**1972:** Bruce and what will eventually be named the E Street Band (including new member Clarence Clemons) rehearse for their upcoming Greetings from Asbury Park Tour at Bill Herring's guitar store in Point Pleasant, New Jersey. That night, they play an impromptu performance at The Shipbottom Lounge in the Beacon Hotel.<br>
 
 **1974:** Bruce and the E Street band play two shows at Dartmouth College.<br>
 
@@ -10,11 +20,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1974-10-25.png.webp)
 
-**1975:** Bruce plays his very first show in Oregon, to a small crowd at Portland’s Paramount Theater.<br>
+**1975:** Bruce plays his very first show in Oregon, to a small crowd at Portland's Paramount Theater.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/48716655231_77b34c6fe1_o.jpg.webp)
 
-**1976:** Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he plays his very first headlining show at the Philadelphia Spectrum. During the encores, the band debuts their cover of Darlene Love’s “[A Fine Fine Boy](../2019-01-28_cover-me-a-fine-fine-boy/post.md).” Amazingly, some great footage exists from this show.<br>
+**1976:** Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he plays his very first headlining show at the Philadelphia Spectrum. During the encores, the band debuts their cover of Darlene Love's "[A Fine Fine Boy](../2019-01-28_cover-me-a-fine-fine-boy/post.md)." Amazingly, some great footage exists from this show.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live at Philadelphia 1976 (25/10/1976)](https://www.youtube.com/watch?v=IBmULwOxOD4)
 
@@ -24,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1976-10-25.png.webp)
 
-**1980:** The River Tour heads south down the west coast, stopping for a night at Portland’s Memorial Coliseum, where Bruce and the band play “[On Top of Old Smoky](../2019-08-24_cover-me-on-top-of-old-smoky/post.md)” for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).<br>
+**1980:** The River Tour heads south down the west coast, stopping for a night at Portland's Memorial Coliseum, where Bruce and the band play "[On Top of Old Smoky](../2019-08-24_cover-me-on-top-of-old-smoky/post.md)" for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/tfj2O84c)
 
@@ -36,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Oregon_Journal_1980_10_27_10.jpg.webp)
 
-**1983:** Bruce and the E Street Band start work on a new song, “No Surrender” at a recording session for *Born in the U.S.A.*<br>
+**1983:** Bruce and the E Street Band start work on a new song, "No Surrender" at a recording session for *Born in the U.S.A.*<br>
 
 **1984:** Bruce and the E Street Band kick off a seven-night Born in the U.S.A. Tour stand at the Los Angeles Memorial Sports Arena.<br>
 
@@ -50,13 +60,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47083179991_ddd2099192_o.jpg.webp)
 
-**1993:** At his home studio in Los Angeles, Bruce produces Joe Grushecky’s first two tracks for what will eventually become *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md),* joining Joe on both of them: “[Chain Smokin’](../2021-05-25_matr-joe-grushecky-and-bruce-springsteen-chain-smokin/post.md)” and “[Never Be Enough Time](../2018-04-03_meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/post.md).”<br>
+**1993:** At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two tracks for what will eventually become *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*, joining Joe on both of them: "[Chain Smokin'](../2021-05-25_matr-joe-grushecky-and-bruce-springsteen-chain-smokin/post.md)" and "[Never Be Enough Time](../2018-04-03_meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/post.md)."<br>
 
 [Watch on Youtube: Chain Smoking' (Demo)](https://www.youtube.com/watch?v=TTjzF7dHCHI)
 
 [Watch on Youtube: Never Be Enough Time (Demo)](https://www.youtube.com/watch?v=HXEb4Dmbfoo)
 
-**1996:** Danny Federici makes a guest appearance at Bruce’s solo acoustic show in Santa Barbara, joining Bruce for “This Hard Land” and “[There Will Never Be Any Other for Me But You.](../2019-08-23_roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/post.md)”<br>
+**1996:** Danny Federici makes a guest appearance at Bruce's solo acoustic show in Santa Barbara, joining Bruce for "This Hard Land" and "[There Will Never Be Any Other for Me But You.](../2019-08-23_roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen and Danny Federici - Santa Barbara - 1996-10-25](https://www.youtube.com/watch?v=YG6dpWqDjLg)
 
@@ -74,7 +84,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-25d.png.webp)
 
-**2006:** At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour debuts “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md),” performed as a duet with Frank Bruno.<br>
+**2006:** At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour debuts "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)," performed as a duet with Frank Bruno.<br>
 
 [Watch on Youtube: The Ghost of Tom Joad - Bruce Springsteen and The Sessions band](https://www.youtube.com/watch?v=AS2ODXkCzfw)
 
@@ -88,11 +98,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2007-10-25.png.webp)
 
-**2009:** Bruce performs the entire *Born to Run* album, tour premieres “[Roll Over Beethoven](../2019-08-08_cover-me-roll-over-beethoven/post.md),” and plays a rare “[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)” when the Working on a Dream Tour stops in St. Louis for a night.<br>
+**2009:** Bruce performs the entire *Born to Run* album, tour premieres "[Roll Over Beethoven](../2019-08-08_cover-me-roll-over-beethoven/post.md)," and plays a rare "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" when the Working on a Dream Tour stops in St. Louis for a night.<br>
 
 [Watch on Youtube: Roll over Beethoven (cover)](https://www.youtube.com/watch?v=ItC8FsFxaro)
 
-**2012:** Bruce’s Wrecking Ball show in Hartford rockets out of the gate with the tour premiere (and fifth performance ever) of “[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md).” The fantastic set also includes the tour premiere of “[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)” and rare outings for “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)” and “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md).”<br>
+**2012:** Bruce's Wrecking Ball show in Hartford rockets out of the gate with the tour premiere (and fifth performance ever) of "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)." The fantastic set also includes the tour premiere of "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" and rare outings for "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" and "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen "Held Up Without A Gun/Radio Nowhere" 10-25-12 XL Center Hartford CT](https://www.youtube.com/watch?v=k9sgCmzYeWo)
 
@@ -120,11 +130,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2018-10-25.jpg.webp)
 
-**2019:** *CBS This Morning* airs the second part of Gayle King’s interview with Bruce Springsteen, and *Western Stars* is officially released to movie theaters.<br>
+**2019:** *CBS This Morning* airs the second part of Gayle King's interview with Bruce Springsteen, and *Western Stars* is officially released to movie theaters.<br>
 
 [Watch on Youtube: Behind the scenes at Bruce Springsteen's New Jersey recording studio](https://www.youtube.com/watch?v=YHMOjyfGAVE)
 
-[Watch on Youtube: "I've gotten to work with the people I love the most": Bruce Springsteen reflects on extraordinar…](https://www.youtube.com/watch?v=JSpkzjpoUvc)
+[Watch on Youtube: "I've gotten to work with the people I love the most": Bruce Springsteen reflects on extraordinar...](https://www.youtube.com/watch?v=JSpkzjpoUvc)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2019-10-25.png.webp)
 
@@ -143,12 +153,10 @@ Earlier in the day, NPR airs their interview with Bruce and the president.
 
 [Watch on Youtube: What Are The Limits Of Optimism? Barack Obama And Bruce Springsteen In Conversation | NPR](https://www.youtube.com/watch?v=EjKR8lH8PaQ)
 
-[Watch on Youtube: 'A Fighting Optimism': Bruce Springsteen And Barack Obama On Politics In 2021 | NPR](https://www.youtube.com/watch?v=Ro_5qfNhIM8)
+[Watch on Youtube: 'A Fighting Optimism': Bruce Springsteen And Barack Obama On Politics In 2021 | NPR](https://www.youtube.com/watch?v=Ro_5qfNhIM8?start=3)
 
-**2024:** Bruce calls into Jim Rotolo’s show on E Street Radio to talk about *Road Diary,* premiering on Hulu today.<br>
+**2024:** Bruce calls into Jim Rotolo's show on E Street Radio to talk about *Road Diary*, premiering on Hulu today.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2025/10/2024-10-25-Bruce-Max-Thom-on-E-St-Radio.m4a?_=8](https://estreetshuffle.com/wp-content/uploads/2025/10/2024-10-25-Bruce-Max-Thom-on-E-St-Radio.m4a?_=8)
-
-<https://estreetshuffle.com/wp-content/uploads/2025/10/2024-10-25-Bruce-Max-Thom-on-E-St-Radio.m4a>
 
 [Watch on Youtube: Road Diary: Bruce Springsteen and The E Street Band | Official Trailer | Hulu](https://www.youtube.com/watch?v=GEgwAQUQh0s)

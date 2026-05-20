@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Smith and Bruce Springsteen: Land"
+author: "Ken"
+excerpt: "One time only: Bruce joins The Patti Smith Group for Patti’s land-mark opus from her debut album."
+tags: land patti-smith
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/land.jpg
+post_id: 23375
+---
 *Born to Run* wasn't the only landmark album released in 1975. That was also the year that Patti Smith announced her arrival with her debut album, *Horses.*
 
 Both albums have stood the test of time, ranking only three notches apart on *Rolling Stone's* 500 Greatest Albums of All Time.

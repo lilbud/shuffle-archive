@@ -1,3 +1,13 @@
+---
+layout: post
+title: "ROTD/MatR/Cover Me, Gary U.S. Bonds, Bruce Springsteen & The E Street Band, This Little Girl"
+author: "Ken"
+excerpt: "Bruce penned “This Little Girl” for Gary U.S. Bonds’ comeback album, and it worked–providing Bonds with a Top 40 (and almost a Top 10) hit, powered by the E Street Band and Bruce’s lyrics, music, and backing vocals."
+tags: aint-good-enough-for-you dedication gary-u-s-bonds quarter-to-three this-little-girl
+categories: cover-me cover-you meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/thislittlegirl_sin-us-07i.jpg
+post_id: 4184
+---
 The first time I ever heard "This Little Girl," I was twelve.
 
 My dad had the song on a 45 single, and he played that thing to death. He loved that song, and I loved it too–but I remember thinking to myself the first time I heard it: *this sounds like a Bruce Springsteen song*. It's the earliest memory I have of recognizing an artist's style in a recording credited to someone else.
@@ -26,46 +36,46 @@ Lyrically, though, "This Little Girl" would be borderline inappropriate if relea
 
 In fact, when I was twelve and first heard the song, I was positive the song was about an overprotective father and his daughter. And in fairness, you can get about halfway through the song before I'd lose that argument, and even then, it's only one line that causes the problem. Read the lyrics through that lens and see how it *almost* works:
 
-> *Here she comes, walking down the street*
-> *You know she's walking just like she's walking to come and see me*
-> *Oh, she's so young*
-> *And she's so fine*
-> *I know what's on your mind, know what you want to do*
-> *But if you mess with her, I'm gonna mess with you*
-> *You better watch your step, you better stay in line*
+> *Here she comes, walking down the street*<br>
+> *You know she's walking just like she's walking to come and see me*<br>
+> *Oh, she's so young*<br>
+> *And she's so fine*<br>
+> *I know what's on your mind, know what you want to do*<br>
+> *But if you mess with her, I'm gonna mess with you*<br>
+> *You better watch your step, you better stay in line*<br>
 
-> *This little girl is mine*
-> *Oh oh this little girl is mine*
-> *Oh oh this little girl, this little girl, this little girl is mine*
+> *This little girl is mine*<br>
+> *Oh oh this little girl is mine*<br>
+> *Oh oh this little girl, this little girl, this little girl is mine*<br>
 
-> *Well if the world were mine to do with what I want to do, sir*
-> *Well I'd wrap it up in a bow and give it all to her*
-> *Yeah, and all my love, all of the time*
-> *You know I'd hold her tight, I'd never let her go*
-> *And late at night you know I'd love her so*
-> *Yeah I'd treat her right, so she'd never mind*
+> *Well if the world were mine to do with what I want to do, sir*<br>
+> *Well I'd wrap it up in a bow and give it all to her*<br>
+> *Yeah, and all my love, all of the time*<br>
+> *You know I'd hold her tight, I'd never let her go*<br>
+> *And late at night you know I'd love her so*<br>
+> *Yeah I'd treat her right, so she'd never mind*<br>
 
-> *That this little girl is mine*
-> *Oh oh this little girl is mine*
-> *Oh oh this little girl, this little girl, this little girl is mine, mine, mine, mine*
+> *That this little girl is mine*<br>
+> *Oh oh this little girl is mine*<br>
+> *Oh oh this little girl, this little girl, this little girl is mine, mine, mine, mine*<br>
 
-> *Hey!*
-> *You better watch out*
-> *I'm telling you the score*
-> *Or you're gonna be sweeping your broken heart up off the floor*
-> *Oh, and that ain't all*
-> *I'm telling you my friend*
+> *Hey!*<br>
+> *You better watch out*<br>
+> *I'm telling you the score*<br>
+> *Or you're gonna be sweeping your broken heart up off the floor*<br>
+> *Oh, and that ain't all*<br>
+> *I'm telling you my friend*<br>
 
-> *I know what's on your mind, know what you want to do*
-> *But if you mess with her, I'm gonna mess with you*
-> *You like the way she moves, you like to watch her walk*
-> *You better listen up, 'cause man, this ain't just talk*
-> *You better watch your step, you better stay in line*
+> *I know what's on your mind, know what you want to do*<br>
+> *But if you mess with her, I'm gonna mess with you*<br>
+> *You like the way she moves, you like to watch her walk*<br>
+> *You better listen up, 'cause man, this ain't just talk*<br>
+> *You better watch your step, you better stay in line*<br>
 
-> *Now baby, I said*
-> *This little girl is mine*
-> *Oh oh this little girl is mine*
-> *This little girl, this little girl, this little girl is mine*
+> *Now baby, I said*<br>
+> *This little girl is mine*<br>
+> *Oh oh this little girl is mine*<br>
+> *This little girl, this little girl, this little girl is mine*<br>
 
 So yeah, it's maybe a little embarrassing that I thought Bonds was singing about his daughter, so I won't bother sharing just how old I was before I figured out otherwise.
 

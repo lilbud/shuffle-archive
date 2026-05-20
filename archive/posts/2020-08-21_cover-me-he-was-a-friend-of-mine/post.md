@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: He Was a Friend of Mine"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the E Street Band soundcheck a gentle cover of The Byrd’s elegy to President Kennedy, “He Was a Friend of Mine.”"
+tags: he-was-a-friend-of-mine shorty-george the-byrds
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/friendofmine.jpg
+post_id: 20109
+---
 Those who know "He Was a Friend of Mine" only from The Byrds' version might be surprised to learn the song dates back much further–at least to the 1930s.
 
 When Smith Casey recorded it in 1939, the song was called "Shorty George," but it's recognizable as the now-familiar folk song.

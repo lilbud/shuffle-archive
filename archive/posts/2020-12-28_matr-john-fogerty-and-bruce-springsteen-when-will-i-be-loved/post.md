@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: John Fogerty and Bruce Springsteen: When Will I Be Loved"
+author: "Ken"
+excerpt: "When John Fogerty decided to record a sequel to his 1973 debut album, Bruce decided it was finally time to join his friend in the studio."
+tags: john-fogerty the-blue-ridge-rangers-rides-again the-everly-brothers when-will-i-be-loved
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/whenwillibeloved.jpg
+post_id: 23944
+---
 When John Fogerty went solo in 1973, he wanted to distance himself from his Creedence Clearwater Revival days. So much so, in fact, that he released his first solo album under the name The Blue Ridge Rangers.
 
 Fogerty's name didn't even appear on the cover of the album, and none of his songwriting appeared on it either. *The Blue Ridge Rangers* was a covers album, and it was truly a solo project–Fogerty played every instrument on the album.

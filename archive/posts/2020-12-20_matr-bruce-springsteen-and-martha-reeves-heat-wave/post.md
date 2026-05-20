@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Martha Reeves: Heat Wave"
+author: "Ken"
+excerpt: "One time only: Bruce invites original recording artist Martha Reeves to join the E Street Band for one of her greatest hits, Motown classic “Heat Wave.”"
+tags: heat-wave martha-and-the-vandellas martha-reeves
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/Heat_Wave_by_Martha_and_the_Vandellas.jpg
+post_id: 15957
+---
 “Heat Wave” was a massive hit for Martha and the Vandellas. Topping the Billboard R&B Chart for four straight weeks in 1963 (and peaking at #4 on the Hot 100), “Heat Wave” became one of Martha and the Vandellas’ greatest hits and an enduring Motown classic.
 
 [Watch on Youtube: Martha & the Vandellas - Heatwave](https://www.youtube.com/watch?v=XE2fnYpwrng)

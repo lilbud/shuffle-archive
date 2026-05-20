@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "ROTD LA Garage Sessions '83 Preface"
+author: "Ken"
+excerpt: "It seemed like a good idea at the time. I mean, I’d written essays on almost all of the songs on L.A. Garage Sessions ’83…"
+post_id: 65948
+---
 It seemed like a good idea at the time.
 
 I mean, I'd written essays on almost all of the songs on *L.A. Garage Sessions '83* at one point or another over the life of the blog,

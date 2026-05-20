@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Little Steven, Bruce Springsteen and the Asbury Park All-Star Revue: Little by Little"
+author: "Ken"
+excerpt: "When Southside Johnny took ill and couldn’t perform, Little Steven saved the day by assembling an All-Star Revue to cover Junior Wells’ classic “Little By Little.”"
+tags: asbury-park-all-star-revue junior-wells little-by-little little-steven southside-johnny
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/littlebylittle.jpg
+post_id: 25001
+---
 Chicago blues legend Junior Wells was famous for his prowess and pioneering style on the blues harp, but you wouldn't know it from "Little By Little," his first hit.
 
 "Little By Little" reached #23 on the Billboard R&B chart in 1960, but there's no harp to be found on the original recording.

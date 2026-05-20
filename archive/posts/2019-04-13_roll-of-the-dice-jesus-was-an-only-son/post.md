@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Jesus Was an Only Son"
+author: "Ken"
+excerpt: "“Jesus Was an Only Son” is a quiet reflection on the pain of losing a child. It transcends its religious imagery and resonates with any parent with children on the verge of adulthood."
+tags: devils-and-dust jesus-was-an-only-son vh1-storytellers
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/jesus.jpg
+post_id: 1764
+---
 I wasn't sure what to make of "Jesus Was an Only Son" when I first heard it.
 
 I'm used to hearing a lot of religious imagery in Bruce's music, but nothing as overt and dominant as in this track.

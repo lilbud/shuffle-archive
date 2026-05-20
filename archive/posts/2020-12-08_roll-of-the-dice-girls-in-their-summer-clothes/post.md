@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Girls in Their Summer Clothes"
+author: "Ken"
+excerpt: "It won Bruce a Grammy he didn’t even know he was nominated for. It’s full of hidden callbacks to “Thunder Road” and echoes of “Born to Run.” It’s my favorite 21st-century Springsteen song, and it mystifies Bono with its relative obscurity. Listen to “Girls in Their Summer Clothes” like you’ve never heard it before inside."
+tags: girls-in-their-summer-clothes magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/girlsintheirsummerclothes_single.jpg
+post_id: 7412
+---
 > "I didn't even know I was up for a Grammy! I opened the newspaper on Monday and saw that I had won, and thought, ‘Well, that's great!'" *–Bruce Springsteen, MTV News, February 10, 2009*<br>
 
 Coming from any other artist, under any other circumstances, that line might sound just a bit too coy.

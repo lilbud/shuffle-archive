@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Darlington County"
+author: "Ken"
+excerpt: "The continuing mis-adventures of Wilson and Wayne, chicken delivery men and fugitive ne’er-do-wells."
+tags: born-in-the-u-s-a darlington-county delivery-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/darlington.jpg
+post_id: 20598
+---
 > Roger Scott to Bruce Springsteen: "*The River*… was full of these sharply contrasting songs, these wild celebrations alongside these hopeless people."
 >
 > Bruce Springsteen to Roger Scott: "On *The River*, I'd have a song like this and a song like that because I didn't know how to combine it. By the time I'd got to the *Born in the U.S.A.* album, I kinda combined those two things. Like ‘Darlington County…'" (*Hot Press*, November 2, 1984)

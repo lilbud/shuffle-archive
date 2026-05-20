@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Does This Bus Stop at 82nd Street?"
+author: "Ken"
+excerpt: "Lyrically slight and melodically malleable, “Does This Bus Stop at 82nd Street” is an early songwriting exercise that improbably became a fan favorite."
+tags: does-this-bus-stop-at-82nd-street greetings-from-asbury-park tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/PinClipart.com_green-bus-clipart_3526023.png
+post_id: 17121
+---
 > "Any song… that you don't understand the meaning to is always about sex.'" *–Bruce Springsteen introducing "Does This Bus Stop on 82nd Street?", February 19, 2003*<br>
 
 On the evening of March 23, 2012 in Tampa, early in the Wrecking Ball Tour, Bruce swapped out "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" for a tour premiere of "Does This Bus Stop on 82nd Street."

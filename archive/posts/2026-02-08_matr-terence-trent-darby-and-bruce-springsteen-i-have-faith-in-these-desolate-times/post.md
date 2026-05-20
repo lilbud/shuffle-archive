@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I Have Faith in These Desolate Times"
+author: "Ken"
+excerpt: "More appropriate today than the night it was performed."
+tags: i-have-faith-in-these-desolate-times terence-trent-darby
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/desolate.jpg
+post_id: 18723
+---
 One early summer evening, 27 years ago, Bruce Springsteen invited Terence Trent D'Arby to the stage at his Madison Square Garden benefit show for the Kristen Ann Carr Fund.
 
 This was the song D'Arby sang, from his 1989 album *Neither Fish Nor Flesh*, gently supported by Bruce and his band:

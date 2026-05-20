@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Not Fade Away"
+author: "Ken"
+excerpt: "Bruce covered “Not Fade Away” as far back as 1971 and as recently as last summer. It’s always at the ready for an impromptu team-up–watch some of best ones inside."
+tags: buddy-holly nils-lofgren not-fade-away the-crickets the-rolling-stones
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/notfadeaway.jpg
+post_id: 15844
+---
 Of course Bruce has covered “Not Fade Away.” Who hasn’t?
 
 It was the single that introduced The Rolling Stones to U.S. audiences in 1964, and although it only reached #48 on the Billboard Hot 100, it paved the way for bigger hits to come.

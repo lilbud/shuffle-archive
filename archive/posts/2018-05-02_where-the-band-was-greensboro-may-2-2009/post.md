@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Where the Band Was: Greensboro, May 2, 2009"
+author: "Ken"
+excerpt: "I’ve never been more surprised and impressed by an American crowd than I was at this show in Greensboro, and I’ll never pass up the chance to see Bruce play there again."
+tags: badlands glory-days greensboro hang-on-sloopy jay-weinberg outlaw-pete seventh-son working-on-a-dream-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/steensboro-1.jpg
+post_id: 1909
+---
 There's really no reason for me to have been at this show, and coming off of the previous two shows in Philly, my expectations were set pretty low for what I was sure would be a return to a "normal" set.
 
 But when you're on a two-week-long, cross-country, drive-all-night (see what I did?) bus tour with a bunch of Microsoft colleagues and a couple of Microsoft Certified Professionals we'd never even met until we picked them up along the way (a story for another time), and you just *happen* to be in the same city on the same day as Bruce, the opportunity to get off the bus and catch a Springsteen concert–regardless of where–was too good to pass up.
 
-So there we were... in Greensboro, North Carolina. And dang if it wasn't one of the best shows I've ever seen.
+So there we were… in Greensboro, North Carolina. And dang if it wasn't one of the best shows I've ever seen.
 
 Who knew that Greensboro consistently has the best concert audiences in the U.S.? I sure didn't–but Bruce did, even if he had to shake his head in amazement and muse, "Why?!? Why are Greensboro audiences so great? I don't know why!"
 

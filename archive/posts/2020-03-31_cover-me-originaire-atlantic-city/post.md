@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Originaire: Atlantic City"
+author: "Ken"
+excerpt: "In the midst of the great pandemic of 2020, acoustic folk band Originaire takes to the abandoned streets of Atlantic City to cover Bruce’s classic song."
+tags: atlantic-city covid-19 originaire
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/origin.jpg
+post_id: 17353
+---
 It seems like North Jersey gets all the glory whenever anyone talks about the Jersey Shore music scene, but South Jersey has its contenders as well–and one of the best bands to come out of South Jersey in some time is acoustic folk trio Originaire.
 
 Originaire is based out of Atlantic City and features Ken Shiles and CiBon plus Philadelphia violinist Valerie Vuolo. Their original material is beautiful, but they pull off some terrific covers as well.

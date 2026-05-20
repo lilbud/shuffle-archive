@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: March 4"
+author: "Ken"
+excerpt: "Bruce likes to spend March 4th below the Mason-Dixon line, it seems. Check out highlights from Florida, North Carolina and Kentucky from this date in history."
+tags: chapel-hill jacksonville lawsuit-tour lexington new-york-city orlando reunion-tour rising-tour river-tour tunnel-of-love-express-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/bruce-clarence.jpg
+post_id: 56095
+---
 ***New for 2025:** Audio for 1988*<br>
 
-**1973:** What would have been Bruce’s first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce’s involvement.)<br>
+**1973:** What would have been Bruce's first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce's involvement.)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1973-03-03.png.webp)
 
@@ -26,7 +36,7 @@
 
 [Watch on Youtube: Bruce Springsteen and Patti Scialfa at a hockey game - 1994-03-04](https://www.youtube.com/watch?v=zrVi-AgoBiE)
 
-**1999:** Rehearsals begin for Bruce Springsteen and the E Street Band’s Reunion Tour in Asbury Park.<br>
+**1999:** Rehearsals begin for Bruce Springsteen and the E Street Band's Reunion Tour in Asbury Park.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1999-03-04.png.webp)
 
@@ -36,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2000-03-04.jpg.webp)
 
-**2003:** In Jacksonville along the Rising Tour, the band covers “[Let’s Go, Let’s Go, Let’s Go](../2018-09-26_matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/post.md)” in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md).” Watch the full show below.<br>
+**2003:** In Jacksonville along the Rising Tour, the band covers "[Let's Go, Let's Go, Let's Go](../2018-09-26_matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/post.md)" in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)." Watch the full show below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xKFbULno)
 

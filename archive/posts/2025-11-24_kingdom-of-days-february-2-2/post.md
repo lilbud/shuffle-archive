@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 2"
+author: "Ken"
+excerpt: "Bruce apologizes to Australia on behalf of America and sends a message back to Washington DC on this date in Springsteen history. More highlights inside."
+tags: australia canada dont-hang-up human-touch hungry-heart long-walk-home madison maxs-kansas-city melbourne new-orleans new-york-city river-tour river-tour-2016 springfield springsteen-on-broadway the-iguanas the-promised-land the-river toronto
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/26274124817_8695d9b01f_o.jpg
+post_id: 55845
+---
 **1971:** Ten days after Steel Mill plays their final show, Bruce is already in the market for talent for a new band. This help wanted ad runs in the *Asbury Park Press* today.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/Asbury_Park_Press_1971_02_02_Page_29-scaled.jpg.webp)

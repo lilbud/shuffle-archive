@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Linda Ronstadt: If I Should Fall Behind"
+author: "Ken"
+excerpt: "Linda Ronstadt may not have opened Bruce’s songbook until late in her career, but her first cover was a stunning one."
+tags: if-i-should-fall-behind linda-ronstadt
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/linda.jpg
+post_id: 32107
+---
 What more is there to say about this one?
 
 It's one of the most beautiful and true love songs ever written covered by perhaps the most gorgeous voice to ever grace a studio.

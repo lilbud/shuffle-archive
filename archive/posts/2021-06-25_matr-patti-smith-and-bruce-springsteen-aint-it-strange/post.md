@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Smith and Bruce Springsteen: Ain't It Strange"
+author: "Ken"
+excerpt: "One time only: Bruce lends his support to the Patti Smith Group on an epic, stream-of-consciousness performance of “Ain’t It Strange.”"
+tags: aint-it-strange patti-smith patti-smith-group
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/aintitstrange.jpg
+post_id: 27896
+---
 In *Love Goes to the Buildings on Fire: Five Years in New York That Changed Music Forever* (recommended reading for its deep dive into the New York music scene from 1973 to 1977, of which Bruce was a big part), Will Hermes calls Patti Smith's "Ain't It Strange" "an abstracted reggae groove that gradually accelerates as Smith howls and sputters, speaks in poetic tongues, scat-sings gibberish, spits phonemes like a free-jazzer, and reaches for a gold-ring epiphany just beyond her grasp."
 
 To that perfect description, I dare not add a thing.

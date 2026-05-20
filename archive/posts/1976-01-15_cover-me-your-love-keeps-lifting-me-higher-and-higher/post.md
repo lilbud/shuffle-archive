@@ -1,3 +1,13 @@
+---
+layout: post
+title: "(Your Love Keeps Lifting Me) Higher and Higher"
+author: "Ken"
+excerpt: "In which I send thanks to the brilliant fan who requested and restored Jackie Wilson’s eternal classic to its rightful place in Bruce’s encore set."
+tags: jackie-wilson pretenders rock-and-roll-hall-of-fame the-dells your-love-keeps-lifting-me-higher-and-higher
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/higher.jpg
+post_id: 4536
+---
 I guess everyone has that one song, right?
 
 You know the one I mean: the one that comes on the radio, and you stop in your tracks, turn the volume *way* up, and no matter who else is in the room, you're dancing and singing full-throatedly.
@@ -32,9 +42,9 @@ It's not surprising in the least that "Higher and Higher" turned up in Bruce's s
 
 Bruce played "Higher and Higher" a couple of times at one-off '77 shows after the tour ended (along with a [1981 guest appearance with The Pretenders](../2025-09-05_kingdom-of-days-september-5-2/post.md/)), but after that the song was MIA for more than twenty years.
 
-And then: on October 20, 2009, just as Bruce was about to wrap the main set at the very last show Bruce would ever play at the Philadelphia Spectrum, a brilliant fan (to whom I owe a beer if I ever run into him or her at a show) held up a sign, caught Bruce's eye, and...
+And then: on October 20, 2009, just as Bruce was about to wrap the main set at the very last show Bruce would ever play at the Philadelphia Spectrum, a brilliant fan (to whom I owe a beer if I ever run into him or her at a show) held up a sign, caught Bruce's eye, and…
 
-Well you'll just need to watch. And you really should, because this may be the single most joyous, spontaneous Springsteen moment I've ever seen (virtually, alas) at a show. Watch the looks between Bruce and Steve as they get rolling–they know full well what's about to break loose. And Bruce... let's just say Jackie Wilson was alive that night.
+Well you'll just need to watch. And you really should, because this may be the single most joyous, spontaneous Springsteen moment I've ever seen (virtually, alas) at a show. Watch the looks between Bruce and Steve as they get rolling–they know full well what's about to break loose. And Bruce… let's just say Jackie Wilson was alive that night.
 
 [Watch on Youtube: Springsteen - Higher and Higher - The Spectrum October 20, 2009](https://www.youtube.com/watch?v=DytO5K0rPu8)
 

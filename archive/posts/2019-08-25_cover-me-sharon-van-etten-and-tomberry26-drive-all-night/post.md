@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Sharon Van Etten (and TomBerry26): Drive All Night"
+author: "Ken"
+excerpt: "Stop what you’re doing and listen to this gorgeous, haunting rendition of “Drive All Night” by Sharon Van Etten, enhanced by “TomBerry26.”"
+tags: drive-all-night sharon-van-etten the-stone-pony tomberry26
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/sharon.jpg
+post_id: 2172
+---
 When I started this blog, the very first cover I wanted to share was Sharon Van Etten’s version of “[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md).” It’s gorgeous–and Sharon’s vocals are so passionate that I dare say they rival the original. Without a doubt, it’s one of my all-time favorite covers of a Springsteen song.
 
 But unfortunately, all of the videos of her performance of it had been removed–except for one. It’s a beautiful live performance (at The Stone Pony, no less), but the audio inexplicably cut out toward the end of the song. So I didn’t share it, but every few weeks I’d check to see if another, corrected video had surfaced. To date, no such luck.

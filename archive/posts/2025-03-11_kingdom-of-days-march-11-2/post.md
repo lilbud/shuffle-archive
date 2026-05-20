@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 11"
+author: "Ken"
+excerpt: "This date in Springsteen history features more rehearsals than concerts–but there are still a couple of gems. Check them out inside."
+tags: devils-and-dust-tour farmer-john latrobe lawsuit-tour reunion-tour rising-tour rochester working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/19770311_3_front.jpg
+post_id: 56136
+---
 ***New for 2025:** Advertisement for 1977; new entry for 2002*<br>
 
 **1977:** At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only "Farmer John" into "Twist and Shout."<br>

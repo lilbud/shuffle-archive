@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Human Touch"
+author: "Ken"
+excerpt: "It alternates between ragged and polished, it’s metaphorically inconsistent, and It has brilliant lyrical subtext that vanishes halfway through. But it rocks, and it charms, and it thrives both on vinyl and on stage. It’s “Human Touch.”"
+tags: human-touch
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/humantouch.jpg
+post_id: 11843
+---
 During his solo acoustic tour in 2005, Bruce would often comment that love songs didn't come easy to him during his early years. For his first several albums, he'd "disguise" them in other songs that didn't seem like love songs to casual listeners.
 
 But by the 1990s, the dynamic had shifted: Bruce had become so comfortable writing love songs, that he now used them to disguise *other* themes that he wasn't yet comfortable addressing head on.

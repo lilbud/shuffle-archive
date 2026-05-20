@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 16"
+author: "Ken"
+excerpt: "Quite the grab bag of highlights today: a guest appearance by Mike Ness, a gorgeous acoustic “Point Blank,” the premiere of “Pilgrim in the Temple of Love,” and a Bruce concert gets panned by two critics in the same paper."
+tags: albany bad-luck born-in-the-usa-tour clarence-clemons germany ghost-of-tom-joad-tour japan london los-angeles mike-ness munich point-blank sheffield tokyo uk upstage working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/20120416_booklet2.jpg
+post_id: 56455
+---
 ***New for 2025:** New entry for 1983 and 2013; video for 2009; review for 2012*<br>
 
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
@@ -10,25 +20,25 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1976-0416.jpg.webp)
 
-**1981:** The River Tour continues its European leg with a show in Munich, where “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)” receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure [here](../2021-04-16_where-the-band-was-munich-april-16-1981-dans-story/post.md).<br>
+**1981:** The River Tour continues its European leg with a show in Munich, where "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure [here](../2021-04-16_where-the-band-was-munich-april-16-1981-dans-story/post.md).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/r86O6U5P)
 
 [Watch Video Highlight](https://videopress.com/embed/IahVMWyt)
 
-**1982:** Bruce joins Clarence Clemons and the Red Bank Rockers for “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” at Big Man’s West.<br>
+**1982:** Bruce joins Clarence Clemons and the Red Bank Rockers for "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" at Big Man's West.<br>
 
-**1983:** Bruce works on “[Unsatisfied Heart](../2018-09-12_roll-of-the-dice-unsatisfied-heart/post.md)” at his home studio in Los Angeles.<br>
+**1983:** Bruce works on "[Unsatisfied Heart](../2018-09-12_roll-of-the-dice-unsatisfied-heart/post.md)" at his home studio in Los Angeles.<br>
 
 **1985:** The final night of five in Tokyo on the Born in the U.S.A. Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/IW12P88W)
 
-**1993:** At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic “[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md).” It’s a lovely, unique arrangement and very worth a listen.<br>
+**1993:** At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)." It's a lovely, unique arrangement and very worth a listen.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uFt2pexl)
 
-**1996:** Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, “[Pilgrim in the Temple of Love](../2002-01-12_roll-of-the-dice-pilgrim-in-the-temple-of-love/post.md/).” This show was rescheduled from its original scheduled date in March.<br>
+**1996:** Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, "[Pilgrim in the Temple of Love](../2002-01-12_roll-of-the-dice-pilgrim-in-the-temple-of-love/post.md/)." This show was rescheduled from its original scheduled date in March.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xlOP1Ixx)
 
@@ -40,7 +50,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-16.jpg.webp)
 
-**2009:** At Night Two at the L.A. Sports Arena, Mike Ness guest stars on “[Bad Luck](../2020-06-25_matr-bruce-springsteen-and-mike-ness-bad-luck/post.md)” and “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md).” Making their tour debuts: “[Candy’s Room,](../2022-05-02_roll-of-the-dice-candys-room/post.md)” “[Adam Raised a Cain,](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)” “Proud Mary,” “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md),” and “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md).”<br>
+**2009:** At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "[Bad Luck](../2020-06-25_matr-bruce-springsteen-and-mike-ness-bad-luck/post.md)" and "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)." Making their tour debuts: "[Candy's Room,](../2022-05-02_roll-of-the-dice-candys-room/post.md)" "[Adam Raised a Cain,](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" "Proud Mary," "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Bad Luck - Live from Los Angeles - With Mike Ness from Social Distortion - 2009](https://www.youtube.com/watch?v=NCHI_PBXRvk)
 
@@ -48,13 +58,13 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN DOES BACKSTREETS APRIL 16, 2009 LOS ANGELES SPORTS ARENA](https://www.youtube.com/watch?v=x8RqRx7ftd0)
 
-**2012:** Albany’s Wrecking Ball show includes a rare, solo acoustic “[Janey, Don’t You Lose Heart,](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)” played by request, and the tour premieres of “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)” and “[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md).” Watch the entire show below.<br>
+**2012:** Albany's Wrecking Ball show includes a rare, solo acoustic "[Janey, Don't You Lose Heart,](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" played by request, and the tour premieres of "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)." Watch the entire show below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QeL22Nwg)
 
 [Watch Video Highlight](https://videopress.com/embed/c0DmZePn)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3.jpg.webp)
 
 **2013:** Bruce, Patti, and Little Steven attend opening night of *The Rascals: Once Upon a Dream* on Broadway.<br>
 

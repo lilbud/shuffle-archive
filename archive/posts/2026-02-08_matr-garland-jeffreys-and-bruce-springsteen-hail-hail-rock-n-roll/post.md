@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Hail Hail Rock 'n' Roll"
+author: "Ken"
+excerpt: "One time only: Garland Jeffreys coaxes Bruce Springsteen onto the stage at Light of Day 2002 to join him on his last great hit, “Hail Hail Rock ‘n’ Roll.”"
+tags: garland-jeffreys hail-hail-rock-n-roll
+categories: cover-me meeting-across-the-river
+post_id: 16724
+---
 Garland Jeffreys should have been a much bigger star than he is, and there were a few brief moments ("Wild in the Streets" in 1973 and "96 Tears" in 1981) where it seemed he might be on his way.
 
 The last time was in 1992, when "Hail Hail Rock ‘n' Roll" (the lead single off his *Don't Call Me Buckwheat* album) cracked the Top 40 across Europe and even the Top 10 on the Dutch and Swiss charts.

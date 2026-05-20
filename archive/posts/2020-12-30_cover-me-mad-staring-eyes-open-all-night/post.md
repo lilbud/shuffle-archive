@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Mad Staring Eyes: Open All Night"
+author: "Ken"
+excerpt: "Recorded the same way as Bruce’s original, this daring interpretation of “Open All Night” has a cool, Canned Heat groove to it."
+tags: mad-staring-eyes open-all-night the-nebraska-sessions
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/nebraskasessions.jpg
+post_id: 24149
+---
 In 2012, Trevor Moss assembled a group of UK artists to mark the 30th anniversary of Bruce Springsteen's landmark album, *Nebraska.*
 
 *The Nebraska Sessions* is neither the first nor the last project to pay tribute to Bruce's famous 1982 solo project, but it may be the only one recorded the same way Bruce did: on a TEAC Tacsam four-track cassette recorder.

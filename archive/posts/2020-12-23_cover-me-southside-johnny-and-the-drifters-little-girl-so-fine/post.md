@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Southside Johnny (and The Drifters!): Little Girl So Fine"
+author: "Ken"
+excerpt: "Now here’s a recipe: Start with inspiration from Leiber and Staller, add lyrics by Bruce, music by Steve, and lead vocals by Southside Johnny. Ice with backing vocals by The Drifters, and you’ve got pure pop confection."
+tags: little-girl-so-fine southside-johnny steve-van-zandt the-drifters this-time-its-for-real
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/littlegirl.jpg
+post_id: 17358
+---
 When Little Steven played "Little Girl So Fine" on his most recent tour, he'd introduce it by acknowledging Bruce Springsteen as his co-songwriter, from "back when Mr. Springsteen needed the money. He was out of work! Had to give the kid a break."
 
 He wasn't kidding.

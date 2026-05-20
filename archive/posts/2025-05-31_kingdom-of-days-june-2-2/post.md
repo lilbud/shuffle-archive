@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 2"
+author: "Ken"
+excerpt: "Darkness on the Edge of Town was released on this date in 1978! Also on this date: a historic radio performance, the only known performance of “A Night Like This,” and more. Great audio and video inside."
+tags: a-night-like-this annapolis baltimore chicago darkness-on-the-edge-of-town darkness-tour devils-and-dust-tour elliot-murphy finland france link-wray london madrid mary-queen-of-arkansas new-york-city-serenade paris reunion-tour river-tour san-sebastian spain stone-pony tampere the-dark-end-of-the-street toledo uk wholl-stop-the-rain working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/darkness.jpg
+post_id: 56994
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1973:** Bruce and the E Street Band open for Chicago at the Baltimore Civic Center. Prior to the show, Bruce stops by WHFS-FM in Bethesda for an interview and in-station performance.<br>
@@ -8,11 +18,11 @@ Listen to Bruce recall his memory of this show 36 years later:
 
 [Watch on Youtube: Bruce Springsteen "Thunder Road" Baltimore, MD 11/20/2009](https://www.youtube.com/watch?v=KhV6i-sWdBg)
 
-**1974:** Bruce and the band headline at the Agora in Toledo, Ohio. This show is notable for its opener: the only known performance of “A Night Like This” (also known as “Angel Baby” or “Dance On Little Angel”), an outtake that remains unreleased to this day.<br>
+**1974:** Bruce and the band headline at the Agora in Toledo, Ohio. This show is notable for its opener: the only known performance of "A Night Like This" (also known as "Angel Baby" or "Dance On Little Angel"), an outtake that remains unreleased to this day.<br>
 
 [Watch on Youtube: Bruce Springsteen - ANGEL BABY 1974 (audio)](https://www.youtube.com/watch?v=iBgH1Irpf2w)
 
-**1977:** Recording continues for Bruce’s fourth album. Today the band works on “[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md).”<br>
+**1977:** Recording continues for Bruce's fourth album. Today the band works on "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)."<br>
 
 **1978:** A year and a day after recording sessions begin, Bruce releases his fourth studio album, [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). (Thanks to friend of the blog Andy Swanson for the *Billboard* scan!)<br>
 
@@ -24,11 +34,11 @@ Listen to Bruce recall his memory of this show 36 years later:
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/Bruce-Darkness-Review-Billboard-Jun-24-1978_0001-scaled.jpg.webp)
 
-That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis during the Darkness Tour, and the band tour premieres “[Sea Cruise](../2018-04-08_cover-me-sea-cruise/post.md)” for the occasion.
+That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis during the Darkness Tour, and the band tour premieres "[Sea Cruise](../2018-04-08_cover-me-sea-cruise/post.md)" for the occasion.
 
 [Watch Video Highlight](https://videopress.com/embed/BynSK9FG)
 
-**1981:** At Night Four at London’s Wembley Arena, Link Wray guest-stars on “[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md).” In attendance at tonight’s show: Joe Jackson, Kim Carnes, Elvis Costello, Paul Cook of The Sex Pistols, all of The Pretenders except for Chrissie Hynde, all of the Ants except for Adam, and unnamed members of U2, The Psychedelic Furs, The Fabulous Thunderbirds, and The Members.<br>
+**1981:** At Night Four at London's Wembley Arena, Link Wray guest-stars on "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)." In attendance at tonight's show: Joe Jackson, Kim Carnes, Elvis Costello, Paul Cook of The Sex Pistols, all of The Pretenders except for Chrissie Hynde, all of the Ants except for Adam, and unnamed members of U2, The Psychedelic Furs, The Fabulous Thunderbirds, and The Members.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ITvqaqNw)
 
@@ -38,13 +48,13 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 **1983:** Recording continues for what will become *Born in the U.S.A.* at The Hit Factory in New York City.<br>
 
-**1989:** Bruce, Roy, Patti, and the Miami Horns join Max Weinberg’s band Killer Joe on stage at The Stone Pony for four songs.<br>
+**1989:** Bruce, Roy, Patti, and the Miami Horns join Max Weinberg's band Killer Joe on stage at The Stone Pony for four songs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Z5HLzrqT)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1989-06-02.jpg.webp)
 
-**1999:** Bruce and the E Street Band bring the Reunion Tour to Paris for the first of two nights. Elliott Murphy makes a guest appearance on “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
+**1999:** Bruce and the E Street Band bring the Reunion Tour to Paris for the first of two nights. Elliott Murphy makes a guest appearance on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uFeEsKEc)
 
@@ -58,7 +68,7 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 [Watch Video Highlight](https://videopress.com/embed/HAYMQ1R9)
 
-**2009:** The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan Stadion in Tampere, Finland. It may be June, but that doesn’t stop Bruce from playing “[Santa Claus is Comin’ to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)” as a request, along with a wonderful cover of “[The Dark End of the Street](../2019-07-22_cover-me-the-dark-end-of-the-street/post.md).”<br>
+**2009:** The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan Stadion in Tampere, Finland. It may be June, but that doesn't stop Bruce from playing "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" as a request, along with a wonderful cover of "[The Dark End of the Street](../2019-07-22_cover-me-the-dark-end-of-the-street/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/76xBJLMt)
 
@@ -68,7 +78,7 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 [Watch Video Highlight](https://videopress.com/embed/iLz3cZeB)
 
-**2012:** The Wrecking Ball Tour makes a brief stop in Spain for a show at San Sebastian, opening with the tour premiere of “[Who’ll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md).”<br>
+**2012:** The Wrecking Ball Tour makes a brief stop in Spain for a show at San Sebastian, opening with the tour premiere of "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Who´ll stop the rain (San Sebastián, 2/6/2012)](https://www.youtube.com/watch?v=oZ8IoszA4Y0)
 

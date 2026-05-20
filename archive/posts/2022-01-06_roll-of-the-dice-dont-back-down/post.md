@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Don't Back Down"
+author: "Ken"
+excerpt: "Bruce worked on two different songs by the same name during the Born in the U.S.A. sessions–and this is the lesser known of the two."
+tags: dont-back-down
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/dontbackdown.jpg
+post_id: 25518
+---
 For every song that made it onto *Born in the U.S.A.*, Bruce wrote five more that didn't. We've listened to many of them here over the past four years, and we'll listen to more before we bring this journey to a close.
 
 "Don't Back Down" is one of those coulda-been-a-contender songs, if only Bruce had finished it. Or maybe he did… studio records indicate he recorded a full-band version in June 1983 that remains unheard to this day.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Local Hero"
+author: "Ken"
+excerpt: "“Local Hero” is a sly, meta-commentary on the downhill side of fame–and its greatest irony is that Bruce never quite reached it like he thought he would."
+tags: in-concert-mtv-plugged local-hero lucky-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/local.jpg
+post_id: 6935
+---
 Most of the reviews I read for *Springsteen on Broadway* mention Bruce's self-deprecating humor, noting that late in his career, Bruce seems intent on deflating some of his importance, self- or otherwise.
 
 All of that is true, but if you're just noticing it now, you haven't been paying attention for the last quarter-century or so.

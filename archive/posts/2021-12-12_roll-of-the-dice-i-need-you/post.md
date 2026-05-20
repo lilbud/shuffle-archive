@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Need You"
+author: "Ken"
+excerpt: "“I Need You” and “Ruled by the Gun” — two unreleased works-in-progress with a common melody but very different lyrics. The former is an anti-romantic ballad that never quite gelled."
+tags: i-need-you ruled-by-the-gun
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/I-Need-You-..jpg
+post_id: 1570
+---
 In early 1982, Bruce recorded a series of demos in his home studios. Some were released essentially as recorded on *Nebraska;* others were electrified for *Born in the U.S.A.*, *Tracks*, or other collections. And some never saw light of day at all.
 
 "I Need You" falls into that last camp. One of two work-in-progress songs based on a common melody ("[Ruled by the Gun](../2021-02-23_roll-of-the-dice-ruled-by-the-gun/post.md)" is the other), the existing bootleg take features lyrics that are complete enough to get a sense of what Bruce was aiming for:

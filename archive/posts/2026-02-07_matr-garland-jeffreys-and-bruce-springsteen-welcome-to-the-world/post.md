@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Welcome to the World"
+author: "Ken"
+excerpt: "One week only: At a run of Asbury Park holiday concerts in 2001, Bruce joined Garland Jeffreys on Garland’s 1992 plea for racial harmony."
+tags: garland-jeffreys welcome-to-the-world
+categories: cover-me meeting-across-the-river
+post_id: 32479
+---
 Garland Jeffreys and Bruce Springsteen both started writing and performing around the same time, and they each released their first records in 1973.
 
 Nineteen years later, they reintroduced themselves to the world at the same time, too. In March 1992, Bruce released his *Human Touch* and *Lucky Town* albums after a five-year absence. Garland returned to record stores as well, with his first album in nine years.

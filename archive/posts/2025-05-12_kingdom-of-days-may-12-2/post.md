@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 12"
+author: "Ken"
+excerpt: "Bruce makes a guest appearance with Brian Wilson, the BBC premieres a Bruce documentary (watch it inside!), Steve Van Zandt saves the day when Southside Johnny gets sick, and more–lots of great video and audio today!"
+tags: barbara-ann belgium brian-wilson brussels chicago czech-republic italy jessica-springsteen lewiston milan mony-mony prague ramrod red-bank rising-tour seeger-sessions-tour seville southside-johnny spain steve-van-zandt working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/may-12th-2024-kilkenny-ie-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56752
+---
 ***New for 2025:** Audio for 1977 and 2003; new entry for 1982 and 2024; article for 1997*<br>
 
 **1973:** Bruce and the E Street Band perform a free concert at Niagara University in Lewiston, New York.<br>

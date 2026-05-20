@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Rainmaker"
+author: "Ken"
+excerpt: "The standout track on Letter to You in more ways than one, “Rainmaker” warns about what happens when hope blends with desperation."
+tags: letter-to-you rainmaker
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/rainmaker.jpg
+post_id: 25221
+---
 > "[Rainmaker] was sort of the one that stood in for the album I didn't make." *–Bruce Springsteen to Brian Hiatt, Rolling Stone, September 20, 2020*<br>
 
 I'm not one hundred percent certain, but I think Bruce meant that literally.

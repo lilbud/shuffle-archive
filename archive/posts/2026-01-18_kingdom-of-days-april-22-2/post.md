@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 22"
+author: "Ken"
+excerpt: "On this date: Bruce performs “The Angel” for the first time and soundchecks a new song, “American Skin (41 Shots).” Plus: Bruce is honored on Ellis Island, and the E Street Band returns to the stage after the passing of Danny Federici. Many more highlights inside."
+tags: american-beauty american-skin badlands born-in-the-usa-tour boston castiles cats-on-a-smooth-surface clampdown danny-federici dropkick-murphys ghost-of-tom-joad-tour high-hopes-tour i-wanna-be-sedated ill-fly-away its-been-a-long-time japan london los-angeles lucky-town magic-tour nils-lofgren osaka raleigh real-world reno reunion-tour steve-van-zandt stone-pony the-angel tim-brennan tunnel-of-love-express-tour virginia
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/51286787_10156729730670250_8396801573535088640_n.jpg
+post_id: 56573
+---
 **1966:** The Castiles perform and compete at a Battle of the Bands at the Matawan-Keyport Roller Drome in Matawan, New Jersey. The Castiles do not win (or even place in the top five), but Bruce meets the drummer of the second place band, Vini Lopez, and one of the judges, Vinnie Roslin, for the first time. Vini, Vinnie and Bruce (along with Danny Federici) will go on to form Steel Mill.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1966-0422.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Talking About My Baby"
+author: "Ken"
+excerpt: "“Janey Needs a Shooter” traces its origins back to this one-time-only Bruce Springsteen Band homage to a 1964 hit single by Curtis Mayfield."
+tags: bruce-springsteen-band janey-needs-a-shooter talking-about-my-baby
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Designer.png
+post_id: 52380
+---
 Ah, summer.
 
 Everyone has their seasonal traditions. For me, this is the time of year when I break out my old Bruce Springsteen Band recordings and set the wayback machine for the summer of 1971.

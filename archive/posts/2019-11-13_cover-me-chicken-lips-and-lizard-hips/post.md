@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Chicken Lips and Lizard Hips"
+author: "Ken"
+excerpt: "In his earliest days of parenthood, Bruce donated a new recording for a benefit album to fight pediatric AIDS. Take a listen to Bruce’s first officially released children’s song, “Chicken Lips and Lizard Hips.”"
+tags: chicken-lips-and-lizard-hips for-our-children nancy-cassidy
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/chicken-lips.jpg
+post_id: 14032
+---
 In the summer of 1990, an all-star array of musical artists were asked to contribute original recordings for an upcoming benefit CD. Entitled *Every Child Deserves a Lifetime*, profits from the album sales benefited the Elizabeth Glaser Pediatric AIDS Foundation.
 
 The line-up was pretty amazing: the Disney-released CD (which you can still find [available for sale](https://www.amazon.com/Every-Child-Deserves-Lifetime-Children/dp/B000VBIEY2/ref=sr_1_1?keywords=for+our+children&qid=1573422062&sr=8-1) today) includes contributions from Bob Dylan, Paul McCartney, Elton John, Barbara Streisand, Sting, Jackson Browne, Ann and Nancy Wilson, James Taylor, and more.

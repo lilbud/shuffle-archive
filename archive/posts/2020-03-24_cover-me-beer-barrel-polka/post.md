@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Beer Barrel Polka"
+author: "Ken"
+excerpt: "One time only: Danny Federici rises to the occasion and leads the E Street Band in a rousing rendition of “Beer Barrel Polka.”"
+tags: beer-barrel-polka danny-federici jaromir-vejvoda will-glahe
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/beerbarrel.jpg
+post_id: 16721
+---
 They're a rock band, a bar band, and at least for a minute they were a polka band.
 
 On the evening of September 27, 2003 at Miller Park in Milwaukee, a fan decided to try to stump the E Street Band (long before that particular game was in fashion) in true Milwaukee style: by requesting "Beer Barrel Polka."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Who and Bruce Springsteen, Pinball Wizard"
+author: "Ken"
+excerpt: "One time only: Bruce, Max, and an all-star jam band back The Who on one of their most recognized songs at The Who’s induction into the Rock and Roll Hall of Fame."
+tags: pinball-wizard rock-and-roll-hall-of-fame the-who
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/pinball.jpg
+post_id: 10320
+---
 "Pinball Wizard" is one of The Who's most popular songs (it went to #4 in the U.K. and #19 in the U.S.), and it's certainly one of the most performed, a mainstay of their concerts since its debut on *Tommy* in 1969.
 
 [Watch on Youtube: The Who-Pinball Wizard](https://www.youtube.com/watch?v=4AKbUm8GrbM)

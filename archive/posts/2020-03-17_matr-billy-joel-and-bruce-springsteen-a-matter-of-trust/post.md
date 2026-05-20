@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Billy Joel and Bruce Springsteen: A Matter of Trust"
+author: "Ken"
+excerpt: "One time only: Bruce duets with Billy Joel on “A Matter of Trust” during the waning days of the 2008 American presidential campaign."
+tags: a-matter-of-trust billy-joel
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/matteroftrust.jpg
+post_id: 16357
+---
 It's one of Billy Joel's greatest hits, cracking the Top 10 (although just barely) in the summer of '86.
 
 It's also one of Billy's best videos, an homage to The Beatles' classic rooftop concert, and the only video in which he can be seen playing the guitar. (Is that Ringo at 1:38 and Paul at 2:01? You be the judge.)

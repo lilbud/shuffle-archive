@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Album Companion: Greetings From Asbury Park, N.J."
+author: "Ken"
+excerpt: "A half-century ago today, Bruce Springsteen sent the world Greetings from Asbury Park, and rock and roll has never been the same."
+tags: greetings-from-asbury-park
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/greetings.jpg
+post_id: 40499
+---
 Editor's Note
 
 With last Sunday's entry, *Greetings From Asbury Park, N.J.* becomes the fourth Springsteen studio album to receive the complete *Roll of the Dice* treatment.

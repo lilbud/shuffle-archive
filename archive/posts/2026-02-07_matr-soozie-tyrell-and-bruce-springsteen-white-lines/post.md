@@ -1,3 +1,13 @@
+---
+layout: post
+title: "White Lines"
+author: "Ken"
+excerpt: "Bruce lent a guitar-playing hand to the title track of Soozie’s debut album in 2003. Take a listen inside."
+tags: soozie-tyrell white-lines
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/whitelines.jpeg
+post_id: 29686
+---
 You'd hope an artist with a career as full as Soozie Tyrell's would have more than a single solo album to her credit, but if we only get one, at least it's a great one.
 
 Released in 2003, *White Lines* highlights not just Soozie's musicianship–we already knew about that–but also her powerful songwriting. Drawn from her own life experiences, Soozie's songs range from contemplative to declarative but all anchored by her finally-out-in-front vocals and trademark violin.

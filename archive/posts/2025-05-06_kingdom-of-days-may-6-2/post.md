@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 6"
+author: "Ken"
+excerpt: "On this date: Bruce unveils his new touring band at a special gig at the Bottom Line. Plus: A special night with Robert Pinsky and John Wesley Harding, Little Steven’s NJ Hall of Fame induction, and more."
+tags: austria barcelona bottom-line fdu freehold gotj-tour high-hopes-tour houston human-touch incident-on-57th-street john-wesley-harding johnny-99 mtv-week-in-rock other-band rising-tour robert-pinsky rotterdam spain tacoma the-netherlands tom-morello tunnel-of-love-express vienna
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/33b_njhalloffame001.jpg
+post_id: 56701
+---
 ***New for 2025:** New entry for 1980 and 1982; audio for 1988*<br>
 
 **1973:** Bruce plays the Spring Carnival at UMass Amherst. With attendance at around 18,000, this is one of the largest crowds that Bruce will play to for years.<br>

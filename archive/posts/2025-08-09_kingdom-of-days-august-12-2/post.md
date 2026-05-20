@@ -1,12 +1,22 @@
+---
+layout: post
+title: "Kingdom of Days: August 12"
+author: "Ken"
+excerpt: "On this date: Mitch Ryder makes a “Detroit Medley” guest appearance, Bruce swings by the Yankees’ clubhouse, the debut of the acoustic “Countin’ on a Miracle” video, and more."
+tags: augusta born-in-the-usa-tour countin-on-a-miracle darkness-tour detroit east-rutherford jersey-girl madison-square-garden maxs-kansas-city mitch-ryder new-york-city out-in-the-street reunion-tour rising-tour river-tour rosalita southside-johnny
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19990812_2_front.jpg
+post_id: 58369
+---
 ***New for 2025:** New entry for 1977*<br>
 
-**1967:** The Castiles play the Surf ‘N’See Club in Sea Bright, New Jersey. That night, Bruce and some of his bandmates catch The Blues Magoos and The Who opening for Herman’s Hermits at Convention Hall in Asbury Park. Just a few weeks later, the band will cover The Blues Magoos’ “[One By One](../2020-07-28_cover-me-one-by-one/post.md)” in concert themselves.<br>
+**1967:** The Castiles play the Surf 'N'See Club in Sea Bright, New Jersey. That night, Bruce and some of his bandmates catch The Blues Magoos and The Who opening for Herman's Hermits at Convention Hall in Asbury Park. Just a few weeks later, the band will cover The Blues Magoos' "[One By One](../2020-07-28_cover-me-one-by-one/post.md)" in concert themselves.<br>
 
-**1972:** Bruce plays his fourth of six two-shows-a-night solo gigs at Max’s Kansas City that week.<br>
+**1972:** Bruce plays his fourth of six two-shows-a-night solo gigs at Max's Kansas City that week.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1972-08-11.jpg.webp)
 
-**1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.<br>
+**1974:** Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1974-08-11.jpg.webp)
 
@@ -14,21 +24,21 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0812.jpg.webp)
 
-**1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record “[Gotta Get That Feeling.](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)” It will be released 38 years later.<br>
+**1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record "[Gotta Get That Feeling.](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)" It will be released 38 years later.<br>
 
-[Watch on Youtube: Bruce Springsteen Get that Feeling](https://www.youtube.com/watch?v=DQ1LfLDrDrU)
+[Watch on Youtube: Bruce Springsteen Get that Feeling](https://www.youtube.com/watch?v=DQ1LfLDrDrU?list=PLp97J3OSn7Isbkt20--RCkDWLCYDDJ3wX)
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to Augusta, Maine, for one show at the Civic Center.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0812.jpg.webp)
 
-**1981:** Bruce and the E Street Band play their second of two nights at Detroit’s Joe Louis Arena on the original River Tour. Mitch Ryder makes a guest appearance during the encores on (what else?) “[Detroit Medley.](../1976-01-02_cover-me-detroit-medley/post.md/)”<br>
+**1981:** Bruce and the E Street Band play their second of two nights at Detroit's Joe Louis Arena on the original River Tour. Mitch Ryder makes a guest appearance during the encores on (what else?) "[Detroit Medley.](../1976-01-02_cover-me-detroit-medley/post.md/)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/O8YUTq5R)
 
 [Watch on Youtube: Detroit 12/08/1981](https://www.youtube.com/playlist?list=PLJTyL9twk3zA1TFgf6jVO6s3jMFbLoHkt)
 
-**1984:** Southside Johnny guest-stars on “Twist and Shout” at Night Six of a ten-night Meadowlands stand on the Born in the U.S.A. Tour.<br>
+**1984:** Southside Johnny guest-stars on "Twist and Shout" at Night Six of a ten-night Meadowlands stand on the Born in the U.S.A. Tour.<br>
 
 [Watch on Youtube: Bruce Springsteen Born In The USA , New Jersey 1984](https://www.youtube.com/watch?v=xQWHgkEPO6M)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1998-08-11b.png.webp)
 
-**1999:** Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand at the Meadowlands with two long-awaited and inevitable bookends: the show-opening tour premiere of “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” and the show-closing one-off performance of “Rosalita (Come Out Tonight).” During the encores, Jon Bon Jovi, Richie Sambora, and Melissa Etheridge join Bruce and the band for “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
+**1999:** Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand at the Meadowlands with two long-awaited and inevitable bookends: the show-opening tour premiere of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and the show-closing one-off performance of "Rosalita (Come Out Tonight)." During the encores, Jon Bon Jovi, Richie Sambora, and Melissa Etheridge join Bruce and the band for "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Jersey Girl (Live 1999 08 12)](https://www.youtube.com/watch?v=DNzLnlxJh20)
 
@@ -52,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-08-12.png.webp)
 
-**2002:** Bruce and the E Street Band bring the Rising Tour to Madison Square Garden, where they play the second of four identical set lists in one week. When the show ends, a new video of an acoustic arrangement of “[Countin’ on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md)” (directed by Danny Clinch) debuts.<br>
+**2002:** Bruce and the E Street Band bring the Rising Tour to Madison Square Garden, where they play the second of four identical set lists in one week. When the show ends, a new video of an acoustic arrangement of "[Countin' on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md)" (directed by Danny Clinch) debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen Madison Square Garden New York 12/08/2002 Full Concert](https://www.youtube.com/watch?v=bFys3yQTPIc)
 

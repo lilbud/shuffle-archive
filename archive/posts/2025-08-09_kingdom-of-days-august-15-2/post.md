@@ -1,26 +1,36 @@
+---
+layout: post
+title: "Kingdom of Days: August 15"
+author: "Ken"
+excerpt: "It’s a day for legendary shows, from the 1975 Bottom Line radio broadcast to the ’78 Largo video to the stunning, unpredictable second night in Fenway in 2012. Lots of great video and many more highlights inside."
+tags: auburn-hills back-in-your-arms born-in-the-usa-tour born-to-run-tour boston bottom-line cats-on-a-smooth-surface child darkness-tour detroit fenway-park jacksonville ken-casey knock-on-wood largo magic-tour new-york-city philadelphia rising-tour springsteen-on-broadway stone-pony washington-dc wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/springsteen-bruce-the-e-street-band-2015-complete-bottom-line-broadcast-1975-lp-250.jpg
+post_id: 58378
+---
 ***New for 2025:** New entry for 1977 and 2024; audio for 1985; video for 2008*<br>
 
 **1969:** Child plays a gig at the Student Prince in Asbury Park.<br>
 
-**1975:** On Night Three of Bruce’s legendary stand at New York City’s Bottom Line, the early show is broadcast live on WNEW-FM, resulting in one of Bruce’s most widely bootlegged shows ever. Listen to that historic broadcast below.<br>
+**1975:** On Night Three of Bruce's legendary stand at New York City's Bottom Line, the early show is broadcast live on WNEW-FM, resulting in one of Bruce's most widely bootlegged shows ever. Listen to that historic broadcast below.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The punk meets the godfather"](https://www.youtube.com/playlist?list=PLmxwNSnqgfedcTVTpET4evBCavu-lOISm)
 
-There’s no audio from the late show, and that’s too bad: it features the last known performance of “New York City Serenade” for 24 years.
+There's no audio from the late show, and that's too bad: it features the last known performance of "New York City Serenade" for 24 years.
 
 **1977:** Bruce holds a recording session for his upcoming album at Atlantic Studios in New York City.<br>
 
-**1978:** Bruce and the E Street Band deliver a scorching performance at Washington DC’s Capital Center (actually in Largo, Maryland)–and we know just how good it was because we can see for ourselves: this show is captured in stunning quality (for the time). Watch below to see the E Street Band at the height of their powers.<br>
+**1978:** Bruce and the E Street Band deliver a scorching performance at Washington DC's Capital Center (actually in Largo, Maryland)–and we know just how good it was because we can see for ourselves: this show is captured in stunning quality (for the time). Watch below to see the E Street Band at the height of their powers.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YnjIaFFn)
 
 [Watch Video Highlight](https://videopress.com/embed/j6U6TOXs)
 
-**1982:** Bruce joins Cats on a Smooth Surface at their fourth anniversary party at The Stone Pony. Amazingly, the set was captured on film–check out “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” and “[Sweet Soul Music](../1976-01-20_cover-me-sweet-soul-music/post.md/)” below.<br>
+**1982:** Bruce joins Cats on a Smooth Surface at their fourth anniversary party at The Stone Pony. Amazingly, the set was captured on film–check out "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and "[Sweet Soul Music](../1976-01-20_cover-me-sweet-soul-music/post.md/)" below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/5WvffBvQ)
 
-**1985:** Bruce and the E Street Band play their second of two nights at Philadelphia’s Veterans Stadium on the Born in the U.S.A. Tour.<br>
+**1985:** Bruce and the E Street Band play their second of two nights at Philadelphia's Veterans Stadium on the Born in the U.S.A. Tour.<br>
 
 [Watch on Youtube: Bruce Springsteen August 15, 1985 Philadelphia](https://www.youtube.com/watch?v=m8p5z71YIrY)
 
@@ -28,19 +38,19 @@ There’s no audio from the late show, and that’s too bad: it features the las
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-15b.png.webp)
 
-**2002:** Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that’s about to change.<br>
+**2002:** Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that's about to change.<br>
 
 [Watch on Youtube: Auburn Hill 15/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2002-08-15.png.webp)
 
-**2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres “[You Can’t Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/),” played for the first time in almost a decade, as well as “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md).”<br>
+**2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)," played for the first time in almost a decade, as well as "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/oc0WivO0)
 
 [Watch on Youtube: Springsteen Fans](https://www.youtube.com/watch?v=c7R8BLSvYEQ)
 
-**2012:** Night Two at Boston’s Fenway Park brings an embarrassment of riches, from an opening “Thunder Road” with just Bruce and Roy, to an almost completely audibled opening pack, to the first “[Knock on Wood](../2021-04-02_cover-me-knock-on-wood/post.md)” in 36 years, to the first “[Prove It ’78](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” in the U.S.A. since ’78, a guest-spot by Ken Casey, and so much more. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26943/bruce-springsteen-fenway-park-boston-ma-08-15-2012-mp3-flac-or-online-music-streaming.html). For more highlights from this show, see my [*Where the Band Was*](../2018-08-15_where-the-band-was-boston-august-15-2012/post.md) report.<br>
+**2012:** Night Two at Boston's Fenway Park brings an embarrassment of riches, from an opening "Thunder Road" with just Bruce and Roy, to an almost completely audibled opening pack, to the first "[Knock on Wood](../2021-04-02_cover-me-knock-on-wood/post.md)" in 36 years, to the first "[Prove It '78](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" in the U.S.A. since '78, a guest-spot by Ken Casey, and so much more. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26943/bruce-springsteen-fenway-park-boston-ma-08-15-2012-mp3-flac-or-online-music-streaming.html). For more highlights from this show, see my [*Where the Band Was*](../2018-08-15_where-the-band-was-boston-august-15-2012/post.md) report.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/FaVCWMDK)
 
@@ -58,6 +68,6 @@ There’s no audio from the late show, and that’s too bad: it features the las
 
 **2024:** Almost a year after their originally scheduled date, Bruce and the E Street Band perform their first of two shows at PPG Paints Arena in Pittsburgh.<br>
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=9Mk_nzE6UzQ)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + "Seeds" - Pittsburgh, PA - August 15, 2024](https://www.youtube.com/watch?v=9Mk_nzE6UzQ)
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=_tTe-WKKKow)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - "Letter to You" - Pittsburgh, PA - August 15, 2024](https://www.youtube.com/watch?v=_tTe-WKKKow)

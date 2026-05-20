@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Jump"
+author: "Ken"
+excerpt: "Twice only: Bruce Springsteen and the E Street Band cover one of the greatest rock anthems of the 1980s."
+tags: jump van-halen
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/jump.jpg
+post_id: 8280
+---
 No list of eighties arena rock anthems would be complete without Van Halen's "Jump."
 
 [Watch on Youtube: Van Halen - Jump (Official Music Video)](https://www.youtube.com/watch?v=SwYN7mTi6HM)

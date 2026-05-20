@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 30"
+author: "Ken"
+excerpt: "Happy birthday to David Sancious, born on this date in 1953. Plus: Bruce debuts “The New Timer,” a bookstore appearance in Denver, and more."
+tags: atlanta berkeley born-in-the-usa-tour born-to-run-book david-scancious denver ghost-of-tom-joad-tour houston joe-grushecky john-wesley-harding johnny-bye-bye local-hero new-york-city oakland pittsburgh river-tour springsteen-on-broadway the-new-timer the-promised-land trenton world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/david-san.jpg
+post_id: 55141
+---
 ***New for 2024:** Video for 2012; new entry for 2023*<br>
 
 **1953:** Original E Street Band member David Sancious is born in Asbury Park, New Jersey.<br>

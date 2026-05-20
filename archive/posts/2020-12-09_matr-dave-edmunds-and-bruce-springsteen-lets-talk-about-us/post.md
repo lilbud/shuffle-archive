@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Dave Edmunds and Bruce Springsteen, Let's Talk About Us"
+author: "Ken"
+excerpt: "One time only: Bruce teams up with Dave Edmunds at Big Man’s West on Jerry Lee Lewis’ “Let’s Talk About Us.”"
+tags: dave-edmunds jerry-lee-lewis lets-talk-about-us
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/jerry_lee_lewis__lets_talk_about_us_ic001_570.jpg
+post_id: 7880
+---
 “Let’s Talk About Us” isn’t one of Jerry Lee Lewis’ most well-known songs (released as a single in 1959, it never charted), but it’s certainly one of his most direct.
 
 Even for Lewis, known for his suggestive lyrics, “Let’s Talk About Us” is a remarkably direct song for its time. Jerry Lee plays an impatient suitor telling his girl that he’s waited long enough: it’s sexy time.

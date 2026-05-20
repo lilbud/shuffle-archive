@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: True Love Is Hard to Come By"
+author: "Ken"
+excerpt: "A fascinating work-in-progress that eventually led to “Janey, Don’t You Lose Heart.”"
+tags: janey-dont-you-lose-heart true-love-is-hard-to-come-by
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/true-love.jpeg
+post_id: 2179
+---
 Judging from the three work-in-progress demo recordings of "True Love Is Hard to Come By" that have escaped into the wild, we might conclude that Bruce was never quite able to figure out what we wanted to do with this song.
 
 He tried different styles, from reggae…

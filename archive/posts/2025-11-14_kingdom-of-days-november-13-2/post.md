@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 13"
+author: "Ken"
+excerpt: "On this date: The debut of “The Hitter,” a rare 1971 soundboard performance, and more. Plus: “Good evening, Ohio!”"
+tags: atlantic-city backstreets better-days bob-dyland brian-williams bruce-springsteen-band castiles detroit devils-and-dust-tour ghost-of-tom-joad-tour jackson-browne love-ride new-jersey-hall-of-fame new-york-city ramblin-gamblin-man santa-ana southside-johnny springsteen-on-broadway student-prince syracuse the-hitter working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/november-13th-2024-winnipeg-mb-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 61364
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1965:** The Castiles play a show at the Firehouse in Hazlet, New Jersey.<br>

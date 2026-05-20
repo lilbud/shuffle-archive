@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: January 1"
+author: "Ken"
+excerpt: "Happy New Year! On this date: Bruce wraps up the Darkness Tour, releases the single for “Fire,” and plays an impromptu Stone Pony set."
+tags: darkness-tour fire live-1975-85 richfield roy-bittan southside-johnny steve-van-zandt stone-pony
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/19790101_front.jpg
+post_id: 63727
+---
 **New for 2026:** No updates<br>
 
 **1976:** Bruce, Steve, Roy, and David Sancious drop by The Stone Pony, where they join Southside Johnny and The Asbury Jukes on stage for several numbers.<br>

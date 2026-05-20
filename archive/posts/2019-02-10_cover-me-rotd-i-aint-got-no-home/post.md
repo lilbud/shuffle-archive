@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me/RotD: I Ain't Got No Home"
+author: "Ken"
+excerpt: "Bruce follows in the footsteps of Woody Guthrie, recasting “I Ain’t Got No Home” for modern times. Listen to Bruce’s studio recording and watch the official video inside."
+tags: folkways-a-vision-shared i-aint-got-no-home woody-guthrie
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/gotnohome.jpg
+post_id: 7391
+---
 Bruce has a penchant for taking songs (both traditional and popular) and recasting them, adding or replacing lyrics and creating new layers of meaning. He's done that on a spectrum that spans from "[How Can a Poor Man Stand Such Times and Live?](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" to "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," from "[Hard Times Come Again No More](../2022-01-21_cover-me-hard-times-come-again-no-more/post.md)" to "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)."
 
 But of all the songs Bruce has taken liberties with, Woody Guthrie's "I Ain't Got No Home" is perhaps the most fitting, because Guthrie himself is very likely Bruce's patron saint when it comes to musical adaptations.
@@ -26,7 +36,7 @@ Here's the most recent outing (and one of the finest) from SxSW 2012:
 
 [Watch on Youtube: Springsteen - I Ain't Got No Home SXSW](https://www.youtube.com/watch?v=Kgt4Y1EIz64)
 
-Sadly, the song has been relevant since Bruce first recorded it, and it doesn't look like that's about to change any time soon... so chances are good we'll hear it again.
+Sadly, the song has been relevant since Bruce first recorded it, and it doesn't look like that's about to change any time soon… so chances are good we'll hear it again.
 
 **I Ain't Got No Home**<br>
 **Recorded:** 1987-1988<br>

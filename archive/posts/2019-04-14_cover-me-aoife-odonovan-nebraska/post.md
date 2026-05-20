@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Cover Me, Aoife O'Donovan: Nebraska"
+author: "Ken"
+excerpt: "Singer-songwriter Aoife O’Donovan turns in a gorgeously sung and beautifully filmed performance of “Nebraska.”"
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/aoife.jpg
+post_id: 4621
+---
 I guess i'm in a bit of a *Nebraska* mood this week, as this the second cover I've posted recently from that album.
 
 But Aoife O'Donovan's cover of the [title track](../2018-04-16_roll-of-the-dice-nebraska/post.md) is too good to sit on, so I won't.

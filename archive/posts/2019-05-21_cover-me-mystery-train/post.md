@@ -1,12 +1,22 @@
-Ah, "Mystery Train." It's so easy to find snippets of it in Bruce's performances over the years. It shows up scores of times, from "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)..."
+---
+layout: post
+title: "Cover Me: Mystery Train"
+author: "Ken"
+excerpt: "The biggest mystery about “Mystery Train” (besides why it’s called that): why’d it take so long for Bruce to cover it?"
+tags: elvis-presley junior-parker mystery-train
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/mystery.jpg
+post_id: 9736
+---
+Ah, "Mystery Train." It's so easy to find snippets of it in Bruce's performances over the years. It shows up scores of times, from "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)…"
 
 [Watch Video Highlight](https://videopress.com/embed/Ml73wUVB)
 
-...to "[Johnny Bye Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)..."
+…to "[Johnny Bye Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)…"
 
 [Watch on Youtube: Bruce Springsteen - Johnny Bye Bye (with story of almost meeting Elvis)](https://www.youtube.com/watch?v=FT3c2lc4Gvk)
 
-...to "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."
+…to "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."
 
 [Watch on Youtube: Bruce Springsteen with The SSB -Cadillac Ranch/Mistery Train](https://www.youtube.com/watch?v=mYeiOaOluqU)
 
@@ -34,7 +44,7 @@ But it wasn't until 2003 that fans got to hear Bruce sing "Mystery Train" with t
 
 [Watch Video Highlight](https://videopress.com/embed/a0fJ1kW8)
 
-Why did it take so long for Bruce to cover a song he'd quoted, excerpted, and mashed up so many times? And why hasn't he played it since? It's a... well, you know.
+Why did it take so long for Bruce to cover a song he'd quoted, excerpted, and mashed up so many times? And why hasn't he played it since? It's a… well, you know.
 
 **Mystery Train**<br>
 **First performed:** April 12, 1995 (New York City, NY)<br>

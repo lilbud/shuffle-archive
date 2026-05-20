@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 1"
+author: "Ken"
+excerpt: "On this date: Bruce begins recording the Darkness album, convenes his new band for their first rehearsal, plays his first show as a married man, and wraps up World Tour 1993. These highlights and more inside."
+tags: barcelona born-in-the-usa-tour born-to-be-wild chicago child darkness-of-the-edge-of-town devils-and-dust-tour glasgow ireland john-eddie london new-york-city norway oslo richmond river-tour river-tour-2016 scotland spain springsteen-on-broadway stone-pony uk waitin-on-a-sunny-day world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/glas.jpg
+post_id: 56993
+---
 ***New for 2025:** Audio for 1977 and 1993; new entry for 1979, 1983, and 2024*<br>
 
 **1969:** Bruce performs in Virginia for the first time when Child plays a free outdoor concert at Monroe Park in Richmond. Noise complaints from local college students(!) force an early end to the show. The band drives back to New Jersey, where they headline that evening at Pandemonium in Wanamassa.<br>
@@ -16,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1974-0601.jpg.webp)
 
-**1977:** Finally free to record again after settling his legal dispute with Mike Appel, Bruce officially kicks off the recording sessions for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). The sessions start with a bang, with at least ten tracks recorded on this first day, including the officially released version of “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md).”<br>
+**1977:** Finally free to record again after settling his legal dispute with Mike Appel, Bruce officially kicks off the recording sessions for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). The sessions start with a bang, with at least ten tracks recorded on this first day, including the officially released version of "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)."<br>
 
 [Watch on Youtube: Something in the Night](https://www.youtube.com/watch?v=5q_JZGV05Rk)
 
@@ -26,17 +36,17 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1977-06-01.jpg.webp)
 
-**1979:** Bruce and the E Street Band work on “[Little White Lies](../2018-03-20_roll-of-the-dice-little-white-lies/post.md)” and “[Mary Lou](../2019-04-03_roll-of-the-dice-mary-lou/post.md)” at the Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on "[Little White Lies](../2018-03-20_roll-of-the-dice-little-white-lies/post.md)" and "[Mary Lou](../2019-04-03_roll-of-the-dice-mary-lou/post.md)" at the Power Station in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen - Little White Lies (V2) - Studio take at the Power Station (June 1, 1979)](https://www.youtube.com/watch?v=JlfQCfBSxaw)
 
-**1981:** Bruce and the E Street Band play their third of six shows at London’s Wembley Arena.<br>
+**1981:** Bruce and the E Street Band play their third of six shows at London's Wembley Arena.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bBlBT9ah)
 
-**1983:** Bruce and the E Street Band work on “[Drop on Down and Cover Me](../2019-12-18_roll-of-the-dice-drop-on-down-and-cover-me/post.md)” at The Hit Factory in New York City.<br>
+**1983:** Bruce and the E Street Band work on "[Drop on Down and Cover Me](../2019-12-18_roll-of-the-dice-drop-on-down-and-cover-me/post.md)" at The Hit Factory in New York City.<br>
 
-**1984:** Bruce sits in with John Eddie and the Front Street Runners at the Stone Pony, performing four cover songs with the band. Earlier in the day, Max Weinberg releases his book *The Big Beat: Conversations with Rock’s Great Drummers.*<br>
+**1984:** Bruce sits in with John Eddie and the Front Street Runners at the Stone Pony, performing four cover songs with the band. Earlier in the day, Max Weinberg releases his book *The Big Beat: Conversations with Rock's Great Drummers.*<br>
 
 [Watch Video Highlight](https://videopress.com/embed/P7I4JtrM)
 
@@ -44,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1984-06-01b.jpg.webp)
 
-**1985:** Bruce plays his first ever show in Ireland, kicking off the European leg of the Born in the U.S.A. Tour with a show at Slane Castle, before the largest crowd that Bruce has ever played to (over 90,000 people). This is also Bruce’s return to the stage after getting married, and he marks the occasion with a one-time-only performance of “[When I Grow Up (To Be a Man)](https://estreetshuffle.com/index.php/2019/07/08/cover-me-when-i-grow-up-to-be-a-man/)” in the encores.<br>
+**1985:** Bruce plays his first ever show in Ireland, kicking off the European leg of the Born in the U.S.A. Tour with a show at Slane Castle, before the largest crowd that Bruce has ever played to (over 90,000 people). This is also Bruce's return to the stage after getting married, and he marks the occasion with a one-time-only performance of "[When I Grow Up (To Be a Man)](https://estreetshuffle.com/index.php/2019/07/08/cover-me-when-i-grow-up-to-be-a-man/)" in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen - WHEN I GROW UP TO BE A MAN 1985 (audio)](https://www.youtube.com/watch?v=FXckY2qzdUU)
 
@@ -60,7 +70,7 @@
 
 [Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
-**1993:** Bruce wraps up World Tour 1993 with a show at Valle Hovin Stadion in Oslo. “[Born to Be Wild](../2020-05-20_cover-me-born-to-be-wild/post.md)” in the encore is a tour premiere, featuring vocals by Bruce’s roadie Rick “Chainsaw” Lapointe. Warren Kay, another crew member, joins during the final encore of “Twist and Shout.”<br>
+**1993:** Bruce wraps up World Tour 1993 with a show at Valle Hovin Stadion in Oslo. "[Born to Be Wild](../2020-05-20_cover-me-born-to-be-wild/post.md)" in the encore is a tour premiere, featuring vocals by Bruce's roadie Rick "Chainsaw" Lapointe. Warren Kay, another crew member, joins during the final encore of "Twist and Shout."<br>
 
 [Watch on Youtube: Bruce Springsteen - Born to be wild (Oslo, 1th June '93) PRO-SHOT](https://www.youtube.com/watch?v=O37NpEiLRmI)
 
@@ -72,7 +82,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/4p0FNGab)
 
-**2016:** When the River Tour stops in Glasgow, Bruce opens the show with “[Waitin’ on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md),” and tour premieres “American Skin (41 Shots)” and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
+**2016:** When the River Tour stops in Glasgow, Bruce opens the show with "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," and tour premieres "American Skin (41 Shots)" and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
 
 [Watch on Youtube: 2016-06-01 Bruce Springsteen - American Skin (41 Shots)](https://www.youtube.com/watch?v=vtg-vJbCH34)
 
@@ -82,7 +92,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2019:** Bruce attends (but does not perform at) Bob Seger’s concert in Holmdel, New Jersey. Bob dedicates “Downtown Train” to Bruce.<br>
+**2019:** Bruce attends (but does not perform at) Bob Seger's concert in Holmdel, New Jersey. Bob dedicates "Downtown Train" to Bruce.<br>
 
 [Watch on Youtube: "Downtown Train (Dedicated to Bruce Springsteen)" Bob Seger@Holmdel, NJ 6/1/19](https://www.youtube.com/watch?v=gh8HkDEKAHE)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 7"
+author: "Ken"
+excerpt: "It’s a date for tributes, as Bruce salutes Harry Chapin, Bob Dylan, and Sting. Plus: two holiday shows, Clarence’s last E Street appearance, Bruce plays Sing Sing Prison and more–all on this very, very packed date."
+tags: aint-good-enough-for-you asbury-park austin blue-christmas bob-dylan bobby-bandiera born-in-the-usa born-in-the-usa-tour born-to-run-tour bruce-hornsby darkness-tour david-lindley geneva germany gotta-get-that-feeling harry-chapin holiday-shows human-touch i-hung-my-head jesse-malin jon-bon-jovi kennedy-center-honors lisa-lowell max-weinberg-7 miami-horns mike-appel new-york-city nils-lofgren patti-scialfa philadelphia preachers-daughter racing-in-the-street-78 remember-when-the-music sam-moore shes-the-one sing-sing-prison soozie-tyrell southside-johnny springsteen-on-broadway sting tallahassee the-promise the-times-they-are-a-changin thunder-road washington-dc willie-nile world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/carousel.jpg
+post_id: 55269
+---
 ***New for 2024:** Video for 2003 and 2010*<br>
 
 **1972:** Mike Appel arranges an unusual publicity event for Bruce and his band–at the chapel of the Ossining Correctional Facility (otherwise known as Sing Sing Prison), where Bruce's grandfather had once served a three-year sentence. Bruce plays a set of covers that at one point even involves an inmate joining the band. That night, Bruce and the band drive back to New York City to play *another* two shows–this time at Kenny's Castaways. Former *Crawdaddy* editor Greg Mitchell is in attendance at both venues; watch his account of that day below.<br>

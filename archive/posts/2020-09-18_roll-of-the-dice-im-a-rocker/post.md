@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'm a Rocker"
+author: "Ken"
+excerpt: "Today’s public service: a Guide to “I”m a Rocker” for Millennials and Generation Z. (It’s all about 1966.)"
+tags: im-a-rocker the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/imarocker.jpg
+post_id: 20935
+---
 Ladies and gentlemen, the winner of the Most Dated Song in the Springsteen Catalog award is…
 
 [Watch on Youtube: I'm a Rocker](https://www.youtube.com/watch?v=xLCPrLrg2qI)

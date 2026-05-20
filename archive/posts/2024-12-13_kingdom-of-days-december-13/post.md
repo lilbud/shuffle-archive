@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 13"
+author: "Ken"
+excerpt: "On this date: Bruce joins Paul Simon and an all-star line-up to combat homelessness, the E Street Band plays the entire Darkness album to an empty theater, and more."
+tags: a-teenager-in-love albany around-and-around asbury-park badlands billy-joel bobby-jean born-in-the-usa-tour boston brilliant-disguise cologne darkness-on-the-edge-of-town darkness-tour dion-dimucci germany ghost-of-tom-joad-tour james-taylor joe-grushecky lou-reed magic-tour memphis new-york-city patti-scialfa paul-simon racing-in-the-street rising-tour santa-claus-is-comin-to-town shes-the-one something-in-the-night springsteen-on-broadway the-promise-the-darkness-on-the-edge-of-town-story tucson wolfgang-niedecken world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/boston92.jpg
+post_id: 55290
+---
 ***New for 2024:** Review for 1984 and 1997; audio for 1992; video for 2007 and 2009*<br>
 
 **1973:** Newly discovered contemporaneous press coverage (dated December 26 1973) suggests Bruce played a show (or at least was scheduled to) at the Shaboo Inn in Willimantic Connecticut.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Man's Job"
+author: "Ken"
+excerpt: "This Stax/Volt homage (featuring Sam Moore himself) is an unjustly overlooked gem from Bruce’s early 1990s era."
+tags: human-touch mans-job
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/mansjob.jpg
+post_id: 34693
+---
 In his autobiography and Broadway show, Bruce Springsteen spent considerable time describing the profound influence of Elvis Presley on a young, impressionable future rock icon. And of course, the story of Bruce and Stevie's attempted Graceland break-in has long since become legend.
 
 But if you want to see where Bruce truly drew inspiration for his stage persona, you'll need to travel only a few short miles north from Graceland to Stax Records, where Sam Moore and Dave Prater were at the peak of their popularity just as the fifteen-year-old Springsteen joined his very first band.

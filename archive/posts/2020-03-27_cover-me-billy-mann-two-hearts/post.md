@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Billy Mann: Two Hearts"
+author: "Ken"
+excerpt: "Released on an EP of outtakes from a Springsteen tribute album, Billy Mann’s gorgeous cover of “Two Hearts” couldn’t be more under-the-radar. It shouldn’t be–take a listen to this must-hear performance inside."
+tags: billy-mann two-hearts
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/billy-mann.jpg
+post_id: 16921
+---
 These days, Billy Mann works behind the scenes as a music industry executive, but back in the mid-to-late nineties he was a solo artist for A&M with a pair of studio albums to his name.
 
 Perhaps that's why he was invited to participate in 1998 Springsteen tribute project, *One Step Up/Two Steps Back: The Songs of Bruce Springsteen*.

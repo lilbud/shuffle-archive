@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Party Lights"
+author: "Ken"
+excerpt: "Part “Point Blank” and part “Jersey Girl,” this River outtake is much more than the sum of its parts."
+tags: party-lights the-ties-that-bind-the-river-collection
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/party.gif
+post_id: 14214
+---
 A great chef can take a few ingredients and use them to create any number of wonderful dishes. So why shouldn't the same be true for songwriters?
 
 Hardcore Springsteen fans are well aware of Bruce's penchant for recycling lyrics and music; it stems from his practice of writing lyrics and music independently of each other.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Love Is a Crazy Thing"
+author: "Ken"
+excerpt: "One time only: The Bruce Springsteen Band plays a slight love song that might be a musical ancestor of “Kitty’s Back.”"
+tags: love-is-a-crazy-thing the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/apron.jpg
+post_id: 20377
+---
 Towards the tail end of the sparsely-documented Bruce Springsteen Band era, Bruce introduced a song known as "Love Is a Crazy Thing."
 
 Only known to have been performed once (but likely performed more than that), it was at least captured that one time at The Back Door in Richmond, in February 1972.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 19"
+author: "Ken"
+excerpt: "On this date in history: Bruce releases his American Beauty EP. Plus: the live debut of “Follow That Dream” and “Where the Bands Are” and much more."
+tags: american-beauty berlin born-in-the-usa-tour brown-eyed-girl canada charlotte follow-that-dream france germany ghost-of-tom-joad-tour high-hopes-tour iceman im-on-fire incident-on-57th-street italy japan kyoto milan montreal new-york-city paris record-store-day reunion-tour rising-tour river-tour rotterdam springsteen-on-broadway the-netherlands where-the-bands-are working-on-the-highway world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/americanbeauty.jpg
+post_id: 56557
+---
 **1974:** Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1974-04-19.jpg.webp)

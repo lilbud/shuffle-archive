@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 5"
+author: "Ken"
+excerpt: "Bruce makes his first television appearance, makes his first political endorsement (earlier than you might think), and plays “Drive All Night” for the first time in 27 years–all on this date in history."
+tags: austria born-in-the-usa-tour bruce-springsteen-band bryn-mawr castiles cincinnati darkness-tour drive-all-night east-rutherford france george-mcgovern gothenburg hollywood incident-on-57th-street inglewood italy jay-weinberg magic-tour main-point meet-me-in-the-city milan monchengladbach paris river-tour river-tour-2016 sweden vienna working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/admin-ajax-50.jpg
+post_id: 57606
+---
 **1968:** The Castiles play a set at the West End Casino in Long Branch, New Jersey.<br>
 
 **1972:** The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant's Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce's first overtly political action as a musician, and even then his favored candidates were decidedly liberal.<br>

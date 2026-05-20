@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Gypsy Biker"
+author: "Ken"
+excerpt: "“Gypsy Biker” is one of Bruce’s angriest songs and best modern vocals. Filled with loss, regret, rage, and resignation, it’s an emotional powerhouse that anchors the Magic album."
+tags: gypsy-biker magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/gypsy.jpg
+post_id: 9732
+---
 "Gypsy Biker" has the soul of Bruce's classic narrative laments like "Highway Patrolman," "[The Line](../2018-08-08_roll-of-the-dice-the-line/post.md)," or "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"
 
 In fact, in its first moments, "Gypsy Biker" almost sounds like a self-homage to "The River." Seriously: listen to the opening bars of both, and you'll hear the similarity in the rueful harmonica and acoustic guitar intros.
@@ -12,12 +22,12 @@ The gypsy biker, of course, isn't the singer. It's the singer's brother, whose d
 
 In Bruce's typical fashion, he spends the first verse setting the scene, intercutting between intimate scenes of familial grief and anonymous profiteering by those who'll never know the price someone else paid for their riches. He sings in a high register, his vocals pinched to convey the anguish of the narrator.
 
-> *The speculators made their money on the blood you shed*
-> *Your momma's pulled the sheets up off your bed*
-> *The profiteers on Jane Street sold your shoes and clothes*
-> *Ain't nobody talkin' because everybody knows*
-> *We pulled your cycle up back to the garage and polished up the chrome*
-> *Our gypsy biker's comin' home*
+> *The speculators made their money on the blood you shed*<br>
+> *Your momma's pulled the sheets up off your bed*<br>
+> *The profiteers on Jane Street sold your shoes and clothes*<br>
+> *Ain't nobody talkin' because everybody knows*<br>
+> *We pulled your cycle up back to the garage and polished up the chrome*<br>
+> *Our gypsy biker's comin' home*<br>
 
 Another Springsteen trademark is in play: conveying information without directly stating it. Bruce strongly implies that the biker is a soldier (a recurring theme on the *Magic* album), and although the last line of the verse sounds hopeful, the earlier "sheets up off your bed" line informs us otherwise–the biker is not coming home alive.
 
@@ -25,12 +35,12 @@ We also know that the singer isn't blaming whoever pulled the trigger on his bro
 
 In the next verse, Bruce sets up the central conflict of the song: a family and town torn apart by loss.
 
-> *Sister Mary sits with your colors, brother John is drunk and gone*
-> *This whole town's been rousted, which side are you on?*
-> *The favored march up over the hill in some fool's parade*
-> *Shoutin' victory for the righteous but there ain't much here but graves*
-> *Ain't nobody talkin', we're just waitin' on the phone*
-> *Gypsy biker's comin' home*
+> *Sister Mary sits with your colors, brother John is drunk and gone*<br>
+> *This whole town's been rousted, which side are you on?*<br>
+> *The favored march up over the hill in some fool's parade*<br>
+> *Shoutin' victory for the righteous but there ain't much here but graves*<br>
+> *Ain't nobody talkin', we're just waitin' on the phone*<br>
+> *Gypsy biker's comin' home*<br>
 
 It's unclear (probably deliberately so), whether Sister Mary is a religious or a familial reference, but either way she sits watch over the flag that drapes the biker's empty coffin, while Brother John (a sibling, a close friend, or a fellow soldier) drowns his sorrows.
 
@@ -38,26 +48,26 @@ The townspeople take sides and demonstrate their political loyalties, but as the
 
 The song's bridge features the song's most stark imagery, one that sticks with the listener long after the song ends:
 
-> *We rode her into the foothills, Bobby brought the gasoline*
-> *We stood 'round her in a circle as she lit up the ravine*
-> *The spring high desert wind rushed down on us all the way back home*
+> *We rode her into the foothills, Bobby brought the gasoline*<br>
+> *We stood 'round her in a circle as she lit up the ravine*<br>
+> *The spring high desert wind rushed down on us all the way back home*<br>
 
 The biker's friends and family drive the bike out to the desert and burn it, sending it to the heavens in place of the biker himself, and it's at this point that we realize that the "home" the biker is going back to isn't on this earth.
 
 In the last verse, Bruce sings directly to the biker. Bruce's vocal here is devastatingly laden with emotion–it's one of his best performances on the album:
 
-> *To the dead, it don't matter much 'bout who's wrong or right*
-> *You asked me that question, I didn't get it right*
-> *You slipped into your darkness, now all that remains*
-> *Is my love for you brother, lying still and unchanged*
-> *To them that threw you away, you ain't nothin' but gone*
-> *My gypsy biker's coming home*
+> *To the dead, it don't matter much 'bout who's wrong or right*<br>
+> *You asked me that question, I didn't get it right*<br>
+> *You slipped into your darkness, now all that remains*<br>
+> *Is my love for you brother, lying still and unchanged*<br>
+> *To them that threw you away, you ain't nothin' but gone*<br>
+> *My gypsy biker's coming home*<br>
 
 Listen to it, and feel the bitterness and regret in "I didn't get it right"; the sincerity and devotion in "my love for you brother" and the anger and resentment in "you ain't nothin' but gone." This verse shreds me every single time I hear it–as do the final lyrics:
 
-> *Now I'm out countin' white lines*
-> *‘Countin white lines and getting stoned*
-> *My gypsy biker's coming home*
+> *Now I'm out countin' white lines*<br>
+> *‘Countin white lines and getting stoned*<br>
+> *My gypsy biker's coming home*<br>
 
 When the song first came out, fans would argue about the "white lines." Do they refer to cocaine or to highway lane dividers? To argue is to miss the point entirely: either way, the singer is self-medicating, distracting himself either with hard drugs or the soporific highway, unable to move past his loss.
 

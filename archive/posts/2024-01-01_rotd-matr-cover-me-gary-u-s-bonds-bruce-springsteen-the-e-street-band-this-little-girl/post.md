@@ -1,3 +1,13 @@
+---
+layout: post
+title: "ROTD/MatR/Cover Me, Gary U.S. Bonds, Bruce Springsteen & The E Street Band, This Little Girl"
+author: "Ken"
+excerpt: "Bruce penned “This Little Girl” for Gary U.S. Bonds’ comeback album, and it worked–providing Bonds with a Top 40 (and almost a Top 10) hit, powered by the E Street Band and Bruce’s lyrics, music, and backing vocals."
+tags: aint-good-enough-for-you dedication gary-u-s-bonds quarter-to-three this-little-girl
+categories: cover-me cover-you meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/thislittlegirl_sin-us-07i.jpg
+post_id: 4184
+---
 The first time I ever heard "This Little Girl," I was twelve.
 
 My dad had the song on a 45 single, and he played that thing to death. He loved that song, and I loved it too–but I remember thinking to myself the first time I heard it: *this sounds like a Bruce Springsteen song*. It's the earliest memory I have of recognizing an artist's style in a recording credited to someone else.

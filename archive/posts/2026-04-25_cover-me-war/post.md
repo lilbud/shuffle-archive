@@ -1,3 +1,13 @@
+---
+layout: post
+title: "War"
+author: "Ken"
+excerpt: "Edwin Starr’s “War” remains sadly relevant ever since its original smash release. In 1985, Bruce released a live music video of his cover version, and three years later he performed it with Starr himself. Watch both amazing performances inside."
+tags: edwin-starr live-1975-85 the-temptations war
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2016/01/81I2u-RmOLL._SL1500_.jpg
+post_id: 9987
+---
 > "Welcome to The Land of Hope and Dreams American Tour! I want to begin the night with a prayer for our men and women overseas. We pray for their safe return. The mighty E Street Band is here tonight to call upon the righteous power of art, of music, of rock and roll, in dangerous times.
 >
 > We are here in celebration and defense of our American ideals, our democracy, our constitution, and our sacred American promise. The America I love, the America I have written about for 50 years, that has been a beacon of hope and liberty around the world, is currently in the hands of a corrupt, incompetent, racist, reckless, and treasonous administration.

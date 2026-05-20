@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Roll of the Dice: Dance, Dance, Dance"
+author: "Ken"
+excerpt: "“Dance, Dance, Dance” is a delightfully atypical, funky, horn-fueled, unreleased delight from 1971."
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/dance-dance-dance.jpg
+post_id: 2779
+---
 Today's roll of the dice is undeservedly obscure.
 
 Sandwiched in between Bruce's guitar-heavy Steel Mill jams and his early Columbia character-driven stories is this funky, horn-fueled dance number.

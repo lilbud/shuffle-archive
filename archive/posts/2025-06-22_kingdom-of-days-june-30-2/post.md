@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 30"
+author: "Ken"
+excerpt: "Bruce headlines Hard Rock Calling, plays an impromptu 2am concert in Iceland(!), guest-stars with Jackson Browne, and more."
+tags: atlantic-city berkeley bern born-in-the-usa-tour dancing-in-the-dark darkness-tour elliott-murphy france glory-days hard-rock-calling i-fought-the-law iceland jackson-browne london my-lucky-day new-york-city paris rock-ballad springsteen-on-broadway sweet-little-sixteen switzerland uk working-on-a-dream-tour world-tour-1992 wrecking-ball-tour zac-brown
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/bs230630_01.jpg
+post_id: 57528
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1974:** A scheduled E Street Band gig in Memphis is cancelled.<br>
@@ -56,7 +66,7 @@
 
 **2013:** Bruce headlines Hard Rock Calling in London's Queen Elizabeth Olympic Park, where Bruce plays his *Born in the U.S.A.* album start-to-finish. Zac Brown guests on "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)," and Bruce closes with an acoustic "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)" (replacing the setlisted "Thunder Road"). The full-album portion of the show will be included with Bruce's *High Hopes* album the following year.<br>
 
-[Watch on Youtube: Bruce Springsteen - Born In the U.S.A. (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=SHIOcg4I3dk)
+[Watch on Youtube: Bruce Springsteen - Born In the U.S.A. (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=SHIOcg4I3dk?list=PLJ3gKh8Ty5pa1S4GH2XAnSLfFVVbm6fnz)
 
 [Watch on Youtube: BRUCE SPRINGSTEEN THE RISING Olympic Park in London, England on June 30, 2013 (HRC Festival).](https://www.youtube.com/watch?v=9egv_dfhP_U)
 

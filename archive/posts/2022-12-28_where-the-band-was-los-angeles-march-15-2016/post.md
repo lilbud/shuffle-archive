@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, March 15, 2016"
+author: "Ken"
+excerpt: "A fantastic opener to a sizzling three-night stand that sent off the L.A. Sports Arena off to meet the Wrecking Ball in style."
+tags: human-touch hungry-heart i-wanna-marry-you lonesome-day los-angeles out-in-the-street river-2016-tour sports-arena the-river thunder-road wrecking-ball
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/bs160315_01.jpg
+post_id: 1143
+---
 It can be a bit hard to focus on a concert when Rocky Balboa is rocking out in front of you. But that's the risk when you catch a show in L.A., where the stars mix right in with the hoi polloi. (And yes, that's Stallone actually taking photos of the crowd (you can see my arm circled), who were chanting "Rocky! Rocky! Rocky!" before the show, to which Sly mugged and waved and generally ate it up. It was charming.)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/sly2.jpg.webp)

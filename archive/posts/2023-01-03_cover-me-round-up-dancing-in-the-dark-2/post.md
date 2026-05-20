@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me Round-Up: Dancing in the Dark (#2)"
+author: "Ken"
+excerpt: "Five great, fresh takes on Bruce Springsteen’s greatest hit."
+tags: big-daddy dancing-in-the-dark harry-pane joshjosh kimmy sixtyfour tom-seth-johnson
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/tomseth.jpg
+post_id: 28861
+---
 Welcome to the third installment of our *Cover Me Round-Up* series, spotlighting Springsteen songs covered too frequently to keep up with unless I spotlight them in batches.
 
 "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" has always been one of Bruce's most popular songs, but over the past year or so, the number of quality covers of it has absolutely exploded–very likely because we're living through times of isolation and frustration not unlike the ones expressed by the song.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 16"
+author: "Ken"
+excerpt: "Quite the grab bag of highlights today: a guest appearance by Mike Ness, a gorgeous acoustic “Point Blank,” the premiere of “Pilgrim in the Temple of Love,” and a Bruce concert gets panned by two critics in the same paper."
+tags: albany bad-luck born-in-the-usa-tour clarence-clemons germany ghost-of-tom-joad-tour japan london los-angeles mike-ness munich point-blank sheffield tokyo uk upstage working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/20120416_booklet2.jpg
+post_id: 56455
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-1-scaled.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3-1-scaled.jpg.webp)

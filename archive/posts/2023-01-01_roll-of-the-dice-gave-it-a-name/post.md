@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Gave it a Name"
+author: "Ken"
+excerpt: "Easily a candidate for Bruce’s most obscure officially released song, “Gave It a Name” is a quiet but powerful commentary on the sins we wrestle with and pass down rather than defeat."
+tags: gave-it-a-name tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/o-GUILT-SHAME-facebook-POST.png
+post_id: 9594
+---
 If there were a contest to name the most obscure officially released Springsteen song, "Gave It a Name" would be a serious contender, if only people could remember it exists.
 
 Most books about Bruce don't even mention it in passing; even Brian Hiatt's otherwise comprehensive *Stories Behind the Songs* omits it.

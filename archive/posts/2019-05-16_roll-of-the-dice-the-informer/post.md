@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Informer"
+author: "Ken"
+excerpt: "Today’s roll of the dice: a tantalizing glimpse of a song still very much lost in the vault… if it ever got recorded at all."
+tags: the-informer
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/informer-2.jpg
+post_id: 8426
+---
 I can't even begin to fathom how much material Bruce still has in his vault, and if we extend "the vault" to include his copious notebooks, it may not be much of an exaggeration to label his unreleased material mountainous.
 
 Springsteen scholars have spent decades documenting song fragments and recording session logs, but even today we *still* keep discovering evidence of previously unknown compositions.

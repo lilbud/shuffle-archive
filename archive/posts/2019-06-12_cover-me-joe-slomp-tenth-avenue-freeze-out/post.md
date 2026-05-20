@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Joe Slomp: Tenth Avenue Freeze-Out"
+author: "Ken"
+excerpt: "Bad Scooter finds his groove pretty quickly in Joe Slomp’s fresh and funky take on “Tenth Avenue Freeze-Out.”"
+tags: joe-slomp tenth-avenue-freeze-out
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/joeslomp.jpg
+post_id: 10318
+---
 To me at least, the most remarkable thing about Joe Slomp's cover of "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" isn't how good it is (and it is *damn* good), it's where it came from.
 
 Listening to it, you'd think that Slomp was a habitue of a New York City jazz club, but Signor Slomp hails from Rome instead, and his version of "Tenth Avenue Freeze-Out" can be found on *For You*, an overlooked 1995 Italian Springsteen tribute album full of daring arrangements of some of Bruce's deepest cuts. They don't all succeed, but the ones that do are both fresh and fantastic.

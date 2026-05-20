@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Two for the Road"
+author: "Ken"
+excerpt: "“Two For the Road” is short, sweet, and offers a few intriguing callback, but ultimately it falls short in both style and substance."
+tags: tracks two-for-the-road
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/twofortheroad.png
+post_id: 19495
+---
 "Two For the Road" is short (not even two minutes long) and sweet, and that's about the highest praise I can muster for it.
 
 There's nothing objectionable about "Two For the Road"–it would take a cynic to turn one's nose up at it–but it's essentially a blander version of "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)." (The two songs even share a lyric.)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 22"
+author: "Ken"
+excerpt: "On this date: Bruce and Steve play an emotional tribute to the victims of the Norway attacks, Bruce makes surprise appearances with Southside Johnny and Joe Grushecky, and the feature documentary Springsteen & I is released to theaters worldwide."
+tags: all-that-heaven-will-allow born-to-run-tour geneva joe-grushecky los-angeles maxs-kansas-city norway oslo peter-hartung-and-the-remakes southside-johnny springsteen-and-i the-bruce-springsteen-band tunnel-of-love-tour we-shall-overcome west-berlin west-germany
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/bruce-springsteen.jpg
+post_id: 57795
+---
 **1971:** The Bruce Springsteen Band headlines two shows at D'Scene in South Amboy, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1971-0722.jpg.webp)

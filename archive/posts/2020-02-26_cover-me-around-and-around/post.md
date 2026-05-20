@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Around and Around"
+author: "Ken"
+excerpt: "Many, many times–but almost always in small clubs: Bruce rocks the house with a cover of Chuck Berry’s classic B-side, “Around and Around.”"
+tags: around-and-around chuck-berry
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/around.jpg
+post_id: 15486
+---
 "Around and Around" was the B-side for one of the greatest, most recognized songs in rock and roll history, Chuck Berry's 1958 smash hit "[Johnny B. Goode](../2018-01-22_meeting-across-the-river-check-berry-bruce-springsteen-and-the-e-street-band/post.md)."
 
 https://www.youtube.com/watch?v=W5gx_b_XCvY

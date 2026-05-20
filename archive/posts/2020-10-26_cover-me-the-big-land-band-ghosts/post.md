@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Big Land Band: Ghosts"
+author: "Ken"
+excerpt: "Bruce’s celebratory “Ghosts” sounds like it was born for a band, but William Goetz of The Big Land Band finds the song’s wistful, nostalgic heart in his beautiful acoustic cover."
+tags: ghosts the-big-land-band william-goetz
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/ghosts.jpg
+post_id: 22492
+---
 It's tempting to call The Big Land Band a Springsteen tribute band, but that would be too limiting. The Berlin-based rock band includes a healthy dose of Springsteen covers in its sets, but they also cover a range of rock and country artists in takes both faithful and fresh.
 
 Today's cover certainly falls in the "fresh" category in more ways than one.

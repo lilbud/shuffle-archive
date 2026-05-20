@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 13"
+author: "Ken"
+excerpt: "Take in highlights from Springsteen shows in every decade today."
+tags: boston child dallas ghost-of-tom-joad-tour jay-weinberg lawsuit-tour oakland reunion-tour richfield river-tour-2016 seeger-sessions-tour stockholm towson tunnel-of-love-express-tour upstage working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/41146181681_8cf89fcedb_o.jpg
+post_id: 56173
+---
 ***New for 2025:** No updates*<br>
 
 **1969:** Child, Bruce's new band, performs at Pandemonium in Wanamassa, New Jersey.<br>

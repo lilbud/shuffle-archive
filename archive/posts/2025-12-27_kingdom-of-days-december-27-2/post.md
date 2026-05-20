@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 27"
+author: "Ken"
+excerpt: "The Born to Run and Darkness Tours wind down, and “Lost in the Flood” makes its last appearance for a quarter-century."
+tags: back-in-the-u-s-a born-to-run-tour bryn-mawr castiles darkness-tour earth having-a-party its-been-a-long-time jon-bon-jovi lost-in-the-flood main-point philadelphia pittsburgh point-blank southside-johnny springsteen-on-broadway stone-pony the-fever
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/19751227_3_front.jpg
+post_id: 63455
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1967:** The Castiles play a show at Le Teendezvous in New Shrewsbury, New Jersey.<br>

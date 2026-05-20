@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I'm So Lonesome I Could Cry"
+author: "Ken"
+excerpt: "Never “officially” covered in concert, Bruce soundchecked Hank Williams’ classic during the Tunnel of Love Tour. Take a listen inside."
+tags: hank-williams im-so-lonesome-i-could-cry
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/lonesome.jpg
+post_id: 5411
+---
 Hank Williams had a considerable influence on Bruce's music, so it's not surprising that Bruce has covered so many of his songs. And yet one of Williams' best-known songs–"I'm So Lonesome I Could Cry" remains *officially* uncovered by Bruce, even through a wide array of artists from Johnny Cash to Keb Mo to Cowboy Junkies to Al Green has taken a swing at it.
 
 [Watch on Youtube: I'M SO LONESOME I COULD CRY (1949) by Hank Williams](https://www.youtube.com/watch?v=4WXYjm74WFI)

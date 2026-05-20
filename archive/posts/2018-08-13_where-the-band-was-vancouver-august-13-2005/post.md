@@ -1,10 +1,20 @@
-Ah, Vancouver... I love that city.
+---
+layout: post
+title: "Where the Band Was: Vancouver, August 13, 2005"
+author: "Ken"
+excerpt: "Bruce wraps up the summer leg of his solo acoustic tour in the Pacific Northwest and gives one of his best performances of the tour."
+tags: 4th-of-july-asbury-park-sandy because-the-night blinded-by-the-light canada devils-and-dust-tour janey-dont-you-lose-heart living-proof lonesome-day state-trooper vancouver
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/20050813_front.jpg
+post_id: 3640
+---
+Ah, Vancouver… I love that city.
 
 It's not my favorite city to see a Springsteen concert, though, because the Vancouver audiences are too darn quiet and respectful–the energy level there is never quite what it is in other cities, even in the usually sedate Pacific Northwest.
 
 For an acoustic show, though, Vancouver is a *great* place to be, and Bruce seemed to recognize it, treating the respectful crowd at his 2005 Devils & Dust show to not just an incredible setlist, but also a night of performances that were just a notch above previous shows.
 
-I don't know how else to describe it, but if you saw previous shows on that run, and you were at the Vancouver show (which at that time was thought to be the last show of the tour–the next leg didn't pick up for two months, and hadn't yet been announced), you know exactly what I mean. I don't know if it was because it was his last opportunity to play those songs for a while, or if it was the crowd, or if he just plain felt like doing something a little different... but almost every song was played and sung just a little differently than on the rest of the tour.
+I don't know how else to describe it, but if you saw previous shows on that run, and you were at the Vancouver show (which at that time was thought to be the last show of the tour–the next leg didn't pick up for two months, and hadn't yet been announced), you know exactly what I mean. I don't know if it was because it was his last opportunity to play those songs for a while, or if it was the crowd, or if he just plain felt like doing something a little different… but almost every song was played and sung just a little differently than on the rest of the tour.
 
 Bruce opened the show with "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)," just as he did in Seattle two days prior–clearly, Bruce was enjoying having Evan tour with him that week.
 

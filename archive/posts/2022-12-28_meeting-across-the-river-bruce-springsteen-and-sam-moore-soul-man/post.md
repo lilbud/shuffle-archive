@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Sam Moore, Soul Man"
+author: "Ken"
+excerpt: "Two master bandleaders sharing the stage together: Bruce and Sam Moore team up to cover a Stax classic at the Rock and Roll Hall of Fame 25th Anniversary Concert."
+tags: sam-and-dave sam-moore soul-man
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/sam-and-dave-soul-man-atlantic-11.jpg
+post_id: 3494
+---
 "Soul Man" made it *almost* all the way to Number One when it was first recorded and released in 1967 on the Stax label by Sam Moore and Dave Prater. It actually peaked at #2, but Sam & Dave won the Grammy Award for Best R&B Group Performance and has become one of the all-time classic rock'n'soul hits.
 
 [Watch on Youtube: Sam & Dave - Soul Man (Official Audio)](https://www.youtube.com/watch?v=S_OX2HwWy-o)

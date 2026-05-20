@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Scialfa and Bruce Springsteen: Tell Him"
+author: "Ken"
+excerpt: "In 1984, a redheaded woman walked into a bar and changed the course of Bruce Springsteen’s life. This is the song she sang, and their only circulating performance of it together."
+tags: gil-hamilton patti-scialfa tell-her tell-him the-exciters
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/tellhim.jpg
+post_id: 16361
+---
 It's 1984, and a red-headed woman walks into a bar.
 
 Let's let Bruce tell the story:

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Portland, August 10, 2005"
+author: "Ken"
+excerpt: "My favorite of the four Devils & Dust shows I attended, Portland ’05 was a motherlode of rarities, gems, and personal debuts."
+tags: devils-and-dust-tour dream-baby-dream frankie i-wish-i-were-blind one-step-up portland soul-drive valentines-day
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/20050810_front-2.jpg
+post_id: 3599
+---
 The Devils and Dust Tour was unpredictable and intimate: just Bruce and his guitars (and occasionally, a piano, a pump organ, and a used electric keyboard he bought on ebay). Maybe it was the relative lack of companionship on a solo tour that prompted Bruce to make unannounced visits to the arena parking lots during breaks in the sound checks. (His son Evan accompanied him for this leg of the tour, but Bruce liked to remark that Evan was usually lost in his videogames.) Whatever the reason, it was a never-before opportunity to meet the artist in person and maybe even make make a request.
 
 My friend Kris and I were lucky enough to meet Bruce outside of the Rose Garden before the Portland show, and Kris requested her favorite song, "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)." She got her request… two shows later. (Luckily, we were at that show, too.)

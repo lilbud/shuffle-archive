@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Kansas City, August 24, 2008"
+author: "Ken"
+excerpt: "A night of surprises closes out the Magic Tour in Kansas City."
+tags: boys cadillac-ranch cynthia dancing-in-the-dark devils-and-dust its-all-over-now kansas-city magic-tour max-weinberg ricky-wants-a-man-of-her-own rockin-all-over-the-world save-the-last-dance-for-me soozie-tyrell
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/20080824_front-1.jpg
+post_id: 3911
+---
 If you want surprises, go to a tour closer and you'll get plenty.
 
 It's the last chance for the band to tick off items on their own bucket lists as well as their fans', and you're bound to get a loose, unpredictable show.

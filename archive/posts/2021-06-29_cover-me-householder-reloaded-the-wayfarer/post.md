@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, HouseHolder Reloaded: The Wayfarer"
+author: "Ken"
+excerpt: "Our final Cover Me entry before our month-long hiatus is Boss-approved! Check out this lovely arrangement of a Western Stars deep cut."
+tags: householder-reloaded the-wayfarer
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/The-householder-Reloaded_FOTO.1a4dec.jpeg
+post_id: 28310
+---
 I know, I know.
 
 I promised I'd move on from the [*Cover Me* contest](https://www.noiespringsteen.com/contest/) entries for a while, now that the evaluation and judging process has begun in earnest.

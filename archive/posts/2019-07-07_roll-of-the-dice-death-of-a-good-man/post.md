@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Death of a Good Man"
+author: "Ken"
+excerpt: "In this installment from the 1968 Notebook, we learn that Bruce had his lean, spare storytelling chops long before he revealed them on Nebraska."
+tags: 1968-notebook death-of-a-good-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/gun.jpg
+post_id: 10934
+---
 It's time for another visit to the "[1968 Notebook](https://estreetshuffle.com/?s=1968+notebook)," where an eighteen-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don't appear on any bootlegs.
 
 The 1968 Notebook was unveiled at an auction in 2006. where it was snapped up for more than $57,000 by a lucky bidder with some very deep pockets. It contains some of Bruce's earliest songwriting exercises.

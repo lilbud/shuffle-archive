@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Where the Band Was: St. Paul, February 29, 2016"
+author: "Ken"
+excerpt: "One leap year ago tonight: Bruce Springsteen and the E Street play only their third-ever Leap Day show. It may have been a standard set, but it was a terrific crowd and performance. Highlights inside."
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/26274131467_e8d4eea376_o.jpg
+post_id: 16332
+---
 Happy Leap Day!
 
 During the first year of this blog, I shared my Springsteen concert memories on the anniversary date of each and every show I attended.

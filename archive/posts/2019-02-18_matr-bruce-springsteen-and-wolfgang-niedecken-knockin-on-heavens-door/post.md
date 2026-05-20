@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Wolfgang Niedecken, Knockin' on Heaven's Door"
+author: "Ken"
+excerpt: "The backstory is odd, but the performance is terrific: watch Bruce and Wolfgang Niedecken deliver a bilingual cover of “Knockin’ on Heaven’s Door” in a German cafe in 1995."
+tags: bob-dylan knockin-on-heavens-door wolfgang-niedecken
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/bob-dylan-knockin-on-heavens-door-cbs-2.jpg
+post_id: 7408
+---
 Of course Bruce has covered "Knockin' on Heaven's Door." Hasn't everybody?
 
 It sure seems that way, at least. Bob Dylan's soundtrack contribution to *Pat Garrett and Billy the Kid* was an instant hit upon its release in 1973 (notching as high as #12 on the Billboard Hot 100), and covers started piling up almost immediately.

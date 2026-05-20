@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Merry Christmas, Baby"
+author: "Ken"
+excerpt: "Bruce’s “other” Christmas song is almost as well-known and much-loved as his “Santa Claus,” even though he’s never performed it beyond New Jersey or New York."
+tags: a-very-special-christmas johnny-moores-three-blazers live-1975-85 merry-christmas-baby otis-redding
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/merryxmasbaby.jpg
+post_id: 6315
+---
 If Bruce is associated with one holiday song, it's "Santa Claus is Comin' to Town." But if he's associated with *two*, the second one is most certainly "Merry Christmas Baby" — and yet, he's only ever played it in concert four times with the E Street Band, and never at all outside of New Jersey or New York State.
 
 "Merry Christmas Baby" doesn't go quite as far back as does "Santa," but it's close: it was first recorded in 1947 by Johnny Moore's Three Blazers.
@@ -24,13 +34,13 @@ The very next year, that same performance was included in the Special Olympics b
 
 Although it became a perennial holiday favorite on the radio each holiday season, Bruce wouldn't play "Merry Christmas Baby" in concert again for 14 years–and even then it was only at a small benefit in Sea Bright, NJ.
 
-[Watch on Youtube: Bruce Springsteen Holiday Express 1994](https://www.youtube.com/watch?v=nbv2xybqvpQ?start=531)
+[Watch on Youtube: Bruce Springsteen Holiday Express 1994](https://www.youtube.com/watch?v=nbv2xybqvpQ)
 
-When Bruce kicked off his Asbury Park holiday show tradition after the Reunion Tour ended, "Merry Christmas Baby" was immediately established as an essential set list staple...
+When Bruce kicked off his Asbury Park holiday show tradition after the Reunion Tour ended, "Merry Christmas Baby" was immediately established as an essential set list staple…
 
 [Watch Video Highlight](https://videopress.com/embed/IelUEzSa)
 
-...and Bruce performed it with the E Street Band on Conan O'Brien's show in 2002.
+…and Bruce performed it with the E Street Band on Conan O'Brien's show in 2002.
 
 [Watch on Youtube: Bruce Springsteen - Merry Christmas Baby](https://www.youtube.com/watch?v=GzV8OGocMS8)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Ringo Starr's All-Starr Band and Bruce Springsteen: Get Back"
+author: "Ken"
+excerpt: "In a historic one-off performance, Bruce joined Ringo Starr, Billy Preston, Nils, Clarence, Levon Helm, Dr. John, and more for the All-Starr Band’s first live performance of “Get Back.”"
+tags: get-back ringo-starr-and-his-all-starr-band the-beatles
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/THE_BEATLES_GETBACK-566891.jpg
+post_id: 19925
+---
 For a musician who was so inspired by The Beatles, Bruce Springsteen's covers of The Fab Four's catalog have been relatively few and far between.
 
 "Twist and Shout" is one of Bruce's encore standards, of course, and he's made some notable on-stage appearances with Sir Paul McCartney. But beyond those, we've got to dig a bit deeper to unearth Bruce's hidden Beatles gems.

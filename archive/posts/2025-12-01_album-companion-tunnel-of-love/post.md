@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Tunnel of Love"
+author: "Ken"
+excerpt: "Bruce’s eighth studio album is the latest to receive the complete Roll of the Dice treatment."
+tags: tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/Tunnel-Of-Love-1507561237-1000x1000-1.jpg
+post_id: 36849
+---
 It’s been called his divorce album, but that ignores all the songs about beginnings rather than endings.
 
 Some label it a relationship album, which is closer to the truth, but that discounts the songs for which romantic love is just a backdrop at best.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Lady"
+author: "Ken"
+excerpt: "From way back in Bruce’s short-lived college days comes this earliest of his published writing."
+tags: my-lady seascape
+categories: roll-of-the-dice spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/seascape-title.png
+post_id: 32247
+---
 We're going back a ways today.
 
 I mean *waaaaaayyyyyy* back.

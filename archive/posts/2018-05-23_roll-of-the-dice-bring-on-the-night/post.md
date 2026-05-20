@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Bring on the Night"
+author: "Ken"
+excerpt: "“Bring on the Night” is one of the weaker outtakes on Tracks, but it offers insight into its descendant, “My Love Will Not Let You Down.”"
+tags: bring-on-the-night my-love-will-not-let-you-down tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/bringon-1.jpg
+post_id: 2240
+---
 Twenty years ago, Bruce turned on the outtake faucet, first releasing *Tracks*, a four-disc box set of ones that got away, and following that up in subsequent years with a full disc of bonus songs on *The Essential Bruce Springsteen*, an album-that-never-was (*The Promise*), and even more outtakes in *The Ties That Bind* box set.
 
 And if there's one thing these last two decades of revealing outtakes have taught us, it's that Bruce cross-pollinates his lyrics and melodies until he finds a combination that brings to life the message he's trying to express.
@@ -10,31 +20,31 @@ Yes, "Bring on the Night" is a kissing cousin to "[My Love Will Not Let You Down
 
 But while the protagonist of "My Love" is fiercely defiant and determined to make that connection and conquer his shyness, the narrator of "Bring on the Night" accepts and relishes his inability to connect.
 
-> *I lie in bed but baby I can't sleep no matter how hard I try*
-> *There's something bad, baby, wrong with me whenever I close my eyes*
-> *The dreams of Mary keep me awake with every little curve in place*
-> *When I walk home in the daybreak, I pray come back home, baby, won't you give me*
-> *Darling bring on the night*
+> *I lie in bed but baby I can't sleep no matter how hard I try*<br>
+> *There's something bad, baby, wrong with me whenever I close my eyes*<br>
+> *The dreams of Mary keep me awake with every little curve in place*<br>
+> *When I walk home in the daybreak, I pray come back home, baby, won't you give me*<br>
+> *Darling bring on the night*<br>
 
 ***I walk the street, I'm looking for romance***<br>
 ***I end up stumbling in some stupid half-trance***<br>
-> *As I watch the lovers mix with circumstance*
-> *We watch the disco dancers dance*
+> *As I watch the lovers mix with circumstance*<br>
+> *We watch the disco dancers dance*<br>
 
 ***I look for connection in some new eyes***<br>
 ***But for protection they're tranquilized***<br>
-> *Forbidding close inspection of who's telling who*
-> *Forbidding close inspection of who's telling who lies*
+> *Forbidding close inspection of who's telling who*<br>
+> *Forbidding close inspection of who's telling who lies*<br>
 
 Those **bold** lines are pretty darn close to "My Love Will Not Let You Down," but the latter takes a significant turn at the end of those lines:
 
-> *At night I walk the streets looking for romance*
-> *But I always end up stumbling in a half-trance*
-> *I search for connection in some new eyes*
-> *that hardly protect you from too many dreams passed by*
-> *I see you standing across the room, watching me without a sound*
-> *I'm gonna push my way through that crowd*
-> *I'm gonna tear all your walls down*
+> *At night I walk the streets looking for romance*<br>
+> *But I always end up stumbling in a half-trance*<br>
+> *I search for connection in some new eyes*<br>
+> *that hardly protect you from too many dreams passed by*<br>
+> *I see you standing across the room, watching me without a sound*<br>
+> *I'm gonna push my way through that crowd*<br>
+> *I'm gonna tear all your walls down*<br>
 
 See what I mean? "Bring on the Night" accepts the walls we build to protect ourselves, the walls that "My Love Will Not Let You Down" promises to break through.
 

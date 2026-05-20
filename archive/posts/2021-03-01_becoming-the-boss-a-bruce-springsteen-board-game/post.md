@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Becoming The Boss: A Bruce Springsteen Board Game"
+author: "Ken"
+excerpt: "Introducing a free-to-all Bruce Springsteen board game and love letter to Jersey Shore music scene. Here’s my interview with the designers of Becoming The Boss."
+tags: becoming-the-boss
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/btb.png
+post_id: 25626
+---
 I didn't know the world needed a Springsteen-themed board game, but Søren Kitaj and Knud Jønsson did.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/IMG_4631-scaled.jpg.webp)

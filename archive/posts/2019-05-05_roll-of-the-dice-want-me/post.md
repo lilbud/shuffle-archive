@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Want Me"
+author: "Ken"
+excerpt: "Recently discovered: an undated original Springsteen composition from his pre-Columbia days."
+tags: want-me
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/want.jpg
+post_id: 8768
+---
 In December 2013, a previously unknown page of original Bruce Springsteen lyrics appeared on an auction site.
 
 Entitled "Want Me," the song lyrics are written in pencil on a notebook page. The page is undated but almost certainly stems from his pre-Columbia Records days.

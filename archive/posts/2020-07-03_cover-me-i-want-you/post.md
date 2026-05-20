@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I Want You"
+author: "Ken"
+excerpt: "Suki Lahav’s tenure in the E Street Band was all too short, but her brief, prominent presence elevated Bruce’s performance–most notably in the pair’s stunning spotlight cover of Bob Dylan’s “I Want You.”"
+tags: bob-dylan i-want-you
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/iwantyou.jpg
+post_id: 18900
+---
 > "I Want You" — That's it, the ultimate statement you can make to anybody. What else can you say? And that's the greatest lyric in the song, those three words, in the whole damn song! I put that on, man, and I get blown away, I get blown down the street, 'cause there's no hoax there.
 
 That's Bruce Springsteen waxing poetic about Bob Dylan's "I Want You," to Michael Watts in *Melody Maker* on November 30, 1974–the day after he debuted a stunning, smoldering interpretation of Dylan's 1966 ballad.

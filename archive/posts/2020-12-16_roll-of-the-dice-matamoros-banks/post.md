@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Matamoros Banks"
+author: "Ken"
+excerpt: "Sadly more relevant today than when it was written, “Matamoros Banks” remains one of Bruce’s most heart-breakingly beautiful songs, better enjoyed on album than in concert."
+tags: across-the-border devils-and-dust matamoros-banks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/matamoras.jpg
+post_id: 12926
+---
 > "We need nothing more right now than a humane immigration policy." — *Bruce Springsteen, April 25, 2005*<br>
 
 In a more just world, "Matamoros Banks" would be widely regarded as one of Bruce Springsteen's finest songs.

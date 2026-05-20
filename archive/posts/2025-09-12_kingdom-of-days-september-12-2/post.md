@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 12"
+author: "Ken"
+excerpt: "On this date: Western Stars debuts at the Toronto International Film Festival, the E Street Band plays their first “All or Nothin’ At All,” and Bruce has a close encounter with fans in the shower. Great video/audio inside (except for that last part)."
+tags: austin born-in-the-usa-tour born-to-run-tour bruce-springsteen-band chile darkness-tour manifesto philadelphia santiago student-prince syracuse tampa working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/20130912_2_front.jpg
+post_id: 59635
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

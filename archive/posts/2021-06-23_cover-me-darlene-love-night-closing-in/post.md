@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Darlene Love: Night Closing In"
+author: "Ken"
+excerpt: "When Steve Van Zandt produced a comeback album for Darlene Love, Bruce contributed an original song that’s both unmistakably Springsteenian and custom-tailored for Love. Take a listen inside."
+tags: darlene-love introducing-darlene-love night-closing-in
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/darlne.jpg
+post_id: 15845
+---
 Is a cover still a cover if the original songwriter never recorded it?
 
 I'm gonna go with "yes," because Darlene Love's recording of the Springsteen-authored "Night Closing In" is too wonderful to ignore.

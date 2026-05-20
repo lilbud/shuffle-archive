@@ -1,7 +1,17 @@
-Okay, I know just posted [another "Dancing in the Dark" cover](../2018-06-29_cover-me-kermit-the-frog-dancing-in-the-dark/post.md) a few days ago to celebrate the video's anniversary, so I was planning to save this one for much later. But I watched it again last night, and it's just too much fun to sit on.
+---
+layout: post
+title: "Cover Me, Postmodern Jukebox: Dancing in the Dark"
+author: "Ken"
+excerpt: "Ever wonder what “Dancing in the Dark” would have sounded like in the fifties? Now you know."
+tags: dancing-in-the-dark postmodern-jukebox
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/pmj.jpg
+post_id: 3032
+---
+Okay, I know just posted [another “Dancing in the Dark” cover](../2018-06-29_cover-me-kermit-the-frog-dancing-in-the-dark/post.md) a few days ago to celebrate the video’s anniversary, so I was planning to save this one for much later. But I watched it again last night, and it’s just too much fun to sit on.
 
-If you're not familiar with Scott Bradlee's Postmodern Jukebox, you need to be. Just be prepared to lose countless hour of your life when you get sucked into their vault of hundreds of modern songs re-arranged in classic styles.
+If you’re not familiar with Scott Bradlee’s Postmodern Jukebox, you need to be. Just be prepared to lose countless hour of your life when you get sucked into their vault of hundreds of modern songs re-arranged in classic styles.
 
-For instance: this retro take on [Bruce's biggest hit](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md). It may or may not be your cup of tea, but you gotta give them style points. Oh and keep your eye on Tambourine Guy. He's a hoot whenever he shows up in a video.
+For instance: this retro take on [Bruce’s biggest hit](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md). It may or may not be your cup of tea, but you gotta give them style points. Oh and keep your eye on Tambourine Guy. He’s a hoot whenever he shows up in a video.
 
 [Watch on Youtube: Dancing in the Dark - Retro '50s Style Bruce Springsteen Cover ft. Von Smith](https://www.youtube.com/watch?v=X-Ziw_TwXrM)

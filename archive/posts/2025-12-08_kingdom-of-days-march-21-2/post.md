@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 21"
+author: "Ken"
+excerpt: "On this date: Bruce wins the Best Original Song Academy Award for “Streets of Philadelphia,” plays his first-ever show in Australia, releases the single for “Better Days” and more."
+tags: academy-awards australia better-days bob-costas born-in-the-usa-tour chicken-scratch-tour dallas lucky-town panther-club-band ranney-school-benefit springsteen-on-broadway stone-pony streets-of-philadelphia sydney the-oscars
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/oscar.jpg
+post_id: 56240
+---
 **1974:** Bruce and his still unnamed band play their final of four nights at Gertie’s in Dallas.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1974-0321.jpg.webp)

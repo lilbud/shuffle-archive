@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 21"
+author: "Ken"
+excerpt: "The Wrecking Ball tour wraps, the No Nukes! shows kick off, and Bruce opens a telethon for a nation in desperate need of healing–all on this date. Plus: early birthday surprises!"
+tags: 9-11 america-a-tribute-to-heroes born-in-the-usa born-in-the-usa-tour born-to-run-tour brazil darkness-tour dave-edmunds des-moines detroit detroit-medley east-rutherford gary-u-s-bonds holmdel human-rights-now-tour its-been-a-long-time jackson-browne joan-baez jole-blon laid-back-festival little-steven-and-the-disciples-of-soul living-on-the-edge-of-the-world los-angeles madison-square-garden martha-reeves minneapolis muse new-york-city no-nukes passaic patti-scialfa philadelphia pittsburgh reunion-tour rio-de-janeiro rising-tour rock-in-rio ronald-reagan rosemary-butler the-river the-wanderer this-little-girl working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/nonukes.jpg
+post_id: 59694
+---
 ***New for 2025:** Audio for 1978 and 1979; video for 2009 and 2013*<br>
 
 **1974:** Bruce and the E Street Band play a gig at the State University of New York in Oneonta. Even the school's yearbook can't spell his name correctly.<br>

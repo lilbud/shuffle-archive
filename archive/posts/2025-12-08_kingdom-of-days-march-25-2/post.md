@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 25"
+author: "Ken"
+excerpt: "On this date: the Chicken Scratch Tour kicks off, the Lawsuit Tour winds down, and Bruce performs at the Oscars. More highlights inside."
+tags: academy-awards australia boston brisbane cats-on-a-smooth-surface chicken-scratch-tour columbia dead-man-walkin hungry-heart lawsuit-tour oscars rising-tour stone-pony the-ramones
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-25-greensboro-nc-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56287
+---
 **1976:** The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Columbia, South Carolina–Bruce’s first time performing in the state.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/The_Columbia_Record_1976_03_26_page_6.jpg.webp)

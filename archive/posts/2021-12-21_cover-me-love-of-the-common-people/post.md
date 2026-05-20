@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Love of the Common People"
+author: "Ken"
+excerpt: "“Love of the Common People” stood out as one of the more contemporary set list selections on the Seeger Sessions Tour, but thematically it fit perfectly."
+tags: john-hurley live-in-dublin love-of-the-common-people paul-young the-four-preps
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/lovecommon.jpg
+post_id: 22141
+---
 "Love of the Common People" was one of the rare songs Bruce performed on the Seeger Sessions Tour that originated during his own lifetime.
 
 It was a perfect fit thematically, though. "Love of the Common People" is both frank about the misery of poverty and uplifting about the ability of the human spirit to live and love under such conditions.

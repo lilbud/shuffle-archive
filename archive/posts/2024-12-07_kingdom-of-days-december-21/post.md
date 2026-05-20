@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: December 21"
+author: "Ken"
+excerpt: "On this date: Born in the U.S.A. passes Thriller’s run on the U.S. album chart, Bruce plays his first-ever show in Toronto, and more."
+tags: bobby-bandiera born-in-the-usa born-to-run-tour canada holiday-shows ontario springsteen-on-broadway tim-mcloone toronto
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/bruce-springsteen-stand-with-teachers-1480x832-1.jpg
+post_id: 55372
+---
 ***New for 2024:** Review for 1975; video for 2020*<br>
 
-**1973: “**Bruce Springsteen and his studio band” headline at Sandy’s in Beverly, Massachusetts.<br>
+**1973: "**Bruce Springsteen and his studio band" headline at Sandy's in Beverly, Massachusetts.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1973-12-21.jpg.webp)
 
@@ -10,14 +20,14 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Toronto_Star_1975_12_22_19.jpg.webp)
 
-**1985:** *Born in the U.S.A.* passes Michael Jackson’s *Thriller* to take the #2 spot for longest-run on the Billboard Top 10. Lasting for an amazing 79 weeks, it still won’t come close to the number one champion: the soundtrack to *The Sound of Music*.<br>
+**1985:** *Born in the U.S.A.* passes Michael Jackson's *Thriller* to take the #2 spot for longest-run on the Billboard Top 10. Lasting for an amazing 79 weeks, it still won't come close to the number one champion: the soundtrack to *The Sound of Music*.<br>
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1998:** Bruce holds his annual Christmas party at McLoone’s Rum Runner in Sea Bright, where he joins Bobby Bandiera’s band for “[Santa Claus is Comin’ to Town.](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)”<br>
+**1998:** Bruce holds his annual Christmas party at McLoone's Rum Runner in Sea Bright, where he joins Bobby Bandiera's band for "[Santa Claus is Comin' to Town.](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)"<br>
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2020:** Bruce performs a gorgeous acoustic version of “[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)” (its first live performance, albeit virtual) as part of the *Stand With Teachers* virtual fundraising event.<br>
+**2020:** Bruce performs a gorgeous acoustic version of "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)" (its first live performance, albeit virtual) as part of the *Stand With Teachers* virtual fundraising event.<br>
 
 [Watch on Youtube: Bruce Springsteen - Letter to You - Springsteen Residence, Colts Neck, NJ (12/21/2020)](https://www.youtube.com/watch?v=tlHBa5IpCmw)

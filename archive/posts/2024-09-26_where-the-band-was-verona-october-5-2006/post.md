@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Verona, October 5, 2006"
+author: "Ken"
+excerpt: "My all-time favorite show–under a full moon, in an ancient arena, Bruce breathed new life into a collection of American folk songs and shared them with a raucous but respectful Italian crowd."
+tags: bobby-jean fire italy samson-and-delilah seeger-sessions-tour valerie verona
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/20061005_3_front.jpg
+post_id: 4782
+---
 Sitting on those ancient stone steps under a full moon on a gorgeous October night, I had to marvel: how in the world did I end up here?
 
 By luck and circumstance, as it turned out. I had business in Milan the day of the show, and there was just enough time that afternoon to catch a train across the northern Italian countryside to storied Verona.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 19"
+author: "Ken"
+excerpt: "On this day in Springsteen history: Bruce releases “We Take Care of Our Own,” pays tribute to Glenn Frey, holds a benefit for 3M factory workers and much more."
+tags: 3m-plant australia blackberry-booze-band born-in-the-usa-tour chicago freehold glenn-frey greensboro high-hopes kent-state my-fathers-place npr perth river-tour-2016 southside-johnny springsteen-on-broadway stone-pony we-take-care-of-our-own working-on-a-dream
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/bruce-springsteen-free-download.png
+post_id: 55607
+---
 **1973:** Bruce opens for the Paul Winter Consort for the second of four nights at My Father’s Place on Long Island.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1973-0118.jpg.webp)

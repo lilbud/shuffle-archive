@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Love's Gonna Be Tonight"
+author: "Ken"
+excerpt: "Cast off before he ever even finished it, “Love’s Gonna Be Tonight” is a Buddy Holly homage that might have been right at home on The River."
+tags: loves-gonna-be-tonight
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/love-tonight.jpg
+post_id: 12714
+---
 For all of the incredible songs that came out of Bruce's prolific songwriting for *The River*, there were a lot that never went anywhere–including a trifle called "Love's Gonna Be Tonight."
 
 As far as we know, "Love's Gonna Be Tonight" never made it passed the home demo stage, and even those recordings were little more than attempts by Bruce to get his Buddy Holly on.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Out in the Street"
+author: "Ken"
+excerpt: "A departure at the time, “Out in the Street” established a theme of community in Bruce’s songwriting that became a hallmark of the E Street Band experience."
+tags: out-in-the-street the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/R-5017308-1382803502-3250.jpeg.jpg
+post_id: 30008
+---
 > "I wanted to be the reasonable voice of revenge for what I'd seen [my father's] life come to." *— Bruce Springsteen to Terry Gross, Fresh Air, December 26, 2016*<br>
 
 Sometimes, though, he simply offered his father a voice of release.

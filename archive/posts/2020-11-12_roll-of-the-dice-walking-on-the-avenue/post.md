@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Walking on the Avenue"
+author: "Ken"
+excerpt: "This lonely River-era acoustic outtake never made it past the home demo stage, but with Bruce’s warm melody and vocals it demonstrated a lot of promise."
+tags: walking-on-the-avenue
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/walking.jpg
+post_id: 22770
+---
 How prolific was Bruce Springsteen during the period between [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)and *The River*?
 
 So prolific that despite requiring a double-album to hold all the songs he chose to release, there were dozens and dozens–and that's not an exaggeration–that had to be left behind.

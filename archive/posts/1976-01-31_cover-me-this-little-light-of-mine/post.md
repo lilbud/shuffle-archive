@@ -1,3 +1,13 @@
+---
+layout: post
+title: "This Little Light of Mine"
+author: "Ken"
+excerpt: "Always at the ready whenever defiance, solidarity, and resoluteness are called for, “This Little Light of Mine” proved a perfect penultimate song for the Sessions Tour."
+tags: live-in-dublin this-little-light-of-mine
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/Gemini_Generated_Image_uvx3q5uvx3q5uvx3.png
+post_id: 19058
+---
 It's unclear where and from whom "This Little Light of Mine" originated. Wikipedia attributes it to the white composer Harry Dixon Loes, but researchers have cast doubt on that.
 
 What *is* clear is the role the song plays in American culture. It's one of the most enduring folk and gospel songs that children learn in school, church, even on TV.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Axl Rose, Come Together"
+author: "Ken"
+excerpt: "Axl Rose’s last public appearance for six years was an almost literal last-minute duet with Bruce Springsteen in 1994 at the Rock and Roll Hall of Fame."
+tags: axl-rose come-together hof
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/cometogether.jpg
+post_id: 235
+---
 At the Rock and Roll Hall of Fame induction ceremony in 1994, Rod Stewart and Elton John were slated to perform a duet of "Come Together," the opening track from The Beatles' 1969 album *Abbey Road* that made it all the way to the top of the charts in the U.S.
 
 [Watch on Youtube: The Beatles - Come Together](https://www.youtube.com/watch?v=45cYwDMibGo)

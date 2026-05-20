@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Down the Road Apiece"
+author: "Ken"
+excerpt: "From Bruce’s pre-E Street Days to just pre-pandemic, “Down the Road Apiece” has always been an epic, crowd-pleasing jam. Let’s watch and listen to some of the best inside."
+tags: chuck-berry danny-clinch down-the-road-apiece freddie-slack joe-grushecky tangiers-blues-band the-rolling-stones will-bradley-trio wolfgang-niedecken
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/PIECECOVER_1024x1024@2x.jpg
+post_id: 22285
+---
 If ever a rock and roll recording was predestined for live jamming, it's "Down the Road Apiece."
 
 Even in its original boogie-woogie recording by the Will Bradley Trio in 1940, we can't help but feel like we're hearing a live performance in a smoky club.

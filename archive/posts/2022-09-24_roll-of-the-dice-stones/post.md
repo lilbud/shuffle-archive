@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Stones"
+author: "Ken"
+excerpt: "Bruce Springsteen’s most beautiful track ever is a cautionary tale about the destructive power of lies–both spoken and unspoken."
+tags: stones western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/stones.jpg
+post_id: 37943
+---
 > Lies: they will devour everything you have and everything you will ever have. Faith, hope, trust.. all those things that are hard to come by. That's what grows your garden of love. Lies will try to make a fool out of all those things. But without them, all you have is stones.
 >
 > — Bruce Springsteen, *Western Stars* (2019)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Save My Love"
+author: "Ken"
+excerpt: "“Save My Love” is modern-day nostalgia: a 2010 recording (based on a 1976 rehearsal) about the power of radio in a pre-streaming world. Backstory, insights, and remarkable video inside."
+tags: save-my-love the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/savemylove_sin-blackfriday2010.jpg
+post_id: 11224
+---
 Ever since Bruce released *Tracks* more than twenty years ago, we've become used to Bruce rescuing, tweaking, finishing, and releasing outtakes from the vault.
 
 Sometimes the changes are subtle, like when he added a horn overlay on to "[Ain't Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)" or surgically edited the bootleg of "[Mr. Outside](../2019-06-10_roll-of-the-dice-mr-outside/post.md)." Sometimes they're jarring, like the modern vocals grafted onto the end of "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md)." For *18 Tracks*, Bruce completely re-recorded "The Promise" rather than release the original recording. (We'd have to wait another decade or so to hear the original.)

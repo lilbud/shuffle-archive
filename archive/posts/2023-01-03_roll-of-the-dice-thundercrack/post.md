@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Thundercrack"
+author: "Ken"
+excerpt: "It may never have been the barnburner Bruce envisioned, but “Thundercrack” pointed the way to beloved epics to come."
+tags: thundercrack tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/thunder.jpg
+post_id: 27713
+---
 > "We wrote [‘Thundercrack'] as the showstopper. It ended three or four different times–you didn't know where it was going to go. It was just a big, epic show-ender that was meant to leave the audience gasping a little bit for their breath… Later on, "Rosalita" began to fill that spot in the show and held it for many, many years… Before that ‘Thundercrack' had the same function. It was meant to make you nuts." — Bruce Springsteen to Mark Hagen, *Mojo*, January 1999
 
 "Thundercrack" is no "Rosalita."

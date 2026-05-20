@@ -1,3 +1,12 @@
+---
+layout: post
+title: ""Is there anybody alive out there?!?""
+author: "Ken"
+excerpt: "Welcome! Let’s get this out of the way: yes, this is yet another Bruce Springsteen blog. Does the world really need any more of them? Probably…"
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/Bruce-Angry.jpg
+post_id: 61
+---
 Welcome!
 
 Let's get this out of the way: yes, this is yet *another* Bruce Springsteen blog.

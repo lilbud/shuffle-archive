@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 19"
+author: "Ken"
+excerpt: "Bruce makes a Daily Show appearance, records tracks for the Seeger Sessions album, and closes out the L.A. Sports Arena on this date in history. Highlights and more inside."
+tags: asbury-park belfast dallas drive-all-night erie-canal froggie-went-a-courtin ghost-of-tom-joad-tour give-the-girl-a-kiss greensboro john-henry jon-stewart lawsuit-tour lewiston los-angeles mrs-mcgrath new-orleans o-mary-dont-you-weep old-dan-tucker pay-me-my-money-down reunion-tour river-tour river-tour-2016 seeger-sessions shenandoah stephen-king the-daily-show the-promise working-on-a-dream wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/belfast96.jpg
+post_id: 56191
+---
 ***New for 2025:** Audio for 1977; video for 2009 and 2012; new entry for 2024*<br>
 
 **1974:** Bruce and his band play two shows at their second night at Gertie's in Dallas.<br>

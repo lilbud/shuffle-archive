@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: April 2"
+author: "Ken"
+excerpt: "A fascinating Asbury Park panel and joyous Wonder Bar concert with Nicky Addeo lead the highlights from this date in Bruce history."
+tags: chicken-scratch-tour child im-on-fire louisville love-me-tender nickey-addeo one-step-up river-tour shes-the-one southside-johnny spare-parts steve-van-zandt the-upstage tunnel-of-love-express-tour uniondale wanamassa
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/20110402_front.jpg
+post_id: 56346
+---
 ***New for 2025:** No updates*<br>
 
-**1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they’ll rename themselves Steel Mill.<br>
+**1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1969-0402.jpg.webp)
 
@@ -8,7 +18,7 @@
 
 **1976:** The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Theater.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1976-04-02.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1976-04-02.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1976-04-02.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1976-04-02.jpg.webp)
 
 **1981:** Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.<br>
 
@@ -22,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen | Love Me Tender | April 2, 1988](https://www.youtube.com/watch?v=9wopuObCeV0)
 
-**2011:** The Garden State Film Festival premieres *Who Do I Think I Am,* a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.<br>
+**2011:** The Garden State Film Festival premieres *Who Do I Think I Am*, a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.<br>
 
 [Watch on Youtube: West Side Sound AP 1 of 8](https://www.youtube.com/watch?v=S_LsNVa_HZ8)
 
@@ -50,6 +60,6 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2011-04-02b.jpg.webp)
 
-Following the show, Bruce stops by the after-party for Clarence’s film at Syanxis. It’s the last time Bruce and Clarence will be seen together in public.
+Following the show, Bruce stops by the after-party for Clarence's film at Syanxis. It's the last time Bruce and Clarence will be seen together in public.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2011-04-02b.png.webp)

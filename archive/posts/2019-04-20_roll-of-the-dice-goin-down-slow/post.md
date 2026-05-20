@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Goin' Down Slow"
+author: "Ken"
+excerpt: "In the early Steel Mill era, Bruce and the band closed their shows with a sexy band showcase called “Goin’ Down Slow.” Take a listen inside."
+tags: danny-federici goin-down-slow steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/downslow.jpg
+post_id: 9382
+---
 During the early days of the Steel Mill era, Bruce and the band were known to close their shows with an extended band showcase called "Goin' Down Slow."
 
 Originally assumed by some to be the much-covered blues standard by the same name, a surviving bootleg recording reveals it to be an entirely new and original lyrical work (although the bluesy arrangement appears to be at least inspired by if not an homage to its namesake).
@@ -14,31 +24,31 @@ And that riff is intentionally sexy, because "Goin' Down Slow" is about, well…
 
 Bruce's point-of-view character finds himself unable to get out of bed and leave his lover, even though he knows he should:
 
-> *I feel you breathin' real low*
-> *I feel your heart beatin', well a beatin' real slow*
-> *Well I oughta be leavin', but mama you got it so I just can't get up and go*
+> *I feel you breathin' real low*<br>
+> *I feel your heart beatin', well a beatin' real slow*<br>
+> *Well I oughta be leavin', but mama you got it so I just can't get up and go*<br>
 
 But fair is fair. After all, he made sure that she didn't have the strength to get up and leave either:
 
-> *Well this makes us even, makes us even woman now that you know*
-> *Well, I set the fire and you're the first to go*
-> *It's getting higher and I'm gonna watch*
-> *I watch it goin' down slow*
+> *Well this makes us even, makes us even woman now that you know*<br>
+> *Well, I set the fire and you're the first to go*<br>
+> *It's getting higher and I'm gonna watch*<br>
+> *I watch it goin' down slow*<br>
 
 Yeah, he's saying what you think he is: "Goin' Down Slow" is the not-so-humble brag of a considerate lover.
 
 The second verse is the only thing that even approaches artful metaphor in the song, but even that is less about the woman he purports to describe and more a boast of how he's the only one who could satisfy her.
 
-> *I said woman, you made the thorns and projections*
-> *And she comes with a long, long list of massive directions*
-> *Any man is full of bloody dissections*
-> *And she leaves behind a body, a long long list of human rejections*
+> *I said woman, you made the thorns and projections*<br>
+> *And she comes with a long, long list of massive directions*<br>
+> *Any man is full of bloody dissections*<br>
+> *And she leaves behind a body, a long long list of human rejections*<br>
 
 Towards the end of the song, he seems to get caught up in his lover, but even then his descriptions are shallow:
 
-> *Well she's the best little woman I ever seen around*
-> *Just the kind of little woman that puts'em down*
-> *The finest little woman in the whole damn town, and the prettiest thing I've seen*
+> *Well she's the best little woman I ever seen around*<br>
+> *Just the kind of little woman that puts'em down*<br>
+> *The finest little woman in the whole damn town, and the prettiest thing I've seen*<br>
 
 So yeah, it's best not to focus too much on the lyrics. Like I said at the top, "Goin' Down Slow's" role in life is to showcase the band, and even if they're not as tight here as they would later be, they all get a chance to shine, particularly in the jazzy extended "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)"-ish interlude that kicks in at the seven-minute mark.
 

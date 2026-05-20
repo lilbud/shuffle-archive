@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Down in the Hole"
+author: "Ken"
+excerpt: "One of only two known outtakes from The Rising, “Down in the Hole” is the brutal, tragic tale of the search for loved ones at Ground Zero."
+tags: down-in-the-hole high-hopes the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/downhole.jpg
+post_id: 35845
+---
 > The father comes to be near his son. He digs through the smoking steel with a small Army pick and shovel. "Where are you, boy?" he asks. It has been the same routine for months.
 >
 > — Charlie Leduff, "Still Digging for Lost Sons After a Million Tons of Pain," *New York Times*, January 8, 2002

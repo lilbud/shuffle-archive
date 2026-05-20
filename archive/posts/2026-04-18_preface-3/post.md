@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "ROTD Born In The U.S.A. Preface"
+author: "Ken"
+excerpt: "I thought this would be one of the easiest Roll of the Dice installments. I was certain of it, in fact. I’d long ago completed all of…"
+post_id: 68553
+---
 I thought this would be one of the easiest *Roll of the Dice* installments.
 
 I was certain of it, in fact.

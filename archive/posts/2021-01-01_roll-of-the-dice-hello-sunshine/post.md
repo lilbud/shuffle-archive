@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Hello Sunshine"
+author: "Ken"
+excerpt: "The first single from Western Stars is also its emotional heart, a song of deep contentment, satisfaction, and reconciliation late in a long life."
+tags: hello-sunshine western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/hellosunshine.jpg
+post_id: 23736
+---
 Around a minute and 45 seconds into "Hello Sunshine," we're treated to something I don't think we've ever heard before: thirty seconds of Bruce Springsteen *humming* an entire verse.
 
 [Watch on Youtube: Bruce Springsteen - Hello Sunshine (Official Lyric Video)](https://www.youtube.com/watch?v=icJjlg5e6l8)

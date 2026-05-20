@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Southside Johnny, Bruce Springsteen, Little Steven, and Jon Bon Jovi: This Time Baby's Gone for Good"
+author: "Ken"
+excerpt: "One time only: Jon Bon Jovi joins Bruce, Southside Johnny, and Little Steven on Steve’s classic song from Southside’s Hearts of Stone album."
+tags: jon-bon-jovi little-steven southside-johnny this-time-babys-gone-for-good
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/thistime.jpg
+post_id: 27325
+---
 Southside Johnny's *Hearts of Stone* album could almost be considered a Little Steven album, too.
 
 Steve Van Zandt is all over Southside's 1978 LP–Steve not only plays and sings throughout the album, he also produced it and wrote or co-wrote all but two of its songs. And although it's hard to pick a favorite track from such a great album, if you pressed me I'd have to go with "This Time Baby's Gone For Good."

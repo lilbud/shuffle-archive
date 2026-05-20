@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Mony Mony"
+author: "Ken"
+excerpt: "It’s the first song Bruce and Joe Grushecky ever performed together and one of the greatest mysteries of rock and roll."
+tags: mony-mony tommy-james-the-shondells
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/monymony.png
+post_id: 25976
+---
 It's one of the great unsolved mysteries of rock and roll.
 
 Years before the World Wide Web, "Mony Mony" somehow managed to generate a bona fide, nationwide meme. But where the heck did it come from?

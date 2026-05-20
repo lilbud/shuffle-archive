@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Many Rivers to Cross"
+author: "Ken"
+excerpt: "“Many Rivers to Cross” may not be Bruce’s most well-known Jimmy Cliff cover, but it may be his most faithful."
+tags: jimmy-cliff many-rivers-to-cross sxsw world-tour-1993
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/riverstocross.jpg
+post_id: 3252
+---
 We know Bruce is a Jimmy Cliff fan–his cover of Jimmy’s “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” has been a fan favorite since its debut.
 
 But “Trapped” isn’t the only Jimmy Cliff song Bruce has covered over the years–during World Tour 1993, Bruce frequently covered “Many Rivers to Cross” as well. And while Bruce’s “Trapped” cover was a departure from the original, for “Many Rivers to Cross,” Bruce chose a more faithful arrangement.

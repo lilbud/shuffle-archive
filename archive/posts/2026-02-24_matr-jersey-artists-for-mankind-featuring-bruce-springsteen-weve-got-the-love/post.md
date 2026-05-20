@@ -1,3 +1,13 @@
+---
+layout: post
+title: "We've Got the Love"
+author: "Ken"
+excerpt: "In the mid-eighties, the New Jersey music scene united to raise money to combat local hunger, and Bruce joined them for their benefit single."
+tags: jersey-artists-for-mankind weve-got-the-love
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/jam86.jpg
+post_id: 24152
+---
 It doesn't get more eighties than this. (And I mean that in the best possible way.)
 
 Rock musicians have long been focused on social activism, but in the mid-eighties, there was a groundswell of collective action that seemed to sweep up virtually every active recording artist.

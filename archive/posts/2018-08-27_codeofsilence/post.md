@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Code of Silence"
+author: "Ken"
+excerpt: "“Code of Silence” is Bruce’s only live recording to win a Grammy, but his studio version with Joe Grushecky is pretty great, too."
+tags: a-good-life code-of-silence joe-grushecky the-essential-bruce-springsteen
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/shh.jpg
+post_id: 3985
+---
 Quick, name the only live Springsteen performance to win a Grammy.
 
 Okay, that would probably be harder if you hadn't already read the title of this post. But yeah, it's not "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" or "[War](../2019-05-27_cover-me-war/post.md)" or "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" or "American Skin (41 Shots)" or any of the other live recordings you'll hear on the radio (other then E Street Radio, that is).
@@ -18,24 +28,24 @@ Bruce brought it back for two outings on the Rising tour (one of them, unsurpris
 
 "Code of Silence" is so fierce, so strong, that you might not even realize for a few listens that there are surprisingly very few lyrics. The song is essentially a scream of frustration by a lover feeling increasingly disconnected from his partner, trying desperately to bridge the widening gulf and scale the growing wall–but ultimately, he's just as complicit.
 
-> *There's a code of silence that we don't dare speak*
-> *There's a wall between us and a river so deep*
-> *And we keep pretending that there's nothing wrong*
-> *Man, there's a code of silence and it can't go on*
+> *There's a code of silence that we don't dare speak*<br>
+> *There's a wall between us and a river so deep*<br>
+> *And we keep pretending that there's nothing wrong*<br>
+> *Man, there's a code of silence and it can't go on*<br>
 
-> *Well, s the truth so elusive, so elusive you see*
-> *That it ain't enough, baby, to bridge the distance between you and me*
-> *There's a list of grievance a hundred miles long*
-> *There's a code of silence and it can't go on*
+> *Well, s the truth so elusive, so elusive you see*<br>
+> *That it ain't enough, baby, to bridge the distance between you and me*<br>
+> *There's a list of grievance a hundred miles long*<br>
+> *There's a code of silence and it can't go on*<br>
 
-> *Well you walk with your eyes open*
-> *But your lips they remain sealed*
-> *Beneath the promises we made are broken*
-> *Someday the truth will be revealed*
-> *Well I need to know now darlin'*
-> *I need to know what's going on*
-> *So come on, come on, come on, come on*
-> *Come on, come on, come on*
+> *Well you walk with your eyes open*<br>
+> *But your lips they remain sealed*<br>
+> *Beneath the promises we made are broken*<br>
+> *Someday the truth will be revealed*<br>
+> *Well I need to know now darlin'*<br>
+> *I need to know what's going on*<br>
+> *So come on, come on, come on, come on*<br>
+> *Come on, come on, come on*<br>
 
 Nothing happens in "Code of Silence," and nothing is resolved–the song is merely and powerfully a depiction of what it feels like to be caught and drowning in that "river so deep."
 

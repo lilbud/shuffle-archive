@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Your Own Worst Enemy"
+author: "Ken"
+excerpt: "“Your Own Worst Enemy” is the bridge between Magic and Working on a Dream, featuring a lush and layered backing track paired with devastatingly biting lyrics."
+tags: magic your-own-worst-enemy
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/worstenemy.jpg
+post_id: 18392
+---
 Most accounts (including Bruce's) contend that Bruce's *Working on a Dream* album began with the recording of "[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)" during the *Magic* mixing sessions.
 
 But if you ask me, we can trace the true transition directly to "Your Own Worst Enemy," one of the strongest tracks on *Magic.*

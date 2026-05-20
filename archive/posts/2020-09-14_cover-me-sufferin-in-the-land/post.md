@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sufferin' in the Land"
+author: "Ken"
+excerpt: "One time only: Bruce and the E Street Band rehearse a never-performed cover of Jimmy Cliff’s “Sufferin’ in the Land.”"
+tags: jimmy-cliff sufferin-in-the-land
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/sufferin.jpg
+post_id: 21111
+---
 "Sufferin' in the Land" was released as a single off of Jimmy Cliff's self-titled 1969 album, but it failed to chart anywhere but the Netherlands and Cliff's native Jamaica. So perhaps it's a bit of a deep cut for us to expect it to show up in a Springsteen set list.
 
 [Watch on Youtube: Jimmy Cliff - Sufferin' in the Land](https://www.youtube.com/watch?v=mZaCrgKNKoM)

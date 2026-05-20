@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me/RotD: John Henry"
+author: "Ken"
+excerpt: "One of the all-time great American folk heroes made a nightly appearance on the Seeger Sessions Tour."
+tags: john-henry we-shall-overcome-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/john-henry.jpg
+post_id: 27148
+---
 "John Henry" is one of the most-recorded American folk songs, and for good reason: there's so much going on in it.
 
 It's a story of man vs. machine and African-American empowerment, as presumably Black railroad worker John Henry races a steam drill to prove that humans could (at least at the time) outperform technology.

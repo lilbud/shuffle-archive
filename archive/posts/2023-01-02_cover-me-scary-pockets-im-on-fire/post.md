@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Scary Pockets: I'm on Fire"
+author: "Ken"
+excerpt: "It’s Double-Shot Tuesday! Check out not one but *two* terrific, fresh covers of Bruce’s oft-covered classic from the folks at Scary Pockets, featuring Rett Madison and George Krikes."
+tags: george-krikes im-on-fire rett-madison scary-pockets
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/scaryfire.jpg
+post_id: 22769
+---
 It's Double-Shot Tuesday on the Shuffle! Today, we bring you not one but *two* terrific covers of "I'm on Fire" courtesy of the fine folks at Scary Pockets.
 
 Wait, wait! Don't leave! I know we've spotlit a ton of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" covers already, and truth be told the list of remaining ones could keep a blog going all by themselves.

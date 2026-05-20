@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: December 11"
+author: "Ken"
+excerpt: "Watch rare River Tour footage, a holiday performance with Conan O’Brien, an interview on Italian TV, and more."
+tags: bologna born-in-the-usa-tour born-to-run-tour bruce-springsteen-band columbus conan-obrien crush-on-you ghost-of-tom-joad-tour italy kittys-back lexington max-weinberg-7 merry-christmas-baby providence river-tour rosalita seton-hall sherry-darling stolen-car student-prince
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/19801211_4_front.jpg
+post_id: 62985
+---
 ***New for 2025:** No updates*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-12-10.png.webp)
 
-**1975:** Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play “[Party Lights](../2022-06-01_cover-me-party-lights/post.md)” for the last time to date.<br>
+**1975:** Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play "[Party Lights](../2022-06-01_cover-me-party-lights/post.md)" for the last time to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/32Ky6u31)
 
@@ -24,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1980-12-11.png.webp)
 
-**1984:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add “My Old Kentucky Home” to “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” for the occasion.<br>
+**1984:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add "My Old Kentucky Home" to "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" for the occasion.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/80rWaa1S)
 
@@ -44,6 +54,6 @@
 
 [Watch on Youtube: Bruce Springsteen - Italian TV appearance - 1998-12-11](https://www.youtube.com/watch?v=r5h51SBnXUo)
 
-**2002:** Bruce and the E Street Band team up with the Max Weinberg 7 on *Late Night with Conan O’Brien* for a special holiday performance and one of Bruce’s all-time best television appearances.<br>
+**2002:** Bruce and the E Street Band team up with the Max Weinberg 7 on *Late Night with Conan O'Brien* for a special holiday performance and one of Bruce's all-time best television appearances.<br>
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Live on Conan - 12/11/2002](https://www.youtube.com/watch?v=jCfSu99bAqc)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Album Companion: Tunnel of Love"
+author: "Ken"
+excerpt: "Bruce’s eighth studio album is the latest to receive the complete Roll of the Dice treatment."
+tags: tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/Tunnel-Of-Love-1507561237-1000x1000-1.jpg
+post_id: 36849
+---
 Editor's Note
 
 With last Friday's entry, *Tunnel of Love* becomes the third Springsteen studio album to receive the complete *Roll of the Dice* treatment.

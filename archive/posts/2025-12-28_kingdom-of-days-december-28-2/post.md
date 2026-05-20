@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 28"
+author: "Ken"
+excerpt: "“Merry Christmas Baby,” “This Land Is Your Land” and a work-in-progress “Ramrod” all made their live debut on this date. Plus: Bruce joins Mike Ness in the studio, Earth’s biggest show, and more."
+tags: because-the-night born-to-run-tour bryn-mawr darkness-tour earth hungry-heart la-bamba live-1975-85 main-point merry-christmas-baby mike-ness misery-loves-company new-york-city philadelphia pittsburgh ramrod river-tour springsteen-on-broadway this-land-is-your-land uniondale
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/uniondale.jpg
+post_id: 63456
+---
 ***New for 2025:** No updates*<br>
 
 **1968:** Earth plays to their largest crowd yet at the Crystal Ballroom in New York City's Hotel Diplomat, but the show almost doesn't happen. One week out, not even 100 tickets had been sold for this fundraiser in an 1,800-seat ballroom, but the administration of Ocean County College contributed funds and transportation to help drive attendance and support their students who organized the event.<br>

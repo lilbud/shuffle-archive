@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 5"
+author: "Ken"
+excerpt: "On this date: Bruce releases Tunnel of Love, his eighth studio album. Plus: Bruce performs on SNL (and winds up in the doghouse during rehearsals), an epic Neil Young guest appearance, and much more."
+tags: across-the-border all-along-the-watchtower bad-day barack-obama beaver-brown born-to-run-book columbus fire italy john-fogerty john-glenn lawsuit-tour lonesome-day magic-tour man-on-the-moon mr-spaceman my-hometown neil-young new-york-city philadelphia r-e-m rising-tour rockin-in-the-free-world rosalita san-francisco santa-barbara saturday-night-live seeger-sessions-tour st-paul the-promised-land the-rising tunnel-of-love valerie verona vini-lopez vote-for-change-tour youngstown youre-missing
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/tunnel-of-love.jpg
+post_id: 61048
+---
 ***New for 2025:** Video for 2004 and 2006*<br>
 
 **1974:** Bruce and the E Street Band perform their one-time-only cover of "Twistin' the Night Away" at Albright College in Reading, Pennsylvania.<br>

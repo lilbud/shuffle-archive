@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cherokee Queen"
+author: "Ken"
+excerpt: "Despite some insensitive lyrics to modern ears, “Cherokee Queen” is a catchy and poppy–it’s no wonder that Mike Appel tried to keep it for himself."
+tags: cherokee-queen
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/cherokee.jpg
+post_id: 27718
+---
 It's a well-known story: When Bruce Springsteen finally hit the big time with *Born to Run*, the inequity built into his contracts with agent Mike Appel became clear. A ten-month lawsuit over control of Bruce's publishing rights ensued, with Bruce legally prohibited from recording in the studio until it was resolved.
 
 Ultimately, Bruce paid Appel what amounted to a hefty severance fee and won back control of his entire catalog, to date and ongoing.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Rumble"
+author: "Ken"
+excerpt: "Shortly after Link Wray’s death in 2005, Bruce paid homage by opening the final two shows of the Devils & Dust Tour with a bristling, menacing cover of Wray’s signature song, “Rumble.”"
+tags: link-wray rumble
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/rumble.jpg
+post_id: 7433
+---
 Has there ever been an instrumental so sinister, slinky and sexy as Link Wray’s 1958 single, “Rumble?”
 
 Apparently not, because it remains the only instrumental ever to be banned from radio airplay (lest it incite iniquity and malefaction).

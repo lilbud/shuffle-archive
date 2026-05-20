@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Joy to the World"
+author: "Ken"
+excerpt: "One time only: Bruce joins an all-star array of artists for a show-closing Christmas carol at Sting and Trudie Styler’s 2016 Rainforest Benefit show."
+tags: darlene-love idina-menzel james-taylor jennifer-nettles joy-to-the-world lisa-fischer ronnie-spector sting vittorio-grigolo
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/joy-to-the-world.jpg
+post_id: 14890
+---
 Forgive me if I can't pin down the original recording of today's cover tune, but *you* try figuring out the earliest recording of the most-published Christmas hymn in North America.
 
 "Joy to the World" happens to be celebrating its tricentennial this year–it was written by Isaac Watts exactly 300 years ago in 1719. Here's the oldest recording I could find, from 1926.

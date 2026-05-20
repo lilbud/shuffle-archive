@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Album Companion: Darkness on the Edge of Town"
+author: "Ken"
+excerpt: "Bruce Springsteen’s fourth studio album becomes the first to receive the complete Roll of the Dice treatment."
+tags: album-companion darkness-on-the-edge-of-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/darkness.jpg
+post_id: 36003
+---
 Don’t be fooled by the title: Bruce Springsteen’s fourth studio album isn’t dark… it’s just real.
 
 If *Born to Run* is unbridled romance, *Darkness on the Edge of Town* is unvarnished realism.

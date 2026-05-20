@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Drive All Night"
+author: "Ken"
+excerpt: "You can find the heart of many Springsteen songs in a single line. In “Drive All Night,” it’s in the sax solo–it says more than any lyric ever could."
+tags: drive-all-night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/drive-all-night.jpg
+post_id: 827
+---
 ***Zappos!***<br>
 
 …is what my wife yells in frustration every time "Drive All Night" comes across my playlist.

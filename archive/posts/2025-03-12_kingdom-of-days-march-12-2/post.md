@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 12"
+author: "Ken"
+excerpt: "A quiet date in Springsteen history, with only club dates and rehearsals."
+tags: born-in-the-u-s-a boston upstage working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/western.jpg
+post_id: 56137
+---
 ***New for 2025:** No updates*<br>
 
 **1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.<br>

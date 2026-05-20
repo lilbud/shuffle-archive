@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Wish I Were Blind"
+author: "Ken"
+excerpt: "They don’t write ’em any sadder than this, but you’ll need to turn to Bruce’s acoustic performances to truly feel the pathos."
+tags: human-touch i-wish-i-were-blind
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/blind.jpg
+post_id: 30010
+---
 > "There's a world of love, a world of beauty, a world of fear and a world of loss and they are the same world and that person is wending his way through that maze and at that moment he's very in touch with both of those things. ["I Wish I Were Blind"] gets that picture.
 >
 > — Bruce Springsteen to David Hepworth, *Q Magazine*, August 1992

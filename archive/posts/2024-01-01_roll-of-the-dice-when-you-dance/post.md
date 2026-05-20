@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: When You Dance"
+author: "Ken"
+excerpt: "Bruce wrote and performed “When You Dance” with The Bruce Springsteen Band long before Southside Johnny covered and released it, and Bruce’s early guitar-jam version is an unreleased gem that belong’s in every fan’s collection."
+tags: asbury-park-all-star-revue bruce-springsteen-band challenger-rehearsals southside-johnny steve-van-zandt when-you-dance
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/whendance.jpg
+post_id: 3659
+---
 Turn it up!
 
 If you're only familiar with Southside Johnny's cover and haven't heard Bruce's original version before, turn your stereo way up loud and prepare for a revelation, because this is a *very* different take:

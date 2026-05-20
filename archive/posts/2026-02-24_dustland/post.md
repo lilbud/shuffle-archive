@@ -1,3 +1,11 @@
+---
+layout: post
+title: "Dustland"
+author: "Ken"
+excerpt: "“Dustland Fairytale” was always a Springsteen song in spirit. It had the cinematic scale, the desperate romanticism, and that specific brand of “get-out-while-we’re-young” energy. But…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/02/The-Killers-Springsteen-1e53407108a047e7ad74fc6295ad0238.jpg
+post_id: 67940
+---
 "Dustland Fairytale" was always a Springsteen song in spirit. It had the cinematic scale, the desperate romanticism, and that specific brand of "get-out-while-we're-young" energy. But it was wrapped in the velvet and glitter of 21st-century indie rock. It was a tribute from a distance.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-3hyrkzFRss)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Lucky Day"
+author: "Ken"
+excerpt: "Decades before Bruce Springsteen and Alejandro Escovedo first met, Bruce covered one of Alejandro’s earliest studio tracks at a 1988 soundcheck."
+tags: alejandro-escovedo lucky-day rank-and-file
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/luckyday-1.jpg
+post_id: 22912
+---
 Bruce's connection with Alejandro Escovedo goes back much farther than most fans realize. The two singer-songwriters didn't meet until 2008, and Escovedo's first solo album was only in 1992.
 
 But on an early spring day on the Tunnel of Love Tour in 1988, Bruce Springsteen and the E Street Band covered a song by Rank and File, one of Alejandro's earliest bands.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Travel Bag: Tougher Than the Rest"
+author: "Ken"
+excerpt: "Stop the presses and check out this gorgeous cover of “Tougher Than the Rest” by Italian duo The Travel Bag."
+tags: the-travel-bag tougher-than-the-rest
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/travelbag.jpg
+post_id: 22537
+---
 I had a completely different cover queued up for today and a week’s worth of posts written to follow.
 
 But yesterday morning, I came across a brand new cover of “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” by an Italian duo called The Travel Bag, and I’ve played it about a dozen times since.

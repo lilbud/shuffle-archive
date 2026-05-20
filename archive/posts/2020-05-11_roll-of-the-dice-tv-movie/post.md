@@ -1,4 +1,14 @@
-> I remember one night when we were completely packed up to go home and Bruce was off in the corner playing his acoustic guitar. Suddenly, I guess the bug bit him, and he started writing these rockabilly songs. We'd been recording all night and were dead tired, but they had to open up the cases and set up the equipment so that we could start recording again at five in the morning. That's when we got "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)," "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)," and… "TV Movie"… Bruce got on a roll, and when that happens, you just hold on for dear life. — Max Weinberg, quoted in Clinton Heylin, *E Street Shuffle: The Glory Days of Bruce Springsteen and the E Street Band*
+---
+layout: post
+title: "Roll of the Dice: TV Movie"
+author: "Ken"
+excerpt: "An almost-forgotten rockabilly outcast from the Born in the U.S.A. sessions, “TV Movie” is a sly send-up of the cost of popular fame and a star turn for Professor Roy Bittan."
+tags: tracks tv-movie
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/tvmovie.jpg
+post_id: 17937
+---
+> I remember one night when we were completely packed up to go home and Bruce was off in the corner playing his acoustic guitar. Suddenly, I guess the bug bit him, and he started writing these rockabilly songs. We'd been recording all night and were dead tired, but they had to open up the cases and set up the equipment so that we could start recording again at five in the morning. That's when we got "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)," "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)," and… "TV Movie"… Bruce got on a roll, and when that happens, you just hold on for dear life. — Max Weinberg, quoted in Clinton Heylin, *E Street Shuffle: The Glory Days of Bruce Springsteen and the E Street Band*<br>
 
 It wasn't just that night. Bruce had been writing in a rockabilly vein all through the *Born in the U.S.A.* sessions. "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" started out as rockabilly, as did "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" and "Sugarland."
 
@@ -16,10 +26,10 @@ It almost feels silly to analyze a song that's basically a lark, but let's take 
 
 "TV Movie" starts with a literal nightmare and quickly segues into a metaphorical one:
 
-> *I woke up last night shaking from a dream, for in that dream I died*
-> *My wife rolled over and told me that my life would be immortalized*
-> *Not in some major motion picture, or great American novel, you see*
-> *No, they're gonna make a TV movie out of me*
+> *I woke up last night shaking from a dream, for in that dream I died*<br>
+> *My wife rolled over and told me that my life would be immortalized*<br>
+> *Not in some major motion picture, or great American novel, you see*<br>
+> *No, they're gonna make a TV movie out of me*<br>
 
 We know already that Bruce's narrator is famous enough to warrant a biopic, but in her attempt to console her husband (although still a few years away from marriage, we can probably safe assume "TV Movie" is thematically autobiographical), our hero's wife damns with faint praise.
 
@@ -27,35 +37,35 @@ In those pre-HBO and Netflix days, the quality divide between movies made for te
 
 But TV movies were prolific, and celebrities were popular and profitable fodder for biographical adaptations:
 
-> *Well now it's a one-two-three you take the money*
-> *Yeah, it's as easy as A-B-C*
-> *Yeah, they're gonna make a TV movie out of me*
+> *Well now it's a one-two-three you take the money*<br>
+> *Yeah, it's as easy as A-B-C*<br>
+> *Yeah, they're gonna make a TV movie out of me*<br>
 
 Bruce's narrator knows he has little control over how he's portrayed, and he frets over it… or so we think.
 
-> *Well, they can change my name or they can leave it, yeah they can change my story too*
-> *Or they can make me black or Chinese and do things that I never gonna do*
-> *They're gonna give my life a whole new ending and put me in prime-time first-run*
-> *And when it's over, what I did there will be what I done*
+> *Well, they can change my name or they can leave it, yeah they can change my story too*<br>
+> *Or they can make me black or Chinese and do things that I never gonna do*<br>
+> *They're gonna give my life a whole new ending and put me in prime-time first-run*<br>
+> *And when it's over, what I did there will be what I done*<br>
 
 In later years, Bruce would quote the famous line from *The Man Who Shot Liberty Valance*: "When the legend becomes fact, print the legend." By that time, the legend of Bruce Springsteen had indeed become fact; in 1983, Bruce could see it coming.
 
 But here's where Bruce throws a curve ball right down the middle of "TV Movie," as we learn that our protagonist doesn't fear being misportrayed at all–in fact, he welcomes it as the price of fame:
 
-> *Well, now I don't want my name in a history book*
-> *Nobody's ever gonna see*
-> *No, they're gonna make a TV movie out of me*
+> *Well, now I don't want my name in a history book*<br>
+> *Nobody's ever gonna see*<br>
+> *No, they're gonna make a TV movie out of me*<br>
 
 In 1983, television may not have offered the critical respect that movies afforded, but it offered something more important: *popular* respect. From this point forward, our hero embraces the notion of living forever in a TV movie that will air forever in late-night re-runs, and the band lets loose in celebration during the bridge. One almost suspects they'd revel endlessly if Bruce hadn't reined them back in with a "one more verse now!"
 
-> *Well, I'm a shoe-in for a sponsor, Goodyear blimp and radial wheels*
-> *Somebody had a meeting somewhere, somehow somebody made a deal*
-> *Well, I was one of them kinds of stories that everybody liked to see*
-> *Yeah, they're gonna make a TV movie out of me*
+> *Well, I'm a shoe-in for a sponsor, Goodyear blimp and radial wheels*<br>
+> *Somebody had a meeting somewhere, somehow somebody made a deal*<br>
+> *Well, I was one of them kinds of stories that everybody liked to see*<br>
+> *Yeah, they're gonna make a TV movie out of me*<br>
 
-> *Now I don't want no inscription on my gravestone*
-> *No long soliloquy*
-> *Now they're gonna make a TV movie out of me*
+> *Now I don't want no inscription on my gravestone*<br>
+> *No long soliloquy*<br>
+> *Now they're gonna make a TV movie out of me*<br>
 
 Our hero sees dollar signs in his future, and more importantly: late-night immortality. Ironically, the world would change over the decades that followed. Today, most of those TV movies are lost to pre-streaming history, relegated to studio archives and old VHS tapes.
 

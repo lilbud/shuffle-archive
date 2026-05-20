@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jacob and Drinkwater: Dry Lightning"
+author: "Ken"
+excerpt: "Alt-folk duo Jacob and Drinkwater honored Bruce’s sad, lovely deep cut with their acoustic cover performance on The Big Comfy Sessions."
+tags: dry-lightning jacob-and-drinkwater
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/drinkwater.jpg
+post_id: 33411
+---
 I thought we might take a break from the "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" covers for a bit and shine the spotlight for a while on artists covering deeper cuts in Bruce's catalog.
 
 Let's start with this fine acoustic performance of "[Dry Lightning](../2020-10-16_roll-of-the-dice-dry-lightning/post.md)."

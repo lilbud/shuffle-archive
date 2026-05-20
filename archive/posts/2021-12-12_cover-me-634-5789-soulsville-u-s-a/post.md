@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: 634-5789 (Soulsville, U.S.A.)"
+author: "Ken"
+excerpt: "Whenever Bruce goes to Soulsville, U.S.A., there’s gonna be a party. Check out some great performances of this Stax classic."
+tags: 634-5789-soulsville-u-s-a apollo-theater eddie-floyd patti-scialfa stax timepiece wilson-pickett
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/634.jpg
+post_id: 3488
+---
 A song written by Eddie Floyd and Steve Cropper ("[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)," "[Knock on Wood](../2021-04-02_cover-me-knock-on-wood/post.md)") and recorded by Wilson Pickett ("[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)," [Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)") is pretty much guaranteed to get a cover treatment from Bruce Springsteen.
 
 Most fans know "634-5789" from its nightly outings as part of the "Apollo Medley" on the Wrecking Ball Tour, but Bruce has covered it more than 25 times outside of that, going way back to 1973.

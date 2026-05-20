@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 8"
+author: "Ken"
+excerpt: "Happy birthday, Jay Weinberg, born on this date in 1990. Also on this date: Bruce plays The Stone Pony for the very first time, wins an MTV VMA, performs “State Trooper” live for the first time, and more."
+tags: auburn-hills blackberry-booze-band born-in-the-usa-tour chicago chimes-of-freedom darkness-on-the-edge-of-town detroit eddie-vedder get-up-stand-up hartford human-rights-now-tour italy jay-weinberg jole-blon miami mtv-video-music-awards my-hometown pittsburgh reunion-tour river-tour roger-scott rosemont state-trooper stone-pony streets-of-philadelphia this-depression tom-morello turin wholl-stop-the-rain wrecking-ball-tour wrigley-field
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/09/1900x1900-000000-80-0-0.jpg
+post_id: 59599
+---
 ***New for 2025:** New entry for 1977 and 2024*<br>
 
 **1973:** Bruce and the E Street Band play an afternoon show for the University of Pittsburgh and Carnegie Mellon University.<br>

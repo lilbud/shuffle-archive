@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 20"
+author: "Ken"
+excerpt: "The live debut of “I Wanna Be With You” and the first public Seeger Sessions warm-up show lead the highlights from this date in Bruce history."
+tags: antwerp backstreets belgium denver ghost-of-tom-joad-tour i-wanna-be-with-you i-wanna-marry-you italy milan new-york-city reunion-tour river-tour-2016 rotterdam seeger-sessions-tour springsteen-on-broadway the-netherlands the-ties-that-bind tunnel-of-love-express world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/baltimore16.jpg
+post_id: 56571
+---
 ***New for 2025:** New entry for 1969, 1980, and 1983; video for 1999*<br>
 
 **1969:** Child performs at Hullabaloo in Asbury Park.<br>

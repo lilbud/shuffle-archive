@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 31"
+author: "Ken"
+excerpt: "On this busy date: the release of Human Touch and Lucky Town, the start of World Tour 1993, and the finale of the 2013 Australian Tour. More highlights and video inside."
+tags: australia born-in-the-usa-tour brisbane canada denver glasgow hanging-rock human-touch incident-on-57th-street jimmy-barnes lucky-town macedon magic-tour reunion-tour river-tour-2016 thunder-road tougher-than-the-rest trapped vancouver world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/bruce-springsteen-human-touch-lucky-town.jpg
+post_id: 56316
+---
 ***New for 2025:** Video for 1993; new entry for 1996 and 2024*<br>
 
 **1960:** Bruce receives his bear merit badge at the monthly meeting for Cub Scout Pack 18 at St. Rose of Lima in Freehold.<br>
@@ -8,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1985:** Bruce and the E Street Band play the biggest concert in Brisbane’s history (at the time) at QEII Sports Center.<br>
+**1985:** Bruce and the E Street Band play the biggest concert in Brisbane's history (at the time) at QEII Sports Center.<br>
 
 [Watch on Youtube: Bruce Springsteen Born in the USA Tour. 1985 TV report from Brisbane, AUSTRALIA](https://www.youtube.com/watch?v=xm7UGF0JCAo)
 
@@ -32,7 +42,7 @@
 
 (marketing plan and USA Today scan courtesy of reader Andy Swanson)
 
-**1993:** Bruce kicks off World Tour 1993 in Glasgow with an acoustic mini-set–a feature that distinguishes this year’s tour from the one that preceded it. “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)” is filmed and broadcast the following evening on *Top of the Pops*.<br>
+**1993:** Bruce kicks off World Tour 1993 in Glasgow with an acoustic mini-set–a feature that distinguishes this year's tour from the one that preceded it. "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" is filmed and broadcast the following evening on *Top of the Pops*.<br>
 
 [Watch on Youtube: Lucky Town - Bruce Springsteen (live at the SEC Centre, Glasgow 1993)](https://www.youtube.com/watch?v=_7Cjtv2v-MM)
 
@@ -40,25 +50,25 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/45909604145_7980ef75de_o.jpg.webp)
 
-**1996:** Bruce’s scheduled solo show in Berlin is postponed to the following month so that he can perform at this year’s Oscars ceremony.<br>
+**1996:** Bruce's scheduled solo show in Berlin is postponed to the following month so that he can perform at this year's Oscars ceremony.<br>
 
 **2000:** Night Two in Denver along the Reunion Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iEHmZAcg)
 
-If you aren’t in Denver tonight, you still have a chance to see The Boss: the movie *High Fidelity* premieres today, and Bruce has a pivotal cameo.
+If you aren't in Denver tonight, you still have a chance to see The Boss: the movie *High Fidelity* premieres today, and Bruce has a pivotal cameo.
 
 [Watch Video Highlight](https://videopress.com/embed/e9i42Z2L)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2000-03-31.png.webp)
 
-**2008:** An “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)” opener and very rare “[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)” highlight the E Street Band’s show at GM Place in Vancouver, BC on the Magic Tour. For more highlights from this show, see my [*Where the Band Was* report from this show.](../2018-03-31_where-the-band-was-vancouver-march-31-2008/post.md)<br>
+**2008:** An "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" opener and very rare "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)" highlight the E Street Band's show at GM Place in Vancouver, BC on the Magic Tour. For more highlights from this show, see my [*Where the Band Was* report from this show.](../2018-03-31_where-the-band-was-vancouver-march-31-2008/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen - Trapped](https://www.youtube.com/watch?v=nXArxxN1qKE)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2008-03-31.jpg.webp)
 
-**2013:** Bruce and the E Street Band wrap up the Australian leg of the Wrecking Ball Tour with a second show at Hanging Rock in Macedon. Jimmy Barnes guests for “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/).”<br>
+**2013:** Bruce and the E Street Band wrap up the Australian leg of the Wrecking Ball Tour with a second show at Hanging Rock in Macedon. Jimmy Barnes guests for "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."<br>
 
 [Watch on Youtube: Tougher Than The Rest - Bruce Springsteen & Jimmy Barnes - Hanging Rock 2 - 31-03-2013](https://www.youtube.com/watch?v=NMRQgqeVd3c)
 
@@ -74,15 +84,15 @@ If you aren’t in Denver tonight, you still have a chance to see The Boss: the 
 
 [Watch on Youtube: Springsteen - Thunder Road in Denver](https://www.youtube.com/watch?v=14fgF4WSCSM)
 
-**2021:** E Street Radio premieres Episode 20 of Bruce’s *From My Home to Yours* radio show, entitled “Here Comes the Weekend.”<br>
+**2021:** E Street Radio premieres Episode 20 of Bruce's *From My Home to Yours* radio show, entitled "Here Comes the Weekend."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3)
 
-**2024:** At Night Two in San Francisco, Bruce and the E Street Band open their show with “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md).”<br>
+**2024:** At Night Two in San Francisco, Bruce and the E Street Band open their show with "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Chase Center San Francisco, CA 3/31/2024-Light of Day](https://www.youtube.com/watch?v=FaQGdRu2ysI)
 
-If you can’t be at the show tonight, you can still catch The Boss on HBO’s *Curb Your Enthusiasm,* where he makes a very funny (and completely improvised) guest appearance.
+If you can't be at the show tonight, you can still catch The Boss on HBO's *Curb Your Enthusiasm*, where he makes a very funny (and completely improvised) guest appearance.
 
 [Watch on Youtube: Curb Your Enthusiasm: Boss](https://www.youtube.com/watch?v=aTBsNMZZPf8)
 

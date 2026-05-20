@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Cats on a Smooth Surface: Hound Dog"
+author: "Ken"
+excerpt: "Twice only: Bruce plays one of the all-time great rock and roll songs during surprise appearances at The Stone Pony in the summer of ’89."
+tags: big-mama-thornton bobby-bandiera cats-on-a-smooth-surface elvis-presley hound-dog
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/hounddog.jpg
+post_id: 26262
+---
 Bruce was bound to cover "Hound Dog" sooner or later. Hasn't everybody?
 
 Well, maybe not *everybody*, but known recordings of "Hound Dog" number in the hundreds, starting with the best: Big Mama Thornton's growling blues original from 1952.

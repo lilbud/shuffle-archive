@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Nothing Man"
+author: "Ken"
+excerpt: "Written long before 9/11 but perfectly capturing the pain of its first responders, “Nothing Man” is a bleak but ambiguous look at the lasting emotional effects of intense trauma."
+tags: nothing-man the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/nothingman.jpg
+post_id: 20375
+---
 One of Bruce Springsteen's underappreciated talents is the construction of an album sequence.
 
 If that sounds like a lame thing to classify as a "talent," then just consider: on Bruce's landmark "9/11" album, *The Rising*, only half the album was actually written post-9/11.

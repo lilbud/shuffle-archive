@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Ruby Baby"
+author: "Ken"
+excerpt: "Twice only: Bruce Springsteen and the E Street Band turn in steamy performances of “Ruby Baby” at The Stone Pony in the summer of 1987."
+tags: ruby-baby the-drifters
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/ruby.jpg
+post_id: 15273
+---
 You could argue who did it better, The Drifters or Dion and The Belmonts, but either way you'd be right.
 
 Written by the great songwriting team of Lieber and Stoller, "Ruby Baby" rocks, swings, saunters, and steamrolls in both versions.

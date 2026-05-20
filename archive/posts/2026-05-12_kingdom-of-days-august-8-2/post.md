@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 8"
+author: "Ken"
+excerpt: "Today is a relatively quiet date in Springsteen history, but there’s one momentous exception: the very first performance ever of “Backstreets.” Listen to it here."
+tags: akron backstreets born-in-the-usa-tour born-to-run-tour cats-on-a-smooth-surface east-rutherford new-york-city philadelphia rising-tour springsteen-on-broadway stone-pony
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/wantad.jpg
+post_id: 57928
+---
 **1970:** A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothing's Festival is cancelled when the event's local venues become ensnared in a web of regulatory oversight.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1970-08-08a.png.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Patti Smith Group and Bruce Springsteen: We're Gonna Have a Real Good Time Together"
+author: "Ken"
+excerpt: "One time only: Bruce joins The Patti Smith Group on piano for a rave-up cover of The Velvet Underground classic."
+tags: lou-reed the-velvet-underground were-gonna-have-a-real-good-time-together
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/realgoodtime.jpg
+post_id: 20497
+---
 Until it was released in the autumn of 1974 on *1969: The Velvet Underground Live* (recorded live at The Matrix in San Francisco just a few weeks before Bruce made his first appearance there), the only way you'd be familiar with "We're Gonna Have a Real Good Time Together" is if you'd heard Lou Reed's rave-up at one of the band's early concerts.
 
 [Watch on Youtube: We're Gonna Have A Real Good Time Together](https://www.youtube.com/watch?v=_GIK7mKN5Sg)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 5"
+author: "Ken"
+excerpt: "Check out a rare TV profile from 1985, a pro-shot “Kitty’s Back” from 2014, and highlights from the spectacular 1975 Main Point show featuring work-in-progress versions of songs that would appear on Born to Run."
+tags: 20-20 australia brisbane bruce-springsteen-band bryn-mawr david-bowie for-you ghost-of-tom-joad-tour high-hopes-tour kittys-back maxs-kansas-city perth richmond suki-lahav the-main-point
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/19750205_5_front.jpg
+post_id: 55858
+---
 **1972:** The Bruce Springsteen Band plays their second of nine shows this month at The Back Door in Richmond, Virginia.<br>
 
 **1973:** Bruce and the band play their last night at Max’s Kansas City in New York. David Bowie is in attendance to see his friend and headliner, Biff Rose. Although they won’t meet for another year and a half, Bowie becomes a Springsteen fan that night; four months later, he will become the first artist to record a Bruce Springsteen cover.<br>

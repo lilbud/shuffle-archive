@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Reflekter: Moonlight Motel"
+author: "Ken"
+excerpt: "James Gooch’s acoustic cover of “Moonlight Motel” is the first Western Stars cover I’ve featured on this blog, and it’s bound to be a controversial one. You’ll understand why when you listen to it."
+tags: james-gooch moonlight-motel reflekter
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/moonlight.jpg
+post_id: 14140
+---
 Okay, so here's the thing: I really want to like this cover.
 
 Although I wasn't familiar with Reflekter before their frontman's acoustic cover of "[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" brought them to my attention, I rather like the stuff I've heard as I've investigated them.

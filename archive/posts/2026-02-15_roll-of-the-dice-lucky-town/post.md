@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Lucky Town"
+author: "Ken"
+excerpt: "“Lucky Town” is an intimate song of personal affirmation and professional re-dedication, one of the strongest tracks on a strong but under-rated album."
+tags: lucky-town mtv-unplugged saturday-night-live
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1992/02/R-1702621-1329506646.jpg
+post_id: 9378
+---
 On first listen, "Lucky Town" sounds like a latter-day retelling of "Hungry Heart." Our narrator feels the need to escape the confines of his home and his life, so he starts walking.
 
 But by the time the song ends, we realize that Bruce has turned "Hungry Heart" on its head: he's not running *from*, he's running *toward.*

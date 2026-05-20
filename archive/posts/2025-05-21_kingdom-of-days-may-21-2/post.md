@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 21"
+author: "Ken"
+excerpt: "Too many highlights to list: the first cut of “Born to Run,” the first “Meeting Across the River” in 20 years, and more. Plus: the debut of Bruce Springsteen and the Hot Mammas (really)."
+tags: across-the-border anaheim born-to-run bruce-springsteen-and-the-hot-mammas castiles clarence-clemons david-letterman east-rutherford florence ghost-of-tom-joad-tour i-wanna-be-with-you interview itlay london madrid meeting-across-the-river outlaw-pete reunion-tour river-tour-2016 rolling-stone seeger-sessions-tour stockholm sweden the-ghost-of-tom-joad working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/20230521-rome-it-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56798
+---
 ***New for 2025:** Video for 2016 and 2023*<br>
 
 **1966:** The Castiles perform at their own junior prom at Freehold Regional High School.<br>

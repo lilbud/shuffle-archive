@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Hearts of Stone"
+author: "Ken"
+excerpt: "Whether in its original Southside Johnny incarnation or its more modern Tracks version, “Hearts of Stone” offers some of Bruce’s most brutally, emotionally honest songwriting."
+tags: hearts-of-stone southside-johnny tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/heartsstone.jpg
+post_id: 32951
+---
 "Hearts of Stone" is a hard song to write about.
 
 In part, that's due to its provenance: there are two very different official studio versions out there, and each can lay claim to being the original Springsteen studio recording.

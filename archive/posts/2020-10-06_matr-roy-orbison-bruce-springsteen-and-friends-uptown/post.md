@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison, Bruce Springsteen and Friends: Uptown"
+author: "Ken"
+excerpt: "One time only: Bruce joins Roy Orbison on one of Roy’s earliest and most influential hits."
+tags: black-and-white-night roy-orbison uptown
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/uptown_original-1.jpg
+post_id: 21386
+---
 Oh, those strings.
 
 When Roy Orbison recorded "Uptown" in 1959, a string section in rock and roll was a genuine novelty, and they lent "Uptown" an air of lush sophistication that commanded attention and admiration.

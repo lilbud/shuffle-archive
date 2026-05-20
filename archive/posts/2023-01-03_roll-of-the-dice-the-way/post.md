@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Way"
+author: "Ken"
+excerpt: "This romantic slow song has its fans, but its creator isn’t among them. When Bruce finally relented and released it, he hid it away as best he could."
+tags: darkness-on-the-edge-of-town the-promise the-way
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/theway.jpg
+post_id: 28460
+---
 Toward the end of the era when recorded music was primarily delivered via circular, physical media, there was an annoying fad that seemed to sweep up almost every artist sooner or later: the hidden track.
 
 The practice dates back at least as far as The Beatles and their *Abbey Road* album, which included a 23-second medley outtake called "Her Majesty" that accidentally ended up at the end of the album thanks to an over-tired eighteen-year-old audio engineer and the startled band's amused reaction when they first heard the playback.

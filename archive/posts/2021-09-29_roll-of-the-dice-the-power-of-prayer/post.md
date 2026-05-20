@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Power of Prayer"
+author: "Ken"
+excerpt: "At the center of Bruce’s Letter to You album lies the summational song of Bruce’s songwriting career."
+tags: letter-to-you the-power-of-prayer
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/power.jpg
+post_id: 29628
+---
 > "We all have our own ways of praying. I restricted mine to 3 minutes and a 45 rpm record. The power of pure pop, the beautiful simplicity of melody, a complete character study in a matter of minutes. Life in 180 seconds or less. If you get it right, it has the power of prayer." *–Bruce Springsteen, Letter to You (2020)*<br>
 
 It took almost fifty years and twenty studio albums to get there, but hiding in the center of *Letter to You* is the truest summation of Bruce Springsteen's prolific songwriting career.

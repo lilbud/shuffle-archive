@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sax Song"
+author: "Ken"
+excerpt: "Still missing in action after all these years, “Down by the River” is a straight up rocker featuring the E Street Band in all its glory that would have been right at home on The River."
+tags: down-by-the-river sax-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/down-by-river.jpg
+post_id: 17942
+---
 Believe it or not, even after the 1998 *Tracks* and 2010 *The Promise* box sets, there are *still* unreleased songs from Bruce Springsteen's [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) sessions.
 
 One of my favorite still-missing-in-action tracks is "Sax Song" (also known as "Down by the River"). (Don't confuse it with the [Neil Young song by the same name](../2018-08-06_meeting-across-the-river-bruce-springsteen-and-neil-young-down-by-the-river/post.md).)

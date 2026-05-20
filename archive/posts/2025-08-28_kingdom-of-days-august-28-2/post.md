@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 28"
+author: "Ken"
+excerpt: "The full-band debut of “Soul Driver,” an “Independence Day” train wreck, the premiere of “Proud Mary” and “Plane Wreck at Los Gatos (Deportee),” and more."
+tags: american-skin-41-shots be-true bobby-bandiera born-in-the-usa-tour chicago darkness-on-the-edge-of-town darkness-tour east-rutherford from-small-things giants-stadium independence-day jimmy-and-the-gigolos largo los-angeles new-york-city new-york-city-serenade none-but-the-brave philadelphia pittsburgh richmond rising-tour river-tour river-tour-2016 robbin-thompson springsteen-on-broadway steel-mill sting washington-dc world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2016-08-28-chicago-il-bruce-springsteen-the-e-street-band-68.jpg
+post_id: 59499
+---
 ***New for 2025:** Audio for 1981*<br>
 
 **1970:** Robbin Thompson makes his Steel Mill debut at the band's University of Richmond gig.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Back in the U.S.A."
+author: "Ken"
+excerpt: "They may have been a throwaway reference in Chuck Berry’s “Back in the U.S.A.,” but when Bruce covered the song, it was all about the burgers."
+tags: back-in-the-u-s-a chuck-berry
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/backinus.jpg
+post_id: 7817
+---
 Bruce Springsteen has covered almost two dozen Chuck Berry tunes in concert, but none with more gusto than “Back in the U.S.A.” (Perhaps “[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)” is tied for first, though.)
 
 Bruce played it occasionally on the Born to Run Tour, closing his legendary Main Point show with it on February 5th.

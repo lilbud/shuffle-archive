@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Daniele Tenca: Johnny 99"
+author: "Ken"
+excerpt: "Daniele Tenca turned in a gloriously gritty cover of “Johnny 99” at a live performance in 2018. It’s now my all-time favorite arrangement of the song."
+tags: daniele-tenca johnny-99
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/johnny.jpg
+post_id: 17120
+---
 Daniele Tenca hails from Italy, but he shouldn't be a stranger to Springsteen fans–he's made multiple Light of Day appearances, played The Stone Pony in Asbury Park, and recorded a few outstanding Springsteen covers.
 
 In fact, Tenca recorded an absolutely smoking cover of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" back in 2010, and I was all set to blog about it later this month.

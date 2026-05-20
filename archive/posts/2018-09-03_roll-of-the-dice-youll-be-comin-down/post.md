@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You'll Be Comin' Down"
+author: "Ken"
+excerpt: "Musical cousin but lyrical opposite to “Lucky Town,” “You’ll Be Comin’ Down” is an under-the-radar track (perhaps justifiably) from Bruce’s Magic album."
+tags: columbus lucky-town magic magic-tour youll-be-comin-down
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/coming-down.png
+post_id: 4353
+---
 Someday, I'd love to see Bruce play "You'll Be Comin' Down" back-to-back with "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" and see if he has the same epiphany that he had in Sunrise a few years ago…
 
 [Watch on Youtube: Linda Let Me Be the One (edited)- Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=KtyeEEnkLAk)

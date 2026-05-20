@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: When You're Alone"
+author: "Ken"
+excerpt: "Melodically warm but lyrically icy, “When You’re Alone” is (appropriately) one of the least played songs on Tunnel of Love."
+tags: tunnel-of-love when-youre-alone
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/alone.jpg
+post_id: 22773
+---
 When Bruce gathered the E Street Band at the Expo Theater in Fort Monmouth to rehearse for their upcoming Tunnel of Love Express Tour, "When You're Alone" was among the first songs they tackled.
 
 [Watch Video Highlight](https://videopress.com/embed/6TPI8gbd)

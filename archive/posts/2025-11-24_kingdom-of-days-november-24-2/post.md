@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 24"
+author: "Ken"
+excerpt: "This date in Springsteen history gave us some gems: check out the unreleased 1980 concert video from Largo, listen to highlights from Bruce’s trio of Asbury Park concerts in 1996, and more."
+tags: asbury-park born-to-run-tour bruce-springsteen-band castiles danny-federici england freehold ghost-of-tom-joad-tour if-i-should-fall-behind largo london miami patti-scialfa rising-tour river-tour rosalita soozie-tyrell springsteen-on-broadway student-prince tampa uk washington-dc world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/london75.webp
+post_id: 62430
+---
 ***New for 2025:** Review for 1975*<br>
 
 **1967:** The Castiles play a show at Freehold Regional High School.<br>

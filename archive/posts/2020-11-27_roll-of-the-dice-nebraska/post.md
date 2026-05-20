@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Nebraska"
+author: "Ken"
+excerpt: "“Nebraska” is a song of disconnection and alienation. It’s one of Bruce’s most powerful compositions."
+tags: nebraska
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/ROCK_805-2.jpg
+post_id: 1646
+---
 When I started this blog, I knew there would be certain songs that would be tough to write about. "Nebraska" is one of them.
 
 Not because it's cryptic or inaccessible or a bad song–it's none of those things–but because so much as already been written about it. In any book (and there are many) on Bruce and his work, you're guaranteed to find a chapter on at least the *Nebraska* album if not its title track.

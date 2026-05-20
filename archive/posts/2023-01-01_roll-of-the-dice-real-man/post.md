@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Real Man"
+author: "Ken"
+excerpt: "In which we ask the question: is there any redeeming virtue in this widely scorned deep cut?"
+tags: human-touch real-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/RealMan.jpg
+post_id: 17359
+---
 It's that moment we all wish for at a Bruce Springsteen show:
 
 > *"We're gonna try out some songs we ain't played yet… we're gonna fly by the seat of our pants a little bit, alright?"*<br>

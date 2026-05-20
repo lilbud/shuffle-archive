@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Elliott Murphy and Bruce Springsteen, Everything I Do (Leads Me Back to You)"
+author: "Ken"
+excerpt: "Here’s a lovely under-the-radar duet featuring one of Bruce’s best 90s vocals and a verse he couldn’t resist."
+tags: elliott-murphy everything-i-do-leads-me-back-to-you
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/everything.jpg
+post_id: 6940
+---
 In 1995, Elliott Murphy was working on his upcoming album *Selling the Gold*, and among the songs he'd written and selected for it was a lovely little ballad called "Everything I Do (Leads Me Back to You)."
 
 Murphy had written it with Bruce in mind–not from a lyrical point of view (although that second verse *screams* Springsteen) but from a vocal perspective.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: ""Long Walk Home" Book Review and Reader Mail"
+author: "Ken"
+excerpt: "In which I review an upcoming book that marks Bruce’s 70th birthday and answer a couple of frequently asked questions."
+tags: long-walk-home-reflections-on-bruce-springsteen reader-mail western-stars
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/lwh-1.jpg
+post_id: 11737
+---
 Well, hello there!
 
 I hope you're enjoying your summer so far (or winter, for those of you down under).

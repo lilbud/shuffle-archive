@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Let It Be Me"
+author: "Ken"
+excerpt: "Frequently sound checked but never performed, the unabashedly romantic “Let It Be Me” seemed perfectly suited for the Tunnel of Love Tour."
+tags: let-it-be-me the-everly-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/letitbeme.jpg
+post_id: 28660
+---
 If you were an American television viewer in the 1950s, you might have come across an anthology series called *Climax!* (also known as *Climax Mystery Theater*).
 
 Every Thursday night, *Climax!* brought to life a different story. Sometimes it was a classic like *The Long Goodbye* or *The Adventures of Huckleberry Finn.* More often it was a lesser-known tale, and occasionally it was a story destined to become a classic. (Its third-season adaptation of *Casino Royale*, for example, was the first-ever screen adaptation of a James Bond novel.)

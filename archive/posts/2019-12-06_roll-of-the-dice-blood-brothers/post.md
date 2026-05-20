@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Blood Brothers"
+author: "Ken"
+excerpt: "In any version, in any arrangement, “Blood Brothers” packs an emotional punch and holds a special place in fans’ hearts."
+tags: blood-brothers greatest-hits
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/bloodbrothers-1.png
+post_id: 13917
+---
 > *"I always felt that the friendships, loyalties, and relationships are the bonds that keep you from slipping into the abyss of self-destructiveness. Without those things, that abyss feels a lot closer–like it's on your heels." — Bruce Springsteen to Neil Strauss, September 1995*<br>
 
 How can such a nihilistic song give us so much feels?

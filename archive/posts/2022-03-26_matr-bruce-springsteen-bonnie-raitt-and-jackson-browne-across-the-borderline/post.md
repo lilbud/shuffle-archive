@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Bonnie Raitt, and Jackson Browne: Across the Borderline"
+author: "Ken"
+excerpt: "At a pair of 1990 benefit concerts, three rock icons joined their voices and instruments for a gorgeous acoustic encore of Ry Cooder’s classic song."
+tags: across-the-borderline bonnie-raitt freddy-fender jackson-browne ry-cooder
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/borderline.jpg
+post_id: 31943
+---
 In 1982, Jack Nicholson and Harvey Keitel starred in a film about a corrupt U.S. border agent. The film received middling reviews and is arguably most memorable for its soundtrack, which featured songs written by Ry Cooder.
 
 One of Cooder's songs played over both the opening and end credits: a bittersweet ballad called "Across the Borderline," performed by Freddy Fender.

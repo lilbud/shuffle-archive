@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Santa Claus is Comin' to Town"
+author: "Ken"
+excerpt: "Here’s the sad story behind Bruce’s most beloved holiday classic."
+tags: eddie-cantor harry-reser phil-spector santa-claus-is-comin-to-town the-crystals the-four-seasons
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/santa.jpg
+post_id: 31072
+---
 It was already one of the most famous Christmas songs of all time before Bruce Springsteen immortalized it for annual radio play.
 
 That's probably because it's also one of the most malleable holiday classics, taking twists and turns in both lyrics and arrangement since its first recording in 1934.

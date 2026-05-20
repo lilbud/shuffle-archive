@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 3"
+author: "Ken"
+excerpt: "Today in Springsteen history: Bruce releases two new videos, a star-studded holiday show in Asbury Park features the return of some notable set list prodigals, and an epic 20-minute “Kitty’s Back.” More highlights inside."
+tags: bobby-bandiera born-to-run-tour boston bruce-springsteen-band carbondale castiles chicago clarence-clemons-and-the-red-bank-rockers darkness-tour detroit-medley garland-jeffreys ghost-of-tom-joad-tour holiday-shows i-aint-got-no-home kittys-back lisa-lowell max-weinberg-7 nils-lofgren patti-scialfa pawn-stars rosemont soozie-tyrell soul-driver southside-johnny spare-parts st-louis student-prince sunrise vigilante-man world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/20011203_2_front.jpg
+post_id: 62662
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1966:** The Castiles play a gig at the Matawan-Keyport Roller Drome.<br>

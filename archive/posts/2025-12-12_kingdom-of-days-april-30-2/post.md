@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 30"
+author: "Ken"
+excerpt: "Talk about a significant date: Bruce plays his legendary Jazz Fest show in 2006; “Dancing in the Dark” makes its reunion-era debut; MTV debuts a new documentary; and the Sunshine Blues Band debuts. Much more inside."
+tags: birmingham book-of-dreams charlottesville chicken-scratch-tour cincinnati devils-and-dust-tour ghost-of-tom-joad-tour glendale how-can-a-poor-man-stand-such-times-and-live james-brown jazzfest l-a-riots loose-ends magic-tour new-orleans nils-lofgren o-mary-dont-you-weep oslo reunion-tour seeger-sessions-tour strasbourg student-prince sundance-blues-band this-hard-land wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/nola06-1.jpg
+post_id: 56649
+---
 **1971:** At the Student Prince in Asbury Park, Bruce makes a guest appearance at the debut performance of The Sundance Blues Band, led by Steve Van Zandt and Southside Johnny, and featuring Vini Lopez, Garry Tallent, and Joe Hagstrom.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1971-04-30.jpg.webp)

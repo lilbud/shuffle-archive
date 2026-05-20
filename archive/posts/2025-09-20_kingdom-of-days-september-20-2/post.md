@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 20"
+author: "Ken"
+excerpt: "On this date: Bruce releases Nebraska, films the video for “Lonesome Day” and photobombs a couple’s engagement photos. Plus, Patti appears solo on Letterman, the live debut of “County Fair,” the first full-album show on the 2009 tour, and more. Whew! Lots of highlights today…"
+tags: born-to-run born-to-run-tour buffalo child darien darkness-tour david-letterman earth iowa iron-city-houserockers joe-grushecky john-fogerty lonesome-day lucky-girl meeting-across-the-river passaic patti-scialfa philadelphia reunion-tour richmond rising-tour working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/nebraska.jpg
+post_id: 59693
+---
 ***New for 2025:** Video for 1978; audio for 2003*<br>
 
 **1968:** Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey. (Note: Brucebase places this show on this date, but local press advertisements suggest it did not take place, at least not tonight. Consider this one suspect.)<br>

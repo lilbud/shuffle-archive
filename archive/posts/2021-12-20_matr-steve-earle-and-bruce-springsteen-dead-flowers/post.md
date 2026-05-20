@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Steve Earle and Bruce Springsteen: Dead Flowers"
+author: "Ken"
+excerpt: "One time only: Bruce joins Steve Earle for a faithful cover of The Rolling Stones’ country rock classic, “Dead Flowers.”"
+tags: dead-flowers rolling-stones steve-earle
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/deadflowers.jpg
+post_id: 15479
+---
 “Dead Flowers” is as close as The Rolling Stones ever got to country music.
 
 You could even argue they got all the way there: Classic Rock Magazine calls “Dead Flowers” the third-greatest country rock song of all time, in fact.

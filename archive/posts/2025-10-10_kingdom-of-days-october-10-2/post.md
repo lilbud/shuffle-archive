@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 10"
+author: "Ken"
+excerpt: "Tour premieres galore at shows across the years, plus Bruce makes a promotional book tour appearance, and previews continue for his Broadway show."
+tags: all-the-way-home born-to-run-book chicago cynthia east-rutherford graham-norton italy lawsuit-tour magic magic-tour mike-appel river-tour rome seeger-sessions-tour springsteen-on-broadway your-own-worst-enemy
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/rome06.jpg
+post_id: 61098
+---
 ***New for 2025:** New entry for 1983; audio for 2006*<br>
 
 **1973:** Bruce plays at Grendel's Lair Coffee House in Philadelphia.<br>

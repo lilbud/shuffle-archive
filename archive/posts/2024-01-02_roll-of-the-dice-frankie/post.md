@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Frankie"
+author: "Ken"
+excerpt: "Ah, the elusive, romantic epic “Frankie.” She’s the one that got away multiple times. It took years, but Bruce and the E Street Band finally did right by her in the studio and on stage. Watch and listen inside."
+tags: frankie tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/Frankie-Download-Free-PNG.png
+post_id: 7887
+---
 Poor "Frankie."
 
 Written and debuted during the peak of Bruce's romantic post-*Born to Run* songwriting period, she was meant to play a starring role on Bruce's 1976 follow-up album (an album, of course, that was destined to never be).

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Magic Kind of Loving"
+author: "Ken"
+excerpt: "Set the wayback machine to almost a half-century ago, and we’ll eavesdrop on The Bruce Springsteen Band performing one of Bruce’s lost original rockers."
+tags: magic-kind-of-loving the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/admin-ajax-68.jpg
+post_id: 27152
+---
 Let's time-travel to a half-century ago, when The Bruce Springsteen Band was in residence at The Back Door in Richmond, Virginia.
 
 Bruce and his band played at least nine shows at that venue in February 1972, and even though many of the band's performances were captured on tape, it can be maddeningly difficult to figure out which song came from which show. So take the dates at the bottom of the article with a grain of salt.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 16"
+author: "Ken"
+excerpt: "On this date: a mini-Seeger Sessions reunion, an Edwin Starr guest appearance, the release of “We’ve Got the Love,” and more."
+tags: amsterdam birmingham cats-on-a-smooth-surface clarence-clemons crying denmark edinburgh edwin-starr france germany ghost-of-tom-joad-tour herning i-wish-i-were-blind jersey-artists-for-mankind jesse-james julianne-phillips madison-square-garden montpellier munich my-oklahoma-home new-york-city o-mary-dont-you-weep pay-me-my-money-down reunion-tour river-tour scotland seeger-sessions-tour springsteen-on-broadway stone-pony the-netherlands tunnel-of-love-express-tour uk war weve-got-the-love world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/220506_bs880516.jpg
+post_id: 56768
+---
 **1973:** Bruce cancels a scheduled performance at Minnesota State University and instead records “The Fever” at 914 Sound Studios in Blauvelt, New York. It will remain in the vault for 26 years until Bruce finally releases it on *Tracks*.<br>
 
 [Watch on Youtube: The Fever (Studio Outtake - 1973)](https://www.youtube.com/watch?v=NXPDwAYdCsg)

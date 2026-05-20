@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 9"
+author: "Ken"
+excerpt: "On this date: Bruce Springsteen signs his first contract with Columbia Records and begins assembling the E Street Band! More highlights inside."
+tags: badlands because-the-night bergen born-in-the-usa-tour boston chicago columbia-records darkness-tour gothenburg in-the-midnight-hour london milwaukee new-york-city nils-lofgren norway pete-townshend springsteen-on-broadway stone-pony sweden the-castiles u2 uk working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/19890609_front.jpg
+post_id: 57024
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1967:** The Castiles play the Senior Farewell Dance at Freehold Regional High School.<br>
@@ -14,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/mecca.jpg.webp)
 
-**1981:** Bruce and Pete Townshend catch U2’s gig at the Hammersmith Palais in London.<br>
+**1981:** Bruce and Pete Townshend catch U2's gig at the Hammersmith Palais in London.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1981-0609.jpg.webp)
 
@@ -28,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen-Dancing in the Dark (Live-1985).](https://www.youtube.com/watch?v=_C12AhdgoTc)
 
-**1989:** Bruce and Max join Nils for four songs at Nils’ gig at the Stone Pony.<br>
+**1989:** Bruce and Max join Nils for four songs at Nils' gig at the Stone Pony.<br>
 
 [Watch on Youtube: Not Fade Away](https://www.youtube.com/watch?v=9t233EpGPOk)
 
@@ -38,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1989-06-09.jpg.webp)
 
-**2009:** Norwegian fans enjoy the tour premiere of “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)” at the first of two Working on a Dream shows in Bergen.<br>
+**2009:** Norwegian fans enjoy the tour premiere of "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" at the first of two Working on a Dream shows in Bergen.<br>
 
 [Watch on Youtube: Bruce Springsteen - Intro & Badlands (Live Norway Bergen 2009)](https://www.youtube.com/watch?v=-qv74yl6Ye0)
 
@@ -52,6 +62,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** *From My Home to Yours* continues its run on E Street Radio with Episode 23, “Old Bones.”<br>
+**2021:** *From My Home to Yours* continues its run on E Street Radio with Episode 23, "Old Bones."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3)

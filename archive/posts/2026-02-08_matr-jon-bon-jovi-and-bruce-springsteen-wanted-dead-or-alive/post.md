@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Wanted Dead or Alive"
+author: "Ken"
+excerpt: "One time only: For the first time, Bruce and Jon Bon Jovi join forces for one of Bon Jovi’s own songs–a signature one at that."
+tags: bon-jovi jon-bon-jovi wanted-dead-or-alive
+categories: cover-me meeting-across-the-river
+post_id: 7790
+---
 On January 31, 1998, Jersey met Jersey.
 
 At a benefit concert for the memorial fund for a local police officer killed a few months prior, Bruce Springsteen and Jon Bon Jovi shared vocals on one of Bon Jovi's signature songs:

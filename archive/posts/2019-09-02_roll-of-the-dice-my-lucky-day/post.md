@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Lucky Day"
+author: "Ken"
+excerpt: "“My Lucky Day” is classic E Street magic both in the studio and on stage. Take a look and listen behind the scenes inside."
+tags: my-lucky-day working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/myluckyday_single.jpg
+post_id: 12291
+---
 For the life of me, I can't figure out why "My Lucky Day" never became the monster hit it deserves to be.
 
 I'm not talking about a mainstream pop hit, mind you. Bruce left those days behind a long time ago. But I fully expected "My Lucky Day" to become an instant setlist staple and fan favorite, because it's not only one of the E Street Band's best twenty-first century recordings, it's also the most natural and organic sounding. It sounds like it was written to be played live.

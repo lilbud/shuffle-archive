@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Smith and Bruce Springsteen, Picture Hanging Blues"
+author: "Ken"
+excerpt: "Now here’s a true rarity: Bruce Springsteen backing Patti Smith on piano, gamely trying to keep up with her as she improvs her way through one of her earliest poems."
+tags: new-york-city patti-smith picture-hanging-blues
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/bruce-patti.jpg
+post_id: 7525
+---
 Let's set the Wayback Machine for Black Friday, November 26, 1976, at the Bottom Line club in New York City.
 
 The Patti Smith Group is playing two shows on that stage this night, and there's a special guest in the house for both of them: Bruce not only joins the band on guitar for several numbers during each show, he also backs Patti by himself–on the *piano*.

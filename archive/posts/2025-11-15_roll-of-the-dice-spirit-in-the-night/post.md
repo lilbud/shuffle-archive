@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Spirit in the Night"
+author: "Ken"
+excerpt: "Bearing influences both local and literary, “Spirit in the Night” immediately established itself as one of Bruce’s signature songs."
+tags: greetings-from-asbury-park spirit-in-the-night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/spirit.jpg
+post_id: 16175
+---
 The story goes something like this:
 
 In the summer of 1971, Bruce met a girl named Diane Lozito. Sparks flew, but Lozito was romantically involved with someone else at the time, a lifeguard Bruce knew named Billy Cahill. Billy had a bit of a wild edge to him, so Bruce dubbed him "Wild Billy."

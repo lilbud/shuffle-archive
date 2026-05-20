@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Mountain of Love"
+author: "Ken"
+excerpt: "An early, minor rock-and-roll hit proved a perfect fit for the young E Street Band."
+tags: harold-dorman johnny-rivers mountain-of-love
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/dorman.jpg
+post_id: 37842
+---
 "Mountain of Love" still had seven years to go before becoming a #1 hit single when Bruce Springsteen covered it five times on the Born to Run Tour.
 
 It wasn't for lack of trying, though.

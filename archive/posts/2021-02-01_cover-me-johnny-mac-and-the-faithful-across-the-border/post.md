@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Johnny Mac and the Faithful: Across the Border"
+author: "Ken"
+excerpt: "Glasgow-based Johnny Mac and The Faithful gift us with a beautiful cover of Bruce’s “Across the Border.”"
+tags: across-the-border johnny-mac-and-the-faithful
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/johnnymac.jpg
+post_id: 24821
+---
 Johnny Mac and The Faithful are a Glasgow-based celtic-folk-rock band that count the music of Bruce Springsteen and Woody Guthrie among their primary influences, so it's no surprise that when they decided to cover Bruce they turned to his most Guthrie-esque album.
 
 Their new cover of "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)" does more than justice to Bruce's original. Lead singer John Mclaughlin's vocals are gorgeous, and the group's arrangement is hopeful and expansive. This is a splendid cover.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: One Time Only Introduction"
+author: "Ken"
+excerpt: "We now have a site index of other artists covering Bruce Springsteen’s songbook! Check it out to see what other artists do with your favorite songs."
+tags: cover-me index
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1977/01/he-had-to-reschedule-his-tours-shows-because-of-health-issues-1750147733.jpg
+post_id: 16760
+---
 "Tonight! One time only!"
 
 There may not be any words more thrilling to hear at a concert.

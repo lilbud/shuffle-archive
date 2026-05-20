@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Chinatown"
+author: "Ken"
+excerpt: "At the height of the pandemic, Bruce came out of lockdown to appear on Jack Antonoff’s album track, video, and live rooftop performance."
+tags: bleachers chinatown jack-antonoff
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/china.webp
+post_id: 34692
+---
 At the height of the Great Pandemic, when pleasant surprises were in short supply and even the smallest of delights were few and far between, Jack Antonoff surprised fans with a surprise Bleachers album.
 
 And not just his own fans, but E Street Nation as well–because the lead single from the album featured a very special guest star who hadn't been seen in public much since the start of lockdown.

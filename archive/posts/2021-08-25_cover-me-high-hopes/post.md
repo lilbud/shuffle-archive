@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: High Hopes"
+author: "Ken"
+excerpt: "This distinctive early 90s song by The Havelinas was so nice Bruce covered it twice, but only one is worth a repeat listen."
+tags: blood-brothers high-hopes the-havalinas tim-scott-mcconnell
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/highhopes.jpg
+post_id: 29032
+---
 There are only a select few songs by other artists on Bruce Springsteen's studio albums, but "High Hopes" holds the distinction of being the only one he recorded and released *twice.*
 
 Unfortunately (and surprisingly, given Bruce's talent for breathing new life into other artists' songs), neither version measures up to the original. "High Hopes" was written and first recorded by Tim Scott McConnell in 1987 and then again with his band The Havalinas in 1990.

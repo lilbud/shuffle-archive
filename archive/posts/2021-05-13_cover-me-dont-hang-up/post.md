@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Don't Hang Up"
+author: "Ken"
+excerpt: "Barely a week into the Trump Administration, Bruce apologized on behalf of America to his Australian audience for the new president’s diplomatic rudeness."
+tags: dont-hang-up the-orlons
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/donthangup.jpg
+post_id: 27058
+---
 On January 28, 2017, President Trump bullied, berated, and finally blew off Prime Minister Turnbull over Turnbull's temerity to insist that the United States live up to its agreement to accept 1,250 refugees from an Australian detention center.
 
 The phone call was supposed to last an hour; Trump hung up in frustration after 25 minutes, spurring widespread speculation of a diplomatic rift between two longtime allies.

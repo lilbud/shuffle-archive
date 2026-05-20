@@ -1,30 +1,40 @@
+---
+layout: post
+title: "Where the Band Was: Buffalo, November 22, 2009"
+author: "Ken"
+excerpt: "No one could have known that this was Clarence’s final show. But it almost seems like Bruce did, because it’s hard to imagine a more fitting tribute to their friendship."
+tags: boom-boom buffalo clarence-clemons green-onions greetings-from-asbury-park growin-up hang-up-my-rock-and-roll-shoes ill-work-for-your-love merry-christmas-baby my-love-will-not-let-you-down restless-nights rockin-all-over-the-world santa-claus-is-comin-to-town steve-van-zandt surprise-surprise working-on-a-dream-tour wrecking-ball your-love-keeps-lifting-me-higher-and-higher
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/buffalo09.jpg
+post_id: 5687
+---
 Way, way, up near the top of my favorite shows list lies this one. Certainly one of the least predictable, absolutely one of the most memorable and (especially in retrospect) emotional.
 
 One of the rules of Springsteen tours is that the penultimate show is almost always way better than the final show of the tour. This show was the exception, and over the last nine years it's only grown in stature.
 
-Not just because of one of the earliest performances of "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" (two years away from official release)...
+Not just because of one of the earliest performances of "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" (two years away from official release)…
 
 [Watch on Youtube: Springsteen "Wrecking Ball" Buffalo 11-22-09](https://www.youtube.com/watch?v=xUnqR9rQGWk)
 
-...or for the first-and-only-ever performance of Bruce's very first album start-to-finish (including the first-ever E Street Band performance of "[The Angel,](../2020-09-26_roll-of-the-dice-the-angel/post.md)" complete with viola), dedicated to Bruce's original manager Mike Appel...
+…or for the first-and-only-ever performance of Bruce's very first album start-to-finish (including the first-ever E Street Band performance of "[The Angel,](../2020-09-26_roll-of-the-dice-the-angel/post.md)" complete with viola), dedicated to Bruce's original manager Mike Appel…
 
 [Watch on Youtube: Bruce Springsteen - The Angel](https://www.youtube.com/watch?v=dBVO6p797Yk)
 
-...or the live world debut of "Restless Nights" by request from Steve...
+…or the live world debut of "Restless Nights" by request from Steve…
 
 [Watch on Youtube: Bruce Springsteen - Restless Nights - 22-11-09](https://www.youtube.com/watch?v=P30Jj1vgRsA)
 
-...or for Bruce's own dedication of a rare "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" for Steve's birthday (with cake!)...
+…or for Bruce's own dedication of a rare "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" for Steve's birthday (with cake!)…
 
 [Watch on Youtube: Springsteen "Surprise Surprise" Buffalo 11-22-09](https://www.youtube.com/watch?v=KADuwwUHbtU)
 
-...or even for the spectacular sign-request block, leading off with the it's-almost-Christmas double-shot of "[Merry Christmas Baby](../2002-01-03_cover-me-merry-christmas-baby/post.md/)" and "[Santa Claus is Coming to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)..."
+…or even for the spectacular sign-request block, leading off with the it's-almost-Christmas double-shot of "[Merry Christmas Baby](../2002-01-03_cover-me-merry-christmas-baby/post.md/)" and "[Santa Claus is Coming to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)…"
 
 [Watch on Youtube: Springsteen "Green Onions" Buffalo 11-22-09](https://www.youtube.com/watch?v=nI4USi3emds)
 
 [Watch on Youtube: Springsteen - Merry Christmas into Santa Claus - Buffalo.mp4](https://www.youtube.com/watch?v=p1hz7meYMLk)
 
-...followed immediately by the perfectly-apt-for-a-tour-finale "[Hang Up My Rock and Roll Shoes](../2018-05-13_cover-me-hang-up-my-rock-and-roll-shoes/post.md)" and a joyously intense pairing of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[My Love Will Not Let You Down.](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)"
+…followed immediately by the perfectly-apt-for-a-tour-finale "[Hang Up My Rock and Roll Shoes](../2018-05-13_cover-me-hang-up-my-rock-and-roll-shoes/post.md)" and a joyously intense pairing of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[My Love Will Not Let You Down.](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)"
 
 [Watch on Youtube: Springsteen Rock and Roll shoes Buffalo 11/22/09](https://www.youtube.com/watch?v=um-cgOgcxfc)
 

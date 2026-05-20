@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Happy"
+author: "Ken"
+excerpt: "An outtake and afterthought from the Lucky Town sessions, “Happy” nevertheless captures the almost out-of-body contentment that’s born along with a new and growing family."
+tags: happy jessica-springsteen tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/family.jpg
+post_id: 11792
+---
 There are those who question the official recording date of "Happy," cited in the *Tracks* liner notes as January 18, 1992.
 
 I'm not one of them.

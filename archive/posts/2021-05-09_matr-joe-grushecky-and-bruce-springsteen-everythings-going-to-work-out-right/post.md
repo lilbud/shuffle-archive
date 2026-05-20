@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky and Bruce Springsteen: Everything's Going to Work Out Right"
+author: "Ken"
+excerpt: "Joe Grushecky’s first song on the heels of American Babylon was a complete tonal shift–a warm, uplifting rocker that resonates even more today than when he first released it."
+tags: everythings-going-to-work-out-right joe-grushecky joe-grushecky-and-the-houserockers
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/everything.jpg
+post_id: 25805
+---
 Bruce Springsteen co-wrote four songs on Joe Grushecky's 1998 album, *Coming Home*, but the strongest song on the album is one hundred percent Joe's.
 
 *Coming Home* leads off with one of my all-time favorite Grushecky songs. "Everything's Going to Be All Right" is a warm, optimistic rocker that sets the tone for an album rooted in family and the ties that bind.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Is That All to the Ball (Mr. Hall)"
+author: "Ken"
+excerpt: "Billy Lee Riley might be too obscure to cover in concert, but we can hear Bruce pay tribute in private in his 1978 and 1988 soundchecks of “Is That All to the Ball (Mr. Hall.”"
+tags: billy-lee-riley is-that-all-to-the-ball-mr-hall
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/allballhall.jpg
+post_id: 24645
+---
 > "[Billy Lee Riley] was a true original. He did it all: He played, he sang, he wrote. He would have been a bigger star but Jerry Lee came along. And you know what happens when someone like that comes along. You just don't stand a chance.
 >
 > So Billy became what is known in the industry — a condescending term, by the way — as a one-hit wonder. But sometimes, just sometimes, once in a while, a one-hit wonder can make a more powerful impact than a recording star who's got 20 or 30 hits behind him.

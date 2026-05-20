@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 31"
+author: "Ken"
+excerpt: "On this date: one of the great Springsteen radio broadcasts, the recording of “Pink Cadillac” and “I Wanna Be With You,” plus highlights from great shows over the years."
+tags: atlantic-city boston chicago child darkness-tour dave-clark-five dublin froggie-went-a-courtin glory-days im-on-fire italy kittys-back london magic-tour meeting-across-the-river new-york-city new-york-song nick-addeo noblesville old-dan-tucker padua richmond rising-tour seeger-sessions-tour something-in-the-night springsteen-on-broadway uk wrecking-ball-tour you-mean-so-much-to-me
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/may-31st-2025-marseille-fr-bruce-springsteen-and-the-e-street-band-blog-review.jpg
+post_id: 56902
+---
 **1964:** Bruce watches the debut of The Dave Clark Five on *The Ed Sullivan Show*. Below, Bruce, Steve, and Max describe the influence they had on the E Street Band’s shows.<br>
 
 **1969:** Child opens for Nicky Addeo at Pandemonium in Wanamassa, New Jersey.<br>

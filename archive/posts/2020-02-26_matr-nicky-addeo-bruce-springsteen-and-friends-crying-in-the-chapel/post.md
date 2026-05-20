@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Nicky Addeo, Bruce Springsteen and Friends: Crying in the Chapel"
+author: "Ken"
+excerpt: "One time only: Bruce backs a special Wonder Bar house band of local legends on a cover of Darrell Glenn’s classic “Crying in the Chapel.”"
+tags: crying-in-the-chapel darrell-glenn elvis-presley
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/crying-chapel.jpg
+post_id: 15846
+---
 ***Updated 2/25/20** with corrections from Rose Montana (thanks, Rose!)*<br>
 
 When I introduce one of these entries as "one for the completists," that's code for one of the following: either a) the accompanying recording is terrible, or b) Bruce isn't in it very much.

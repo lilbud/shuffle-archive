@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Kingdom of Days"
+author: "Ken"
+excerpt: "One of Bruce’s earliest songs about aging focused on the gifts that time brings to a life well spent."
+tags: kingdom-of-days working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/kingdom.jpg
+post_id: 33407
+---
 > "At certain moments, time is obliterated in the presence of somebody you love; there seems to be a transcendence of time in love.
 >
 > The normal markers of the day, the month, the year, as you get older those very fearsome markers… in the presence of love, they lose some of their power."

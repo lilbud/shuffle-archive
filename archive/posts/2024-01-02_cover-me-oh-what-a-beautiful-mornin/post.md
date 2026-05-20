@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Oh, What a Beautiful Mornin'"
+author: "Ken"
+excerpt: "One time only: In tribute to Elaine Steinbeck (wife of John), Bruce plays a gentle, acoustic cover of the opening song from the classic Broadway musical Oklahoma!"
+tags: oh-what-a-beautiful-mornin oklahoma rogers-and-hammerstein
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/beautiful-morn.jpg
+post_id: 13437
+---
 Okay, we all know that Bruce Springsteen is a John Steinbeck fan.
 
 But did you know that Steinbeck's wife was a Bruce Springsteen fan?

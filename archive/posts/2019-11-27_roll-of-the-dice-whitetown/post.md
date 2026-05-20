@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Whitetown"
+author: "Ken"
+excerpt: "Bruce fakes us out with this River outtake that sounds more like a Working on a Dream outtake."
+tags: down-in-whitetown mr-outside the-ties-that-bind-the-river-collection whitetown
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/whitetown-1.jpg
+post_id: 1648
+---
 We obsessive fans think we know it all.
 
 We scour and collect and download and trade; we immerse ourselves in a sea of unreleased outtakes and demos; we pride ourselves in our ability to trace the lineage and cross-breeding in Bruce's catalog.

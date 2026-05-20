@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 21"
+author: "Ken"
+excerpt: "Happy birthday, Nils Lofgren! Also on this date: the first “Badlands” bridge singalong, Bruce’s first-ever show in Italy, a secret gig in rural PA, and a memorial service for Clarence. More inside."
+tags: 23rd-street-lullaby birmingham boom-carter born-in-the-usa-tour clarence-clemons dancing-in-the-dark david-sancious germany gothenburg hamburg held-up-without-a-gun italy magic-tour main-point milan new-york-city nils-lofgren patti-scialfa rising-tour springsteen-on-broadway sunderland sweden tunnel-of-love-tour uk world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/nils.jpg
+post_id: 57121
+---
 **1951:** The E Street Band's greatest guitarist is born in Chicago. Happy birthday, Nils Lofgren!<br>
 
 **1970:** A scheduled Steel Mill date at the Clearwater Swim Club in Atlantic Highlands, New Jersey is postponed by a day due to bad weather.<br>

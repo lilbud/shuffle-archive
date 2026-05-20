@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Baby Doll"
+author: "Ken"
+excerpt: "“Baby Doll” was one of the first songs Bruce played for Mike Appel at their very first meeting, and it almost kept him from getting a second chance. But the song had promise–listen to the unearthed demo and judge for yourself inside."
+tags: baby-doll
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/springsteen-hairy-in-1972-lynn-goldsmith.jpeg
+post_id: 13193
+---
 > "It was a song about dancing with a girl who was deaf, dumb, and blind with a lyric that included, ‘They danced all night to a silent band….' I didn't feel the earth moving beneath me. I told him these were the worst two songs I ever heard, utterly devoid of any pop potential… He said, "I'll write some more songs and come back."–*Mike Appel to Marc Eliot, Down Thunder Road*
 
 Bruce played "Baby Doll" for future manager Mike Appel at their very first meeting in 1971. Appel was so unimpressed that Bruce almost didn't get a second chance.

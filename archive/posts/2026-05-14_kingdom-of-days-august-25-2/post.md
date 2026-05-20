@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 25"
+author: "Ken"
+excerpt: "On this date: Bruce releases his third studio album, Born to Run. Plus: Little Steven fronts the E Street Band at a 2009 soundcheck, a memorable on-stage marriage proposal, and more."
+tags: backstreets born-in-the-usa-tour born-to-run boston darkness-tour east-rutherford jay-weinberg jersey-girl largo metlife-stadium new-haven new-york-city old-grey-whistle-test phoenix rising-tour river-tour-2016 robbin-thompson saratoga-springs spare-parts springsteen-on-broadway steel-mill tougher-than-the-rest working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/btr.jpg
+post_id: 59421
+---
 **1970:** Bruce hires Robbin Thompson as vocalist for Steel Mill and kicks off three days of rehearsals at the Challenger Eastern Surfboard factory in Wanamassa, New Jersey.<br>
 
 **1973:** Bruce and the E Street Band play their sixth night of a week-long residency at Oliver's in Boston.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Leavin' Train"
+author: "Ken"
+excerpt: "This retread of “Brilliant Disguise” (with a bit of “I’m Goin’ Down”) adds nothing original to Bruce’s catalog. Cool backing track, though."
+tags: brilliant-disguise leavin-train tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/94845279_m.jpg
+post_id: 26516
+---
 For any other artist, "Leavin' Train" might earn a more favorable review.
 
 I mean, it's not like it's a bad song.
@@ -50,27 +60,27 @@ Since when do trains drag *down*? I'm not sure what exactly I would have used he
 I suppose we could just ignore the train metaphor altogether and simply focus on the narrator being dragged down by his lover's eyes. That conceit works nicely. So much so, in fact, that Bruce had a Top Ten hit with it in 1985:
 
 > *Well lately when I look into your eyes*<br>
-> *I'm going down, down, down, down*
+> *I'm going down, down, down, down*<br>
 
 "Leavin' Train" adds nothing original to Bruce's catalog. The second verse again retreads "Brilliant Disguise" territory:
 
-> *Well I did anything just to try to get close to you*
-> *I took it step by step yeah like a man's supposed to*
-> *Tell me now, is this my, baby, is this my contrition*
-> *To have the love that I longed for fill me with suspicion*
+> *Well I did anything just to try to get close to you*<br>
+> *I took it step by step yeah like a man's supposed to*<br>
+> *Tell me now, is this my, baby, is this my contrition*<br>
+> *To have the love that I longed for fill me with suspicion*<br>
 
 And the last verse is lackluster even without comparison:
 
-> *So now it's tellin' time, oh my little sister*
-> *Now can I believe the words, the words of love you whisper*
-> *Is my train in vain, oh has my soul gone to waste*
-> *Am I just a victim of, a victim of my lost faith*
+> *So now it's tellin' time, oh my little sister*<br>
+> *Now can I believe the words, the words of love you whisper*<br>
+> *Is my train in vain, oh has my soul gone to waste*<br>
+> *Am I just a victim of, a victim of my lost faith*<br>
 
 *Train in vain?* When did the train become the narrator's? And what's the point of establishing a secondary use of the metaphor but doing absolutely nothing with it besides an easy internal rhyme? And why reach for a lone internal rhyme but go lazy on the external ones? It almost sounds like Bruce just lost interest in the song at this point.
 
 Most importantly, though, the last five lines of "Leavin' Train'" cannot hold a candle to the devastating…
 
-> *God have mercy on the man who doubts what he's sure of*
+> *God have mercy on the man who doubts what he's sure of*<br>
 
 …even though they're conveying the exact same thing.
 

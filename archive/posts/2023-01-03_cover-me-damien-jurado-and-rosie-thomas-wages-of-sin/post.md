@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Damien Jurado and Rosie Thomas: Wages of Sin"
+author: "Ken"
+excerpt: "Damien Jurado and Rosie Thomas turn Bruce’s haunting outtake into the dance of distrust it was always meant to be."
+tags: damien-jurado-and-rosie-thomas wages-of-sin
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/4066101_so.jpg
+post_id: 30170
+---
 Okay, I think we’ve given enough spotlight to Bruce’s pop hits of late, so let’s give “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” and “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” a rest and listen to some great deep cut covers for a bit.
 
 And cuts don’t get much deeper than “[Wages of Sin](../2020-02-07_roll-of-the-dice-wages-of-sin/post.md),” Bruce’s haunting *Born in the U.S.A.* outtake that finally saw official release in 1998.

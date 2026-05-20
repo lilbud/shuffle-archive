@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Kevin Rowland: Thunder Road"
+author: "Ken"
+excerpt: "Quite possibly the worst Springsteen cover ever recorded, Kevin Rowland’s version of “Thunder Road” was blocked by Bruce shortly before its scheduled release. But you can hear it inside, if you dare."
+tags: kevin-rowland thunder-road
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/rowland.jpg
+post_id: 7442
+---
 By now, you know my refrain: If you're gonna cover Bruce, be great or be different.
 
 But not *too* different, mind you, because Bruce has veto rights–which he exercised on Kevin Rowland's cover of "Thunder Road."

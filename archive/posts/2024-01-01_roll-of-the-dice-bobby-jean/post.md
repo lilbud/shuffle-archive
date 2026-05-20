@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Bobby Jean"
+author: "Ken"
+excerpt: "“Bobby Jean” makes for a fascinating comparison with “Backstreets” — two songs about broken friendships, one that heals and one that doesn’t."
+tags: backstreets bobby-jean born-in-the-usa born-in-the-usa-tour devils-and-dust-tour pbs-exclusive seeger-sessions-tour st-paul tunnel-of-love-tour
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/bobby-jean.jpg
+post_id: 2698
+---
 If you've followed this blog for any length of time, you might have picked up on my penchant for viewing one of Bruce's songs through the lens of another.
 
 That's partly because Bruce recycles character names, inviting comparison; in part because Bruce cross-pollinates lyrics between songs, sometimes over years or decades; and partly because Bruce tends to write about certain themes frequently, and it's fascinating to trace the maturing of his writing each time he does so.

@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Blogger's Note: New Search by Date Feature"
+author: "Ken"
+excerpt: "Greetings! Just a quick note to draw your attention to our new “Search by Date” calendar widget, a request/suggestion offered by several of you. It’s…"
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/calendar.png
+post_id: 7627
+---
 Greetings!
 
 Just a quick note to draw your attention to our new "Search by Date" calendar widget, a request/suggestion offered by several of you.

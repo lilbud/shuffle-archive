@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 8"
+author: "Ken"
+excerpt: "Bruce wins many Grammys, is saluted by MusiCares, breaks out an awesome “Highway to Hell” cover and more on this very busy day in Springsteen history."
+tags: action-in-the-streets albany atlanta australia be-true bobby-jean devils-and-dust ghost-of-tom-joad-tour grammy-awards high-hopes-tour highway-to-hell lawsuit-tour musiccares perth river-tour-2016 rochester rosalita sydney terrys-song the-promise
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1977-02-08-Rochester-NY-cover.jpg
+post_id: 55883
+---
 **1974:** Night Two for Bruce and the (still unnamed) E Street Band at Richards in Atlanta, opening for NRBQ.<br>
 
 **1977:** Bruce and the band play Rochester’s Auditorium Theater, in a show that is available for purchase as part of Bruce’s official archive series.<br>

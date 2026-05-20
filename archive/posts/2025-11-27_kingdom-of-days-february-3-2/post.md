@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 3"
+author: "Ken"
+excerpt: "On this date: Springsteen on Broadway wraps up its winter run, and Max’s Kansas City makes the opening act the closers, too."
+tags: high-hopes maxs-kansas-city new-york-city springsteen-on-broadway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/2023-02-03-atlanta.webp
+post_id: 55846
+---
 **1973:** Bruce and the band both open and close for Biff Rose on Night Four (of six) at Max’s Kansas City. The band had proved unexpectedly popular over the preceding three nights, prompting the venue to take the unusual step of adding a second set for the opening band *after* the headliner.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1973-0201.gif)

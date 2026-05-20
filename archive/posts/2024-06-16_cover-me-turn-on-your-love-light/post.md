@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Turn On Your Love Light"
+author: "Ken"
+excerpt: "Set the wayback machine for 1971 to hear Bruce Springsteen and Steel Mill cover one of the seminal R&B classics."
+tags: bobby-bland grateful-dead steel-mill van-morrison
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/61WdLM7JbL._UF10001000_QL80_.jpg
+post_id: 51968
+---
 If you ask me which classic R&B songs deserve to turn up on Bruce's next album of soul covers, "Turn On Your Love Light" would be near the top of my list.
 
 I mean *come on*: How can anyone in E Street Nation listen to Bobby "Blue" Bland's classic 1961 hit and not hear its influence on Bruce Springsteen and the E Street Band?

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 25"
+author: "Ken"
+excerpt: "Patti Scialfa joins the E Street Band, Bruce performs on David Letterman’s last NBC show, and the Darkness Tour comes to Seattle. More inside!"
+tags: austria born-in-the-usa-tour darkness-tour david-letterman devils-and-dust-tour france frankfurt germany glory-days gothenburg holmdel italy london magic magic-tour milan none-but-the-brave patti-scialfa rising-tour saint-etienne seattle seeger-sessions-tour stockholm sweden the-daring-young-man-on-the-flying-trapeze tunnel-of-love tunnel-of-love-tour uk vienna world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/5292b0cbbfd852d631e6539c83ffb22a.jpg
+post_id: 57180
+---
 ***New for 2025:** Audio for 2008; video for 2016*<br>
 
 **1973:** Bruce is in the studio, working on his second album at 914 Sound Studios in Blauvelt, New York. Today he works on "[Wild Billy's Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md)."<br>

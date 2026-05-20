@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 2"
+author: "Ken"
+excerpt: "Happy birthday “Professor” Roy Bittan! Also on this date: Bruce films his first movie role, opens the Meadowlands, and plays “Jersey Girl” for the first time. Plus: CBS profiles Clarence, and Mike Appel takes legal action to stop Bruce from recording."
+tags: barcelona born-in-the-usa-tour castiles downbound-train east-rutherford gary-u-s-bonds high-fidelity i-dont-want-to-go-home jersey-girl mike-appel oh-pretty-woman river-tour roy-bittan st-paul stockholm sundance-blues-band sweden tunnel-of-love-tour west-57th working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/professor.jpeg
+post_id: 57559
+---
 **1949:** "Professor" Roy Bittan is born in Rockaway Beach, New York.<br>
 
 **1966:** The Castiles play an opening set for The Rogues at the new Surf ‘n' See Club in Sea Bright, New Jersey.<br>

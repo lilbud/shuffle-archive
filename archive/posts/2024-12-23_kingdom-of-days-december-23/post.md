@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 23"
+author: "Ken"
+excerpt: "Peace on earth hasn’t quite set in–a fight breaks out during an early performance of “Santa Claus is Comin’ to Town.”"
+tags: castiles springsteen-on-broadway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/newsMerryXmas2015.jpg
+post_id: 55387
+---
 **New for 2024:** No updates<br>
 
 **1966:** The Castiles play a sweet sixteen party for a high school classmate at the American Hotel in Freehold.<br>

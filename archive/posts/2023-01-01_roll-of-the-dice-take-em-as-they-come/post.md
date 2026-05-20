@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Take 'Em as They Come"
+author: "Ken"
+excerpt: "A classic Springsteen formula–dark lyrics paired with a power pop melody–results in a shoulda-been new wave classic. Insights and great performances inside."
+tags: take-em-as-they-come tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/The-definitive-remastered-river-outtakes_front.jpg
+post_id: 7891
+---
 Sometimes you start with a title, and it leads you to a shoulda-been new wave classic.
 
 After the Darkness Tour ended, Bruce spent much of the first half of 1979 in his home studio writing and working out new material that would eventually lead to *The River*. Bruce would often record himself at work using an ordinary cassette recorder, and some of those early cassettes somehow escaped into the wild. (One can but wonder how.)

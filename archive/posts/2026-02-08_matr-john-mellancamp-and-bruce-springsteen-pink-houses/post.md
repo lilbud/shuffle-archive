@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Pink Houses"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and John Mellencamp team up on John’s famously misinterpreted 1983 single."
+tags: john-mellencamp pink-houses
+categories: cover-me meeting-across-the-river
+post_id: 24474
+---
 I reckon every songwriter has a list of songs they wish they'd written, and I have to imagine that "Pink Houses" is on Bruce's.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qOfkpu6749w)

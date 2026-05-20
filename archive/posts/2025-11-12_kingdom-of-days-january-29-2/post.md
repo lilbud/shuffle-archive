@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 29"
+author: "Ken"
+excerpt: "On this date: Listen to a great Springsteen concert recording from 1974, watch Bruce’s first press conference in 20 years, and more."
+tags: ames big-bad-bobby-williams-band bobby-bandiera bruce-springsteen-band cape-town castiles ghost-of-tom-joad-tour goin-cali high-hopes-tour i-wanna-marry-you japan max-weinberg mos-def nashville river-tour river-tour-2016 south-africa southside-johnny stolen-car stone-pony super-bowl tokyo tougher-than-the-rest washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/dc2016.jpg
+post_id: 55812
+---
 **1966:** The Castiles play the Matawan-Keyport Roller Drome in Matawan, New Jersey. Can you believe you could once see Bruce play for $1.25?<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1966-0129.jpg.webp)

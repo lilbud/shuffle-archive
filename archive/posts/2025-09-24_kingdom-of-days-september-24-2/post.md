@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 24"
+author: "Ken"
+excerpt: "On this date: Bruce’s legendary 50th birthday show, the debut of a hastily-penned song for a Michigan crowd, and more."
+tags: blinded-by-the-light born-in-the-usa-tour bruce-springsteen-band buffalo clarence-clemons denver empty-sky ghost-of-tom-joad-tour honolulu in-michigan kansas-city los-angeles magic-tour main-street philadelphia reunion-tour rising-tour student-prince the-fever the-long-goodbye world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/19990924_2_front.jpg
+post_id: 59711
+---
 ***New for 2025:** New entry for 1979*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

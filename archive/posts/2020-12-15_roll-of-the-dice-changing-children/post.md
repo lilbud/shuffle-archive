@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Changing Children"
+author: "Ken"
+excerpt: "At the dawn of the 1970s, even Bruce couldn’t help but be a little cynical about the likelihood of real change. Take a listen to his sarcastic Steel Mill song, “Change It.”"
+tags: change-it change-it-revolution changing-children steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/changeit.png
+post_id: 12476
+---
 I suppose a warning might be appropriate here: If you enjoy picturing Bruce Springsteen as a lifelong idealist, you might not want to listen to his (very) early composition, "Change It."
 
 Written and performed during his Steel Mill era, "Change It" (which I've also seen referred to as "Changing Children" on [Brucebase](https://brucebase.wikidot.com/song:changing-children) and [Springsteenlyrics](https://www.springsteenlyrics.com/lyrics.php?song=changingchildren) based on what I believe is a mis-hearing of the lyrics–in fairness, we don't have any published "official" lyrics from these early songs to work from) is a blisteringly cynical song.

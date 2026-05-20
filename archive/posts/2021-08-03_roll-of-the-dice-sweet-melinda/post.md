@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sweet Melinda"
+author: "Ken"
+excerpt: "When Bruce’s early band Steel Mill needed a palate cleanser during their heavy sets, they often turned to this drunkenly loose and sassy lark."
+tags: steel-mill sweet-melinda
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/melinda.jpg
+post_id: 28156
+---
 Bruce's early band Steel Mill was known for its heavy sound and epic guitar jams, but even the heaviest of sets need to lighten up from time to time.
 
 From late 1969 through their final show in early 1971, the band used "Sweet Melinda," an early original Springsteen composition, as a mid-set palate cleanser and reprieve for the audience.

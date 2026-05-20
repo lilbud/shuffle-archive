@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, 10,000 Maniacs: Because the Night"
+author: "Ken"
+excerpt: "Lightning strikes twice: 10,000 Maniacs releases not one but two fantastic live covers of “Because the Night” — 23 years apart."
+tags: 10000-maniacs because-the-night natalie-merchant
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/btn.jpg
+post_id: 16217
+---
 Quick: who had the highest charting success with Bruce Springsteen and Patti Smith's "Because the Night?"
 
 If you answered either Bruce or Patti, you're wrong (in the U.S., at least).

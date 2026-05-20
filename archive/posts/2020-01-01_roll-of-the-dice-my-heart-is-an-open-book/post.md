@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Heart is an Open Book"
+author: "Ken"
+excerpt: "At home on a break during the River Tour, Bruce wrote and recorded a charming pop trifle that never saw the light of day–but you can listen to it inside."
+tags: my-heart-is-an-open-book
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/openbook.jpg
+post_id: 15270
+---
 Even living legends at the peak of their powers need a break from time to time.
 
 Bruce Springsteen was scheduled to kick off the European leg of the original River Tour a mere twelve days after wrapping the first North American leg, but by the end of that first leg in March 1981, Bruce was exhausted.

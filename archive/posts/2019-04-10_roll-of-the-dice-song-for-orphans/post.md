@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Song for Orphans"
+author: "Ken"
+excerpt: "Lost and found: “Song for Orphans” disappeared after a handful of 1972-73 performances until Bruce shocked fans with it more than 30 years later. Insights, backstory, and lovely performances inside."
+tags: letter-to-you song-for-orphans
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/orphans.jpg
+post_id: 8279
+---
 > I think "Song to Orphans" is less about the call and more about the dangers, distractions, temptations, and seductions that lie in one's path when answering it. They're good album-mates, these two songs.
 >
 > — Ken Rosen (@Krosen) [October 21, 2020](https://twitter.com/Krosen/status/1318917363803115520?ref_src=twsrc%5Etfw)

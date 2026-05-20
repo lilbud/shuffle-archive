@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Good Rockin' Tonight"
+author: "Ken"
+excerpt: "Throughout the Darkness Tour, Bruce often announced his arrival with the song that announced the arrival of rock itself."
+tags: elvis-presley good-rockin-tonight good-rocking-tonight roy-brown wynonie-harris
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/goodrockin.jpg
+post_id: 20116
+---
 Have you heard the news? It sounds like the future.
 
 "Good Rockin' Tonight" may or may not be the original rock and roll song. (If I've learned anything from Andrew Hickey's excellent *A History of Rock Music in 500 Songs* podcast–and I've learned a *lot–*it's a fool's endeavor to try to pinpoint a single origin for rock and roll.)

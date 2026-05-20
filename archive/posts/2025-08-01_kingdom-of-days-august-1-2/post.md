@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 1"
+author: "Ken"
+excerpt: "Bruce kicks off August with a bang: from the debut of the Miami Horns, the first-ever performances of “Something in the Night,” “Two for the Road,” “Rendezvous,” and “Trouble River,” a Letterman appearance, bar gigs and more–this date in history is jam-packed! (And yet Bruce still finds time to take in a ballgame…)"
+tags: 634-5789 aint-got-you asbury-park born-to-run-tour brown-eyed-girl cats-on-a-smooth-surface cincinnati darkness-tour david-letterman devils-and-dust-tour east-rutherford foxboro lawsuit-tour living-proof miami-horns mike-appel my-fathers-place rendezvous reunion-tour richmond rising-tour something-in-the-night spain stone-pony the-rising the-ties-that-bind timepiece trouble-river valladolid walk-like-a-man wonder-bar working-on-a-dream-tour you-cant-sit-down
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19760801_front.jpg
+post_id: 57894
+---
 ***New for 2025:** New entry for 1974 and 1977; audio for 1976*<br>
 
 **1963:** Thirteen-year-old Bruce Springsteen helps his little league team, the Braves, secure their spot in the Babe Ruth League playoffs.<br>

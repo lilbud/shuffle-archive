@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Sam Moore and Bruce Springsteen: Better to Have and Not Need"
+author: "Ken"
+excerpt: "Sam Moore lent his vocal talents to Bruce’s 1992 Human Touch album; fourteen years later, Bruce returned the favor."
+tags: better-to-have-and-not-need don-covay overnight-sensational sam-moore
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/sammoore.jpg
+post_id: 30560
+---
 You could say Bruce Springsteen owed Sam Moore a favor.
 
 In 1992, the great soul singer lent his pipes to Bruce's *Human Touch* album, providing backing vocals on "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)," "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)," and "[Man's Job.](../2022-05-30_roll-of-the-dice-mans-job/post.md)" Fourteen years later, he asked Bruce to do the same.

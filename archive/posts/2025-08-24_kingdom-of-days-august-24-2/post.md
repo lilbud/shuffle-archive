@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 24"
+author: "Ken"
+excerpt: "As guest appearances go, Tom Waits and Sting are pretty high up there–both happened on this date. Plus: the Magic Tour wraps up in loose, eclectic style, and more."
+tags: boston canada incident-on-57th-street inglewood jersey-girl kansas-city los-angeles madison-square-garden magic-tour message-in-a-bottle new-york-city reunion-tour rising-tour river-tour sherry-darling springsteen-on-broadway sting the-river tom-waits toronto wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/20230824-foxborough-ma-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 59420
+---
 ***New for 2025:** New entry for 1977 and 1979; video for 2023*<br>
 
 **1968:** Earth plays a private gig at a wedding in Brooklyn.<br>

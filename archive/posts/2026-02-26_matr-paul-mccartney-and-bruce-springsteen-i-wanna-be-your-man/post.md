@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I Wanna Be Your Man"
+author: "Ken"
+excerpt: "It was a surprising choice for a surprise performance, but it proved so nice they did it twice."
+tags: i-wanna-be-your-man paul-mccartney the-beatles the-rolling-stones
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/wannabe.jpg
+post_id: 44211
+---
 Word started to spread that Bruce Springsteen was in the house with Paul McCartney long before the first ticketholder was admitted.
 
 Out in the MetLife Stadium parking lot, we speculated about what song(s) the pair might perform if Paul invited Bruce on stage during the show.

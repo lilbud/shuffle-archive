@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Border Guard"
+author: "Ken"
+excerpt: "Bruce earliest song about the California border may hold deeper meaning than a casual listen might reveal."
+tags: border-guard
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/border-scaled.jpg
+post_id: 31751
+---
 > "[Shortly after Christmas in 1971], My father asked me to accompany him on a trip to Mexico and said he was planning to stop in Long Beach, where the Queen Mary was docked. This was the ocean liner he'd shipped out on for World War II and he wanted to see her one more time… In the spirit of healing old wounds I said yes and off we went.
 >
 > From the beginning, the joie de vivre in the car wasn't what one might've hoped for. We were doing our best, but we still got under each other's skin. Our stop at Long Beach flopped. I was a punk, grumbling my way through the whole Queen Mary tour. My dad's journey on this ship was probably one of the most meaningful of his life and I couldn't respect it. I'd pay anything now to be able to walk that ship with my father again. I would treasure every step, want to know every detail, hear every word and memory he'd share, but back then I was still too young to put the past away, too young to recognize my dad as a man and to honor his story.
 >
 > We headed south to Mexico, [and] crossed the border…"
 >
-> *— Bruce Springsteen, Born to Run*
+> *— Bruce Springsteen, Born to Run*<br>
 
 At first listen, "Border Guard" is an introspective, contemplative musing on the toll taken by an unforgiving job. But there's more going on here than meets the ear, I think.
 
@@ -22,46 +32,46 @@ At six-and-a-half minutes long with no instrumental breaks, "Border Guard" was n
 
 "Border Guard" is typical of Bruce's early work in that it lacks a verse/chorus framework, but it stands out in its simplicity of language and basic parallel couplet structure. There's no internal rhyming or clever wordplay here; Bruce writes with uncharacteristic (for the time) economy.
 
-> *Bless on the border guard so cold and alone*
-> *Bless on the child so far from his home*
+> *Bless on the border guard so cold and alone*<br>
+> *Bless on the child so far from his home*<br>
 
-> *Pity the border guard who feels like a woman to cry*
-> *Pity the border guard whose life guards the line*
+> *Pity the border guard who feels like a woman to cry*<br>
+> *Pity the border guard whose life guards the line*<br>
 
-> *A line is a funny thing, a border sometimes*
-> *A line is a hurting thing used only to divide*
+> *A line is a funny thing, a border sometimes*<br>
+> *A line is a hurting thing used only to divide*<br>
 
 If Bruce intended to hide a personal subtext, he tips his hand in that third couplet–although for anyone familiar with his story, it's hard not to read into his lyrics from the outset. The emotionally distant border guard and the far-from-home child seem like pretty on-point proxies for the elder and younger Springsteens.
 
-> *I pity the refugee whose home lies behind*
-> *I pity the border guard and his border line*
+> *I pity the refugee whose home lies behind*<br>
+> *I pity the border guard and his border line*<br>
 
-> *He keeps his machine gun nose pointed to the sky*
-> *The night time is his master*
-> *And you know the dawn light brings his captor*
+> *He keeps his machine gun nose pointed to the sky*<br>
+> *The night time is his master*<br>
+> *And you know the dawn light brings his captor*<br>
 
-> *I pity the border guard as he walks his own*
-> *The echo of his footsteps is all a friend would know*
+> *I pity the border guard as he walks his own*<br>
+> *The echo of his footsteps is all a friend would know*<br>
 
 That middle section is revealing, as well. As Bruce would reveal much later in song and on stage, he viewed his father as trapped by his job during the day, steeping in silence and drink at home during the night.
 
-> *A home is a funny thing, you get tied to the earth*
-> *Like love is a crazy thing in the eyes of a child*
-> *I pity the border guard, his soul taken captive at birth*
-> *May the sweet rain set him free and show him how to be so wild*
+> *A home is a funny thing, you get tied to the earth*<br>
+> *Like love is a crazy thing in the eyes of a child*<br>
+> *I pity the border guard, his soul taken captive at birth*<br>
+> *May the sweet rain set him free and show him how to be so wild*<br>
 
 It seems clear that Bruce is more than simply waxing philosophical about the significance of land and borders. There's an empathy on display here for the guard, even if Bruce expresses it condescendingly as pity.
 
 And that empathy blooms into something more in the song's final lines:
 
-> *Yes, a line is a funny thing, a border sometimes*
-> *A line is a hurting thing used only to divide*
+> *Yes, a line is a funny thing, a border sometimes*<br>
+> *A line is a hurting thing used only to divide*<br>
 
-> *He who made the open plains and the world one and all*
-> *Could not have conceived of a barbed wire brace for the building of the wall*
+> *He who made the open plains and the world one and all*<br>
+> *Could not have conceived of a barbed wire brace for the building of the wall*<br>
 
-> *And at night I keep my fire bright that I may be safe when I sleep*
-> *Till I wake on that wonderful morning when no more lines will there be*
+> *And at night I keep my fire bright that I may be safe when I sleep*<br>
+> *Till I wake on that wonderful morning when no more lines will there be*<br>
 
 That last couplet is heartbreaking: a son's refusal to surrender to his father's darkness paired with a stubborn hope for their reconciliation. If Bruce hadn't yet found a way to reach his father by talking to him, it seems like he was at least able to express his feelings through song.
 

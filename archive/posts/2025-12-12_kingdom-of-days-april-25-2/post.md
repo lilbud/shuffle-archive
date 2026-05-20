@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 25"
+author: "Ken"
+excerpt: "Bruce kicks off the Devils & Dust Tour, wraps up the first U.S. leg of the River (2016) Tour, and appears on Good Morning America to promote his new Seeger Sessions album. These and more highlights inside."
+tags: atlanta blinded-by-the-light brooklyn cats-on-a-smooth-surface detroit devils-dust-tour elliott-murphy ghost-of-tom-joad-tour good-morning-america highway-patrolman human-touch idiots-delight joe-grushecky london los-angeles magic-tour main-point pittsburgh purple-rain reunion-tour river-tour-2016 stand-by-me stone-pony tunnel-of-love-express-tour uk
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/wso.jpg
+post_id: 56612
+---
 **1973:** Bruce plays two shows at The Main Point in Bryn Mawr, Pennsylvania. (Photo credit: Phil Ceccola)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1973-0425.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Upstage Jam Band: The Blues Is My Business"
+author: "Ken"
+excerpt: "Bruce and the Upstage Jam Band cover Etta James’ “The Blues is My Business.”"
+tags: little-steven southside-johnny the-blues-is-my-business upstage-jam-band
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/etta.jpg
+post_id: 996
+---
 Not quite a year ago, Bruce joined the all-star Upstage Jam Band (featuring Southside Johnny and Little Steven & The Disciples of Soul) on-stage at the Paramount Theatre in Asbury Park. First up: a cover of Etta James’ “The Blues is My Business,” one of the standout tracks on Little Steven’s latest album.
 
 [Watch on Youtube: Springsteen w/ Upstage Jam Band Asbury Park 4-21-2017](https://www.youtube.com/watch?v=62786yIkVsc)

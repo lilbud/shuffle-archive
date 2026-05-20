@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Riding Horse"
+author: "Ken"
+excerpt: "From the one-that-got-away files: take a listen to “Riding Horse,” Bruce’s ode to, um, dating tall women."
+tags: riding-horse
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/tall-small.jpg
+post_id: 10926
+---
 Let's take a listen to a never-released outtake from Bruce Springsteen's *Nebraska* sessions that's especially, um, high concept.
 
 [Watch Video Highlight](https://videopress.com/embed/hOL4EwHY)

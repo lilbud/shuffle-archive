@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Rainy Day Women #12 & 35"
+author: "Ken"
+excerpt: "One time only: Bruce and Neil Young join Bob Dylan on stage for an encore of “Rainy Day Women #12 & 35” (and no, Bruce doesn’t sing the chorus)."
+tags: bob-dylan neil-young rainy-day-women-12-and-35
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/admin-ajax-23.jpg
+post_id: 15621
+---
 Loose, sloppy, and raucous, Bob Dylan's "Rainy Day Women #12 & 35" improbably rose to the top of the charts when it was released as a single in the spring of 1966, stopping just shy of the number one spot.
 
 Maybe it was the song's infectious and pervasive sense of fun that carried it so high, but the controversial "Everybody must get stoned" chorus probably had a lot to do with it, too.

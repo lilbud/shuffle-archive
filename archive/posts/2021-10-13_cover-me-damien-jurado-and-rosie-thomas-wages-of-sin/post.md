@@ -1,13 +1,23 @@
-Okay, I think we've given enough spotlight to Bruce's pop hits of late, so let's give "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" a rest and listen to some great deep cut covers for a bit.
+---
+layout: post
+title: "Cover Me, Damien Jurado and Rosie Thomas: Wages of Sin"
+author: "Ken"
+excerpt: "Damien Jurado and Rosie Thomas turn Bruce’s haunting outtake into the dance of distrust it was always meant to be."
+tags: damien-jurado-and-rosie-thomas wages-of-sin
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/4066101_so.jpg
+post_id: 30170
+---
+Okay, I think we’ve given enough spotlight to Bruce’s pop hits of late, so let’s give “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” and “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” a rest and listen to some great deep cut covers for a bit.
 
-And cuts don't get much deeper than "[Wages of Sin](../2020-02-07_roll-of-the-dice-wages-of-sin/post.md)," Bruce's haunting *Born in the U.S.A.* outtake that finally saw official release in 1998.
+And cuts don’t get much deeper than “[Wages of Sin](../2020-02-07_roll-of-the-dice-wages-of-sin/post.md),” Bruce’s haunting *Born in the U.S.A.* outtake that finally saw official release in 1998.
 
-There aren't many covers of this song out there. In fact, I only know of one: this gorgeous version by Seattle singer-songwriter Damien Jurado and Rosie Thomas.
+There aren’t many covers of this song out there. In fact, I only know of one: this gorgeous version by Seattle singer-songwriter Damien Jurado and Rosie Thomas.
 
 [Watch on Youtube: tribute Wages of sin Bruce Springsteen par Damien Jurado et Rosie Thomas](https://www.youtube.com/watch?v=XXpIheVD2JE)
 
-Heck, even the cover is a deep cut: it's a bonus track on a *Nebraska* tribute compilation released by Sub Pop at the turn of the century. (Yeah, I know the original was recorded post-*Nebraska*, but Bruce wrote and demoed it during his *Nebraska* period, so we can give it a pass.)
+Heck, even the cover is a deep cut: it’s a bonus track on a *Nebraska* tribute compilation released by Sub Pop at the turn of the century. (Yeah, I know the original was recorded post-*Nebraska*, but Bruce wrote and demoed it during his *Nebraska* period, so we can give it a pass.)
 
-I've always thought that "Wages of Sin" felt like a dance between two wary lovers, circling each other across a widening gulf of emotional distance and distrust. Damien and Rosie's duet dials directly into that sentiment, their interwoven vocals drawing us into their heartache more potently than a single voice can accomplish, even when that voice is Bruce's.
+I’ve always thought that “Wages of Sin” felt like a dance between two wary lovers, circling each other across a widening gulf of emotional distance and distrust. Damien and Rosie’s duet dials directly into that sentiment, their interwoven vocals drawing us into their heartache more potently than a single voice can accomplish, even when that voice is Bruce’s.
 
-It's a beautiful cover of a undeservedly overlooked song.
+It’s a beautiful cover of a undeservedly overlooked song.

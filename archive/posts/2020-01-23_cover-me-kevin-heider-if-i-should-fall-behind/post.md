@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Kevin Heider: If I Should Fall Behind"
+author: "Ken"
+excerpt: "Kevin Heider’s tender cover of “If I Should Fall Behind” is elevated even higher by his lovely, intimate video."
+tags: if-i-should-fall-behind kevin-heider ohio
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/ohio.jpg
+post_id: 15622
+---
 Okay, I know I already featured a track from Kevin Heider's outstanding new Springsteen tribute album, *Ohio*, a few months ago–I called [Heider's cover](../2019-10-30_cover-me-kevin-heider-my-lucky-day/post.md)of "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)" the album's standout track, and I meant it.
 
 But Heider just released a new video to accompany his cover of "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)," and it's easily the album's standout video (and probably one of the best artistic video covers of a Springsteen song).

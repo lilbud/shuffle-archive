@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Jackson Cage"
+author: "Ken"
+excerpt: "“Jackson Cage” is a case of a theme in search of a song. It took a while for Bruce to find it, but find it he did. Let’s trace this underrated song’s winding path inside."
+tags: jackson-cage restless-nights the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/27271630238_ab2b4e774e_o.jpg
+post_id: 5407
+---
 "Jackson Cage" may be one of the trickier songs on *The River* to interpret, but in fairness it took Bruce himself quite a while to figure out. From all available evidence, it seems like this is a case of Bruce landing a hook in search of a song.
 
 The earliest known recording of what would become "Jackson Cage" is just a snippet of a chorus, recorded at home in mid-1979.

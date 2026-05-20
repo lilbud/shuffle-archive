@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Grace Gaustad: Pink Cadillac"
+author: "Ken"
+excerpt: "From her upcoming EP, Grace Gaustad duets on “Pink Cadillac” with her ten-year-old self."
+tags: grace-gaustad pink-cadillac
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/grace.jpg
+post_id: 32827
+---
 Twenty-year-old Grace Gaustad has been a Springsteen fan all her life, and her new single proves it.
 
 Released just last week, her cover of "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" is the first cut from her upcoming *JUKEBX* EP, and you could almost call it a duet–because Gaustad shares the vocals with *her ten-year-old self*.

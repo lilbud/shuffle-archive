@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 21"
+author: "Ken"
+excerpt: "On this day in history: Bruce reassembles the E Street Band for the first time in over five years. See their rehearsal and performance footage here."
+tags: born-in-the-usa christchurch france ghost-of-tom-joad-tour greatest-hits james-burrows louisville meet-me-in-the-city murder-incorporated my-city-of-ruins new-york-city new-zealand paris river-tour-2016 this-hard-land
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/2023-02-21-tulsa-ok-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 55972
+---
 **1975:** Bruce cancels a show at Moravian College to make room for *Born to Run* recording sessions.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1975-02-21.png.webp)

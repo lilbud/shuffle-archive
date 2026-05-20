@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Johnny Come Lately"
+author: "Ken"
+excerpt: "One time only: Bruce joins Steve Earle and the Dukes on “Johnny Come Lately,” Earle’s sibling song to “Born in the U.S.A.”"
+tags: born-in-the-usa johnny-come-lately steve-earle
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/admin-ajax-40.jpg
+post_id: 6260
+---
 The first time I heard Steve Earle's "Johnny Come Lately," I thought to myself: this sounds like a companion piece to "Born in the U.S.A."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xVaPwdgezWI)

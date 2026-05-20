@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mary Lou"
+author: "Ken"
+excerpt: "Meet “Mary Lou,” big sister to “Be True.” They share the same lyrics, yet they’re completely different songs. Let’s trace their origins together and hear how Bruce constructs a song."
+tags: be-true little-white-lies mary-lou tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/mary-lou.jpg
+post_id: 8276
+---
 How good is Bruce Springsteen?
 
 So good that he can write three different killer pop songs *with the exact same lyrics*.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 10"
+author: "Ken"
+excerpt: "Bruce celebrates the tenth anniversary of the Human Rights Now! Tour in Paris, wins an important lawsuit in the UK, plays his first-ever concert in Mexico, and more."
+tags: amnesty-international born-to-run-tour bruce-springsteen-band cincinnati dancing-in-the-dark france ghost-of-tom-joad-tour jungleland lewisburg long-time-comin magic-tour mexico mexico-city new-york-city no-surrender paris peter-gabriel pilgrim-in-the-temple-of-love stockholm student-prince sweden there-will-never-be-any-other-for-me-but-you tracy-chapman waitin-on-a-sunny-day working-on-the-highway wrecking-ball-tour youssou-ndour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/Bruce-SpringsteenSNL.jpeg
+post_id: 62984
+---
 ***New for 2025:** No updates*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

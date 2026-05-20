@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Shout"
+author: "Ken"
+excerpt: "A late, last-minute sign request leads to an ever-after show-closing encore."
+tags: shout the-isley-brothers
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/shout.jpg
+post_id: 11633
+---
 He played it so often over his last five years of touring that it's surprising to remember that prior to the Wrecking Ball Tour, Bruce had barely covered it at all.
 
 And yet despite the fact that e*veryone* knows The Isley Brothers' 1959 "Shout," and even though Bruce often quoted the song in concert as far back as 1974, Bruce never once played the song in full until Steve and Maureen Van Zandt's wedding on New Years Eve 1982–and then not again for another three decades.

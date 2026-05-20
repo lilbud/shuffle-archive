@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Gypsy Biker"
+author: "Ken"
+excerpt: "“Gypsy Biker” is one of Bruce’s angriest songs and best modern vocals. Filled with loss, regret, rage, and resignation, it’s an emotional powerhouse that anchors the Magic album."
+tags: gypsy-biker magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/gypsy.jpg
+post_id: 9732
+---
 "Gypsy Biker" has the soul of Bruce's classic narrative laments like "Highway Patrolman," "[The Line](../2018-08-08_roll-of-the-dice-the-line/post.md)," or "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"
 
 In fact, in its first moments, "Gypsy Biker" almost sounds like a self-homage to "The River." Seriously: listen to the opening bars of both, and you'll hear the similarity in the rueful harmonica and acoustic guitar intros.

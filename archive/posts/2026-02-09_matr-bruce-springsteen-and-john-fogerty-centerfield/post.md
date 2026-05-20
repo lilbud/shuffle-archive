@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Centerfield"
+author: "Ken"
+excerpt: "Bruce performed the only song enshrined in the Baseball Hall of Fame nightly with its original artist during the Vote for Change Tour."
+tags: centerfield john-fogerty
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/centerfield.jpg
+post_id: 27625
+---
 There are 338 members of the Rock and Roll Hall of Fame.
 
 But only one artist has been honored by the *Baseball* Hall of Fame.

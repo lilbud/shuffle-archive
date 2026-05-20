@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Honky Tonk"
+author: "Ken"
+excerpt: "A technical snafu in New Orleans prompts a one-time-only cover of the biggest R&B hit of 1956."
+tags: bill-doggett honky-tonk
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/bill-doggett-honky-tonk-parts-1-and-2.jpg
+post_id: 12912
+---
 One of rock's biggest instrumental hits was a complete accident.
 
 One night, between songs at a gig, Billy Butler, Bill Doggett's guitarist, improved a riff–the one that opens the song below. But when the audience began to dance to it, he kept it going. He ended up keeping it going for a full five minutes, with band members alternating solos all the while.

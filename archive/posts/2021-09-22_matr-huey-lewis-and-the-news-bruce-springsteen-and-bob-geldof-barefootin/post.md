@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Huey Lewis and the News, Bruce Springsteen, and Bob Geldof: Barefootin'"
+author: "Ken"
+excerpt: "How did Bruce celebrate his imminent Live 1975-85 box set release? By appearing on-stage in Paris with Bob Geldof and Huey Lewis and the News."
+tags: barefootin bob-geldof huey-lewis-and-the-news robert-parker
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/barefootin.jpg
+post_id: 29685
+---
 The stars aligned on November 5, 1986.
 
 Well, three of them at least: Huey Lewis, Bob Geldof, and Bruce Springsteen all found themselves at Le Zenith in Paris that night.

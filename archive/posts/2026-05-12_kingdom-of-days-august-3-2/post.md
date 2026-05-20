@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 3"
+author: "Ken"
+excerpt: "On this date: Bruce opens for another artist for the very last time, debuts a work-in-progress “The Promise,” wraps the Tunnel of Love Tour, and more."
+tags: anne-murray barcelona devils-and-dust-tour grand-rapids lawsuit-tour new-york-city red-bank sherry-darling the-promise tunnel-of-love tunnel-of-love-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/rapids.jpg
+post_id: 57896
+---
 **1974:** Bruce and the E Street Band play their very last opening set ever, at the Wollman Ice Rink in New York City's Central Park. The story will become legend: Bruce is a late substitution for original headliner Boz Scaggs, but managers for opening act Anne Murray successfully argue that she has a greater claim to the headliner slot than Bruce does due to her greater album sales. Murray therefore ends up headlining a show that was originally advertised with Bruce as the headliner, and as a result only a quarter of the crowd stays to the end of Murray's set. Bruce has become an impossible act to follow, and no one will attempt it again.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1974-0803.jpg.webp)

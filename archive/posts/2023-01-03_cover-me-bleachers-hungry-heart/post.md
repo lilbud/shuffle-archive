@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Bleachers: Hungry Heart"
+author: "Ken"
+excerpt: "Jack Antonoff delivered a beautifully poignant cover of Bruce’s poppy hit single in a 2017 radio appearance on The Bruce Brunch."
+tags: bleachers hungry-heart jack-antonoff
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/bleachers.jpg
+post_id: 32414
+---
 If you caught Bleachers on *Saturday Night Live* last weekend and thought he was paying tribute to a certain New Jersey icon, there's a reason for that.
 
 Sure, Bruce appears on the bands' recent single, "Chinatown," but the influence runs much deeper and further than that. Bleachers' music (both Jack Antonoff and his band go by the name Bleachers) is thoroughly infused with Springsteen's sound and spirit. He mixes it with his own immense talent and songwriting expertise from his previous group fun. and his collaborations with Taylor Swift, St. Vincent, Lorde, Lana Del Rey, Carly Rae Jepsen, among others.

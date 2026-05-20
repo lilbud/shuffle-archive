@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Have Love, Will Travel"
+author: "Ken"
+excerpt: "The Sonics’ 1965 hit became a nightly 1988 encore on Bruce Springsteen’s Tunnel of Love Tour. Watch Bruce ham it up inside."
+tags: have-love-will-travel richard-berry the-sonics
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/havelove.jpg
+post_id: 14887
+---
 "Have Love, Will Travel" started out as a 1959 "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)" sound-alike, probably because both songs were written and recorded by Richard Berry.
 
 [Watch on Youtube: Richard Berry and The Paroahs - Have Love, Will Travel](https://www.youtube.com/watch?v=biwW1Zx2KDU)

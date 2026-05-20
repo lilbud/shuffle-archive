@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Mystery Train"
+author: "Ken"
+excerpt: "The biggest mystery about “Mystery Train” (besides why it’s called that): why’d it take so long for Bruce to cover it?"
+tags: elvis-presley junior-parker mystery-train
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/mystery.jpg
+post_id: 9736
+---
 Ah, "Mystery Train." It's so easy to find snippets of it in Bruce's performances over the years. It shows up scores of times, from "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)…"
 
 [Watch Video Highlight](https://videopress.com/embed/Ml73wUVB)

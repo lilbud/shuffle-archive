@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Boom Boom"
+author: "Ken"
+excerpt: "Coincidence, subconscious, or intentional? Whatever the reason, Bruce’s cover of “Boom Boom” telegraphed an important change in his personal life."
+tags: boom-boom john-lee-hooker
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/boom.jpg
+post_id: 16919
+---
 When it comes to art imitating life, there may be no better metatextual example in the Springsteen canon than Bruce's decision to replace his sweet, romantic, original "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" with a smoldering cover of John Lee Hooker's "Boom Boom" midway through the Tunnel of Love Express Tour.
 
 [Watch on Youtube: John Lee Hooker - Boom Boom [HQ]](https://www.youtube.com/watch?v=X70VMrH3yBg)

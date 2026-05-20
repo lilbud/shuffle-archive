@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Talking to the King"
+author: "Ken"
+excerpt: "“Talking to the King” is a sweet, count-your-blessings rocker and a ton of fun in concert. No wonder Joe and Bruce have played it together 28 times. Check out some of the best inside."
+tags: joe-grushecky-and-the-houserockers talking-to-the-king
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/talkingking.jpg
+post_id: 18166
+---
 38 years, 53 shows.
 
 That's how many years and how many times Bruce Springsteen and Joe Grushecky have performed together. as of this writing at least.

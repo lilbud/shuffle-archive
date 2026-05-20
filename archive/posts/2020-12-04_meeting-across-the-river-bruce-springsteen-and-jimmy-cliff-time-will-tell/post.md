@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Jimmy Cliff, Time Will Tell"
+author: "Ken"
+excerpt: "Bruce and Jimmy Cliff team up on the lead-off track from Jimmy’s 1969 self-titled album at Bruce’s World Tour 1993 show in Verona."
+tags: italy jimmy-cliff time-will-tell verona world-tour-1993
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/Jimmy-Cliff-1.jpg
+post_id: 4265
+---
 Bruce is no stranger to Jimmy Cliff’s catalog: his cover of “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” has been a fan favorite for decades, and “[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)” was a setlist staple during World Tour 1993.
 
 But “Time Will Tell” is on the obscure side.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me Round-Up: Dancing in the Dark (Part 5)"
+author: "Ken"
+excerpt: "Five artists from around the world bring us a new crop of fresh and inventive takes on Bruce Springsteen’s greatest hit."
+tags: dancing-in-the-dark flyswatter hollow-coves inside-the-lines parafunk pomplamoose roberta-fonocchiaro shawn-mendes
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/pomp.jpg
+post_id: 35073
+---
 They keep on coming–but thankfully, they never stop surprising and delighting.
 
 We're talking about covers of Bruce Springsteen's 1984 megahit single, "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."

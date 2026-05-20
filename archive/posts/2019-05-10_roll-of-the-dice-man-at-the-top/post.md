@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Man at the Top"
+author: "Ken"
+excerpt: "The ultra-rare “Man at the Top” (performed only three times ever) has surprising depth beneath its simple lyrics. Written when Bruce was on the precipice of mega-stardom, the song grapples with the nature and cost of ambition."
+tags: man-at-the-top tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/mantop.jpg
+post_id: 9386
+---
 > "This is a song that I guess fits both in Atlantic City or Washington." — Bruce Springsteen, August 5, 1985
 
 With those eerily prescient words, Bruce introduced "Man at the Top," one of the very last songs he'd recorded during the *Born in the U.S.A.* sessions but that never made it on the album.

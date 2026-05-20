@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 31"
+author: "Ken"
+excerpt: "This date’s highlights are almost all New Jersey-based: from archival footage of The Doors at Convention Hall in ’68 (Bruce was there) to a Bruce-and-Steve reunion in ’85 to the closing night of the ten-night Giants Stadium stand in ’03."
+tags: born-in-the-usa-tour east-rutherford giants-stadium new-york-city phil-ceccola reunion-tour rising-tour springsteen-on-broadway steve-van-zandt the-doors washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/20030831_6_front.jpg
+post_id: 59508
+---
 **1968:** Bruce catches The Doors' concert at Asbury Park's Convention Hall. Watch actual footage of Jim Morrison from that day below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Z3DElGznXIE)

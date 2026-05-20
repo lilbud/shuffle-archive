@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Stevie Wonder, Tina Turner, Mick Jagger, Bruce Springsteen, and Friends: Respect"
+author: "Ken"
+excerpt: "One time only: Bruce joins Mick Jagger, Stevie Wonder, Tina Turner, and more on Aretha Franklin’s 1967 anthem."
+tags: aretha-franklin mick-jagger otis-redding respect stevie-wonder tina-turner
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/respect.jpg
+post_id: 27048
+---
 When it comes to "Respect," there's the brassy, funky, original 1965 version by Otis Redding...
 
 [Watch on Youtube: OTIS REDDING-respect](https://www.youtube.com/watch?v=KvC9V_lBnDQ)

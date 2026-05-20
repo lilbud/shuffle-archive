@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 16"
+author: "Ken"
+excerpt: "On this date: the live debut of “High Hopes,” a guest appearance with Jackson Browne, and more."
+tags: austin australia boston brisbane copenhagen darkness-on-the-edge-of-town denmark ghost-of-tom-joad-tour high-hopes jackson-browne magic-tour new-york-city rosemont springsteen-on-broadway st-paul take-it-easy tunnel-of-love-express-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-16-philadelphia-pa-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56176
+---
 ***New for 2025:** Video for 2023*<br>
 
 **1973:** Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.<br>

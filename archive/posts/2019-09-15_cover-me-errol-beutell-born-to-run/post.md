@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Errol Beutell: Born to Run"
+author: "Ken"
+excerpt: "One-man cover band Errol Beutell tackles “Born to Run,” playing all the parts himself—and it’s pretty darn impressive."
+tags: born-to-run errol-beutell
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/b2run.jpg
+post_id: 12913
+---
 Long time readers know that I have a rule when it comes to covering Bruce: either do it better or do it different–or don't bother.
 
 But there are exceptions to every rule, and one-man cover band Errol Beutell is our case in point today.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 12"
+author: "Ken"
+excerpt: "Bruce is officially a Broadway star when his show opens at long last. Plus: Bruce plays in Brazil for the first time and is inducted into the American Academy of Arts and Sciences. More highlights inside."
+tags: brazil devils-and-dust-tour germany hamburg human-rights-now-tour lawsuit-tour minneapolis princeton-university rutgers-university sao-paolo seeger-sessions-tour springsteen-on-broadway thunder-road
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/s-l1000.jpg
+post_id: 61100
+---
 ***New for 2025:** New entry for 1979; audio for 1988 and 2006; review for 2005*<br>
 
 **1974:** Bruce and the E Street Band play two shows at Princeton University.<br>

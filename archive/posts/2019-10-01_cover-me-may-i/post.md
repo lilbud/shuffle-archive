@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: May I"
+author: "Ken"
+excerpt: "One time only: Bruce paid tribute to local legends Bill Deal and The Rhondels at his first-ever show in Virginia Beach."
+tags: bill-deal-and-the-rhondels may-i
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/mayi.jpg
+post_id: 13397
+---
 Bill Deal & The Rhondels aren't exactly household names.
 
 Except for one brief shining moment in 1969, when they had three Top 40 singles, the band's fame has mostly been local to their Virginia roots.

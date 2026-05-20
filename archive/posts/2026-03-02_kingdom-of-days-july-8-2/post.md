@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 8"
+author: "Ken"
+excerpt: "One day after the legendary Roxy show, Bruce films some of his most famous live videos in Phoenix. Plus: live performances destined for the Live 1975-85 box set, and more."
+tags: badlands born-in-the-usa-tour born-to-run bryn-mawr candys-room darkness-tour denmark east-rutherford herning live-1975-85 magic-tour main-point norway oslo phoenix prove-it-all-night raise-your-hand richfield river-tour rosalita springsteen-on-broadway two-hearts working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/phoenix.jpg
+post_id: 57650
+---
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
 **1975:** Bruce completes "Linda Let Me Be The One" at the Record Plant in New York City. It will remain in the vault for 23 years.<br>

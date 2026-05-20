@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Do You Hear What I Hear"
+author: "Ken"
+excerpt: "Watch Bruce’s only performance of this perennial holiday classic (which isn’t really the holiday song you might think it is)."
+tags: bing-crosby darlene-love do-you-hear-what-i-hear jennifer-nettles sting the-harry-simeone-chorale
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/doyouhear.jpg
+post_id: 23378
+---
 It sounds a lot older than it is, and it's not about Christmas at all.
 
 At the height of the Cuban Missile Crisis in October 1962, songwriters Noël Regeney and Gloria Shayne were trying in vain to write a B-side for a single, but they were glued to the radio and television like everyone else, waiting to hear if nuclear annihilation was about to happen.

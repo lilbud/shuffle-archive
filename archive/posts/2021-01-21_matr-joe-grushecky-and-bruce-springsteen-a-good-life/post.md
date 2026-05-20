@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky and Bruce Springsteen: A Good Life"
+author: "Ken"
+excerpt: "In their first studio collaboration since American Babylon, Joe Grushecky and Bruce Springsteen sing the joys of domesticity."
+tags: a-good-life joe-grushecky
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/goodlife.jpg
+post_id: 23951
+---
 The first time Joe Grushecky and Bruce Springsteen worked together, Joe criss-crossed the country, working for two years on two coasts to complete [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) with Bruce.
 
 The next time they worked together was a whole lot easier.

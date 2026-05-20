@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Pony Boy"
+author: "Ken"
+excerpt: "Trace the throughline from an obscure 1909 Broadway musical to Bruce’s lullaby for his newborn son."
+tags: ada-jones evan-springsteen my-pony-boy pony-boy
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/ponyboy.jpg
+post_id: 7700
+---
 A long time ago, in a tiny apartment far, far away, I spent a long evening pacing my living room floor.
 
 In my arms was my inconsolable newborn daughter, and I tried everything in my new-dad bag of tricks to quiet or distract her.
@@ -17,25 +27,25 @@ It was a song his grandmother sang to him when he was very young. It dated back 
 [Watch on Youtube: My Pony Boy (Ada Jones, 1909)](https://www.youtube.com/watch?v=HZZ1ItQB76Q)
 
 By the time Bruce was an adult, he'd long since forgotten most of the words. Who knows, maybe his grandmother didn't know them either. But when his first son Evan was on the way, he sang his grandmother's song to him as best he could:
-> "I made up a lot of the words for the verses; I'm sure there are real words, but I'm not sure they're the ones I used. It was the song that I used to sing to my little boy when he was still inside of Patti. And when he came out, he knew it. It's funny. And it used to work like magic. He'd be crying, and I'd sing it, and he'd stop on a dime. Amazing." —*Bruce Springsteen, Rolling Stone Magazine, August 6, 1992*
+> "I made up a lot of the words for the verses; I'm sure there are real words, but I'm not sure they're the ones I used. It was the song that I used to sing to my little boy when he was still inside of Patti. And when he came out, he knew it. It's funny. And it used to work like magic. He'd be crying, and I'd sing it, and he'd stop on a dime. Amazing." —*Bruce Springsteen, Rolling Stone Magazine, August 6, 1992*<br>
 
 As it turns out, the only part of the song he actually remembered was what any child could have told you was the most important part:
 
-> *Pony boy, pony boy*
-> *Won't you be my pony boy*
-> *Giddy-up, giddy-up, giddy-up, whoa!*
-> *My pony boy*
+> *Pony boy, pony boy*<br>
+> *Won't you be my pony boy*<br>
+> *Giddy-up, giddy-up, giddy-up, whoa!*<br>
+> *My pony boy*<br>
 
 Not only didn't he remember the words to the verses, he didn't even remember the melody. So without even being aware of its original incarnation as a girl-tames-boy romance, he recast it as a sweet, idyllic, father-and-son-explore-the-great-wide-world soother:
 
-> *Ride with me, ride with me, won't you take a ride with me*
-> *Underneath the starry sky, my pony boy*
+> *Ride with me, ride with me, won't you take a ride with me*<br>
+> *Underneath the starry sky, my pony boy*<br>
 
-> *Over the hills and through the trees we'll go riding you and me*
-> *Giddy-up giddy-up giddy-away, my pony boy*
+> *Over the hills and through the trees we'll go riding you and me*<br>
+> *Giddy-up giddy-up giddy-away, my pony boy*<br>
 
-> *Down into the valley deep, ‘neath the eaves we will sleep*
-> *Sky of dreams up above, my pony boy*
+> *Down into the valley deep, ‘neath the eaves we will sleep*<br>
+> *Sky of dreams up above, my pony boy*<br>
 
 In that Rolling Stone interview, Bruce said he sang "Pony Boy" to Evan before he was born. I don't think that was an exaggeration. Evan was born in the mid-summer of 1990, and sometime during that season Bruce recorded "Pony Boy" in his home studio–just Bruce, his guitar, and his wife's backing vocals.
 

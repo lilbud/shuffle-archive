@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Froggie Went A-Courtin'"
+author: "Ken"
+excerpt: "One of the oldest songs from The Seeger Sessions is also the most fun. Let’s take a listen to this centuries-old folk song."
+tags: froggie-went-a-courtin pete-seeger we-shall-over-come-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/FroggieWentaCourting-1.png
+post_id: 24640
+---
 True fact: Bruce's first solo on *We Shall Overcome: The Seeger Sessions* comes ninety seconds before the end of the album, when he finally allows himself a moment in the instrumental spotlight with his harmonica.
 
 [Watch on Youtube: Froggie Went a Courtin'](https://www.youtube.com/watch?v=hmVDaczx9nU)

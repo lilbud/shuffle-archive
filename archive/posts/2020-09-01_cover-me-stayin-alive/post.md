@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Stayin' Alive"
+author: "Ken"
+excerpt: "The Bee Gees’ 1978 hit single inspired once of Bruce’s best and most unexpected covers ever."
+tags: barry-gibb bee-gees stayin-alive
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/stayinalive.jpg
+post_id: 20800
+---
 > I told Steve "Tomorrow night, 'Staying Alive,'" and he goes, "You got me on that one. I don't know how we're gonna do it." And Tom Morello said, "I don't want to have any other ideas. Because I want to see how you're gonna pull that one off." Steve's going, "I can't imagine it." I go okay, I'm not going to be able to sing it where they sang it, so I have to think about Marvin Gaye on *What's* *Going* *On* and *Trouble Man* and I'm thinking of blaxploitation pictures. I thought, if I bring this thing down to my key and I play it like a blues, this is inner-city blues; it could slip right on to *What's* *Going On*. I had to find my voice in it. I got the lyrics up on the computer and just started to sing it. When it sounded believable to me I knew we'd be fine. It was like, "Okay, I can be this person in this song." *–Bruce Springsteen, Rolling Stone, March 11, 2014*<br>
 
 The 1977 original is instantly recognizable.
@@ -10,7 +20,7 @@ The 1977 original is instantly recognizable.
 
 Not only did The Bee Gees command the Number One spot on the Billboard Hot 100 for four weeks with "Stayin' Alive" in early 1978, the song would go on to be enshrined by the American Film Institute as #9 on their Top 100 Songs in American Cinema ranking, and *Rolling Stone* would place it at #189 on their 500 Greatest Songs of All Time list.
 
-If the original is instantly recognizable, however, Bruce Springsteen's unexpected 2014 cover... well, that one took Bruce's Brisbane audience thirty seconds to recognize and another thirty to believe.
+If the original is instantly recognizable, however, Bruce Springsteen's unexpected 2014 cover… well, that one took Bruce's Brisbane audience thirty seconds to recognize and another thirty to believe.
 
 [Watch on Youtube: Bruce Springsteen - "Stayin' Alive" (Brisbane, 02/26/14)](https://www.youtube.com/watch?v=4n1GT-VjjVs)
 

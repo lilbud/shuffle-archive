@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: July 31"
+author: "Ken"
+excerpt: "Bruce plays his longest show ever in Helsinki, well over four hours including a pre-show. Plus: surprise appearances with U2, Bruce Hornsby, and Marshall Crenshaw, the live debut of “Lift Me Up” and more."
+tags: born-in-the-usa-tour bruce-hornsby columbia columbus cover-me cross-my-heart darkness-tour detroit devils-and-dust-tour east-rutherford finland for-you giants-stadium helsinki higher-and-higher i-still-havent-found-what-im-looking-for leap-of-faith light-of-day magic-tour marshall-crenshaw my-fathers-place river-tour-2016 rockin-all-over-the-world sonny-kenn stone-pony switzerland u2 world-tour-1992 wrecking-ball-tour zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/helsinki12.jpg
+post_id: 57851
+---
 ***New for 2025:** Video for 2022*<br>
 
-**1973:** Bruce and the E Street Band headline the first two shows of a three-night/six-show stand at My Father’s Place in Roslyn, New York. WLIR-FM broadcasts the late show live.<br>
+**1973:** Bruce and the E Street Band headline the first two shows of a three-night/six-show stand at My Father's Place in Roslyn, New York. WLIR-FM broadcasts the late show live.<br>
 
 [Watch on Youtube: Bruce Springsteen - YOU MEAN SO MUCH TO ME 1973 (audio)](https://www.youtube.com/watch?v=0FxHJBVKI2g)
 
@@ -12,21 +22,21 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1978-0731.jpg.webp)
 
-**1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man’s West in Red Bank.<br>
+**1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man's West in Red Bank.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lzcXNflW)
 
-**1984:** “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)” is released as the second single off of the red-hot *Born in the U.S.A.* album. It will peak at #7 on the charts.<br>
+**1984:** "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" is released as the second single off of the red-hot *Born in the U.S.A.* album. It will peak at #7 on the charts.<br>
 
 [Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
-That evening, Bruce tour premieres “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” at Night Two in Detroit on the Born in the U.S.A. Tour.
+That evening, Bruce tour premieres "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" at Night Two in Detroit on the Born in the U.S.A. Tour.
 
 [Watch Video Highlight](https://videopress.com/embed/1IZ822FI)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-31.png.webp)
 
-**1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for “[You Can’t Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/),” “La Bamba,” and “Twist and Shout.”<br>
+**1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)," "La Bamba," and "Twist and Shout."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/91vNP1rr)
 
@@ -34,17 +44,17 @@ That evening, Bruce tour premieres “[Growin’ Up](../2011-01-03_roll-of-the-d
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1987-07-31b.png.webp)
 
-**1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md),” “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/),” “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)“, and the live debuts of “[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md)” and “[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md).”<br>
+**1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)", and the live debuts of "[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md)" and "[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Atlantic City Brendan Bryne Arena New Jersey 31/07/1992](https://www.youtube.com/watch?v=xeSRlWZq2lk)
 
 [Watch on Youtube: Bruce Springsteen - Live debut of "Pony Boy" - 1992-07-31](https://www.youtube.com/watch?v=zESafYXuPiM)
 
-**2001:** Bruce makes a surprise guest appearance at the Count Basie Theater in Red Bank, joining Bruce Hornsby for the final encore of “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md).”<br>
+**2001:** Bruce makes a surprise guest appearance at the Count Basie Theater in Red Bank, joining Bruce Hornsby for the final encore of "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/EQ77Afpd)
 
-**2005:** Bruce plays a stunning acoustic show in Columbus, playing “[Lift Me Up](../2018-05-20_roll-of-the-dice-lift-me-up/post.md)” for the first time ever, and tour premiering “[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)” and “[Back in Your Arms.](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)” This show is available as part of Bruce’s official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,13061/Bruce-Springsteen-mp3-flac-download-7-31-2005-Schottenstein-Center-Columbus-OH.html)), and it’s a wonderful listen.<br>
+**2005:** Bruce plays a stunning acoustic show in Columbus, playing "[Lift Me Up](../2018-05-20_roll-of-the-dice-lift-me-up/post.md)" for the first time ever, and tour premiering "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" and "[Back in Your Arms.](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" This show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,13061/Bruce-Springsteen-mp3-flac-download-7-31-2005-Schottenstein-Center-Columbus-OH.html)), and it's a wonderful listen.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lift Me Up](https://www.youtube.com/watch?v=OjCUV60okiU)
 
@@ -58,11 +68,11 @@ That evening, Bruce tour premieres “[Growin’ Up](../2011-01-03_roll-of-the-d
 
 [Watch on Youtube: Lost in the Flood (Live at Schottenstein Center, Columbus, OH - 7/31/2005)](https://www.youtube.com/watch?v=vdZ12-Y7_pU)
 
-**2008:** At the final of three Giants Stadium shows on the Magic Tour, Bruce tour premieres “[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)” and “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” and holds a mini-Seeger Sessions reunion when Jeremy Chatzky, Sam Bardfeld, and Curtis King join the band for “[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)”<br>
+**2008:** At the final of three Giants Stadium shows on the Magic Tour, Bruce tour premieres "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and holds a mini-Seeger Sessions reunion when Jeremy Chatzky, Sam Bardfeld, and Curtis King join the band for "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - Pretty Flamingo](https://www.youtube.com/watch?v=y1Pht9wCmdc)
 
-**2012:** Bruce wraps up the first European leg of the Wrecking Ball Tour with a marathon of a show in Helsinki–his longest ever, over four hours–and that’s not even including a five-song pre-show! Five songs have their tour premieres, including “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)“, “[Detroit Medley,](../1976-01-02_cover-me-detroit-medley/post.md/)” and covers of “[I Don’t Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md),” “Rockin’ All Over the World,” and “[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/).” Plus: rare outings for “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md),” “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md),” “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md),” and more–an absolutely amazing show. No surprise that it’s part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,16397/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-31-2012-Olympiastadion-Helsinki-FI.html).<br>
+**2012:** Bruce wraps up the first European leg of the Wrecking Ball Tour with a marathon of a show in Helsinki–his longest ever, over four hours–and that's not even including a five-song pre-show! Five songs have their tour premieres, including "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)", "[Detroit Medley,](../1976-01-02_cover-me-detroit-medley/post.md/)" and covers of "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)," "Rockin' All Over the World," and "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)." Plus: rare outings for "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)," "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)," "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)," and more–an absolutely amazing show. No surprise that it's part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,16397/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-31-2012-Olympiastadion-Helsinki-FI.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - 2012-07-31 For You (solo acoustic)](https://www.youtube.com/watch?v=b6wPi_h9O7k)
 
@@ -80,13 +90,13 @@ That evening, Bruce tour premieres “[Growin’ Up](../2011-01-03_roll-of-the-d
 
 [Watch on Youtube: Rockin' All Over the World (Live at Olympiastadion, Helsinki, Finland - 07/31/12 - Offi...](https://www.youtube.com/watch?v=kOAjh5yFM4w)
 
-**2015:** Bruce makes a surprise guest appearance with U2 at the band’s gig at Madison Square Garden, joining them for “[I Still Haven’t Found What I’m Looking For](../2019-02-25_matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/post.md)” and “[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md).”<br>
+**2015:** Bruce makes a surprise guest appearance with U2 at the band's gig at Madison Square Garden, joining them for "[I Still Haven't Found What I'm Looking For](../2019-02-25_matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/post.md)" and "[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)."<br>
 
 [Watch on Youtube: U2 & Bruce Springsteen - (HD) I Still Haven't Found What I'm Looking For - July 31, 2015](https://www.youtube.com/watch?v=IR2y_Hjzmy8)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2015-07-31.png.webp)
 
-**2016:** Bruce wraps the European River Tour with a final show in Zurich, where he tour debuts “[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)” and “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)” and plays a rare “[Jole Blon.](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)”<br>
+**2016:** Bruce wraps the European River Tour with a final show in Zurich, where he tour debuts "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)" and "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)" and plays a rare "[Jole Blon.](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - None But The Brave. Zurich/Letzigrund, July 31, 2016](https://www.youtube.com/watch?v=aiQDVrUxSYk)
 
@@ -94,7 +104,7 @@ That evening, Bruce tour premieres “[Growin’ Up](../2011-01-03_roll-of-the-d
 
 [Watch on Youtube: Bruce Springsteen - Jungleland (2016-07-31 Zürich, Letzigrund Stadium) [Multicam + Pro Audio]](https://www.youtube.com/watch?v=n0UGOzugjjI)
 
-**2022:** Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Park to acknowledge the storied venue’s 20th anniversary. Before he leaves, he graciously poses for a photo with this blogger and Jersey Shore rock and roll tour guide Stan Goldstein.<br>
+**2022:** Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Park to acknowledge the storied venue's 20th anniversary. Before he leaves, he graciously poses for a photo with this blogger and Jersey Shore rock and roll tour guide Stan Goldstein.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/07/IMG_5216.jpg.webp)
 

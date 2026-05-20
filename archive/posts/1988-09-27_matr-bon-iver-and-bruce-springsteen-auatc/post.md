@@ -1,3 +1,13 @@
+---
+layout: post
+title: "AUATC"
+author: "Ken"
+excerpt: "At the height of the pandemic, Bon Iver enlisted some surprising guest vocalists for their one-off anti-capitalist single."
+tags: auatc bon-iver justin-vernon
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/auatc.jpg
+post_id: 33064
+---
 Bruce Springsteen appears in this song.
 
 I think.
@@ -12,7 +22,7 @@ Bon Iver was one of the first bands to release new music during the great pandem
 
 "AUATC" was another benefit single, in this case more against than for a cause. "AUATC" is decidedly anti-capitalist in theme, and to ensure that the somewhat cryptic lyrics didn't go over listeners' heads, the band issued a statement when they released the song.
 
-> *We are calling attention to the fight against capitalism and our collective participation in its dominant institutions. Bon Iver acknowledges our own position within and use of capitalistic practices. It is with recognition of our privilege that we are fully committed to using our unique platform to challenge and change capitalism within our industry, and far beyond.*
+> *We are calling attention to the fight against capitalism and our collective participation in its dominant institutions. Bon Iver acknowledges our own position within and use of capitalistic practices. It is with recognition of our privilege that we are fully committed to using our unique platform to challenge and change capitalism within our industry, and far beyond.*<br>
 
 The song's theme apparently resonated with other artists, too–because among the background vocals are the voices of Jenny Lewis, Jenn Wasner, and Bruce Springsteen.
 

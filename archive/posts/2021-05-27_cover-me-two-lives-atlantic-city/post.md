@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Two Lives: Atlantic City"
+author: "Ken"
+excerpt: "New entrant Two Lives turns in a strong contender for this year’s Cover Me contest with their powerful, fresh interpretation of “Atlantic City.”"
+tags: atlantic-city two-lives
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/twolives.jpg
+post_id: 27583
+---
 Blogger's Note
 
 *Last chance!* *If you're a Springsteen fan, have musical talent, and think you can bring a fresh perspective to one of Bruce's songs, time's running out to enter the s[econd annual Cover Me contest](https://www.noiespringsteen.com/contest/). There's no fee to enter, and the contest attracts submissions from around the world.*

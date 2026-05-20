@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 28"
+author: "Ken"
+excerpt: "On this date: Bruce is interviewed by Tom Hanks, Jon Bon Jovi makes a guest appearance, and the E Street Band backs Chuck Berry. More highlights inside."
+tags: chicken-scratch-tour chuck-berry devils-and-dust-tour fire flo-and-eddie grand-prairie greensboro hungry-heart jerry-lee-lewis jimmy-lafave jon-bon-jovi los-angeles lyon magic-tour nashville oklahoma-hills philadelphia reunion-tour rotterdam swarthmore the-fever the-netherlands tom-hanks tunnel-of-love-express-tour two-faces working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/344933794_566039889000798_7184933978946769123_n.jpg
+post_id: 56632
+---
 ***New for 2025:** New entry for 1982; audio for 2008; video for 2023*<br>
 
 **1973:** Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. After his set, Bruce and the E Street Band (plus Southside Johnny) serve as the backing band at no charge for Lewis and Berry, remaining on stage the entire night. The band has no rehearsal time with Berry, who keeps the band on their toes the entire night. Watch Bruce tell the story below. (Thanks to Dave Homorody for the photo!)<br>

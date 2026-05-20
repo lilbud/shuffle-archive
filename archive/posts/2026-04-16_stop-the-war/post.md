@@ -1,3 +1,11 @@
+---
+layout: post
+title: "Stop the War"
+author: "Ken"
+excerpt: "In the spring of 1982, Bruce Springsteen was a man in transition. He’d recorded a collection of dark acoustic songs earlier in the year that…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/04/0x1900-000000-80-0-0-2.jpg
+post_id: 68572
+---
 In the spring of 1982, Bruce Springsteen was a man in transition.
 
 He'd recorded a collection of dark acoustic songs earlier in the year that he would eventually release as *Nebraska* after failing to find E Street band arrangements he was satisfied with.

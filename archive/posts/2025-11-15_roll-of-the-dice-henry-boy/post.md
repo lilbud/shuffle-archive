@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Henry Boy"
+author: "Ken"
+excerpt: "This early candidate for Bruce’s debut album ended up an organ donor for two of his most well-known songs."
+tags: chapter-and-verse henry-boy
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/henry.jpg
+post_id: 33406
+---
 Had "Henry Boy" made it onto [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md), Rosie might never have come out.
 
 In 1972, when Bruce Springsteen was furiously writing and recording candidates for his upcoming debut album, "Henry Boy" seemed like one of the more promising ones. Bruce certainly seemed to think so–he included the song in an early potential album sequence,

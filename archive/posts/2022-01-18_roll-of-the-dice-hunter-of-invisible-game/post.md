@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Hunter of Invisible Game"
+author: "Ken"
+excerpt: "It’s one of Bruce’s most audacious songs ever, a ten-minute, waltz-time, post-apocalyptic allegory for the decline of civilization."
+tags: high-hopes hunter-of-invisible-game
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/hunter.jpg
+post_id: 31942
+---
 > "I wrote [the title] down years ago, and I don't remember a lot about it except I said, ‘That's a nice title.' I wrote it down and it sat there. Then I did more reading of other things. And I started to get into this sort of post-apocalyptic idea. The idea of these travelers in the wasteland, and what's the guy trying to do? He's trying to hold onto their humanness, their humanity in all of this ruin. That was the idea. That's who this guy is, the guy who is hunting out remnants of what makes the spirit. It was one of those songs that came together a certain way and I didn't think much about it when I wrote it. I put it away. Now it's probably one of my favorite things on the record. "
 >
 > — Bruce Springsteen to Sean Sennett, *Rolling Stone*, March 11, 2014

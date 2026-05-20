@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Line"
+author: "Ken"
+excerpt: "“The Line” is Bruce at his most cinematic and empathetic, a masterpiece of taut storytelling written years before immigration reform dominated the national discourse."
+tags: bob-dylan highway-patrolman love-minus-zero the-ghost-of-tom-joad the-line
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/border.jpg
+post_id: 3571
+---
 In 1995, immigration reform was not a big part of the national discourse in the USA. However, it was very much a part of the ongoing conversation between Bruce and his fans–it was, in fact, one of the central themes of his new album, *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).*
 
 Several songs on that album touched on the plight and circumstances of immigrants, whether from Southeast Asia ("[Galveston Bay](../2020-06-22_roll-of-the-dice-galveston-bay/post.md)") or Latin America ("[Sinaloa Cowboys,](../2022-01-04_roll-of-the-dice-sinaloa-cowboys/post.md)" "[Balboa Park](../2020-03-16_roll-of-the-dice-balboa-park/post.md)"). But nowhere was the issue explored with more sensitivity and empathy than the engrossingly cinematic tale of "The Line."

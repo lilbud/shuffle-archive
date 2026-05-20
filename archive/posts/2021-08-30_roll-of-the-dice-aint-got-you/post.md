@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Ain't Got You"
+author: "Ken"
+excerpt: "With a sly hat tip to a 1955 blues classic, “Ain’t Got You” signaled a turning point in Bruce’s songwriting and love life."
+tags: aint-got-you billy-boy-arnold i-aint-got-you tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/aintgot.jpg
+post_id: 28858
+---
 Billy Boy Arnold isn't anywhere near as famous as his friend Elias McDaniel (who received his "Bo Diddley" stage name from Arnold in 1951 while they were busking on the street together), but the elder Chicago blues statesman and harp hero is certainly known to Bruce Springsteen.
 
 Bruce clearly took a shine to Arnold's 1955 hit, "I Ain't Got You."

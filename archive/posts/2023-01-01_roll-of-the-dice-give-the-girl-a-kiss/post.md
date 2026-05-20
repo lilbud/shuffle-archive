@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Give the Girl a Kiss"
+author: "Ken"
+excerpt: "Only Bruce Springsteen could write such a perfect pop song and have no recollection of it. Thank goodness he remembered, because “Give the Girl a Kiss” is a gem both on record and in concert."
+tags: give-the-girl-a-kiss tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/hersheys-kisses-easter-kisses-large-9.jpg
+post_id: 18721
+---
 > "I don't even remember writing it or recording it. It was like, ‘When did I do that?'" – *Bruce Springsteen, Rolling Stone, December 10, 1998*<br>
 
 How talented a songwriter is Bruce Springsteen?

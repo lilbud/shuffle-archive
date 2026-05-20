@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Pearl Jam: Open All Night"
+author: "Ken"
+excerpt: "In honor of this week’s #TheHomeShows, here’s Pearl Jam’s scorching one-off cover of “Open All Night.”"
+tags: lincoln open-all-night pearl-jam
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/Lincoln_Store.jpg
+post_id: 3702
+---
 This week, it seems like everyone in my adopted hometown of Seattle is attending (or wishing they could) a pair of benefit shows by one of our local bands to combat and raise awareness about local homelessness. What started out as a concert has swelled into a community-wide movement. I’m sure Bruce approves of and is impressed by what his friend Eddie and crew have accomplished.
 
 In honor of [#TheHomeShows](https://pearljam.com/thehomeshows/seattle-wa), here’s Pearl Jam’s one-off cover of Bruce’s “[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md),” captured live in Lincoln, Nebraska on October 9, 2014.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Get Out of My Life, Woman"
+author: "Ken"
+excerpt: "One time only: The Castiles put their own spin on Lee Dorsey’s 1965 R&B hit."
+tags: get-out-of-my-life-woman lee-dorsey paul-butterfield-blues-band
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/getout.png
+post_id: 30466
+---
 I've been writing this blog for more than 1,400 days, but I still can't get over how astonishing it is and how fortunate we are to have such a thoroughly documented record of Bruce Springsteen's performing career.
 
 I mean, it's not surprising that we have almost every show from the River era forward; Bruce's critical and popular reputation had been firmly established by then. But the fact that we have a significant number of recordings dating back more than a decade earlier boggles my mind.

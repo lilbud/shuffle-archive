@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Lonely Teardrops"
+author: "Ken"
+excerpt: "Three times only on the Tunnel of Love Tour, Bruce and the E Street Band closed their shows with a cover of Jackie Wilson’s breakthrough hit."
+tags: jackie-wilson lonely-teardrops
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/lonelyteardrops.jpg
+post_id: 24641
+---
 "Lonely Teardrops" was Jackie Wilson's breakthrough hit, catapulting him to the top of the Billboard R&B chart and into the Top 10 of the Billboard Hot 100 in 1959.
 
 [Watch on Youtube: Jackie Wilson - Lonely teardrops](https://www.youtube.com/watch?v=2nEfuE8Pw4U)
 
 It was the song that made Wilson a superstar, earning him the sobriquet "Mr. Excitement," and it was the last song he ever performed before collapsing on stage mid-song from a heart attack.
 
-Today, "Lonely Teardrops" is enshrined in the Grammy Hall of Fame and sits at a respectable #315 on *Rolling Stone*'s 500 Greatest Songs of All Time.
+Today, "Lonely Teardrops" is enshrined in the Grammy Hall of Fame and sits at a respectable #315 on *Rolling Stone*‘s 500 Greatest Songs of All Time.
 
 When Bruce Springsteen first covered "Lonely Teardrops" in 1988, his hard-core fans were well aware of Bruce's fondness for Jackie Wilson's records: Bruce's closing stand at the Boston Music Hall in 1977 was already legendary (bootleg recordings of the final show had begun to appear on vinyl a few years prior), in part due to Bruce and the E Street Band's memorable show-closing covers of Wilson's "[(Your Love Keeps Lifting Me) Higher and Higher.](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)"
 

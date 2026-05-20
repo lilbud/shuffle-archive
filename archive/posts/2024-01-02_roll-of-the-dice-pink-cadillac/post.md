@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Pink Cadillac"
+author: "Ken"
+excerpt: "It may be pink, but it ain’t no car. Backstory and great performances inside."
+tags: 18-tracks jerry-lee-lewis pink-cadillac tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/pink.jpg
+post_id: 11451
+---
 > "This is a song about sin! According to the Bible (at least the way I was taught), way back in the Garden of Eden, Eve showed Adam the apple, Adam took a bite… and here we are tonight! That's a little hard to believe… there had to be something more than an *apple*. So I got to thinking… I figured it couldn't be an apple, so it must have been… it must have been…" *–Bruce Springsteen, introducing the debut of "Pink Cadillac" in St. Paul on July 1, 1984*<br>
 
 It's a vagina.

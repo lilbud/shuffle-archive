@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Amy Ray: Racing in the Street"
+author: "Ken"
+excerpt: "Long-time Springsteen fan Amy Ray loves “Racing in the Street” so much that she almost never covers it (out of reverence for the original). But she covered it last year, and you can watch her gorgeous performance inside."
+tags: amy-ray racing-in-the-street
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/amy_ray.jpg
+post_id: 15414
+---
 How much of a Springsteen fan is Amy Ray?
 
 Enough that for years, she sang "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" in the studio to warm up but rarely dared to cover it in public out of reverence for the original.

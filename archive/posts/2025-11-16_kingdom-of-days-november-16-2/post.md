@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 16"
+author: "Ken"
+excerpt: "Bruce debuts “Sugarland,” plays the first of two amazing Christic shows, and releases The Promise: The Darkness on the Edge of Town Story on this remarkable date. Lots more highlights inside."
+tags: ames because-the-night bonnie-raitt born-in-the-usa-tour cadillac-ranch canada christic-concerts darkness-tour devils-and-dust-tour does-this-bus-stop-at-82nd-street east-rutherford girls-in-their-summer-clothes greensboro jackson-browne jimmy-fallon los-angeles my-fathers-place ready-teddy rising-tour roslyn save-my-love springsteen-on-broadway sugarland the-promise the-wall toronto washington-dc whip-my-hair
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/promise.jpg
+post_id: 61368
+---
 ***New for 2025:** Audio for 1990; new entry for 2024*<br>
 
 **1973:** Bruce headlines his final show of a three-night stand at My Father's Place in Roslyn, New York.<br>

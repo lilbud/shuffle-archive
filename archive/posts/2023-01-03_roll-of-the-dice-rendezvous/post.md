@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Rendezvous"
+author: "Ken"
+excerpt: "“Rendezvous” is one of Bruce’s best pop songs, born on the road and better that way."
+tags: 18-tracks rendezvous the-promise tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/rendezvous.jpg
+post_id: 26870
+---
 If there was at all a benefit to the long period between *Born to Run* and [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) when Bruce was legally barred from recording new material, it's that it gave him a chance to road test some new material before taking it into the studio.
 
 "Rendezvous," for instance–Bruce recorded it in the autumn of 1977, but he debuted it in concert more than a year before that. The song benefited from its 45 live performances before Bruce and the band committed it to tape.

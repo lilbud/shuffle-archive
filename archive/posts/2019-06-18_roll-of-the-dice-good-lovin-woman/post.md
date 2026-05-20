@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Good Lovin' Woman"
+author: "Ken"
+excerpt: "It’s sonically rough and lyrically trite, but a 20-year-old Springsteen turns in a ferocious guitar performance in his early composition, “Good Lovin’ Woman.”"
+tags: good-lovin-woman steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/goodlovinwoman.jpg
+post_id: 10475
+---
 Okay, this one's more than a little bit rough. But if you're like me–a completist that absolutely *must* listen to every song Bruce has written and recorded or performed at least once–well then, please proceed.
 
 We only know of one documented performance of Bruce's early song, "Good Lovin' Woman," and this is it: the last song of a Steel Mill concert from August 14, 1970.

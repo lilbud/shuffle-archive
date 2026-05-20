@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Gregory Alan Isakov and Patty Griffin: Highway 29"
+author: "Ken"
+excerpt: "Patty Griffin and Gregory Alan Isakov go all-Bruce in the encores of their current tour. Here’s one of my favorites from the the other night in Portland."
+tags: gregory-alan-isakov highway-29 patty-griffin
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/isakovgriffin.jpg
+post_id: 30436
+---
 > "To me, [Bruce Springsteen] is the Steinbeck of our time. He has this amazing gift of putting you in a place and a feeling at the same time, with only a line or a word or a melody."
 >
 > Gregory Alan Isakov to Elizabeth Griffin, *Esquire*, June 4, 2014

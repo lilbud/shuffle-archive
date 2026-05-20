@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 4"
+author: "Ken"
+excerpt: "Several great shows on this date in Springsteen history, but the chief highlight is a loose, funny 1978 radio interview Bruce gave on his day off. Check it out inside."
+tags: barcelona born-in-the-usa-tour france gothenburg independence-day london los-angeles magic-tour mary-turner paris southside-johnny spain steve-van-zandt stone-pony sundance-blues-band sweden uk world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/bs120704_01.jpg
+post_id: 57605
+---
 ***New for 2025:** New entry for 1979; video for 2012*<br>
 
 **1971:** Bruce plays his last show as a full member of the Sundance Blues Band.<br>

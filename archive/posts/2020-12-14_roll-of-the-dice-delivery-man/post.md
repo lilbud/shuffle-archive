@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Delivery Man"
+author: "Ken"
+excerpt: "“Darlington County” has a prequel, Wayne’s buddy has a name, and Bobby Jean has yet another sister. Don’t believe me? Take a listen to Bruce’s unreleased lark, “Delivery Man.”"
+tags: betty-jean darlington-county delivery-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/Chicken-Truck.jpg
+post_id: 7842
+---
 In 1984, the world was introduced to Wilson and Wayne, two good ol' boys driving down to Darlington County.
 
 That road trip did not end well: it ends with Wayne handcuffed to the bumper of a state trooper's Ford. But we never learn *why–*what exactly did Wayne do to attract attention from the long arm of the law?

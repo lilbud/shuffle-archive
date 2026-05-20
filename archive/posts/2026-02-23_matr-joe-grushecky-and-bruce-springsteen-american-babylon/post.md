@@ -1,3 +1,13 @@
+---
+layout: post
+title: "American Babylon"
+author: "Ken"
+excerpt: "American Babylon’s title track is one of the only tracks Bruce had nothing to do with on the album, but that hasn’t stopped Bruce and Joe from teaming up to play it on stage."
+tags: american-babylon joe-grushecky
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/american-babylon.jpg
+post_id: 19801
+---
 It's one of only two songs Bruce *didn't* have any involvement with on Joe Grushecky's 1995 seminal album.
 
 The title track to *American Babylon* was all Joe's, and he knew it was great when he wrote it. So did Bruce, who upon hearing the demo that Joe recorded on his own with The Houserockers remarked, "Here's your title track."

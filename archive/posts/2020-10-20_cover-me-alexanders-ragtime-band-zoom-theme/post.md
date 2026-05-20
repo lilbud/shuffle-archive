@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Alexander's Ragtime Band (Zoom Theme)"
+author: "Ken"
+excerpt: "Half a century ago and twice only (thankfully): Bruce adapted Irving Berlin’s 1911 classic as the short-lived theme song for Dr. Zoom and the Sonic Boom."
+tags: alexanders-ragtime-band arthur-collins-and-byron-harlan dr-zoom-and-the-sonic-boom irving-berlin zoom-theme
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/zoom.jpg
+post_id: 22140
+---
 Well, I knew this was coming sooner or later, so I might as well get it over with. I should probably preface this with: *For Completists Only.*
 
 So here's the deal:

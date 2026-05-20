@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: James Lincoln Deere"
+author: "Ken"
+excerpt: "This early post-Nebraska outtake sows the seeds for an entire crop of cautionary tales."
+tags: born-in-the-u-s-a james-lincoln-deere my-hometown richfield-whistle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/jld.jpg
+post_id: 39522
+---
 With so much stylistic variation from album to album, it's easy to miss the throughlines in Bruce Springsteen's songwriting.
 
 Case in point: [*The Ghost of Tom Joad.*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)

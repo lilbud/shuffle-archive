@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 26"
+author: "Ken"
+excerpt: "On this date: the strange circumstances behind the first ever performance of “Dancing in the Dark,” the wrap-up of the Ghost of Tom Joad Tour, and more."
+tags: dancing-in-the-dark darkness-tour elliott-murphy france germany ghost-of-tom-joad-tour john-mellencamp london munich new-york-city paris philadelphia rising-tour springsteen-on-broadway the-bystanders uk washington-dc wholl-stop-the-rain wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/20130526_2_booklet2.jpg
+post_id: 56837
+---
 ***New for 2025:** Review for 1978*<br>
 
 **1957:** Seven-year-old Bruce Springsteen receives his first Communion at St. Rose of Lima Church.<br>

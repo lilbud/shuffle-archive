@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Jambalaya (On the Bayou)"
+author: "Ken"
+excerpt: "At an impromptu soundcheck-turned-preshow, Bruce, Southside, and friends play a loose, fun cover of a Hank Williams classic."
+tags: hank-williams jambalaya-on-the-bayou southside-johnny
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/jambalaya.jpg
+post_id: 12484
+---
 Sometimes the best moments at a Springsteen show happen long before the lights go down.
 
 Case in point: Bruce’s second holiday show in Asbury Park, on December 18, 2000.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Easy Money"
+author: "Ken"
+excerpt: "A bookend of sorts to “Atlantic City,” “Easy Money” inspired an entire album centered around the impact of societal economic inequality."
+tags: easy-money wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/easymoney.jpg
+post_id: 27330
+---
 > You cannot have a social contract with enormous income disparity – you're going to slice the country down the middle. Without jobs, without helping folks with foreclosures, without regulating the banks, without some sort of tax reform… Without addressing those issues in some way, I don't think the country is going to hold together. I understand the effects of globalization, I understand all that, but at the end of the day, you can't have a society and you can't have a civilization without a reasonable amount of economic fairness, full employment, purpose and civic responsibility. — *Bruce Springsteen to Jon Stewart*, *Rolling Stone #1153*<br>
 
 Everything dies, baby.

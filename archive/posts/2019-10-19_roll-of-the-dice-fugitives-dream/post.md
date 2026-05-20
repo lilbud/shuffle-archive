@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Fugitive's Dream"
+author: "Ken"
+excerpt: "Sister song to “Unsatisfied Heart,” “Fugitive’s Dream” is a fully-realized Born in the U.S.A. outtake that would have been right at home on Nebraska."
+tags: fugitives-dream unsatisfied-heart
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/fugitive_1554006559.jpg
+post_id: 13195
+---
 In early 1983, Bruce was hard at work on the album that would become *Born in the U.S.A.*
 
 This was a particularly prolific songwriting period for Bruce; in addition to the twelve songs that made the final cut, another twenty were subsequently released on B-sides, box sets, and compilations.

@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Come On Billy, Break Out the Wine"
+author: "Ken"
+excerpt: "Some songs from the Bruce Springsteen Band era feel less like a snapshot and more like a signpost. This one is both. Written in early…"
+post_id: 68954
+---
 Some songs from the Bruce Springsteen Band era feel less like a snapshot and more like a signpost.
 
 This one is both.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You've Got It"
+author: "Ken"
+excerpt: "It’s an okay trifle, but whatever makes a pop song great, “You’ve Got It” ain’t got it."
+tags: wrecking-ball youve-got-it
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/you-ve-got-it-l.jpg
+post_id: 20114
+---
 Not every song has to be a masterpiece; not every song requires analysis and dissection.
 
 Every once in a while, Bruce writes and releases a trifle purely for his own enjoyment, and that's okay.

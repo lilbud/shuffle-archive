@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Meeting Across the River"
+author: "Ken"
+excerpt: "Whether you take it seriously or comedically, “Meeting Across the River” ranks high in Bruce’s catalog and represents a leap forward in his songwriting. Insights, early versions, and rare performances inside."
+tags: born-to-run meeting-across-the-river randy-brecker richard-davis the-heist
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/bruce-springsteen-meeting-across-the-river-cbs-9.jpg
+post_id: 11449
+---
 Bruce is a pretty funny guy, but it took a while before he let his sense of humor show through in his songs. When he did, it was hard to miss.
 
 You can hear it on display in more recent songs like "[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)" and as far back as "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" on *The River*, but most of his funnier songs have been relegated to *Tracks* and other outtake collections. "[Ain't Good Enough For You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)," "[Talk to Me,](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" and "[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)" all showcase Bruce's flair for cornball.
@@ -18,27 +28,27 @@ The brilliance of "Meeting Across the River" is how Bruce crafts the song with s
 
 "Meeting Across the River" is in the form of a monologue–or more precisely, one-half of a dialogue. Almost certainly Eddie is holding up his end of the conversation, but what he says doesn't really matter. Our narrator is so lost in his own delusions that he isn't really paying attention to Eddie anyway.
 
-> *Hey Eddie, can you lend me a few bucks, tonight can you get us a ride*
-> *Got to make it through the tunnel, got a meeting with a man on the other side*
+> *Hey Eddie, can you lend me a few bucks, tonight can you get us a ride*<br>
+> *Got to make it through the tunnel, got a meeting with a man on the other side*<br>
 
 Right off the bat, we know this guy's a loser: he's broke and car-less and needs to call on a friend to find them a ride for a mysterious meeting.
 
-> *Hey Eddie, this guy he's the real thing*
-> *So if you wanna come along you gotta promise you won't say anything*
-> *‘Cause this guy don't dance*
-> *And the word's been passed, this is our last chance*
+> *Hey Eddie, this guy he's the real thing*<br>
+> *So if you wanna come along you gotta promise you won't say anything*<br>
+> *‘Cause this guy don't dance*<br>
+> *And the word's been passed, this is our last chance*<br>
 
 And now we know (thanks to the 1940s gangster language) that this meeting isn't for anything legal. We also know that this isn't Eddie and friend's first rodeo–they have earned themselves a reputation, and it's not a complimentary one.
 
-> *We gotta stay cool tonight Eddie 'cause man we got ourselves out on that line*
-> *And if we blow this one they ain't gonna be looking for just me this time*
+> *We gotta stay cool tonight Eddie 'cause man we got ourselves out on that line*<br>
+> *And if we blow this one they ain't gonna be looking for just me this time*<br>
 
 Hey, now *that's* a great way to recruit a partner in crime: remind them of how you're already marked and how they're likely to join you.
 
-> *And all we gotta do is hold up our end*
-> *Here stuff this in your pocket, it'll look like you're carrying a friend*
-> *And remember, just don't smile*
-> *Change your shirt, 'cause tonight we got style*
+> *And all we gotta do is hold up our end*<br>
+> *Here stuff this in your pocket, it'll look like you're carrying a friend*<br>
+> *And remember, just don't smile*<br>
+> *Change your shirt, 'cause tonight we got style*<br>
 
 This is probably my favorite part of the song. It cracks me up every time I hear it, because I can't help but momentarily leave the song to wonder, *what's he stuffing in his pocket?* A banana? A hairbrush? A hose spray nozzle? A Wii controller? The possibilities are endless.
 
@@ -46,13 +56,13 @@ I also love the notion that as long as you wear a nice shirt and don't smile, yo
 
 Next, Bruce reveals our hero's true motivation:
 
-> *Well Cherry says she's gonna walk because she found I took her radio and hocked it*
-> *But Eddie man she don't understand that two grands practically sitting here in my pocket*
+> *Well Cherry says she's gonna walk because she found I took her radio and hocked it*<br>
+> *But Eddie man she don't understand that two grands practically sitting here in my pocket*<br>
 
-> *And tonight's gonna be everything that I said*
-> *And when I walk through that door I'm just gonna throw that money on the bed*
-> *She'll see this time I wasn't just talking*
-> *Then I'm gonna go out walking*
+> *And tonight's gonna be everything that I said*<br>
+> *And when I walk through that door I'm just gonna throw that money on the bed*<br>
+> *She'll see this time I wasn't just talking*<br>
+> *Then I'm gonna go out walking*<br>
 
 Ah. Of course.
 
@@ -62,7 +72,7 @@ And that final touch is perfectly self-delusional as well: he's so proud of hims
 
 And then, with one final line, Bruce gently rouses us back to reality, as Eddie's delusions give way by necessity to desperation, and he pleads once more:
 
-> *Hey Eddie, can you catch us a ride…*
+> *Hey Eddie, can you catch us a ride…*<br>
 
 "Meeting Across the River" is *so* different from Bruce's contemporaneous songwriting that we have to wonder: where the heck did it come from?
 

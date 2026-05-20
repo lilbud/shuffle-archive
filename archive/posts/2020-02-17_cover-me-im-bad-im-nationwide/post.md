@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I'm Bad, I'm Nationwide"
+author: "Ken"
+excerpt: "ZZ Top’s “I’m Bad, I’m Nationwide” was a set list favorite for Bruce’s Stone Pony appearances in 1984, but it was a lot rarer on E Street stages. “Official” and club performances inside."
+tags: cats-on-a-smooth-surface im-bad-im-nationwide john-eddie la-bamba zz-top
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/zztop.jpg
+post_id: 15837
+---
 You wouldn't have known it from his official tour set lists, but in the spring and summer of 1984, ZZ Top's "I'm Bad, I'm Nationwide" was in heavy rotation for Bruce Springsteen.
 
 Never officially released as a single, "I'm Bad, I'm Nationwide" is nevertheless considered to be one of ZZ Top's greatest hits and certainly one of the strongest tracks on the band's 1979 *Deguello* album.

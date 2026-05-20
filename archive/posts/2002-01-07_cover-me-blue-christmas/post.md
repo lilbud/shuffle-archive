@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Blue Christmas"
+author: "Ken"
+excerpt: "This perennial holiday classic holds special meaning for E Street Nation: it’s the last song Clarence Clemons ever performed with the E Street Band."
+tags: blue-christmas doye-odell elvis-presley
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/bluexmas.jpg
+post_id: 22586
+---
 "Blue Christmas" has special meaning for E Street Nation.
 
 Beyond its status as a perennial holiday classic, I mean, although that's significant in and of itself.

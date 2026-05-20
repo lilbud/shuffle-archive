@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Like a Stranger"
+author: "Ken"
+excerpt: "“Like a Stranger” appeared at a few Bruce Springsteen Band Shows, representing one of Bruce’s early attempts to grapple with relationships through song."
+tags: bruce-springsteen-band like-a-stranger richmond shes-the-one
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/Gemini_Generated_Image_9ubjz09ubjz09ubj.png
+post_id: 5196
+---
 You know, for a guy who likes to profess that he didn't write songs about relationships until his late thirties, Bruce sure wrote a lot of them back in his early twenties.
 
 Maybe they don't count because they were never released. Still, even a casual listen to songs like "Like a Stranger" reveals that Bruce was grappling with relationships through song even when he was relatively new to them.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mary, Mary"
+author: "Ken"
+excerpt: "“Mary Mary” is a lovely and melancholy Magic outtake that *almost* made it on High Hopes and ultimately escaped the vault on Record Store Day, 2014."
+tags: american-beauty mary-mary
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/mary-1.jpg
+post_id: 1408
+---
 "'Mary Mary" is a lovely mystery, a small piece of heartbreak poetry that sneaks up on you with its slippery grove, punctuated string section and spectral lyrics."
 
 So says the songwriter, in his release notes for his *[American Beauty](../2022-02-05_album-companion-american-beauty/post.md)*EP. Released on Record Store Day in 2014, *American Beauty* featured four songs that didn't make the cut for the *High Hopes* album a few months earlier.

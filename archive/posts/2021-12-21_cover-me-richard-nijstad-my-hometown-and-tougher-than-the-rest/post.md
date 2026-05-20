@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Richard Nijstad: My Hometown and Tougher Than the Rest"
+author: "Ken"
+excerpt: "Lifelong Springsteen fan Richard Nijstad bring us a double-shot of beautiful covers of two of Bruce’s best songs."
+tags: my-hometown richard-nijstad tougher-than-the-rest
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/nijstad.jpg
+post_id: 25008
+---
 Richard Nijstad has only been playing the guitar since 2010, but he’s a lifelong Springsteen fan.
 
 As a young boy in The Netherlands in the 1980s, Richard grew up to Bruce’s music on the radio. He spent the first money he ever earned on Bruce’s albums, imitated Bruce’s performances, and surrounded himself in Bruce’s music his whole life.

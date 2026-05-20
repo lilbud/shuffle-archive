@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 28"
+author: "Ken"
+excerpt: "Santa comes out in ’99, an intense Magic show in Milan, and a unique Ramrod/Living on the Edge of the World mash-up–all and more from this date."
+tags: born-to-run-book bruce-springsteen-band chicago darkness-tour living-on-the-edge-of-the-world madison madison-square-garden magic-tour milan minneapolis new-york-city patterson-hood portland ramrod reunion-tour river-tour santa-claus-is-comin-to-town seeds springsteen-on-broadway streets-of-fire student-prince wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/19801128_3_front.jpg
+post_id: 62477
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

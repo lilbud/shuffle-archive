@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/Cover Me, Donna Summer: Protection"
+author: "Ken"
+excerpt: "Bruce wrote this original disco-influenced rocker for Donna Summer and appears on the officially released track."
+tags: donna-summer protection
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/donna-summer-protection-warner-bros.jpg
+post_id: 18172
+---
 In 1982, David Geffen called in a favor. His record label was still an upstart at the time, and he was looking for material for the first recording artist he'd signed.
 
 Geffen phoned a friend who happened to manage a client who Geffen thought might be just the person to write a song for his artist's new album. Geffen's friend agreed to talk to his client about it, and his client was up for the opportunity.

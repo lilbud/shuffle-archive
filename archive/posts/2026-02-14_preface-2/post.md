@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Meeting Across The River Preface"
+author: "Ken"
+excerpt: "I suppose I could have called this Meeting Across the River Volume One. All of the essays in these pages originally ran under that banner (except…"
+post_id: 67610
+---
 I suppose I could have called this *Meeting Across the River Volume One*.
 
 All of the essays in these pages originally ran under that banner (except for the two brand new ones, written expressly for this book).

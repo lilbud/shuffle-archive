@@ -1,18 +1,28 @@
-It’s quaint now, but at the time of its release, Billy Joel’s “Only the Good Die Young” generated so much controversy for its perceived anti-Catholic lyrics (Billy called the song “pro-lust”) that radio stations across the country banned it from airplay.
+---
+layout: post
+title: "Only the Good Die Young"
+author: "Ken"
+excerpt: "One time only: Bruce joins Billy Joel on stage at the Rock and Roll Hall of Fame 25th Anniversary Concert for Billy’s Top 40 hit, “Only the Good Die Young.”"
+tags: billy-joel only-the-good-die-young rock-and-roll-hall-of-fame
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/admin-ajax-17.jpg
+post_id: 16062
+---
+It's quaint now, but at the time of its release, Billy Joel's "Only the Good Die Young" generated so much controversy for its perceived anti-Catholic lyrics (Billy called the song "pro-lust") that radio stations across the country banned it from airplay.
 
-As a result, the third single from Billy’s landmark 1977 album *The Stranger* rocketed up the charts, peaking at #24 and cementing itself as a forever-after fan favorite.
+As a result, the third single from Billy's landmark 1977 album *The Stranger* rocketed up the charts, peaking at #24 and cementing itself as a forever-after fan favorite.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Crif5E67ar0)
 
-But despite all of the appearances Bruce and Billy have made together over the years, they’ve played “Only the Good Die Young” only once–during Billy’s set at the Rock and Roll Hall of Fame’s 25th Anniversary concerts in the autumn of 2009, backed by the E Street Band.
+But despite all of the appearances Bruce and Billy have made together over the years, they've played "Only the Good Die Young" only once–during Billy's set at the Rock and Roll Hall of Fame's 25th Anniversary concerts in the autumn of 2009, backed by the E Street Band.
 
-Unfortunately, while the show was professionally filmed and officially released, “Only the Good Die Young” was one of the songs that didn’t make the official cut. Luckily for us, however, fans captured Billy and Bruce’s performance on video and audio, so we can still enjoy it a decade down the road.
+Unfortunately, while the show was professionally filmed and officially released, "Only the Good Die Young" was one of the songs that didn't make the official cut. Luckily for us, however, fans captured Billy and Bruce's performance on video and audio, so we can still enjoy it a decade down the road.
 
-The legendary rockers’ performance is a bit rocky–Bruce accidentally transposes the melody (but manages to pull it off), and the ending is a bit of a train wreck (Bruce and Billy don’t seem to agree on who’s leading the band)–but it’s a ton of fun nonetheless.
+The legendary rockers' performance is a bit rocky–Bruce accidentally transposes the melody (but manages to pull it off), and the ending is a bit of a train wreck (Bruce and Billy don't seem to agree on who's leading the band)–but it's a ton of fun nonetheless.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iX_y3_bt-8U)
 
-**Bonus:** The clip above missed the introduction and opening line (and second ending), so here’s an intact audio version for your listening pleasure.<br>
+**Bonus:** The clip above missed the introduction and opening line (and second ending), so here's an intact audio version for your listening pleasure.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QWUOhrvS)
 

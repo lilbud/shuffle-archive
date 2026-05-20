@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Man Who Got Away"
+author: "Ken"
+excerpt: "“The Man Who Got Away” is a terrific piece of sleight-of-hand songwriting that should never have been allowed to get away."
+tags: the-man-who-got-away the-ties-that-bind-the-river-collection
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1494700._UY630_SR1200630_.jpg
+post_id: 16719
+---
 How good is the River sessions outtake, "The Man Who Got Away?"
 
 So good that at one point Bruce had it slated for the album, back when it was slated to be only a single disc and before the eventual title track had even been written.

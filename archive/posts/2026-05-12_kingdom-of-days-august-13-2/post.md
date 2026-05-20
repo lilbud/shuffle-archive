@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 13"
+author: "Ken"
+excerpt: "Bruce’s legendary 1975 stand at The Bottom Line begins on this date; 30 years later, Bruce wraps his summer solo acoustic tour. Check out both shows plus more highlights inside."
+tags: because-the-night born-to-run-tour bottom-line canada cats-on-a-smooth-surface chicago delaware devils-and-dust-tour fenway-park maxs-kansas-city new-york-city newark-de rising-tour vancouver worcester world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/admin-ajax-74.jpg
+post_id: 58376
+---
 **1972:** Bruce plays his fifth of six two-shows-a-night solo gigs at Max's Kansas City this week.<br>
 
 **1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions. Bruce does play a show that evening at the Stone Balloon in Newark, though–his one and only show ever in the state of Delaware.<br>

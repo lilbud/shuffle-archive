@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Linda Let Me Be the One"
+author: "Ken"
+excerpt: "The only Born to Run outtake to earn an official release, “Linda Let Me Be The One” is a beautifully melodramatic hat tip to Phil Spector."
+tags: born-to-run linda-let-me-be-the-one tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/linda.jpg
+post_id: 26080
+---
 *Born to Run* was released on August 25, 1975.
 
 As of July 2nd, "Linda Let Me Be The One" was still on it.
@@ -12,16 +22,16 @@ And that's too bad, because "Linda" would have fit perfectly on *Born to Run*. E
 
 But it's more than the beat: "Linda Let Me Be The One" is a perfectly constructed Spectorian girl group song from its lush, romantic backing track to its lyrical melodrama. (I've always considered "Linda" to be an answer song of sorts to "Leader of the Pack.") Even the title and chorus are hat tips to Spector–there's not a lot of difference between "will you let me be the one" and "won't you please be my baby."
 
-> *The midnight boys are outside scraping tears up off the street*
-> *Standing guard beneath the window where only Linda sleeps*
-> *The leader is a kid named Eddie walking like an angel in defeat*
-> *He trashes her old man's car, slashes Linda's name in the seat*
-> *Calling out:*
+> *The midnight boys are outside scraping tears up off the street*<br>
+> *Standing guard beneath the window where only Linda sleeps*<br>
+> *The leader is a kid named Eddie walking like an angel in defeat*<br>
+> *He trashes her old man's car, slashes Linda's name in the seat*<br>
+> *Calling out:*<br>
 
-> *Linda, will you let me be the one*
-> *Linda, will you let me be the one*
-> *Linda, will you let me be the one*
-> *Linda, will you let me be the one*
+> *Linda, will you let me be the one*<br>
+> *Linda, will you let me be the one*<br>
+> *Linda, will you let me be the one*<br>
+> *Linda, will you let me be the one*<br>
 
 Eddie certainly isn't the first of Bruce's bad boy protagonists, and he wouldn't be the last. But geez, someone needs to give poor Eddie some dating tips. I'm no one's Casanova, but I know that vandalizing a girl's father's car probably isn't the best way to win her affection.
 
@@ -29,10 +39,10 @@ There's almost certainly some unstated backstory here: we can assume that like R
 
 That's a lot of information conveyed in just five lines. It's a brilliant set-up, but if we're honest, the rest of the song never quite lives up to either the standard or the premise of that beautiful first verse.
 
-> *In a room full of contenders… Eddie spars*
-> *‘Til he drops to his bed and surrenders draped in the scarves*
-> *He stole from Linda's bedroom the night he laid at her feet*
-> *When the midnight boys were stranded down on Cason Street*
+> *In a room full of contenders… Eddie spars*<br>
+> *‘Til he drops to his bed and surrenders draped in the scarves*<br>
+> *He stole from Linda's bedroom the night he laid at her feet*<br>
+> *When the midnight boys were stranded down on Cason Street*<br>
 
 There's something distractingly curious about that first line: the "…Eddie spars" is so disconnected from the rest of the lyric that we can intuitively sense that something else was meant to go in the empty space.
 
@@ -48,10 +58,10 @@ If the second verse lyrically stumbles, the bridge makes up for it with what cou
 
 Bruce's final verse offers no resolution and only hints at absolution (along with a "[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)" foreshadow in the third line):
 
-> *In the basement of St. Mary's, Eddie hides from the rain*
-> *In with the stolen sisters 'til the streets are dry again*
-> *Talking fast cars and spare parts, empty homes and broken hearts*
-> *Distant worlds with strange girls and kneeling with Linda in the dark*
+> *In the basement of St. Mary's, Eddie hides from the rain*<br>
+> *In with the stolen sisters 'til the streets are dry again*<br>
+> *Talking fast cars and spare parts, empty homes and broken hearts*<br>
+> *Distant worlds with strange girls and kneeling with Linda in the dark*<br>
 
 Now that was unexpected. We think we're about to get either a romantic reunion or a tragic break-up, but the die was cast before the song even started. "Linda Let Me Be The One" is a post-breakup song, so poor Eddie looks to the church to provide solace for his heartbreak.
 

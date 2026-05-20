@@ -63,7 +63,6 @@ linklist = []
 with load_db() as conn, conn.cursor() as cur:
     for post in posts_dir.glob("**/*.md"):
         print(post.parent.name)
-        content = post.read_text(encoding="utf-8")
         data = json.loads(Path(post.parent, "meta.json").read_text(encoding="utf-8"))
 
         last_modified = datetime.datetime.strptime(
@@ -72,7 +71,7 @@ with load_db() as conn, conn.cursor() as cur:
         )
 
         res = cur.execute(
-            """select * from all_posts where post_id = %(id)s and published = %(last_modified)s""",
+            """select * from all_posts where post_id = %(id)s and last_modified = %(last_modified)s""",
             {"id": data["id"], "last_modified": last_modified},
         ).fetchone()
 
@@ -87,7 +86,7 @@ with load_db() as conn, conn.cursor() as cur:
                 f.write("layout: default-post\n")
 
             f.write(f'title: "{res["title"]}"\n')
-            f.write(f'author: "{res["author"]}"\n')
+            f.write(f'author: "{res["author_name"]}"\n')
             f.write(f'excerpt: "{res["excerpt"].strip()}"\n')
 
             if res["tag_list"]:
@@ -102,4 +101,4 @@ with load_db() as conn, conn.cursor() as cur:
             f.write(f"post_id: {res['post_id']}\n")
 
             f.write("---\n")
-            f.write(content)
+            f.write(res["content"])

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, April 27, 2012"
+author: "Ken"
+excerpt: "A surprise pre-show sets the tone for a memorable night at the L.A. Sports Arena."
+tags: bobby-jean for-you kevin-buell los-angeles no-surrender tom-morello waiting-on-a-sunny-day wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/20120427_4_booklet2.jpg
+post_id: 1748
+---
 Every Springsteen show has at least one special moment. You never know what it will be–maybe a never-before-played song, maybe a special guest or a special request, maybe a performance that goes off-the-rails and way past curfew. You also never know exactly *when* it will be.
 
 At Night 2 of the 2012 stand at the LA Sports Arena, that moment came 90 minutes before the show even started: after the few hundred of us in the pit had been let in, we settled in for what is usually a long, boring wait for the show to start. But within minutes, a pre-wardrobe and makeup Bruce Springsteen strolled out onto the stage to give his relatives a guided tour. And then this happened… (and remember there were only hundreds of us in the arena at that time).

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Clampdown"
+author: "Ken"
+excerpt: "Late on the High Hopes Tour, Bruce added a Clash cover to his set lists–one that temporary E Streeter Tom Morello was more than a little familiar with."
+tags: clampdown the-clash tom-morello
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/clampdown.jpg
+post_id: 29313
+---
 > *Let fury have the hour. Anger can be power. Do you know that you can use it?*<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/strummer.jpg.webp)

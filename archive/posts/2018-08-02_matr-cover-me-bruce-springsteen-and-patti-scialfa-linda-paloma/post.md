@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR/Cover Me: Bruce Springsteen and Patti Scialfa, Linda Paloma"
+author: "Ken"
+excerpt: "Bruce and Patti deliver a gorgeous cover of Jackson Browne’s “Linda Paloma,” more delicate and soaring than the original."
+tags: jackson-browne linda-paloma looking-into-you patti-scialfa
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/lindapaloma.jpg
+post_id: 3661
+---
 If you had told me in 2014 that Bruce was contributing to a Jackson Browne tribute album and asked me to guess the track, I'd have gone pretty much through Jackson's entire catalog before throwing up my hands in exasperation and guessing, "I don't know, what's left–Linda Paloma?"
 
 Sure enough: Bruce and Patti (the track is a rare credit to both of them) turned in absolutely gorgeous cover of a standout (not necessarily in the good way) track from Jackson's 1976 album, *The Pretender.*

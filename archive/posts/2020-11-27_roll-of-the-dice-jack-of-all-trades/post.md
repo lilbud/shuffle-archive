@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Roll of the Dice: Jack of All Trades"
+author: "Ken"
+excerpt: "Perhaps the most carefully constructed song on Bruce’s Wrecking Ball album, “Jack of All Trades” is both musically and (sadly) lyrically timeless."
+tags: jack-of-all-trades wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/jack.jpg
+post_id: 22585
+---
 Bruce Springsteen wrote "Jack of All Trades" shortly after the U.S. housing bubble of the early 2000s violently burst, but both lyrically and musically it sounds like it could have been written years, decades, or even centuries earlier.
 
 [Watch on Youtube: Jack Of All Trades](https://www.youtube.com/watch?v=_5Xao2_K-h4)
 
 That's intentional. At a 2012 press conference in Paris, Bruce acknowledged his design:
 
-> *There are '30s horns in "Jack of All Trades." That's the way I used the music: the idea was that the music was going to contextualize historically that this has happened before. It happened in the 1970s, it happened in the '30s, it happened in the 1800s. It's cyclical. Over and over and over and over again. So I try to pick up some of the continuity and the historical resonance through the music.*
+> *There are '30s horns in "Jack of All Trades." That's the way I used the music: the idea was that the music was going to contextualize historically that this has happened before. It happened in the 1970s, it happened in the '30s, it happened in the 1800s. It's cyclical. Over and over and over and over again. So I try to pick up some of the continuity and the historical resonance through the music.*<br>
 
 "Jack of All Trades" is one of the most carefully constructed songs on *[Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md)*, arranged for a full string section and tuba(!) section. (When's the last time you heard a tuba, sousaphone, and *two* euphoniums on a rock record?)
 
@@ -16,24 +26,24 @@ Anger isn't the dominant emotion of "Jack of All Trades," however. At its core, 
 
 When we're first introduced to our point-of-view character, it seems like we're listening to a song of love and assurance.
 
-> *I'll mow your lawn, clean the leaves out your drain*
-> *I'll mend your roof to keep out the rain*
-> *I'll take the work that God provides*
-> *I'm a jack of all trades, honey, we'll be alright*
+> *I'll mow your lawn, clean the leaves out your drain*<br>
+> *I'll mend your roof to keep out the rain*<br>
+> *I'll take the work that God provides*<br>
+> *I'm a jack of all trades, honey, we'll be alright*<br>
 
-> *I'll hammer the nails and I'll set the stone*
-> *I'll harvest your crops when they're ripe and grown*
-> *I'll pull that engine apart and patch her up 'til she's running right*
-> *I'm a jack of all trades, we'll be alright*
+> *I'll hammer the nails and I'll set the stone*<br>
+> *I'll harvest your crops when they're ripe and grown*<br>
+> *I'll pull that engine apart and patch her up 'til she's running right*<br>
+> *I'm a jack of all trades, we'll be alright*<br>
 
 Our protagonist may not have many (or any) specialized skills, but he can do the basic tasks that people need done. He's confident enough in his own versatility to reassure his love that he'll be able to take care of them come what may.
 
 But what may come eventually comes.
 
-> *The hurricane blows, brings a hard rain*
-> *When the blue sky breaks, it feels like the world's gonna change*
-> *We'll start caring for each other like Jesus said that we might*
-> *I'm a jack of all trades, we'll be alright*
+> *The hurricane blows, brings a hard rain*<br>
+> *When the blue sky breaks, it feels like the world's gonna change*<br>
+> *We'll start caring for each other like Jesus said that we might*<br>
+> *I'm a jack of all trades, we'll be alright*<br>
 
 Maybe the hurricane is literal. Knowing the context in which Bruce wrote "Jack of All Trades," more likely it represents the havoc and damage that the housing crisis wreaked on society. Either way, though, our hero has faith. He's been here before, but this time it feels different.
 
@@ -41,17 +51,17 @@ Maybe the hurricane is literal. Knowing the context in which Bruce wrote "Jack o
 
 He's wrong, of course, and with that realization comes a creeping bitterness that now infects the song.
 
-> *The banker man grows fat, the working man grows thin*
-> *It's all happened before and it'll happen again*
-> *It'll happen again, yeah, they'll bet your life*
-> *I'm a jack of all trades, darling, we'll be alright*
+> *The banker man grows fat, the working man grows thin*<br>
+> *It's all happened before and it'll happen again*<br>
+> *It'll happen again, yeah, they'll bet your life*<br>
+> *I'm a jack of all trades, darling, we'll be alright*<br>
 
 Like many of Bruce's best songs, "Jack of All Trades" can be reduced to a single passage. The verse above captures the entire song in four lines. At a casual listen, we might hear that third line as "you bet your life," but Bruce subverts our expectations by inverting the idiom. There's a cyclical certainty at work thanks to the gamesmanship of the bankers who ante with human lives.
 
-> *Now sometimes tomorrow comes soaked in treasure and blood*
-> *Here we stood the drought, now we'll stand the flood*
-> *There's a new world coming, I can see the light*
-> *I'm a jack of all trades, we'll be alright*
+> *Now sometimes tomorrow comes soaked in treasure and blood*<br>
+> *Here we stood the drought, now we'll stand the flood*<br>
+> *There's a new world coming, I can see the light*<br>
+> *I'm a jack of all trades, we'll be alright*<br>
 
 The phrase "treasure and blood" is loaded with historical resonance. More typically reversed as "blood and treasure" (which is much harder to rhyme), it refers to the tendency of those in power to gamble, spend, and squander lives and money. It dates back in political invective to at least the mid-seventeenth century and surfaces in the writings of John Adams on the eve of the American declaration of independence and of Abraham Lincoln during the Civil War.
 
@@ -61,10 +71,10 @@ The use of "treasure and blood" is Bruce's tip to us that our protagonist is gro
 
 They'll scrimp, they'll save, they'll recycle and reuse. They'll make ends meet. But that doesn't mean our hero doesn't resent the hell out of the hand he's been dealt. This becomes shockingly clear in the song's final couplet.
 
-> *So you use what you've got and you learn to make do*
-> *You take the old, you make it new*
-> *If I had me a gun, I'd find the bastards and shoot 'em on sight*
-> *I'm a jack of all trades, we'll be alright*
+> *So you use what you've got and you learn to make do*<br>
+> *You take the old, you make it new*<br>
+> *If I had me a gun, I'd find the bastards and shoot 'em on sight*<br>
+> *I'm a jack of all trades, we'll be alright*<br>
 
 Even though we've felt the explosion building, it still comes as a shock when we hear it. So skillful a songwriter is Bruce, however, that it serves to make his character *more* sympathetic rather than less. We don't focus on the anger and thirst for violence; what we feel in this moment is deep empathy and appreciation for how much effort and energy it requires to maintain one's faith and resilience in a system that seems stacked against us.
 

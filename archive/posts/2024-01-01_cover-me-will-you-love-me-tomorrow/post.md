@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Will You Love Me Tomorrow?"
+author: "Ken"
+excerpt: "Dr. Zoom and the Sonic Boom covers Carole King’s “Will You Love Me Tomorrow”"
+tags: carole-king dr-zoom-and-the-sonic-boom shirelles will-you-love-me-tomorrow
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/Carole_King_-_Tapestry.jpg
+post_id: 310
+---
 We’re taking the way-way-WAY-back machine today:
 
 “Will You Love Me Tomorrow,” written and recorded by Carole King, covered here by…

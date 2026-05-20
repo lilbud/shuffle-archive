@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 15"
+author: "Ken"
+excerpt: "On this date: Bruce and Sam Moore share the stage for the first time, and the Human Rights Now! Tour wraps up with a worldwide broadcast. More highlights inside."
+tags: argentina born-in-the-usa-tour boston branford-marsalis bruce-springsteen-band buenos-aires canada child david-sancious detroit-medley devils-and-dust-tour ghost-of-tom-joad-tour growin-up human-rights-now-tour idiots-delight madison magic magic-tour phoenix reunion-tour salt-lake-city sam-moore soul-man student-prince toronto valentines-day vancouver wild-innocent-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/buenos.jpg
+post_id: 61114
+---
 ***New for 2025:** Video for 2005; new entry for 2024*<br>
 
 **1969:** Child performs for Monmouth College's National Vietnam Moratorium Protest Day.<br>

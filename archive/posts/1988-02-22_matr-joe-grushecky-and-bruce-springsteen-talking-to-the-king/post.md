@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Talking to the King"
+author: "Ken"
+excerpt: "“Talking to the King” is a sweet, count-your-blessings rocker and a ton of fun in concert. No wonder Joe and Bruce have played it together 28 times. Check out some of the best inside."
+tags: joe-grushecky-and-the-houserockers talking-to-the-king
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/talkingking.jpg
+post_id: 18166
+---
 38 years, 53 shows.
 
 That's how many years and how many times Bruce Springsteen and Joe Grushecky have performed together. as of this writing at least.
@@ -16,14 +26,14 @@ Of course, they jam.
 
 But the silly set-up is just that: a set-up for a surprisingly sweet second half. Elvis warns Joe to be careful what he wishes for–success doesn't necessarily bring happiness, and it almost certainly brings its own problems.
 
-> *You better be careful or you'll lose everything*
-> *It ain't no fun being a king*
-> *You make me mad when you start to complain*
-> *You should be glad nobody who knows your name*
-> *You got two lovely kids and a wife at home*
-> *And I died alone on my throne*
-> *Sometimes I think I sold my soul*
-> *To become the king of rock and roll*
+> *You better be careful or you'll lose everything*<br>
+> *It ain't no fun being a king*<br>
+> *You make me mad when you start to complain*<br>
+> *You should be glad nobody who knows your name*<br>
+> *You got two lovely kids and a wife at home*<br>
+> *And I died alone on my throne*<br>
+> *Sometimes I think I sold my soul*<br>
+> *To become the king of rock and roll*<br>
 
 At its big heart, "Talking to the King" is a song of acceptance and appreciation of a good life, with only a good-natured nod to what might have been.
 

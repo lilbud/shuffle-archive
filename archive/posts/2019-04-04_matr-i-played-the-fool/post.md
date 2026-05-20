@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Southside Johnny and Bruce Springsteen, I Played the Fool"
+author: "Ken"
+excerpt: "From the Stone Pony’s 20th anniversary concert: Bruce joins old friend Southside Johnny for a mini-set that kicks off with “I Played the Fool.”"
+tags: i-played-the-fool southside-johny steve-van-zandt
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/playedfool.jpg
+post_id: 7702
+---
 The Stone Pony first opened its doors in early 1974, and The Blackberry Booze Band was its first house band.
 
 Led by Southside Johnny and Steve Van Zandt, the B.B.B. built a following and refined their sound, eventually becoming the band we now know as Southside Johnny and the Asbury Jukes.

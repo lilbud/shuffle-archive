@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Kingdom of Days: July 5"
+author: "Ken"
+excerpt: "Bruce makes his first television appearance, makes his first political endorsement (earlier than you might think), and plays “Drive All Night” for the first time in 27 years–all on this date in history."
+tags: austria born-in-the-usa-tour bruce-springsteen-band bryn-mawr castiles cincinnati darkness-tour drive-all-night east-rutherford france george-mcgovern gothenburg hollywood incident-on-57th-street inglewood italy jay-weinberg magic-tour main-point meet-me-in-the-city milan monchengladbach paris river-tour river-tour-2016 sweden vienna working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/bs120705_01.jpg
+post_id: 57606
+---
 ***New for 2025:** Audio for 2008; video for 2012; new entry for 2024*<br>
 
 **1968:** The Castiles play a set at the West End Casino in Long Branch, New Jersey.<br>
 
-**1972:** The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant’s Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce’s first overtly political action as a musician, and even then his favored candidates were decidedly liberal.<br>
+**1972:** The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant's Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce's first overtly political action as a musician, and even then his favored candidates were decidedly liberal.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1972-07-05a.jpg.webp)
 
@@ -28,7 +38,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-07-05b.jpg.webp)
 
-**1981:** Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” for the first time in the U.S. (Photo credit: Dari)<br>
+**1981:** Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" for the first time in the U.S. (Photo credit: Dari)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1981-0705.jpg.webp)
 
@@ -42,7 +52,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1984-07-05b.jpg.webp)
 
-**2008:** Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band “[Drive All Night"](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)  in 27 years as the centerpiece (check out the sound check below), and a rare “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)” and “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)” in the set as well.<br>
+**2008:** Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band "[Drive All Night"](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)  in 27 years as the centerpiece (check out the sound check below), and a rare "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" in the set as well.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Mty4EdEG)
 
@@ -54,7 +64,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Bruce Springsteen Night Gothenburg 05/07/2008](https://www.youtube.com/watch?v=15TaIa02qc0)
 
-**2009:** Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” outside of the U.S. for the first time, along with the tour premieres of “Into the Fire” and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
+**2009:** Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" outside of the U.S. for the first time, along with the tour premieres of "Into the Fire" and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Proud Mary Vienna 05.07.2009](https://www.youtube.com/watch?v=KGGHLdDWLxM)
 
@@ -62,7 +72,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Bruce Springsteen - Bobby Jean Vienna 05 07 2009](https://www.youtube.com/watch?v=uZmO4suisxY)
 
-**2012:** Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-school setlist, featuring the tour premiere of “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)” and performances of “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md),” “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md),” “Thunder Road” and more. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html).<br>
+**2012:** Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-school setlist, featuring the tour premiere of "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" and performances of "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)," "Thunder Road" and more. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html).<br>
 
 [Watch on Youtube: "Something In The Night" - Bruce Springsteen and the E Street Band 7/5/2012](https://www.youtube.com/watch?v=TK2tZ71K9e0)
 
@@ -70,7 +80,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Bruce Springsteen - Downbound Train & Candy's room - Live in Paris 05.07.12](https://www.youtube.com/watch?v=sRYp2YfbKvA)
 
-**2013:** Monchengladbach gets one of the most surprising setlists of the Wrecking Ball Tour when Bruce opens with “[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)” and plays the tour premieres of three very rare songs: “[One Way Street](../2019-01-14_roll-of-the-dice-one-way-street/post.md),” “[Man’s Job](../2022-05-30_roll-of-the-dice-mans-job/post.md),” and “[Shake, Rattle and Roll](../2020-04-18_cover-me-shake-rattle-and-roll/post.md).” In the encores, Jay Weinberg makes a guest appearance on “[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md).”<br>
+**2013:** Monchengladbach gets one of the most surprising setlists of the Wrecking Ball Tour when Bruce opens with "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" and plays the tour premieres of three very rare songs: "[One Way Street](../2019-01-14_roll-of-the-dice-one-way-street/post.md)," "[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)," and "[Shake, Rattle and Roll](../2020-04-18_cover-me-shake-rattle-and-roll/post.md)." In the encores, Jay Weinberg makes a guest appearance on "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - One Way Street 2013-07-05 - Mönchengladbach, Germany](https://www.youtube.com/watch?v=uTrcxhY48cM)
 
@@ -78,14 +88,14 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Bruce Springsteen Monchengladbach 05/07/2013 Full Concert](https://www.youtube.com/watch?v=ejOyEOjCO7c)
 
-**2016:** Night Two in Milan on the 2016 River Tour features the tour premiere of “[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md).” This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14122/Bruce-Springsteen-mp3-flac-download-7-5-2016-Stadio-San-Siro-Milan-IT.html).<br>
+**2016:** Night Two in Milan on the 2016 River Tour features the tour premiere of "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)." This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14122/Bruce-Springsteen-mp3-flac-download-7-5-2016-Stadio-San-Siro-Milan-IT.html).<br>
 
 [Watch on Youtube: Streets of Fire (Tour debut), Bruce Springsteen, live in Milan 05.07.2016](https://www.youtube.com/watch?v=K7wtrbrGPo4)
 
 [Watch on Youtube: Bruce Springsteen - Meet Me in the City Live Milan 05/07/2016 HD](https://www.youtube.com/watch?v=fnh9R7y0Wc0)
 
-**2024:** Lucky fans in Hanover witness the live premiere of “[Janey Needs a Shooter](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md)” more than a half-century after Bruce first wrote it. Also tour premiering tonight: “Into the Fire.”<br>
+**2024:** Lucky fans in Hanover witness the live premiere of "[Janey Needs a Shooter](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md)" more than a half-century after Bruce first wrote it. Also tour premiering tonight: "Into the Fire."<br>
 
-[Watch on Youtube: BRUCE SPRINGSTEEN- „Janey Needs A Shooter](https://www.youtube.com/watch?v=qAIwltiKfnI)
+[Watch on Youtube: BRUCE SPRINGSTEEN- „Janey Needs A Shooter" (FIRST Live Perf.)- July 5th, 2024, Hannover, Germany](https://www.youtube.com/watch?v=qAIwltiKfnI)
 
-[Watch on Youtube: BRUCE SPRINGSTEEN- „Into The Fire](https://www.youtube.com/watch?v=DsWzMFPyHs8)
+[Watch on Youtube: BRUCE SPRINGSTEEN- „Into The Fire"- July 5th, 2024, Hannover, Germany](https://www.youtube.com/watch?v=DsWzMFPyHs8)

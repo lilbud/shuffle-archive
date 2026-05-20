@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 19"
+author: "Ken"
+excerpt: "On this date: early E Street Band footage from ’77, a one-off acoustic show in Somerville, and two surprise covers in Sydney. Lots of great video to watch today!"
+tags: australia born-to-run bruce-springsteen-band dont-change doubletake-magazine dream-baby-dream friday-on-my-mind high-hopes-tour lawsuit-tour nils-lofgren penn-state-university richmond somerville st-paul sydney the-wall upstage
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/40434283414_054402f119_o.jpg
+post_id: 55962
+---
 **1971:** Bruce jams with local musicians at an open mic night at the Upstage.<br>
 
 **1972:** The Bruce Springsteen Band plays their fifth of a nine-show, month-long semi-residency at The Back Door in Richmond.<br>

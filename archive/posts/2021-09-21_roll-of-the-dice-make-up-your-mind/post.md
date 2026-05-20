@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Make Up Your Mind"
+author: "Ken"
+excerpt: "Let’s say goodbye to summer with an end-of-summer breakup song from The Bruce Springsteen Band."
+tags: make-up-your-mind the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/makeup.jpg
+post_id: 29684
+---
 Autumn starts tomorrow, but today it's still summer. And if it's still summer, it's a good day for The Bruce Springsteen Band.
 
 Even though this recording is from a February 1972 gig, something about the Bruce Springsteen Band sound has always screamed *summer* to me, and this little gem is a great example.

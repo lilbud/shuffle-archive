@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Long Black Veil"
+author: "Ken"
+excerpt: "Lefty Frizzell’s 1959 tale of a falsely accused man who accepts his sentence rather than confess his secret was a natural temptation for a Bruce Springsteen cover treatment. Watch one of its frequent outings on Bruce’s 2006 Seeger Sessions Tour inside."
+tags: johnny-cash joni-mitchell lefty-frizzell long-black-veil
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/lbv.jpg
+post_id: 15956
+---
 Bruce Springsteen's 2006 Seeger Sessions Tour is remembered primarily for its mix of vintage American folk songs and inspired re-arrangements of Bruce's original songs.
 
 But every now and then, Bruce sprinkled a third category into the mix: a cover of a more recent popular country or rock song that fit the tour's theme or the band's sound.

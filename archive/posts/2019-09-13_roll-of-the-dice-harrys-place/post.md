@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Harry's Place"
+author: "Ken"
+excerpt: "How do you break down a song when the songwriter is an unreliable source? You just dive right in and listen. Let’s cut through the mystery of “Harry’s Place” and explore the heart of the song."
+tags: harrys-place high-hopes the-rising tom-morello
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/harrysplace_lyrics.jpg
+post_id: 12908
+---
 > "That was my take on the Bush years. That would have perhaps originated from *Magic*, because that was the record where I was writing about the last days of the Bush years. I had that piece, and it was another one of those things where it was that or something else." *–Bruce Springsteen, Rolling Stone, January 9, 2014*
 
 It was something else.

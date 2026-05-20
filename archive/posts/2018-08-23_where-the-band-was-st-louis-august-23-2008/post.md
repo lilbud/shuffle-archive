@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: St. Louis, August 23, 2008"
+author: "Ken"
+excerpt: "Yes, it was *that* good. On a night when no one expected it, Bruce played his best 21st century show with a scorching performance and a die-hard’s dream setlist."
+tags: adam-raised-a-cain backstreets dancing-in-the-dark drive-all-night for-you little-queenie magic-tour mountain-of-love rendezvous sophie-satanovsky spirit-in-the-night st-louis then-she-kissed-me thunder-road when-you-walk-in-the-room
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/stlouis08.png
+post_id: 3907
+---
 Let's address the controversy right off the bat:
 
 It's almost impossible to anoint a "best show ever." Besides the inherent subjectivity of the reviewer, unless you were actually at "every show ever," you can't expect to speak with authority when you declare the king of the heap.
@@ -12,7 +22,7 @@ I'll admit to something else as well: I was in a foul mood before showtime. My d
 
 The travel itself was smooth, but on the day of the show, luck threw me a curveball: I lost the GA lottery and missed the pit–by a LOT. I'd been playing the pit lottery for a few years, and I'd had an incredible streak of luck–I hadn't lost even once. But there were more people on-hand for this lottery than I'd ever seen–clearly word was getting out more effectively–and I was faced with being pretty far back on the floor. So I did something I'd never done before: I bought a seated ticket from a scalper and caught the show from a pretty decent lower level seat. (From that point forward, I'd always protect myself with a seat as "insurance" insurance when trying for the pit–I've always been able to resell it if I needed to.)
 
-So yeah, I wasn't in a great mood before the show: I'd spent more money than I'd planned to, and I'd been spoiled for so long that I hadn't even considered the possibility that I'd be shut out on the floor. But then, while I was stewing about my rotten luck, I noticed we could hear the sound check... and I couldn't believe what I was hearing:
+So yeah, I wasn't in a great mood before the show: I'd spent more money than I'd planned to, and I'd been spoiled for so long that I hadn't even considered the possibility that I'd be shut out on the floor. But then, while I was stewing about my rotten luck, I noticed we could hear the sound check… and I couldn't believe what I was hearing:
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - When You Walk In The Room | Rehearsal- St. Louis 2008| audio](https://www.youtube.com/watch?v=6L4kMZsy6-E)
 
@@ -50,7 +60,7 @@ Here's what happened next: Bruce kept the next sign close to his vest while he e
 
 Mountain of freaking Love.
 
-My very first bootleg–the one that got me started on this whole obsessions–was the Main Point show from February 5, 1975, and one of my favorite performances from that show was a song I'd never heard before called "Mountain of Love." I knew it by heart, but I doubted many others did–and Bruce clearly shared my skepticism, muttering "I think we're going to challenge most of the audience, too..."
+My very first bootleg–the one that got me started on this whole obsessions–was the Main Point show from February 5, 1975, and one of my favorite performances from that show was a song I'd never heard before called "Mountain of Love." I knew it by heart, but I doubted many others did–and Bruce clearly shared my skepticism, muttering "I think we're going to challenge most of the audience, too…"
 
 Bruce spent so much time figuring out the song with the band that I started to worry he was going to abandon it–but after a long minute or two, they'd worked it out and launched into a perfect performance, as if they'd never stopped playing it after the Born to Run Tour.
 

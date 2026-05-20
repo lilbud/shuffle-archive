@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Everybody Wants My Baby"
+author: "Ken"
+excerpt: "“Everybody Wants My Baby” was on its way to being an edgy uptempo rocker before it went missing in action. Listen to a pretty well-formed demo inside."
+tags: everybody-wants-my-baby i-wanna-be-with-you the-river with-every-wish
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/mybaby.jpg
+post_id: 5741
+---
 After the Darkness Tour ended, Bruce spent much of 1979 and the early days of 1980 writing and recording home demos for his next album. Some ended up on *The River*, others would be released years later on *Tracks* and *The Ties That Bind: The River Collection*, and some were just scraps, ideas that never developed into a full-blown composition.
 
 And then there are the genuine lost gems, songs that were far enough along that even when listening to a bootleg demo escapee, we can get a solid sense of what Bruce was reaching for musically and lyrically.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me/RotD: Clarence Clemons and The Red Bank Rockers: Summer on Signal Hill"
+author: "Ken"
+excerpt: "A lost original Springsteen song survives as a Red Bank Rockers instrumental–but whatever happened to the lyrics?"
+tags: clarence-clemons-and-the-red-bank-rockers now-and-forever summer-on-signal-hill
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/signalhill.jpg
+post_id: 25699
+---
 > "It's the biggest joke in the world that it's billed as the Red Bank Rockers–since any educated ear could pick out the sound of the E Street Band." — *Backstreets #9*, *Spring 1984*
 
 We can forgive *Backstreets* for the error, because they certainly weren't the only ones to swear that this 1983 instrumental track by Clarence Clemons and The Red Bank Rockers was really a Big Man-fronted E Street Band in disguise.

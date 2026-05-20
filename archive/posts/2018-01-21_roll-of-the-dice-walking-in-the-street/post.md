@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Walking in the Street"
+author: "Ken"
+excerpt: "“Walking in the Street” — a never-released, never-performed alternative path for Springsteen’s “Thunder Road.”"
+tags: thunder-road walking-in-the-street wings-for-wheels
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/walking.jpg
+post_id: 338
+---
 The dice direct our attention to another unreleased classic: "Walking in the Street," first recorded in the summer of 1974, reworked during the Born to Run sessions in May 1975… and then subsequently lost forever. (Bruce searched for the master tape when compiling the 1998 *Tracks* box set but was never able to locate it.)
 
 [Watch on Youtube: Bruce Springsteen - Walking In The Street (Lovers In The Cold)](https://www.youtube.com/watch?v=ia_uXQ2Bp9w)
@@ -10,13 +20,13 @@ And lyrically, a late verse sounds *very* similar to "Wings for Wheels," which w
 
 **From "Walking in the Street.."**<br>
 
-> *Oh baby, I can't lay the stars at your feet*<br>
-> *Oh but I think we could take it all , just you and me*<br>
+> *Oh baby, I can't lay the stars at your feet,*<br>
+> *Oh but I think we could take it all, just you and me*<br>
 > *Oh come on and see there's a lot of room for you baby in this front seat.*<br>
 
 **…to "Wings for Wheels…"**<br>
 
-> *Maybe I can't lay the stars at your feet*<br>
+> *Maybe I can't lay the stars at your feet,*<br>
 > *But I got this old car and she's pretty tough to beat*<br>
 > *There's plenty of room in my front seat*<br>
 > *If you think you can make it, climb in.*<br>

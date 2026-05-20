@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 12"
+author: "Ken"
+excerpt: "On this date: the first full-band “Devils & Dust,” a one-time-only soundcheck of “Apache,” and a bungled “State Trooper.” More highlights inside."
+tags: american-skin-41-shots apache born-in-the-usa-tour bruce-springsteen-band buffalo cincinnati darkness-tour devils-and-dust does-this-bus-stop-at-82nd-street england ghost-of-tom-joad-tour im-a-rocker john-prine london magic-tour rising-tour seeger-sessions-tour st-paul state-trooper stolen-care student-prince town-called-heartbreak troy uk washington-dc wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/stpaul.jpg
+post_id: 61330
+---
 ***New for 2025:** Review for 1984*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

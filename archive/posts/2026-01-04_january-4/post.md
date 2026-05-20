@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: January 4"
+author: "Ken"
+excerpt: "Bruce attends the Hollywood premiere of “Philadelphia,” resumes the Born in the U.S.A. Tour, and more."
+tags: born-in-the-usa-tour bryn-mawr cambridge hampton philadelphia streets-of-philadelphia the-main-point
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/01/Cover.jpg
+post_id: 63730
+---
 **Note:** This is the final entry for *Kingdom of Days*, as well as for the entire E Street Shuffle blog. If you subscribe via email, I will delete your email address (along with the entire subscriber database) later today. (Nothing personal, it's just good privacy practice to delete personal data as soon as it's unnecessary.) Barring unforeseen circumstances, this site will remain online through 2027. However, there will be no new content, and existing content will be archived and removed gradually.<br>
 
 For information about ebook and printed book options, please see the afterword at the end of this article.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Elvis Costello and Mumford & Sons: The Ghost of Tom Joad"
+author: "Ken"
+excerpt: "One of my all-time favorite covers of a Springsteen song: Elvis Costello and Mumford & Sons play a lovely, spontaneous “The Ghost of Tom Joad” at Sasquatch in 2013."
+tags: do-re-mi elvis-costello mumford-and-sons one-campaign sasquatch woody-guthrie
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/tomjoad.jpg
+post_id: 6814
+---
 This is one of my all-time favorite covers of a Springsteen song. Even if you find yourself dismissing 95% of the cover attempts out there, take a few minutes to listen to this one. Not only is it a wonderful, spontaneous performance, but it’s gorgeously captured at one my absolute favorite outdoor venue.
 
 [Watch on Youtube: Elvis Costello and Mumford & Sons The Ghost of Tom Joad & Do Re Mi Medley Acoustic Cover HD](https://www.youtube.com/watch?v=CrkS1CoQ8hc)

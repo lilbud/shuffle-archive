@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I'm Alive"
+author: "Ken"
+excerpt: "Although Bruce has never officially covered “I’m Alive” in concert, he did tinker with The Hollies’ #1 UK hit during a 1978 soundcheck. Check it out inside."
+tags: darkness-tour im-alive passaic the-hollies
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/imalive.jpg
+post_id: 6185
+---
 Bruce never *officially* covered The Hollies' "I'm Alive," but if you're willing to stretch the definition a bit, you can hear the E Street Band take a run at it during a soundcheck in Passaic more than forty years ago.
 
 It's only a 90-second or so excerpt, but it's enough for us to tell that it's a pretty faithful cover arrangement. (You can stop after the 1:30 mark unless you just like hearing the band work out various parts of the arrangement.)

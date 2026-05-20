@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Kaiak: Hungry Heart"
+author: "Ken"
+excerpt: "Swedish duo Kaiak gives us a groovy acoustic coffee-house rendition of Bruce’s “Hungry Heart.”"
+tags: hungry-heart kaiak
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/bandbild-med-kaiak.jpg
+post_id: 19322
+---
 Kaiak is a folk/indie/pop team-up of Swedish musicians Emil Gullhamn and Marcos Ubeda.
 
 Emil and Marcos draw the inspiration for their music from nature, friends, and “really good coffee.”

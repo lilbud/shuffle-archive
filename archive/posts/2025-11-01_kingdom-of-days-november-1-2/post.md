@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 1"
+author: "Ken"
+excerpt: "Child plays their last show, “The Ties That Bind” and “Fade Away” make their debut, and the first all-Bruce, all-the-time radio station takes to the airwaves."
+tags: born-to-run-tour child dancing-in-the-dark darkness-tour fade-away garland-jeffreys hungry-heart ill-work-for-your-love incident-on-57th-street jackson-browne joe-grushecky john-kerry jon-stewart light-of-day lions-den los-angeles michael-j-fox no-surrender penn-state philadelphia princeton richmond santa-barbara shout springsteen-on-broadway stand-up-for-heroes steel-mill the-river the-ties-that-bind wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/i_pilarz_sirius.jpg
+post_id: 61267
+---
 ***New for 2025:** Video for 2004; new entry for 2024*<br>
 
 **1969:** Child headlines at Virginia Commonwealth University in Richmond–the last show they will ever play under that name. After returning home to New Jersey, the band discovers that another area band has released an album using the same band name, so our heroes change their name to Steel Mill.<br>

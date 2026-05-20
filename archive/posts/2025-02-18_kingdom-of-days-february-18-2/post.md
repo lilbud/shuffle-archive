@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 18"
+author: "Ken"
+excerpt: "Check out highlights from Hunter Valley, Atlanta, Jacksonville, and more–all from this date."
+tags: atlanta australia bruce-springsteen-band cleveland dusseldorf germany ghost-of-tom-joad-tour hunter-valley jacksonville nils-lofgren richmond river-tour river-tour-2016 steve-van-zandt tim-russert
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/2023-02-18-kansas-city-mo.webp
+post_id: 55961
+---
 **1972:** The Bruce Springsteen Band plays at The Back Door in Richmond.<br>
 
 **1974:** Bruce cancels a concert in Cleveland after firing drummer Vini Lopez the week before.<br>
@@ -12,15 +22,15 @@
 
 [Watch on Youtube: Bruce Springsteen - Jacksonville Soundcheck - 1981-02-18](https://www.youtube.com/watch?v=_oYfUcPwuFM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VJVyZxoCk4Q?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VJVyZxoCk4Q)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-18.jpg.webp)
 
-**1984:** Bruce and Nils jam at Bruce's house and listen to the just-completed *Born in the U.S.A.* album. At some point, they watch TV and see MTV announce Steve Van Zandt's departure from the band. Nils puts in a good word for himself that will pay off not that far down the road.<br>
+**1984:** Bruce and Nils jam at Bruce’s house and listen to the just-completed *Born in the U.S.A.* album. At some point, they watch TV and see MTV announce Steve Van Zandt’s departure from the band. Nils puts in a good word for himself that will pay off not that far down the road.<br>
 
 **1993:** *MTV Plugged* (the video release) is certified gold by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Bruce Springsteen - Red Headed Woman (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=-5c-tGH-J4M?list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT)
+[Watch on Youtube: Bruce Springsteen - Red Headed Woman (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=-5c-tGH-J4M)
 
 **1996:** Bruce wraps up the German leg of his European solo acoustic tour with a show in Dusseldorf.<br>
 
@@ -36,7 +46,7 @@
 
 [Watch on Youtube: Bruce Springsteen Born to Run Atlanta 2/18/16](https://www.youtube.com/watch?v=Qkdr9goDgJ8)
 
-**2017:** Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)" and "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)."<br>
+**2017:** Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of “[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)” and “[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md).”<br>
 
 [Watch on Youtube: I Fought The Law (Live at Hope Estate Winery, Hunter Valley, AU - 02/18/17 - Official Audio)](https://www.youtube.com/watch?v=IVuIXL30OC4)
 
@@ -46,7 +56,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road - Hunter Valley 18th February 2017](https://www.youtube.com/watch?v=jZWSzzVzzWU)
 
-**2023:** Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)."<br>
+**2023:** Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during “[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Ghosts - Kansas City, 2/18/2023](https://www.youtube.com/watch?v=dQaRy0bGWMc)
 

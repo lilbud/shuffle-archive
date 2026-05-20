@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 9"
+author: "Ken"
+excerpt: "Bruce stuns locals in Montana when he jams with a restaurant house band, and shocks fans worldwide when Springsteen on Broadway is officially confirmed. Plus: Joe Grushecky catches his first Bruce concert, the Springsteen/Appel lawsuit gets underway, and Bruce plays his legendary Darkness Show at The Agora."
+tags: a-womans-got-the-power born-in-the-usa-tour born-to-run-tour castiles chicago cleveland darkness-tour east-rutherford frankie j-t-bowen joe-grushecky maxs-kansas-city mike-appel montana new-york-city philadelphia pittsburgh red-bank reunion-tour rising-tour springsteen-on-broadway stone-pony the-fanatics toby-scott
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/01-Summertime-Blues-mp3-image.jpg
+post_id: 57929
+---
 **1968:** The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank.<br>
 
 **1972:** Bruce starts a six-night stand opening for Dave Van Ronk at Max's Kansas City in New York.<br>

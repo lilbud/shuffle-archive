@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Thirty(-seven) Days Out"
+author: "Ken"
+excerpt: "Happy Thanksgiving weekend to my American readers, and happy holiday season to all! A few minutes ago (as I type this), I finished updating the…"
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/Gemini_Generated_Image_9u7t1a9u7t1a9u7t.jpg
+post_id: 63756
+---
 Happy Thanksgiving weekend to my American readers, and happy holiday season to all!
 
 A few minutes ago (as I type this), I finished updating the *Kingdom of Days* post for January 4th, 2026, which means that from my perspective at least, this blog has now officially ended.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Local Hero"
+author: "Ken"
+excerpt: "“Local Hero” is a sly, meta-commentary on the downhill side of fame–and its greatest irony is that Bruce never quite reached it like he thought he would."
+tags: in-concert-mtv-plugged local-hero lucky-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/local.jpg
+post_id: 6935
+---
 Most of the reviews I read for *Springsteen on Broadway* mention Bruce's self-deprecating humor, noting that late in his career, Bruce seems intent on deflating some of his importance, self- or otherwise.
 
 All of that is true, but if you're just noticing it now, you haven't been paying attention for the last quarter-century or so.
@@ -24,12 +34,12 @@ To me, this live 1992 live performance will always be the definitive version of 
 
 It probably had a lot to do with the song, though, as well. It had to be therapeutic to write, much less sing, lyrics like these:
 
-> *I was driving through my hometown, I was just kinda killing time*
-> *When I seen a face staring out of a black velvet painting from the window of the Five And Dime*
-> *I couldn't quite recall the name but the pose looked familiar to me*
-> *So I asked the salesgirl "Who was that man between the Doberman and Bruce Lee?"*
-> *She said "Just a local hero", "Local hero" she said with a smile*
-> *"Yeah a local hero, he used to live here for a while"*
+> *I was driving through my hometown, I was just kinda killing time*<br>
+> *When I seen a face staring out of a black velvet painting from the window of the Five And Dime*<br>
+> *I couldn't quite recall the name but the pose looked familiar to me*<br>
+> *So I asked the salesgirl "Who was that man between the Doberman and Bruce Lee?"*<br>
+> *She said "Just a local hero", "Local hero" she said with a smile*<br>
+> *"Yeah a local hero, he used to live here for a while"*<br>
 
 Yeah, this was based on an actual event that preceded Bruce's move from New Jersey to California (although I personally believe the conversation is too cute to be anything but apocryphal). And there's certainly something appealing in the notion of time having moved on so much that even in his own stomping grounds, Bruce might go unrecognized, considered just a has-been local hero.
 
@@ -37,30 +47,30 @@ But read it again, and this time consider his hometown as "rock music" instead o
 
 Bruce had very much been killing time in the realm of popular music; for some time, he'd had nothing to say and no compelling reason to say it. His life had changed so much–he was now a parent and a husband, he'd moved to California, he'd broken up his band–that it's easy to see how he might be unrecognizable to himself. While he might not be finished as a musician, he might very well have believed that he was past his icon phase. He'd blown it all up to free himself and try something new.
 
-> *I met a stranger dressed in black at the train station, he said "Son your soul can be saved"*
-> *There's beautiful women, nights of low living, and some dangerous money to be made*
-> *There's a big town ‘cross the whiskey line and if we turn the right cards up*
-> *Well they make us boss, the devil pays off, and them folks that are real hard up*
-> *They get their local hero, yeah somebody with the right style*
-> *They get their local hero, yeah somebody with just the right smile*
+> *I met a stranger dressed in black at the train station, he said "Son your soul can be saved"*<br>
+> *There's beautiful women, nights of low living, and some dangerous money to be made*<br>
+> *There's a big town ‘cross the whiskey line and if we turn the right cards up*<br>
+> *Well they make us boss, the devil pays off, and them folks that are real hard up*<br>
+> *They get their local hero, yeah somebody with the right style*<br>
+> *They get their local hero, yeah somebody with just the right smile*<br>
 
 Now certainly this verse is symbolic, but it's also insightful. Bruce saw himself as having made a deal with the devil, and it paid off. He'd achieved fame, fortune, adventure, and misadventure–he'd was made the "boss" (a clever wink, there) and became the hero that music needed at that time and place.
 
 The bridge that follows is one of Bruce's best ever:
 
-> *Well I learned my job, I learned it well*
-> *Fit myself with religion and a story to tell*
-> *First they made me the king then they made me pope*
-> *Well then they brought the rope*
+> *Well I learned my job, I learned it well*<br>
+> *Fit myself with religion and a story to tell*<br>
+> *First they made me the king then they made me pope*<br>
+> *Well then they brought the rope*<br>
 
 How fortunate to be self-aware enough to know the arc of your life as you're travelling along it. The irony, of course, is that Bruce was still too much on the curve to know that he hadn't been made pope yet, only king. Papacy still awaited off in the future, and the rope… well, we've seen hints of it from time to time, but Bruce has escaped the noose time and again as well.
 
 Bruce's final verse trades the humor for courageous confession:
 
-> *I woke to a gypsy girl saying "Drink this", well my hands had lost all sensation*
-> *These days I'm feeling all right except I can't tell my courage from my desperation*
-> *From the tainted chalice well I drunk some heady wine*
-> *Tonight I'm laying here but there's something in my ear saying there's a little town just beneath the floodline*
+> *I woke to a gypsy girl saying "Drink this", well my hands had lost all sensation*<br>
+> *These days I'm feeling all right except I can't tell my courage from my desperation*<br>
+> *From the tainted chalice well I drunk some heady wine*<br>
+> *Tonight I'm laying here but there's something in my ear saying there's a little town just beneath the floodline*<br>
 
 Bruce intentionally uprooted his life and career, and he was happy with his new life, home, and family. But if it seemed like he'd made peace with post-stardom… well, his muse may have gone walkabout, but she was never far away. That gypsy girl kept feeding him sips of wine, the same "wine" he'd drink in while on stage, in his element. And while he might never play to the crowds he'd entertained at his peak, there was always a little town… and a little town… and a little town. All waiting for him.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Tucson Train"
+author: "Ken"
+excerpt: "The third single off Western Stars is one of Bruce’s most hopeful, optimistic, and joyous songs–a masterpiece of a pop song that ranks among his very best."
+tags: tucson-train western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/tucson.jpg
+post_id: 18295
+---
 > I've spent my 10,000 hours (and then some) learning my musical craft. But I've spent a lot more time than that, some 35 years, trying to learn how to let go of the destructive parts of my character. They did not go easily into that good night. For a long time, if I loved you and if I felt a deep attachment to you, I would hurt you if I could. It was a sin, and I still have days when I struggle with it. But I've gotten better. Through the love of my family, my good friends, I've learned how to love. And to be compassionate with those close to me, and to try and live with some small honor. "Tucson Train" is about a guy who's trying to follow his better angels, working in the sun for a new start. He's trying to change. — Bruce Springsteen, *Western Stars* (2019)
 
 *Western Stars* is a career summation featuring Bruce at his very peak as a songwriter, arranger, and even as a vocalist. It's a deeply felt, nuanced treatise on life and living.
@@ -16,12 +26,12 @@ And at the emotional center of the album, there is "Tucson Train," the album's p
 
 The first verse of "Tucson Train" reads like a typical Springsteen song, yet another variation of "I had a job/I had a girl."
 
-> *I got so down and out in ‘Frisco*
-> *Tired of the pills and the rain*
-> *I picked up, headed for the sunshine*
-> *I left a good thing behind*
-> *Seemed all of our love was in vain*
-> *Now my baby's coming in on the Tucson train!*
+> *I got so down and out in ‘Frisco*<br>
+> *Tired of the pills and the rain*<br>
+> *I picked up, headed for the sunshine*<br>
+> *I left a good thing behind*<br>
+> *Seemed all of our love was in vain*<br>
+> *Now my baby's coming in on the Tucson train!*<br>
 
 Bruce implies that his narrator suffers from seasonal affective disorder, taking anti-depressants to deal with the dark, grey, dampness of northern California. Perhaps the medicine plays a role in the dissolution of his relationship, or perhaps it's just a convenient scapegoat. Regardless, our hero takes control of his life and relocates to a healthier clime: sunny, arid Tucson, Arizona.
 
@@ -33,39 +43,39 @@ If you've never noticed the craftsmanship at work in just this one verse, go bac
 
 In the second verse, Bruce sheds light on why our hero fled. When you don't love yourself, it's hard to love another, and when our narrator looked in the mirror, it seems he didn't see the man he wanted to be. So he moved somewhere that offered a chance to start over in an environment that allowed for him to be his best self. But even among strangers and without judgment, it's not easy to maintain focus.
 
-> *I come here looking for a new life*
-> *One I wouldn't have to explain*
-> *To that voice that keeps me awake at night*
-> *When a little peace would make everything right*
-> *If I could just turn off my brain*
-> *Now my baby's coming in on the Tucson train*
+> *I come here looking for a new life*<br>
+> *One I wouldn't have to explain*<br>
+> *To that voice that keeps me awake at night*<br>
+> *When a little peace would make everything right*<br>
+> *If I could just turn off my brain*<br>
+> *Now my baby's coming in on the Tucson train*<br>
 
 Now check out this bridge, because this is sophisticated stuff:
 
-> *We fought hard over nothing*
-> *We fought till nothing remained*
-> *I've carried that nothing for a long time*
-> *Now I carry my operator's license*
-> *And spend my days just running this crane*
-> *My baby's coming in on the Tucson train*
+> *We fought hard over nothing*<br>
+> *We fought till nothing remained*<br>
+> *I've carried that nothing for a long time*<br>
+> *Now I carry my operator's license*<br>
+> *And spend my days just running this crane*<br>
+> *My baby's coming in on the Tucson train*<br>
 
 Chances are the first couple of times you listened "Tucson Train," your brain tripped over the bridge, because it's another example of Bruce subverting our expectations to spectacular effect. The first two lines are ordinary enough, with our hero brooding over his failed relationship. But then comes that third line: "I've carried that nothing for a long time." Not only is this a brilliant turn of phrase, turning the absence of something into a great metaphorical weight, but it's also an orphan rhyme–it doesn't go anywhere.
 
 We expect a rhyme pairing that never comes; instead the orphan rhyme serves as melodic ellipsis, creating the impression of the narrator trailing off in thought. Except that he doesn't: he immediately returns instead to the verse melody in progress, creating a momentary whiplash moment that's precisely what's called for: the effect in toto is a narrator who can't help but remember the past and yet absolutely refuses to live in it. He is here and now, taking great pride and satisfaction in his steady work and giddy with excitement to show his returning love how he's changed.
 
-> *Hard work'll clear your mind and body*
-> *The hot sun will burn out the pain*
-> *If they're looking for me, tell 'em buddy*
-> *I'm waiting down at the station*
-> *Just praying to the five-fifteen*
-> *I'll wait all God's creation*
-> *Just to show her a man can change*
-> *Now my baby's coming in on the Tucson train!*
+> *Hard work'll clear your mind and body*<br>
+> *The hot sun will burn out the pain*<br>
+> *If they're looking for me, tell 'em buddy*<br>
+> *I'm waiting down at the station*<br>
+> *Just praying to the five-fifteen*<br>
+> *I'll wait all God's creation*<br>
+> *Just to show her a man can change*<br>
+> *Now my baby's coming in on the Tucson train!*<br>
 
-> *On the Tucson train*
-> *On the Tucson train*
-> *Waiting on the five-fifteen*
-> *Here she comes!*
+> *On the Tucson train*<br>
+> *On the Tucson train*<br>
+> *Waiting on the five-fifteen*<br>
+> *Here she comes!*<br>
 
 In that final verse, our hero justifiably celebrates his success. He made a bold and risky choice, moving away from his home and his love in order to take control of his life, but he's succeeded. He's changed, and while we don't know exactly how committed his returning love interest is just yet, we know she's at the very least intrigued to meet the man he's become.
 

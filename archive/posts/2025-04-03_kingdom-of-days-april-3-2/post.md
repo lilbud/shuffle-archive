@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 3"
+author: "Ken"
+excerpt: "On this date: Bruce records “Roulette,” performs “Johnny Bye-Bye” for the final time, releases Live in New York City, and jams with Jon Bon Jovi and Richie Sambora. Video and more highlights inside."
+tags: australia born-in-the-usa-tour child dortmund east-rutherford germany glendale glory-days high-hopes-tour jon-bon-jovi melbourne oklahoma-city portland reunion-tour richie-sambora river-tour river-tour-2016 roulette so-young-and-in-love steve-van-zandt the-upstage working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/linyc.jpg
+post_id: 56347
+---
 ***New for 2025:** New entry for 1978; review for 2009; video for2023*<br>
 
 **1969:** Child continues their opening stand at the Pandemonium in Wanamassa, New Jersey.<br>

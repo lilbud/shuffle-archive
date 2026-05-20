@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Don't Let Me Be Misunderstood"
+author: "Ken"
+excerpt: "One time only: At an Atlanta soundcheck on the Tunnel of Love Tour, Bruce covered the musical inspiration for one his greatest anthems."
+tags: dont-let-me-be-misunderstood nina-simone the-animals
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/misunderstood.jpg
+post_id: 25336
+---
 **(Note:** Over the last week, two readers have informed me that videos like the Bruce and Steve one above no longer play for them. If this happens to you as well, please let me know in a comment, along with what type of device and browser you are using. So far it only seems to affect Mac users, but with a sample size of two, I can't be sure. Once I have more data, I can put my hosting provider on the case. Thanks!)<br>
 
 ---

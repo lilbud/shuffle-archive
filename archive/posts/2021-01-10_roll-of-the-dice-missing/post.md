@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Missing"
+author: "Ken"
+excerpt: "The sole escapee to date from Bruce’s unreleased 1994 hip hop/EDM album, “Missing” is a hauntingly powerful and daringly experimental meditation on loss and absence."
+tags: missing the-crossing-guard the-essential-bruce-springsteen youre-missing
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/missing.jpg
+post_id: 23737
+---
 > "I got together a lot of samples and loops and started to put this album together. It was fun; I enjoyed doing it, but I needed two or three more songs, and for some reason, I never got around to writing them. So I put it away. Eventually, I'm going to find a way to get this music out to people. — Bruce Springsteen, *Time Magazine*, November 16, 1998
 
 Bruce Springsteen loves a good curveball.

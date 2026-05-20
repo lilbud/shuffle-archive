@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: You're The One That Done It"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the E Street band cover an obscure single from a rockabilly one-hit wonder."
+tags: thomas-wayne youre-the-one-that-done-it
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/onethatdoneit.jpg
+post_id: 30013
+---
 We're going obscure today.
 
 I mean *seriously* obscure: we're going to listen to a Springsteen cover of a one-hit wonder, and this isn't even the one hit. And Bruce never officially covered it–he only sound checked it. Once.

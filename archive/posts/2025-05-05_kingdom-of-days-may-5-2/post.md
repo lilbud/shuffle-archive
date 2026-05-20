@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 5"
+author: "Ken"
+excerpt: "On this date: Bruce receives Sweden’s Polar Music Prize. Watch full footage plus more highlights inside."
+tags: better-days charlottesville child devils-and-dust-tour drammen dublin land-of-hope-and-dreams madrid martin-scorsese mrs-mcgrath new-york-city norway oakland polar-music-prize providence river-tour seeger-sessions-tour spain springsteen-on-broadway sweden tacoma the-ghost-of-tom-joad thunder-road tunnel-of-love-express-tour working-on-a-dream-tour world-tour-1993 you-really-got-me
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/346463889_994855768172688_4821295902790011616_n.jpg
+post_id: 56699
+---
 ***New for 2025:** New entry for 1975 and 2024; audio for 1982*<br>
 
 **1961:** Eleven-year-old Bruce Springsteen receives the sacrament of confirmation at St. Rose of Lima Church in Freehold.<br>

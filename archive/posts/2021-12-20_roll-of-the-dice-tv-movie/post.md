@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: TV Movie"
+author: "Ken"
+excerpt: "An almost-forgotten rockabilly outcast from the Born in the U.S.A. sessions, “TV Movie” is a sly send-up of the cost of popular fame and a star turn for Professor Roy Bittan."
+tags: tracks tv-movie
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/tvmovie.jpg
+post_id: 17937
+---
 > I remember one night when we were completely packed up to go home and Bruce was off in the corner playing his acoustic guitar. Suddenly, I guess the bug bit him, and he started writing these rockabilly songs. We'd been recording all night and were dead tired, but they had to open up the cases and set up the equipment so that we could start recording again at five in the morning. That's when we got "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)," "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)," and… "TV Movie"… Bruce got on a roll, and when that happens, you just hold on for dear life. — Max Weinberg, quoted in Clinton Heylin, *E Street Shuffle: The Glory Days of Bruce Springsteen and the E Street Band*<br>
 
 It wasn't just that night. Bruce had been writing in a rockabilly vein all through the *Born in the U.S.A.* sessions. "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" started out as rockabilly, as did "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" and "Sugarland."

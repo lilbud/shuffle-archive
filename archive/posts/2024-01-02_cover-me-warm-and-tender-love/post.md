@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Warm and Tender Love"
+author: "Ken"
+excerpt: "One time only: watch Bruce perform a re-written cover of a classic Percy Sledge hit."
+tags: jay-haywood percy-sledge warm-and-tender-love
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/warmandtender.jpg
+post_id: 21114
+---
 "Warm and Tender Love" should have made Joe Haywood's career when he released it in 1964. His original version is one of the most beautiful soul ballads of the early sixties.
 
 [Watch on Youtube: Warm And Tender Love Joe Haywood original version](https://www.youtube.com/watch?v=LAOZgoMg-Gk)

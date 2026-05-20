@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Oliver Keys: State Trooper"
+author: "Ken"
+excerpt: "Stop what you’re doing, put your headphones on, and listen to this outstanding live loop cover of Bruce’s 1982 classic."
+tags: oliver-keys state-trooper
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/oliver.jpg
+post_id: 30524
+---
 Every once in a while, I come across an outstanding Springsteen cover by an artist about whom I can't find a single darn thing. Drives me nuts. It doesn't leave me with much to say, so I almost always take a pass.
 
 But I'm going to make an exception today, because Brisbane-based (hey, I *did* find a single darn thing!) Oliver Keys' live-loop version of "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" is absolutely fantastic. You're going to want to put headphones on for full effect.

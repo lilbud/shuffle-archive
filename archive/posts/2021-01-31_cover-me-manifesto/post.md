@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Manifesto"
+author: "Ken"
+excerpt: "Forty years to the day singer-songwriter and political activist Victor Jara was captured and detained, Bruce paid tribute with a moving rendition of Jara’s “Manifesto.”"
+tags: manifesto victor-jara
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/manifesto-1.jpg
+post_id: 24857
+---
 On September 12, 2013, Bruce Springsteen took the stage for his first-ever show in Chile.
 
 By all accounts, it was a joyous and raucous (if standard) main set, but when Bruce transitioned to the encores, it was clear he understood the significance of the date.

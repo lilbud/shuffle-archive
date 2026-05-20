@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Wild Years: Radio Nowhere"
+author: "Ken"
+excerpt: "Brian W. Foster and Ashley Johnson remind us how lonely those first days of quarantine were with their haunting cover of “Radio Nowhere.”"
+tags: radio-nowhere the-wild-years
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/The-Wild-Years-Press-Photo-2020-1280x720-1.png
+post_id: 29538
+---
 > *Thanks to friend of the blog Frank Saverio for tipping me off to this one!*<br>
 
 "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)" took on new resonance during the pandemic of 2020-21.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Mardi Gras: Land of Hope and Dreams"
+author: "Ken"
+excerpt: "Back in 2011, Rome-based Mardi Gras released a gorgeously uplifting cover of “Land of Hope and Dreams.” Check it out inside."
+tags: land-of-hope-and-dreams mardi-gras
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/mardigras.jpg
+post_id: 11631
+---
 Not only can Italy claim to have the most avid Springsteen fans in the world, they also have some of Bruce’s best cover artists.
 
 Take for example, Mardi Gras. Named as a hat tip to Creedence Clearwater Revival’s final album, Rome-based Mardi Gras has a long discography of original songs and great covers dating back to their acoustic days in 2006.

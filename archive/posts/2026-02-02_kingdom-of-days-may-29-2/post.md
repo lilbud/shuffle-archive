@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 29"
+author: "Ken"
+excerpt: "On this date: the live premiere of “Trapped” and guest appearances with Bono, Dropkick Murphys, the Rolling Stones, and… Stephen King? (Yep, and Dave Barry, Amy Tan, Matt Groening and more–this one needs to be seen to be believed.)"
+tags: angel-rogers beaver-brown because-the-night berlin bono boston carol-dennis child cleo-kennedy darkness-tour dublin germany gia-ciambotti gloria incident-on-57th-street ireland its-hard-to-be-a-saint-in-the-city lisbon london main-point manchester portugal reunion-tour rising-tour river-tour rock-bottom-remainders rock-in-rio rolling-stones salt-lake-city southside-johnny sundance-blues-band trapped tumbling-dice uk waitin-on-a-sunnyday
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/dublin16.jpg
+post_id: 56858
+---
 **1969:** Child plays a gig at Pandemonium in Wanamassa, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1969-0529.jpg.webp)

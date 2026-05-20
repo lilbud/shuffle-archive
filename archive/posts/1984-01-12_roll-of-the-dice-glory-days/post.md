@@ -1,4 +1,14 @@
-> "The first verse actually happened. The second verse mostly happened, and the third verse, of course, is happening now." *–Bruce Springsteen, Greatest Hits, 1994*
+---
+layout: post
+title: "Glory Days"
+author: "Ken"
+excerpt: "“The first verse actually happened. The second verse mostly happened, and the third verse, of course, is happening now.” –Bruce Springsteen, Greatest Hits, 1994…"
+tags: born-in-the-u-s-a glory-days
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/s-l1600.jpg
+post_id: 51596
+---
+> "The first verse actually happened. The second verse mostly happened, and the third verse, of course, is happening now." *–Bruce Springsteen, Greatest Hits, 1994*<br>
 
 That was thirty years ago.
 
@@ -40,10 +50,10 @@ By the time Bruce finished the song and brought it to the E Street Band to recor
 
 Mostly anyway. Although he wisely dropped the song's location, allowing it to resonate more broadly than it might have otherwise, Bruce couldn't bring himself to drop the verse about his dad until the last minute.
 
-> *My old man worked 20 years on the line and they let him go*
-> *Now everywhere he goes out looking for work they just tell him that he's too old*
-> *I was 9 years old when he was working at the Metuchen Ford plant assembly line*
-> *Now he just sits on a stool down at the Legion Hall, but I can tell what's on his mind*
+> *My old man worked 20 years on the line and they let him go*<br>
+> *Now everywhere he goes out looking for work they just tell him that he's too old*<br>
+> *I was 9 years old when he was working at the Metuchen Ford plant assembly line*<br>
+> *Now he just sits on a stool down at the Legion Hall, but I can tell what's on his mind*<br>
 
 It actually made it to the final recording–you can hear it below, before it was edited out of the released track.
 
@@ -53,10 +63,10 @@ Even though it was dropped from the final cut, that verse featured one of three 
 
 The first one was from eight years earlier.
 
-> *I had a friend was a big baseball player back in high school*
-> *He could throw that speedball by you, make you look like a fool boy*
-> *Saw him the other night at this roadside bar, I was walking in, he was walking out*
-> *We went back inside, sat down, had a few drinks, but all he kept talking about was glory days*
+> *I had a friend was a big baseball player back in high school*<br>
+> *He could throw that speedball by you, make you look like a fool boy*<br>
+> *Saw him the other night at this roadside bar, I was walking in, he was walking out*<br>
+> *We went back inside, sat down, had a few drinks, but all he kept talking about was glory days*<br>
 
 Joe DePugh and Bruce Springsteen were childhood friends and little league teammates in Freehold, New Jersey. Bruce and Joe shared a love of the game, but their athletic skills were worlds apart. Joe developed into a high school sports star, courted by colleges and invited to try out for the Los Angeles Dodgers. And Bruce… well, let's just say he earned an appropriate yet affectionate nickname from his friend: "Saddie."
 
@@ -74,10 +84,10 @@ Although Bruce had walked in with an entourage, the pair talked for hours alone 
 
 Bruce and Joe wouldn't talk again for more than thirty years.
 
-> *Well there's a girl that lives up the block, back in school she could turn all the boys' heads*
-> *Sometimes on a Friday I'll stop by and have a few drinks after she put her kids to bed*
-> *Her and her husband Bobby, well, they split up, I guess it's two years gone by now*
-> *We just sit around talking about the old times, she says when she feels like crying, she starts laughing thinking about glory days*
+> *Well there's a girl that lives up the block, back in school she could turn all the boys' heads*<br>
+> *Sometimes on a Friday I'll stop by and have a few drinks after she put her kids to bed*<br>
+> *Her and her husband Bobby, well, they split up, I guess it's two years gone by now*<br>
+> *We just sit around talking about the old times, she says when she feels like crying, she starts laughing thinking about glory days*<br>
 
 We know who the first verse is about, and we know who the excised verse is about. As for the verse that "mostly happened"… well, Bruce has never volunteered that information.
 
@@ -105,10 +115,10 @@ Jimi Hendrix and Buddy Holly both died years before their thirtieth birthdays; J
 
 So we can forgive Bruce for wondering at the ripe age of 31 how many glory days he still had in front of him, and we can feel his carpe diem resolve in the final verse.
 
-> *Think I'm going down to the well tonight and I'm gonna drink till I get my fill*
-> *And I hope when I get old I don't sit around thinking about it, but I probably will*
-> *Yeah just sitting back trying to recapture a little of the glory of*
-> *Well but time slips away and leaves you with nothing mister but boring stories of glory days*
+> *Think I'm going down to the well tonight and I'm gonna drink till I get my fill*<br>
+> *And I hope when I get old I don't sit around thinking about it, but I probably will*<br>
+> *Yeah just sitting back trying to recapture a little of the glory of*<br>
+> *Well but time slips away and leaves you with nothing mister but boring stories of glory days*<br>
 
 That first line is often misunderstood by fans who in their mind's eye picture the narrator at a local bar, already looking back on his better days. (In their defense, it doesn't help that the heavy-rotation MTV video sets that verse in a bar.)
 
@@ -116,10 +126,10 @@ That first line is often misunderstood by fans who in their mind's eye picture t
 
 But while the "well" is indeed metaphorical, it's not a stand-in for a bottle. To its world-famous author, the well is the concert stage, and to this day each time Bruce steps on it he drinks until he gets his fill, determined to make this day better than the last time he stood here.
 
-> *Glory days*
-> *Well they'll pass you by, glory days*
-> *In the wink of a young girl's eye, glory days*
-> *Glory days*
+> *Glory days*<br>
+> *Well they'll pass you by, glory days*<br>
+> *In the wink of a young girl's eye, glory days*<br>
+> *Glory days*<br>
 
 Maybe so. But what the singer suspected then and surely knows now, is that if you focus on the best and the beauty of the day in front of you rather than the ones behind you, every day is a glory day.
 

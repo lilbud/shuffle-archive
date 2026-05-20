@@ -1,4 +1,14 @@
-If you go see Bruce Springsteen after Thanksgiving, you better watch out, and you better not cry. And you better bring your Santy Claus hats, because odds are you're gonna need them.
+---
+layout: post
+title: "Where the Band Was: Vancouver, November 26, 2012"
+author: "Ken"
+excerpt: "A solid setlist, a loose performance, and some surprising placements made for a great night in Vancouver on the Wrecking Ball Tour."
+tags: badlands because-the-night born-to-run canada cover-me dancing-in-the-dark darlington-county death-to-my-hometown does-this-bus-stop-at-82nd-street hungry-heart land-of-hope-and-dreams my-city-of-ruins racing-in-the-street radio-nowhere raise-your-hand red-headed-woman santa-claus-is-comin-to-town shackled-and-drawn shes-the-one spirit-in-the-night streets-of-fire tenth-avenue-freeze-out the-rising vancouver waitin-on-a-sunny-day we-take-care-of-our-own wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/20121126_front.jpg
+post_id: 5781
+---
+If you go see Bruce Springsteen after Thanksgiving, you better watch out, and you better not cry. And you better bring your Santy Claus hats, because odds are you’re gonna need them.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/15178199_10154174869751158_5701225122112296324_n.jpg.webp)
 
@@ -6,54 +16,54 @@ If you go see Bruce Springsteen after Thanksgiving, you better watch out, and yo
 
 On a cold day in late November, my friend Tjeerd and I took a ride across the border (the other border), where our faith was rewarded with a great show. No jaw-dropping debuts or for-the-ages performances, just a solid, fun set list, loose performances, and surprising sequencing–starting with the opener.
 
-"[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" is my favorite song from *[Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md)*, and it was the song I looked forward to the most at each show. I was shocked and delighted when Bruce opened the show with it that night–and it worked perfectly as an opener. Check out the video below; the band took the stage in darkness, and Bruce led the crowd in an extended chant, building energy and anticipation through the initial chorus. The arena exploded when the band joined and the lights came on.
+“[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)” is my favorite song from *[Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md),* and it was the song I looked forward to the most at each show. I was shocked and delighted when Bruce opened the show with it that night–and it worked perfectly as an opener. Check out the video below; the band took the stage in darkness, and Bruce led the crowd in an extended chant, building energy and anticipation through the initial chorus. The arena exploded when the band joined and the lights came on.
 
 [Watch Video Highlight](https://videopress.com/embed/tSIP2IPy)
 
-"[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" followed (a traditional member of the opening pack), but Bruce threw another curve when he followed that with "[Hungry Heart,](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" played slightly earlier in the set than usual, and setting the tone for a light-hearted, celebratory evening.
+“[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)” followed (a traditional member of the opening pack), but Bruce threw another curve when he followed that with “[Hungry Heart,](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” played slightly earlier in the set than usual, and setting the tone for a light-hearted, celebratory evening.
 
 [Watch Video Highlight](https://videopress.com/embed/tKxNYA4j)
 
-Next came one of the intact cores of the Wrecking Ball Tour: the successive sequence of "[We Take Care of Our Own,](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)" "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)," and "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)." I'm a big fan of the [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album, and I was delighted that this far into the tour, Bruce was still spotlighting so much new material.
+Next came one of the intact cores of the Wrecking Ball Tour: the successive sequence of “[We Take Care of Our Own,](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” “[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md),” and “[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md).” I’m a big fan of the [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album, and I was delighted that this far into the tour, Bruce was still spotlighting so much new material.
 
 [Watch Video Highlight](https://videopress.com/embed/eq7JohEx)
 
-The emotional release of "My City of Ruins" was next, and Bruce's mid-song speech tonight was particularly poignant. It was still very much the aftermath of Hurricane Sandy, and the song carried even more resonance than usual for Bruce. Even Bruce's regular "ghosts" speech felt more emotional that night, and Bruce often seemed lost in reflection. See for yourself:
+The emotional release of “My City of Ruins” was next, and Bruce’s mid-song speech tonight was particularly poignant. It was still very much the aftermath of Hurricane Sandy, and the song carried even more resonance than usual for Bruce. Even Bruce’s regular “ghosts” speech felt more emotional that night, and Bruce often seemed lost in reflection. See for yourself:
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band, My City Of Ruins, Vancouver, BC, Nov. 26, 2012](https://www.youtube.com/watch?v=SesdatiDIK8)
 
-A couple of old-school selections were next: "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" followed by a by-request "[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)"
+A couple of old-school selections were next: “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” followed by a by-request “[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)”
 
 [Watch on Youtube: Spirit in the Night - Bruce Springsteen - Vancouver 2012-11-26](https://www.youtube.com/watch?v=JvnggbelvuA)
 
 [Watch on Youtube: Bruce Springsteen, Does This Bus Stop At 82nd Street?, Vancouver, BC, Nov. 26, 2012](https://www.youtube.com/watch?v=NpcWleF_1rM)
 
-Sign collection time! Bruce collected some great ones tonight. My favorite read "Let Steve pick one!" but Bruce's favorite was an anatomically correct request for "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)." He played it of course, and even though it was a bit ragged, it was one of the highlights of the evening.
+Sign collection time! Bruce collected some great ones tonight. My favorite read “Let Steve pick one!” but Bruce’s favorite was an anatomically correct request for “[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md).” He played it of course, and even though it was a bit ragged, it was one of the highlights of the evening.
 
-A rare "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" followed (my first!), with the Red Headed Woman sign shimmying comically against Max's drums during every chorus. Nils' "Because the Night" showcase came next, fierce and furious as always. As it usually does, "Because the Night" segued into "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)," with a healthy serving of "[Not Fade Away](../2020-06-24_cover-me-not-fade-away/post.md)" during the intro.
+A rare “[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)” followed (my first!), with the Red Headed Woman sign shimmying comically against Max’s drums during every chorus. Nils’ “Because the Night” showcase came next, fierce and furious as always. As it usually does, “Because the Night” segued into “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md),” with a healthy serving of “[Not Fade Away](../2020-06-24_cover-me-not-fade-away/post.md)” during the intro.
 
 [Watch Video Highlight](https://videopress.com/embed/i8kDYSAe)
 
-If there was a low point of the evening, it came next. "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" is one of the few Springsteen songs that I absolutely hate, and even though it's a rarity, I seem to have a knack for being in the room when he plays it. Like this night.
+If there was a low point of the evening, it came next. “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)” is one of the few Springsteen songs that I absolutely hate, and even though it’s a rarity, I seem to have a knack for being in the room when he plays it. Like this night.
 
-The second half of the *Born in the U.S.A.* double-header was better, although if I recall correctly, Nils forgot to join Bruce mid-arena during "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" and literally had to run from the stage to catch up to Bruce once he remembered.
+The second half of the *Born in the U.S.A.* double-header was better, although if I recall correctly, Nils forgot to join Bruce mid-arena during “[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)” and literally had to run from the stage to catch up to Bruce once he remembered.
 
 [Watch Video Highlight](https://videopress.com/embed/hB0p0pet)
 
-After "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" came the main set's final curve ball: a rare non-sign-collection outing for "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)." A minor scare here: Bruce fell during the song at the 2-minute mark, and a couple of surprised fans suddenly found Bruce in their laps.
+After “[Waitin’ on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)” came the main set’s final curve ball: a rare non-sign-collection outing for “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/).” A minor scare here: Bruce fell during the song at the 2-minute mark, and a couple of surprised fans suddenly found Bruce in their laps.
 
 [Watch on Youtube: Bruce Springsteen falls during Raise Your Hand](https://www.youtube.com/watch?v=eg5kS0PZm58)
 
-Traditional main set closers followed, lifting the evening to satisfying crescendo, ending with an always-welcome "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)."
+Traditional main set closers followed, lifting the evening to satisfying crescendo, ending with an always-welcome “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md).”
 
 [Watch on Youtube: Bruce Springsteen Vancouver 2012 The Rising / Badlands](https://www.youtube.com/watch?v=rbriFaO_vWk)
 
-The encore set was outstanding, starting with a pair of genuine surprises–not because the songs were rare, but because their placement was: By request, Bruce led off with a gorgeous "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," followed by a welcome return for "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)" — both in rare encore appearances.
+The encore set was outstanding, starting with a pair of genuine surprises–not because the songs were rare, but because their placement was: By request, Bruce led off with a gorgeous “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md),” followed by a welcome return for “[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)” — both in rare encore appearances.
 
 [Watch Video Highlight](https://videopress.com/embed/F2Y7ISRz)
 
-Next, lights up for "Born to Run" and "[Dancing in the Dark.](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" And then–finally–Santa (who made an appearance himself), followed by a show-closing "[Tenth Avenue Freeze-Out.](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)"
+Next, lights up for “Born to Run” and “[Dancing in the Dark.](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” And then–finally–Santa (who made an appearance himself), followed by a show-closing “[Tenth Avenue Freeze-Out.](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)”
 
 [Watch Video Highlight](https://videopress.com/embed/8ng5tnEo)
 
-After the summer Fenway shows, this was my favorite show of the nine I saw that year, and I honestly can't tell you why. There was nothing exceptionally remarkable about it, but the combination of the holiday season, the band's comfort with the new material so late in the tour, and Bruce's overall looseness that evening added up to a terrifically fun evening.
+After the summer Fenway shows, this was my favorite show of the nine I saw that year, and I honestly can’t tell you why. There was nothing exceptionally remarkable about it, but the combination of the holiday season, the band’s comfort with the new material so late in the tour, and Bruce’s overall looseness that evening added up to a terrifically fun evening.

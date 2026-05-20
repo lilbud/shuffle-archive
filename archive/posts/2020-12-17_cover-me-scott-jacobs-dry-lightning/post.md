@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Scott Jacobs: Dry Lightning"
+author: "Ken"
+excerpt: "Canadian folk singer Marc Jacobs finds the soul of Bruce’s “Dry Lightning” and turns in a beautiful cover on a gray Vancouver day."
+tags: dry-lightning scott-jacobs
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/socttjacobs.jpg
+post_id: 14361
+---
 I seem to be in a groove lately with little-known artists covering Springsteen deep cuts, so let’s keep it going:
 
 Today’s entry comes from Canadian folk singer Scott Jacobs, whose lovely acoustic guitar-and-pedal-steel arrangement of “[Dry Lightning](../2020-10-16_roll-of-the-dice-dry-lightning/post.md)” beautifully captures Bruce’s tale of a disintegrating love affair.

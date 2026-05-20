@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Ballad of Jesse James"
+author: "Ken"
+excerpt: "Recorded in 1972, it took 44 years for “The Ballad of Jesse James” to become the first officially released recording by The Bruce Springsteen Band."
+tags: chapter-and-verse the-ballad-of-jesse-james the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/jessejames.jpg
+post_id: 21638
+---
 One of the odder consequences of Bruce's penchant for keeping songs in the vault for so long is that we have to look to his most recent albums to find his oldest songs.
 
 Case in point: "The Ballad of Jesse James," released in 2016 on *Chapter and Verse* but recorded *forty-four years* earlier at a Bruce Springsteen Band rehearsal session.

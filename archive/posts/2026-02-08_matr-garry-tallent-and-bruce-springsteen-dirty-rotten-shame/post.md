@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Dirty Rotten Shame"
+author: "Ken"
+excerpt: "Garry’s second solo project features a taut, two-minute rocker with backing vocals from Bruce."
+tags: dirty-rotten-shame garry-tallent
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/dirtyrotten.jpg
+post_id: 28462
+---
 Back before the pandemic, when 2020 was shaping up to be a big E Street touring year, Bruce's bandmates devoted 2019 to solo projects while they could. Max toured with his Jukebox; Nils, Steve, and Jake all released new music.
 
 And at the height of summer, bassist Garry Tallent released his own solo album–only his second ever–a love letter to garage rock called *More Like Me.*

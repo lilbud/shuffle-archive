@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lady of Boston"
+author: "Ken"
+excerpt: "One time only: Dr. Zoom and the Sonic Boom let loose (and I do mean loose) with the transitional “Lady of Boston.”"
+tags: dr-zoom-and-the-sonic-boom lady-of-boston
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/drzoom-1.jpg
+post_id: 29802
+---
 More a stunt than a band, the short-lived Dr. Zoom and the Sonic Boom (a band that played all of three shows, and that's only if you count one advertised under a different name) was part of Bruce Springsteen's transition away from the heavy sound of Steel Mill to the brighter, brassier sound of the Bruce Springsteen Band.
 
 But what a band that was: Future E Streeters Steve Van Zandt, Garry Tallent, David Sancious and Vini Lopez, plus Southside Johnny, Albee Tellone on tenor sax, Bobby Feigenbaum on alto sax, Bobby Williams on the drums (yes, there were two drummers), plus no less than *eight* backing vocalists.

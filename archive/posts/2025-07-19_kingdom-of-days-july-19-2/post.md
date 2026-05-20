@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 19"
+author: "Ken"
+excerpt: "No other highlight from this date can top our lead story: Bruce’s legendary East Berlin show in front of 300,000 energized, galvanized Germans."
+tags: barcelona child darkness-tour east-berlin east-germany empty-sky italy magic-tour maxs-kansas-city memphis nightline philadelphia river-tour rome spain tunnel-of-love-tour working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/19880719_4_front.jpg
+post_id: 57750
+---
 ***New for 2025:** No updates*<br>
 
 **1969:** Child plays their fifth of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.<br>

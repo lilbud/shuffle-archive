@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 28"
+author: "Ken"
+excerpt: "On this date in history: the live debut of “Raise Your Hand,” the live recording of “Be True” for Chimes of Freedom, and Springsteen on Broadway reaches its 100th show. More highlights and lots of great video inside!"
+tags: auckland australia be-true born-in-the-usa-tour chicken-scratch-tour chimes-of-freedom detroit durham for-you magic-tour mtv new-york-city new-zealand philadelphia portland richmond rising-tour river-tour river-tour-2016 roulette steel-mill sydney tunnel-of-love-express-tour wreck-on-the-highway wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/detroit88.jpg
+post_id: 56305
+---
 ***New for 2025:** Review for 2008; video for 2008 and 2016; new entry for 2024*<br>
 
 **1970:** Steel Mill plays a second night at the Hullabaloo in Richmond.<br>

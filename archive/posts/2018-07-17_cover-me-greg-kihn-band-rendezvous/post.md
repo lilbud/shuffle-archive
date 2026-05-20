@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Greg Kihn Band: Rendezvous"
+author: "Ken"
+excerpt: "When “Rendezvous” didn’t make the cut for the Darkness album, Bruce went to Greg Kihn to make sure it found a good home."
+tags: greg-kihn rendezvous
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/kihn.jpg
+post_id: 3133
+---
 Greg Kihn did more than cover "Rendezvous" — he gave it a home.
 
 Kihn was one of the earliest artists to cover Bruce–his take on "For You" was distinctive, and Bruce admired it so much that he sought out Kihn when "Rendezvous" didn't make the cut for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
@@ -12,7 +22,7 @@ When Bruce played the song on the Darkness Tour for the first time, he dedicated
 
 [Watch on Youtube: Greg Kihn Band Rendezvous -Springsteen (cover)](https://www.youtube.com/watch?v=jUpo7aUffs0)
 
-On the night of [October 21, 1994](../2025-10-21_kingdom-of-days-october-21-2/post.md/), Greg Kihn played The Playpen in Sayreville, New Jersey, along with some friends: John Eddie, Marshall Crenshaw, Elliott Murphy... and Bruce Springsteen.
+On the night of [October 21, 1994](../2025-10-21_kingdom-of-days-october-21-2/post.md/), Greg Kihn played The Playpen in Sayreville, New Jersey, along with some friends: John Eddie, Marshall Crenshaw, Elliott Murphy… and Bruce Springsteen.
 
 The all-star encore set that followed has been pretty widely circulated among collectors, but the main set that preceded it is harder to come by, and it featured a great cover of "Rendezvous" (even if he didn't remember all the words). Take a listen:
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Up on the Roof"
+author: "Ken"
+excerpt: "For a brief time during the summer of 1975, Bruce’s shows featured a sweet, tender cover of The Drifters’ “Up on the Roof.”"
+tags: carole-king gerry-goffin the-drifters up-on-the-roof
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/roof.jpg
+post_id: 6256
+---
 This one is near and dear to me. "Up on the Roof" is and has always been in my top five favorite songs of all time. Growing up in the city, something about the idea of being able to escape it simply by climbing appealed to me. I lived in the middle of a long string of row homes, so I never saw my own rooftop–and that made the notion all the more romantic, mysterious and enchanting.
 
 The song itself was written by Carole King and Gerry Goffin, and recorded by The Drifters. It was a huge hit upon its release in 1962, charting at Number 5 on the U.S. pop chart and a notch higher on the R&B chart. The lyrics are wistful, but the song really takes flight on the wings of its soaring melody–listen to it with your eyes closed, and you'll instantly be transported to the rooftops.

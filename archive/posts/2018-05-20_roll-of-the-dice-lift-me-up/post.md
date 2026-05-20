@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lift Me Up"
+author: "Ken"
+excerpt: "“Lift Me Up” is a delicate, ethereal coda to Limbo, John Sayles’ brilliant film."
+tags: essential-bruce-springsteen john-sayles lift-me-up limbo video-anthology
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/liftmeup.jpg
+post_id: 2181
+---
 First off: If you haven't seen John Sayles' brilliant film *Limbo*, go find it and watch it.
 
 *Limbo* is a brilliant and challenging movie. I won't spoil it for you, but I'll argue that Bruce's song "Lift Me Up," which plays over the end credits of the film, has both everything and nothing to do with the film. It's a perfectly haunting melodic exit for an unsettling piece of visual art.
@@ -14,28 +24,28 @@ Bruce sings the entire song in a falsetto–something Bruce had experimented wit
 
 The lyrics are classic romantic Bruce: a pledge of and request for unconditional love, without any promise or prediction for what may come. Interestingly, it seems the object of the narrator's affection may already be promised to another:
 
-> *I don't need your answered prayers*
-> *Or the chains your lover wears*
-> *I don't need your rings of gold*
-> *Or the secrets that you hold*
+> *I don't need your answered prayers*<br>
+> *Or the chains your lover wears*<br>
+> *I don't need your rings of gold*<br>
+> *Or the secrets that you hold*<br>
 
-> *Lift me up, darling*
-> *Lift me up and I'll fall with you lift me up*
-> *Let your love lift me up*
+> *Lift me up, darling*<br>
+> *Lift me up and I'll fall with you lift me up*<br>
+> *Let your love lift me up*<br>
 
 The chains and rings may be metaphor, but they may also be literal–a wedding ring. Indeed, the second verse implies that the narrator doesn't care about the marital state of his love, so long as she doesn't abandon him:
 
-> *I don't need your sacred vow*
-> *Or the promise tomorrow brings*
-> *Veiled behind the morning clouds*
-> *I'll take the fate the daylight brings*
+> *I don't need your sacred vow*<br>
+> *Or the promise tomorrow brings*<br>
+> *Veiled behind the morning clouds*<br>
+> *I'll take the fate the daylight brings*<br>
 
 The final verse has echoes of "[Countin' on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md)," with the narrator savoring every detail, every sensation, in case they never come again:
 
-> *Your skin, your hand upon my neck*
-> *This skin, your fingers on my skin*
-> *This kiss, this heartbeat, this breath*
-> *This heart, this heart, this wilderness*
+> *Your skin, your hand upon my neck*<br>
+> *This skin, your fingers on my skin*<br>
+> *This kiss, this heartbeat, this breath*<br>
+> *This heart, this heart, this wilderness*<br>
 
 After a final chorus, the songs drifts leisurely into the sky, lifted by Bruce's wordless promise, with the fate of the song's central characters very much in… limbo.
 

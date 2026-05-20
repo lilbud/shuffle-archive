@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Phil Beer Band: No Surrender"
+author: "Ken"
+excerpt: "The Phil Beer Band’s cover of “No Surrender” infuses Bruce’s 1984 song with a Zydeco spirit that’s impossible to resist."
+tags: no-surrender phil-beer-band
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/nosurrender.jpg
+post_id: 28240
+---
 Singer, songwriter, and multi-instrumentalist Phil Beer is no stranger to Bruce Springsteen’s catalog, having played covers of Bruce’s music at least as far back as his Albion Band days a couple of decades ago.
 
 Even today, he’s likely to feature songs like “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” and “[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)” in his acoustic sets.

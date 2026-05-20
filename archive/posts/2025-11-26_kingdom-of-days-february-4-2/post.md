@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 4"
+author: "Ken"
+excerpt: "On this date: Listen to an outstanding Bruce Springsteen Band performance from 1972 and more."
+tags: australia back-door boston brisbane bruce-springsteen-band ghost-of-tom-joad-tour maxs-kansas-city melbourne new-york-city peter-wolf richmond river-tour river-tour-2016 roulette sting working-on-a-dream
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/boston2016.jpg
+post_id: 55857
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/2016-02-04.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1973-02-04.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Run, Shaker Life"
+author: "Ken"
+excerpt: "Richie Havens’ adaptation of the 19th century “Come Life, Shaker Life” became a standard show-closing encore for Steel Mill."
+tags: richie-havens run-shaker-life steel-mill
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/shakerlife.jpg
+post_id: 21252
+---
 I'm pretty sure Shaker poet Issachar Bates didn't envision what would become of his song, "Come Life, Shaker Life" when he wrote it toward the end of his life in the 1830s. It became one of the most covered and recorded Shaker songs, enduring and evolving as the years passed.
 
 In 1968, Richie Havens adapted and recorded it as "Run, Shaker Life," the final track of his *Something Else Again* album, reuniting his former band The Last Men for the occasion.

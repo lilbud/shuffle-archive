@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Dream Baby Dream"
+author: "Ken"
+excerpt: "The story of how an unlikely cover of an obscure electro-punk band became a nightly benediction from Bruce to his fans."
+tags: alan-vega dream-baby-dream high-hopes suicide
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/Suicide-Dream-Baby-Dream.jpg
+post_id: 16917
+---
 It was just about the unlikeliest song for Bruce Springsteen to cover, and yet cover it he did.
 
 In 1979, electro-punk duo Suicide released their six-and-half-minute "Dream Baby Dream," more a chant or trance than a song.
@@ -18,11 +28,11 @@ Doubtless the audience was befuddled that night–in fact, for a day or two, fan
 
 Here's how *Backstreets* explained (and sleuthed) it in their review of the show the next day:
 
-> *After a well received "[Promised Land,](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" Bruce thanked the crowd for being so attentive, shook hands at the front of the stage and said, "One more for Chicago." Back at the pump organ and without any introduction, he began playing a song called "Dream Baby Dream." Many in the crowd were scratching their heads…is it a new Bruce song? An old Bruce song? A Springsteen/Orbison hybrid? The crowd was certainly into the dreamlike quality of the performance, with its lyrical mantra and droning foundation. Springsteen's voice was unique, too, having a bit of that early 80s quality, lonely and distant. One fan described it as "‘Follow That Dream' meets David Lynch's Blue Velvet." A synthesizer could be heard underneath it all, and as Bruce got up from the organ the music kept going. Springsteen grabbed the mic and shuffled to the front of the stage, singing the repetitive lyrics, and scuffling along the front of the stage area. As he walked off for the night the music continued for another minute or so, allowing everyone the chance to shake off the goosebumps and say, "What WAS THAT?" We think we have the answer–there's a song by that name that sounds very similar to that description from the band Suicide who came out of New York City's Lower East Side in the 1970s. If we're right, it's a pretty unbelievable reach as far as Springsteen covers go. Hey, we wanted Bruce to dig deep for songs! Keep digging, Maestro!*
+> *After a well received "[Promised Land,](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" Bruce thanked the crowd for being so attentive, shook hands at the front of the stage and said, "One more for Chicago." Back at the pump organ and without any introduction, he began playing a song called "Dream Baby Dream." Many in the crowd were scratching their heads…is it a new Bruce song? An old Bruce song? A Springsteen/Orbison hybrid? The crowd was certainly into the dreamlike quality of the performance, with its lyrical mantra and droning foundation. Springsteen's voice was unique, too, having a bit of that early 80s quality, lonely and distant. One fan described it as "‘Follow That Dream' meets David Lynch's Blue Velvet." A synthesizer could be heard underneath it all, and as Bruce got up from the organ the music kept going. Springsteen grabbed the mic and shuffled to the front of the stage, singing the repetitive lyrics, and scuffling along the front of the stage area. As he walked off for the night the music continued for another minute or so, allowing everyone the chance to shake off the goosebumps and say, "What WAS THAT?" We think we have the answer–there's a song by that name that sounds very similar to that description from the band Suicide who came out of New York City's Lower East Side in the 1970s. If we're right, it's a pretty unbelievable reach as far as Springsteen covers go. Hey, we wanted Bruce to dig deep for songs! Keep digging, Maestro!*<br>
 
 "Dream Baby Dream" never left the set after Rosemont. It closed each and every show from that point forward until the end of the tour, always sending audiences home on a note of love and faith and hope. Bruce described the effect to *Mojo* in 2006:
 
-> *"The night opens and opens and then, at the end, when you think it can't open any more it does and it's completely embracing… It's so purely musical, that's what's beautiful about it, it's so simple and so purely musical.*
+> *"The night opens and opens and then, at the end, when you think it can't open any more it does and it's completely embracing… It's so purely musical, that's what's beautiful about it, it's so simple and so purely musical.*<br>
 
 As for the original artists, Alan Vega (one half of Suicide) heartily approved of Bruce's cover. He saw Bruce perform it in person at Bruce's Bridgeport show that summer, and he told *Backstreets* that Bruce did the song in "such a great way that I'm going to have to sing it that way, or not sing it at all anymore… On my deathbed, that's the last thing I'm going to listen to. I'll play it at my funeral."
 
@@ -48,7 +58,7 @@ Bruce brought "Dream Baby Dream" out to play a few more times on the High Hopes 
 
 Why the special encore/opener appearance? Because Alan Vega had passed away just a few days earlier. Before his next show, Bruce issued a statement on his web site:
 
-> *"Over here on E Street, we are saddened to hear of the passing of Alan Vega, one of the great revolutionary voices in rock and roll. The bravery and passion he showed throughout his career was deeply influential to me. I was lucky enough to get to know Alan slightly and he was always a generous and sweet spirit. The blunt force power of his greatest music both with Suicide and on his solo records can still shock and inspire today. There was simply no one else remotely like him."*
+> *"Over here on E Street, we are saddened to hear of the passing of Alan Vega, one of the great revolutionary voices in rock and roll. The bravery and passion he showed throughout his career was deeply influential to me. I was lucky enough to get to know Alan slightly and he was always a generous and sweet spirit. The blunt force power of his greatest music both with Suicide and on his solo records can still shock and inspire today. There was simply no one else remotely like him."*<br>
 
 We don't know whether or not Bruce's version of "Dream Baby Dream" was played at Vega's funeral per his interview wish. But Bruce honored the spirit of Alan's request by making it the very next song he played in public.
 

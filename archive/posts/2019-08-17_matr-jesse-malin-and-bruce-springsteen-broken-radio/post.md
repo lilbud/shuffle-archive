@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Jesse Malin and Bruce Springsteen, Broken Radio"
+author: "Ken"
+excerpt: "Watch Jesse Malin and Bruce Springsteen team up in the studio and on stage for Jesse’s gorgeous, heartbreaking ode to his mom, “Broken Radio.” It’s one of my all-time favorite Springsteen collaborations."
+tags: broken-radio jesse-malin
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/broken-radio.png
+post_id: 12012
+---
 Among the many, many reasons I have to be grateful to Bruce Springsteen, I owe him thanks for introducing me to the music of Jesse Malin.
 
 After listening to Jesse perform songs from his debut album at Bruce's Asbury Park holiday shows in 2003, I ran right out and bought a copy of *The Fine Art of Self-Destruction*. It remains one of my favorite and most-played albums to this day. I didn't know at the time that I'd caught Malin at a key moment in his evolution from punk band frontman to singer-songwriter, but I could certainly sense that in his music. That album felt at once fresh and nostalgic, and I already want to go listen to it again as soon as I finish writing.
@@ -12,11 +22,11 @@ If that story sounds at all familiar to Springsteen fans, it's probably because 
 
 So when Jesse sent Bruce the lyrics for "Broken Radio," in which Jesse describes how he associates his mother so strongly with the radio that he can't help but summon her presence whenever it plays, I have to believe Bruce was immediately on-board for the duet–even if he hadn't already once promised Jesse that he was happy to help anytime Jesse needed him.
 
-In August 2006, Jesse and his producer trekked out to Bruce's house to record Bruce's vocals. In an interview nine years later, Jesse tells of his producer's dissatisfaction with Bruce's initial takes and insistence that Bruce give it another go... and another, and another, much to Jesse's mortified dismay: "I'm dying, I'm so embarrassed... there were a couple of moments there where I thought 'are we gonna get thrown out of his house?'"
+In August 2006, Jesse and his producer trekked out to Bruce's house to record Bruce's vocals. In an interview nine years later, Jesse tells of his producer's dissatisfaction with Bruce's initial takes and insistence that Bruce give it another go… and another, and another, much to Jesse's mortified dismay: "I'm dying, I'm so embarrassed… there were a couple of moments there where I thought 'are we gonna get thrown out of his house?'"
 
 But in the end, the take they ran with was perfect. Bruce's vocals are both gruff and tender, sounding for all the world like he might be Jesse's father–which is wholly appropriate since Bruce appears to be singing lines written from that very perspective. The result is an achingly lovely ballad and a family's tribute to a lost loved one, with intensely private lyrical references like "stomachache Sundays" that somehow manage to sound universal.
 
-When Jesse starts the first chorus with "your baby loves you more than you know," I'm in tears. When Bruce leaves that final "The angels love you more..." hanging, I'm sobbing.
+When Jesse starts the first chorus with "your baby loves you more than you know," I'm in tears. When Bruce leaves that final "The angels love you more…" hanging, I'm sobbing.
 
 "Broken Radio" is a bravely beautiful song.
 

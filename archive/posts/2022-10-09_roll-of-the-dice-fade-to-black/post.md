@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Fade to Black"
+author: "Ken"
+excerpt: "This Nebraska-era demo uses cinematic vocabulary to devastating effect."
+tags: fade-to-black nebraska
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/fadetoblack.jpg
+post_id: 38577
+---
 He's better known for his encyclopedic knowledge of rock history, but he's also quite the cinematic connoisseur.
 
 Bruce Springsteen's catalog is filled with titles borrowed from the films of his youth. As early as "Thunder Road" and as recently as "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)," Bruce leavened his songs with cinematic shorthand and stage direction.

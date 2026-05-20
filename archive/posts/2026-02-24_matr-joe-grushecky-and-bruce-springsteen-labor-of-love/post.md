@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Labor of Love"
+author: "Ken"
+excerpt: "One of the best singles of 1995, “Labor of Love” was also a musical seed for one of Bruce’s best songs too."
+tags: american-babylon joe-grushecky labor-of-love
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/labor.jpg
+post_id: 34234
+---
 "[*American Babylon*] is sort of a dark record," Joe Grushecky told me when we talked about his milestone album a couple of summers ago, "but I did purposely try to put in some lighter moments in."
 
 One of those lighter moments was "Labor of Love," and even if it didn't fit the theme of the album, it became one of Joe's best-loved (*Billboard* editor Thom Duffy named it one of the ten best singles of 1995) and most-played songs, showing up in almost every show.

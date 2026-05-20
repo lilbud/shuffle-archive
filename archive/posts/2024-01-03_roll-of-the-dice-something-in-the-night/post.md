@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Something in the Night"
+author: "Ken"
+excerpt: "It started out as a romantic escape song and evolved into a cry of despair. Let’s trace the evolution of this Darkness masterpiece."
+tags: darkness-on-the-edge-of-town something-in-the-night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/something.jpg
+post_id: 27046
+---
 > "The flat night highway rises up and it's all headlights and white lines… I've just pulled a perfect swan dive into my abyss; my stomach is on rinse cycle and I'm going down, down, down… I just feel a need to get rooted somewhere, before I drift into ether… I want to cry, but the tears won't come. Worse, I want to go in the trunk and get the fucking teddy bear. I feel a deeper anxiety than I've ever known. Why here? Why tonight? Thirty-four years later, I still don't know." — Bruce Springsteen, *Born to Run*<br>
 
 There's darkness, there's [Darkness](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md), and then there's *darkness*.

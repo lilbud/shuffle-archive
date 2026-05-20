@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 13"
+author: "Ken"
+excerpt: "Watch Bruce induct Creedence Clearwater Revival into the Rock and Roll Hall of Fame, listen to an NPR interview from 2014, and more."
+tags: born-in-the-u-s-a boston columbia creedence-clearwater-revival matrix rock-and-roll-hall-of-fame san-francisco steel-mill we-take-care-of-our-own wrecking-ball
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/bruce.jpg
+post_id: 55587
+---
 **1970:** When Boz Scaggs gets sick and cancels his headlining gig at The Matrix in San Francisco, Steel Mill is promoted from opener to headliner. The band plays for more than an hour to a small crowd that includes journalist Philip Elwood, who was expecting to see and review Boz Scaggs. Needing to turn in something, he reviews Steel Mill instead and writes that he has "never been so overwhelmed by a totally unknown talent." You can hear the groovy, very 70's set here:<br>
 
 [Watch on Youtube: Steel Mill 'Live at The Matrix' January 13, 1970 Full Show Soundboard Audio 1](https://www.youtube.com/watch?v=URkN5wPemOA)

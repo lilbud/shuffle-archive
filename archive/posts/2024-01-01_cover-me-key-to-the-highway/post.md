@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Key to the Highway"
+author: "Ken"
+excerpt: "The Bruce Springsteen Band delivers a swinging take on a blues classic."
+tags: charlie-segar derek-and-the-dominos eric-clapton key-to-the-highway the-bruce-springsteen-band
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/layla.jpg
+post_id: 3395
+---
 **Update:** This post ignited a bit of historical debate in the “Bruce Springsteens Friends And Fans” (sic) Facebook group. It seems that the performance in this post that is commonly attributed to The Bruce Springsteen Band at the Student Prince in December 1971 may actually be the Sundance Blues Band at the Captain’s Garter in January 1972. (Bruce played at both stands.)<br>
 
 Facebook group contributor, Brucebase admin, Dr. Zoom member, and “[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)” saxophonist Albee Tallone was on the scene at that time and shed light on the potential mis-attribution, based on his identification of Southside Johnny’s harmonica (SSJ was not part of The Bruce Springsteen Band). He also reports that Bruce learned this song from Southside Johnny and confirms the group’s familiarity with both the Little Walter and Derek and the Dominos versions. Thanks, Albee!

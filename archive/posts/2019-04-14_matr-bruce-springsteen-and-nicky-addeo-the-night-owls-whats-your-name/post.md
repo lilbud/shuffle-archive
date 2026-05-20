@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Nicky Addeo & The Night Owls, "What's Your Name?""
+author: "Ken"
+excerpt: "Bruce and Nicky Addeo and the Night Owls croon a soulful cover of “What’s Your Name?” at the Stone Pony."
+tags: nicky-addeo whats-your-name
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/whats-your-name.jpg
+post_id: 685
+---
 On April 2, 2011, Nicky Addeo and the Night Owls played the Wonder Bar in Asbury Park.
 
 Nicky Addeo isn’t a household name, but in 1963 he released a song called “Gloria” with The Darchaes, and Bruce was a big fan of it.

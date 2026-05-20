@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Boston, August 14, 2012"
+author: "Ken"
+excerpt: "There’s no better example of the Night One/Night Two rule than Bruce’s Fenway Park stand on the Wrecking Ball Tour. On Night One, Bruce was certainly playing it safe…"
+tags: atlantic-city because-the-night boom-boom born-to-run boston darlington-county death-to-my-hometown dirty-water drive-all-night fenway-park johnny-99 my-city-of-ruins out-in-the-street rosalita shackled-and-drawn spirit-in-the-night the-e-street-shuffle the-promised-land thunder-road twist-and-shout wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/20120814_booklet2-1.jpg
+post_id: 3643
+---
 If you're a frequent concertgoer, there's a rule that you should know and follow: if an artist plays two or more shows in a given city, and you can only attend one, make sure you go to the last one. The first show is almost always the "standard set," the one the band is most comfortable with and varies only in minor ways from town to town. The last show is almost always a free-for-all, a loose and unpredictable barnburner where the artist and band gets a chance to cut loose and improvise. I've found this rule to hold true almost without fail–and most certainly when Bruce is involved.
 
 I knew that rule going in when I bought tickets for both of Bruce's 2012 Boston shows at Fenway Park, but I figured that since these would be Bruce's first shows in the U.S.A. in months, in the height of summer, at a special venue–well, maybe, just *maybe* we'd get a pair of shows to remember. Bruce had just played the longest show of his career two weeks prior when he wrapped up the European leg of the tour, so maybe we'd get a show of comparable length. Bruce Inc. was certainly promoting both shows as a special event:
@@ -18,7 +28,7 @@ From my vantage point in the pit, the crowd was electrified, and the show was of
 
 [Watch on Youtube: Springsteen - Fenway - 8-14-2012 - Death to My Hometown . "Live"](https://www.youtube.com/watch?v=zD336SGIlrM)
 
-I knew another tour standard was coming up next–"My City of Ruins"–and Bruce used the introduction to acknowledge the apt symbolism of playing in that ballpark, where so many people "gave their blood and hear and soul...it's all in the dirt." He also paid tribute to Johnny Pesky, a Red Sox great who had just passed away the day prior. The additional context added resonance to an already emotional tour setpiece.
+I knew another tour standard was coming up next–"My City of Ruins"–and Bruce used the introduction to acknowledge the apt symbolism of playing in that ballpark, where so many people "gave their blood and hear and soul…it's all in the dirt." He also paid tribute to Johnny Pesky, a Red Sox great who had just passed away the day prior. The additional context added resonance to an already emotional tour setpiece.
 
 [Watch on Youtube: Bruce Springsteen @ Fenway Park 8.14.12](https://www.youtube.com/watch?v=d9lHAINYyNk)
 
@@ -34,11 +44,11 @@ But after that came a double-header that sapped the crowd's energy for a bit: "[
 
 [Watch on Youtube: Bruce Springsteen - Atlantic City - Fenway Park - 8-14-12 - Night 1](https://www.youtube.com/watch?v=fudLuOZMl7o)
 
-The energy picked back up with "Because the Night," especially when Nils took his always-great solo...
+The energy picked back up with "Because the Night," especially when Nils took his always-great solo…
 
 [Watch on Youtube: Springsteen Fenway 8-14-12 BecauseTheNight Nils Solo](https://www.youtube.com/watch?v=rkx6HDLEVeQ)
 
-...but what followed was a three-pack of uptempo but safe crowd-pleasers–"[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)," and "[Working on the Highway.](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" This was the point were I realized that 1) we were getting Intense Bruce tonight, not Loose Bruce, and 2) the rest of the show wasn't likely to offer up any real surprises.
+…but what followed was a three-pack of uptempo but safe crowd-pleasers–"[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)," and "[Working on the Highway.](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" This was the point were I realized that 1) we were getting Intense Bruce tonight, not Loose Bruce, and 2) the rest of the show wasn't likely to offer up any real surprises.
 
 [Watch on Youtube: "Johnny '99" - Bruce Springsteen at Fenway Park 8.14.2012](https://www.youtube.com/watch?v=Z7RSTUuFr8A)
 
@@ -48,7 +58,7 @@ Next, a reliable set list staple: "[Shackled and Drawn](../2020-07-16_roll-of-th
 
 [Watch on Youtube: Bruce Springsteen - Shackled and Drawn, Fenway Park, Boston, 8/14/12](https://www.youtube.com/watch?v=qNBovTOhz2E)
 
-"[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" was next up, always a fun audience participation moment, but also the signal that the last main set wildcard slot was approaching. The last two shows had brought "[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)" and "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)," both of which were still on my chase list, so I was hoping for something similar. What we got, by sign request: the tour premiere of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)," a Tunnel of Love tour staple that I actually love... but for a rarity (it's only been played ten times in the past decade) I seem to catch it pretty frequently at shows I attend.
+"[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" was next up, always a fun audience participation moment, but also the signal that the last main set wildcard slot was approaching. The last two shows had brought "[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)" and "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)," both of which were still on my chase list, so I was hoping for something similar. What we got, by sign request: the tour premiere of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)," a Tunnel of Love tour staple that I actually love… but for a rarity (it's only been played ten times in the past decade) I seem to catch it pretty frequently at shows I attend.
 
 [Watch on Youtube: Bruce Springsteen - Boom Boom Boom - Fenway Park - 8-14-12 - Night 1](https://www.youtube.com/watch?v=pgM-bobESpU)
 

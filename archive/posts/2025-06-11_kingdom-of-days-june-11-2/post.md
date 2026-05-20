@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 11"
+author: "Ken"
+excerpt: "Bruce likes to spend June 11th in Italy–watch highlights from three Italian shows held on this date."
+tags: badlands be-true boom-boom elliot-murphy genoa italy jacobs-ladder no-surrender reunion-tour seeger-sessions-tour st-paul trieste tunnel-of-love tunnel-of-love-tour turin we-take-care-of-our-own
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/20230611-landgraaf-ne-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 57048
+---
 ***New for 2025:** No updates*<br>
 
 **1988:** The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of "Because the Night."<br>

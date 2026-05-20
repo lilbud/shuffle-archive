@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 27"
+author: "Ken"
+excerpt: "Happy Birthday, Garry Tallent, born on this day in 1949. Also on this date: Bruce films a BBC documentary, gets politically active, and more."
+tags: a-secret-history barack-obama bbc born-to-run-book canada england garry-tallent joe-grushecky lawsuit-tour london los-angeles newsweek-magazine no-surrender oakland philadelphia pittsburgh pretty-flamingo proposition-209 rising-tour river-tour springsteen-on-broadway talk-to-me tenth-avenue-freeze-out the-promised-land time-magazine toronto uk wembley wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/20121027_3_booklet2.jpg
+post_id: 61239
+---
 ***New for 2025:** New entry for 1983; audio for 2002*<br>
 
 **1949:** E Street Band bassist and tuba-ist Garry W. Tallent is born in Detroit.<br>

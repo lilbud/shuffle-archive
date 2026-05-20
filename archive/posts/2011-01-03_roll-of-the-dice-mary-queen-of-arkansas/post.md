@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Mary Queen of Arkansas"
+author: "Ken"
+excerpt: "Widely considered to be Bruce’s worst song, “Mary Queen of Arkansas” shows flashes of brilliance and unappreciated layers of depth."
+tags: greetings-from-asbury-park mary-queen-of-arkansas
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/QueenofAR.jpg
+post_id: 26519
+---
 In the early days of 1972, Vanessa Redgrave's latest film garnered a slew of Academy Award and Golden Globe nominations. The film, *Mary, Queen of Scots*, was a historically questionable tale of sexual misadventure and political intrigue, and while it didn't take home any awards that year, it did inspire what is widely (and IMO unfairly) considered to be Bruce Springsteen's worst-ever song.
 
 "Mary Queen of Arkansas" was one of four songs that Bruce played for John Hammond during their very first meeting in Hammond's Columbia Records office on May 2, 1972 (just a few weeks after the film that inspired it lost in all five of its Academy Award-nominated categories) and the only one with which Hammond was singularly unimpressed, calling the song "pretentious."
@@ -26,10 +36,10 @@ The effect is both subtle and breathtaking, and it's all the more impressive whe
 
 Now, about those lyrics…
 
-> *Mary, Queen of Arkansas, it's not too early for dreamin'*
-> *The sky is grown with cloud seed sown, and a bastard's love can be redeeming*
-> *Mary, my queen, your soft hulk is reviving*
-> *No, you're not too late to desecrate, the servants are just rising*
+> *Mary, Queen of Arkansas, it's not too early for dreamin'*<br>
+> *The sky is grown with cloud seed sown, and a bastard's love can be redeeming*<br>
+> *Mary, my queen, your soft hulk is reviving*<br>
+> *No, you're not too late to desecrate, the servants are just rising*<br>
 
 Look, there's no way around acknowledging that this was not Bruce at his most enlightened.
 
@@ -41,10 +51,10 @@ And in 1972, that was not the makings of a socially acceptable romantic relation
 
 Our narrator doesn't seem to live within the social mainstream, either–he refers to himself as a bastard, a circus performer, and a pauper, in marked contrast to Mary, who by implication is more financially well off (she has servants, after all):
 
-> *Well, I'm just a lonely acrobat, the live wire is my trade*
-> *I've been a shine boy for your acid brat and a wharf rat of your state*
-> *Mary, my queen, your blows for freedom are missing*
-> *You're not man enough for me to hate or woman enough for kissing*
+> *Well, I'm just a lonely acrobat, the live wire is my trade*<br>
+> *I've been a shine boy for your acid brat and a wharf rat of your state*<br>
+> *Mary, my queen, your blows for freedom are missing*<br>
+> *You're not man enough for me to hate or woman enough for kissing*<br>
 
 Many critics take Bruce's liberal use of circus imagery literally, suggesting that the lovers are actual performers. I don't think that's true at all–rather, I think Bruce uses the circus as metaphor, a way of establishing his lovers as societal outcasts, or "freaks." (It's likely, though, that Bruce was taken enough with his circus setting to spawn an additional, [more literal song](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md) for his follow-up album.)
 
@@ -52,15 +62,15 @@ Many critics take Bruce's liberal use of circus imagery literally, suggesting th
 
 That verse's last line, though, makes it clear that the narrator has a bit of a self-acceptance issue as well. He's clearly ill at ease about Mary's non-traditional gender status and confused about his attraction to her. He's also well aware that if they pursue their relationship in their intolerant community, things are not going to end well:
 
-> *The big top is for dreamers, we can take the circus all the way to the border*
-> *And the gallows wait for martyrs whose papers are in order*
-> *But I was not born to live to die and you were not born for queenin'*
-> *It's not too late to infiltrate, the servants are just leavin'*
+> *The big top is for dreamers, we can take the circus all the way to the border*<br>
+> *And the gallows wait for martyrs whose papers are in order*<br>
+> *But I was not born to live to die and you were not born for queenin'*<br>
+> *It's not too late to infiltrate, the servants are just leavin'*<br>
 
-> *Mary, Queen of Arkansas, your white skin is deceivin'*
-> *You wake and wait to lie in bait and you almost got me believin'*
-> *But on your bed, Mary, I can see the shadow of a noose*
-> *I don't understand how you can hold me so tight and love me so damn loose*
+> *Mary, Queen of Arkansas, your white skin is deceivin'*<br>
+> *You wake and wait to lie in bait and you almost got me believin'*<br>
+> *But on your bed, Mary, I can see the shadow of a noose*<br>
+> *I don't understand how you can hold me so tight and love me so damn loose*<br>
 
 These two verses are filled with ominous imagery of gallows, martyrs, a noose. (It's worth noting that Mary, Queen of Scots was beheaded, almost certainly not a coincidental parallel.) If our lovers are to have any chance at a life together, they're going to have to find a place more accepting.
 
@@ -72,9 +82,9 @@ That line resonates universally: who among us hasn't felt that way in a relation
 
 As the song reaches its close, our narrator is desperate to flee with Mary, to escape someplace far away where they can start a new life free of judgment:
 
-> *But I know a place where we can go, Mary*
-> *Where I can get a good job and start out all over again clean*
-> *Oh, I got contacts deep in Mexico where the servants have been seen*
+> *But I know a place where we can go, Mary*<br>
+> *Where I can get a good job and start out all over again clean*<br>
+> *Oh, I got contacts deep in Mexico where the servants have been seen*<br>
 
 Bruce leaves his story unresolved, but we sense that Mary is not up for running away. There's no indication at any point in the song that Mary is anything less than comfortable in her own skin, and in fact while our narrator has visions of impending doom, Mary simply lies in wait and seduction for her suitor. That "hold me so tight/love me so loose" line is an expression of frustration: *if you love me, Mary, why won't you run away with me?*
 

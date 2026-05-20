@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me Round-Up: I'm on Fire"
+author: "Ken"
+excerpt: "Presenting the first in an occasional catch-up/round-up of terrific “I’m on Fire” covers."
+tags: descartes im-on-fire mainline-55 nick-trovas-band noam-bass snju
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/mainline.jpg
+post_id: 25178
+---
 So I’ve had this dilemma for a while now: there are just too many great covers of “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” out there.
 
 Over the past three years or so, I’ve featured no less than [sixteen covers](/cover-songs/) of Bruce’s 1985 Top Ten single, but they keep multiplying at an accelerating pace.

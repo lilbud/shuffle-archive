@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 14"
+author: "Ken"
+excerpt: "On this day: the release of High Hopes, the one and only performance of “Gov. Christie’s Traffic Jam,” and more."
+tags: boston garland-jeffreys gov-christie-traffic-jam heavens-wall high-hopes incident-on-57th-street joe-grushecky john-eddie light-of-day nebraska oklahoma-hills willie-nile
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/high-hopes-album-bruce-springsteen-1389043820.jpg
+post_id: 55588
+---
 **1973:** Bruce and the E Street Band conclude their seven-day, twice-a-day gig at Paul’s Mall in Boston.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1973-01-14.png.webp)

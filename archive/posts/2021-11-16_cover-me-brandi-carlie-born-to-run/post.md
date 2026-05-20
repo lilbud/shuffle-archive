@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Brandi Carlile: Born to Run"
+author: "Ken"
+excerpt: "In the wake of North Carolina’s anti-LGBTQ HB2 law, Bruce made a statement by cancelling his show in Greensboro. Brandi Carlile made a different kind of statement shortly after–and it was perfect."
+tags: born-to-run brandi-carlile
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/brandi.jpg
+post_id: 30949
+---
 In April 2016, the state of North Carolina passed the Public Facilities Privacy and Security Act, which dictated which public bathrooms transgender people were permitted to use and eliminated the ability for LGBTQ citizens to sue for certain human rights violations in the workplace.
 
 Citizens, activists, businesses and artists all over the United States took a stand against the measure. Bruce Springsteen was among the artists who chose to boycott the state in protest, cancelling a planned show in Greensboro, a long and loyal Springsteen stronghold, only two days before the scheduled event.

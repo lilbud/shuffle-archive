@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Who'll Stop the Rain"
+author: "Ken"
+excerpt: "Bruce Springsteen’s cover of this timeless CCR classic sparked a national conversation that never stopped."
+tags: ccr john-fogerty wholl-stop-the-rain
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/whostop.jpg
+post_id: 32362
+---
 > "Vietnam turned this whole country into [a] dark street, and unless we're able to walk down those dark alleys and look into the eyes of the men and the women that are down there and the things that happened, we're never gonna be able to get home. You guys out there, you're eighteen or nineteen years old... it happened once and it can happen again."
 >
 > *–Bruce Springsteen, on stage in Los Angeles, August 20, 1981*<br>

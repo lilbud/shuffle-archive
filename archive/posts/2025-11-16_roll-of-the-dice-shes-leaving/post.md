@@ -1,3 +1,13 @@
+---
+layout: post
+title: "She's Leaving"
+author: "Ken"
+excerpt: "“She’s Leaving” is a lovely outcast from Bruce’s pre-Greetings recording sessions, a rare survivor from the Bruce Springsteen Band era for which we have both a studio recording and a live performance."
+tags: bruce-springsteen-band shes-leaving
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/woman-walking-away.jpg
+post_id: 7315
+---
 If Bruce's catalog of officially released material was a mountain, it would be surrounded by a vast range of foothills of discarded songs. Some, undoubtedly, were wise castoffs; others were true gems, both polished and unrefined.
 
 "She's Leaving" is one of Bruce's loveliest early recorded-but-not-released demos. Written and performed during the Bruce Springsteen Band era, it's one of the few compositions from that period that Bruce carried forward into the recording sessions that would yield much of the material for his first album.

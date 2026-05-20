@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Monster Mash"
+author: "Ken"
+excerpt: "One time only (thankfully): Bruce and The E Street Band re-imagine “Monster Mash” as a reggae song. It works about as well as you’d expect it to."
+tags: bobby-pickett monster-mash
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/monstermash.jpg
+post_id: 13919
+---
 Oy, what a mess.
 
 Bruce has spoiled us in recent years–we're now used to him attempting covers of songs he's never played before and hitting them out of the park.

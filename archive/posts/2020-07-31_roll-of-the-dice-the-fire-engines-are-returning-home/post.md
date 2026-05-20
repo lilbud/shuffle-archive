@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Fire Engines Are Returning Home"
+author: "Ken"
+excerpt: "¯\_(ツ)_/¯"
+tags: steel-mill the-fire-engines-are-returning-home
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/fire-engines.jpg
+post_id: 19175
+---
 I consider myself to be pretty decent at interpreting Bruce's songs, but I have to cry "uncle" on this one.
 
 "The Fire Engines Are Returning Home" is one of Bruce's Steel Mill-era compositions. As far as I know, the band never recorded it, but it's likely they at least rehearsed it.

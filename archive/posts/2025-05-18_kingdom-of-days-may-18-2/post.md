@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 18"
+author: "Ken"
+excerpt: "On this date: The Castiles lay down their first tracks, the High Hopes Tour reaches its anything-goes finale, and Bruce premieres… “Hava Nagila?” Listen, watch, and read more inside."
+tags: baby-i castiles france ghost-of-tom-joad-tour hava-nagila high-hopes-tour little-latin-lupe-lu london madison-square-garden new-york-city new-york-new-york nice reunion-tour springsteen-on-broadway tex-vinyard thats-what-you-get the-e-street-shuffle tunnel-of-love-express-tour uk uncasville washington-dc where-the-bands-are working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/nice97.jpg
+post_id: 56782
+---
 ***New for 2025:** Audio for 1999 and 2014; video for 2014 and 2023*<br>
 
 **1966:** Bruce enters a recording studio for the very first time when The Castiles record their first two songs: "[Baby I](../2018-12-20-roll-of-the-dice-baby-i/post.md/)" and "[That's What You Get](../2019-11-30_roll-of-the-dice-thats-what-you-get/post.md)." Both are co-written by Bruce and George Theiss. The former will be officially released on *Chapter & Verse* in 2016; the latter is still unreleased but can be heard below.<br>

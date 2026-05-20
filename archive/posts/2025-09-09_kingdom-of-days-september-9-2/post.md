@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 9"
+author: "Ken"
+excerpt: "On this date: the inaugural Glory Days Symposium draws hundreds of Springsteen scholars to Monmouth University. On stage, Bruce plays “Double Shot (of My Baby’s Love)” and “Louie Louie” for the first time. More highlights inside."
+tags: auburn-hills born-in-the-usa-tour darkness-tour detroit double-shot-of-my-babys-love glory-days-symposium louie-louie miami notre-dame philadelphia racing-in-the-street reunion-tour river-tour-2016 streets-of-philadelphia vini-lopez
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/bruce_springsteen_and_the_e_street_band_-1980.jpg
+post_id: 59600
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1972:** Bruce makes a guest appearance with Odin at the Highlands Art and Music Fair in Highlands, New Jersey, playing a loose four-song mini-set (including a composed-on-the-spot "[Water Station](../2023-12-24_roll-of-the-dice-water-station/post.md)") through two power outages. The band closes with a cover of Big Joe Williams' "Baby, Please Don't Go"... sort of. Whether an intentional mashup or because he simply doesn't know the words, Bruce instead sings the lyrics for "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)," making this the first known recording of these words in public. Take a listen to this pristine, historic recording.<br>

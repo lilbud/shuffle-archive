@@ -1,3 +1,13 @@
+---
+layout: post
+title: "People Have the Power"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and Michael Stipe reprise their Vote for Change “People Have the Power” encore with the iconic protest song’s original recording artist."
+tags: patti-smith people-have-the-power
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/patti_smith-people_have_the_power_s.jpg
+post_id: 15112
+---
 Today it's one of our most iconic protest songs, but Patti Smith's "People Have the Power" didn't start out that way.
 
 Not for lack of intent, though–Patti remembers the inspiration for the song:

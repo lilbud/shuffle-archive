@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 29"
+author: "Ken"
+excerpt: "Happy birthday, Patti Scialfa, born on this date in 1953! Watch Bruce wish his wife a happy birthday by premiering “Give the Girl a Kiss” in her honor. More highlights inside."
+tags: born-to-run-tour bruce-springsteen-band darkness-tour east-rutherford from-my-home-to-yours give-the-girl-a-kiss jah-love mike-appel natural-magic patti-scialfa petersburg reunion-tour richfield river-tour rock-creek-park southside-johnny st the-castiles washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/admin-ajax-52.jpg
+post_id: 57873
+---
 **1953:** Singer/songwriter and First Lady of E Street Vivienne Patricia Scialfa is born on this day in Deal, New Jersey. Happy birthday, Patti!<br>
 
 **1966:** The Castiles headline at the Loew's 35 Shore Drive-in Theater's 10th anniversary party in Hazlet, New Jersey.<br>

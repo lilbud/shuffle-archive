@@ -1,8 +1,18 @@
-**1973:** Bruce plays the third of four nights at My Father's Place on Long Island.<br>
+---
+layout: post
+title: "January 20"
+author: "Ken"
+excerpt: "Classic all-star Hall of Fame team-ups lead the highlights from this date in Springsteen history."
+tags: axl-rose bob-dylan canada come-together i-cant-get-no-satisfaction julianne-phillips max-weinberg mick-jagger my-fathers-place new-york-city river-tour rock-and-roll-hall-of-fame rolling-stones spare-parts springsteen-on-broadway tobacco-road toronto tunnel-of-love walk-like-a-man when-you-need-me
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/medium-6.jpg
+post_id: 55626
+---
+**1973:** Bruce plays the third of four nights at My Father’s Place on Long Island.<br>
 
-**1981:** Bruce and the E Street Band resume the River Tour with the first of two shows at Toronto's Maple Leaf Gardens.<br>
+**1981:** Bruce and the E Street Band resume the River Tour with the first of two shows at Toronto’s Maple Leaf Gardens.<br>
 
-[Watch on Youtube: 101 - Bruce Springsteen - 4th Of July,Asbury Park ( Sandy ) - Toronto`1981 - SSE](https://www.youtube.com/watch?v=kSDO0obnEGU?list=PL5552C6E52D287ABD)
+[Watch on Youtube: 101 - Bruce Springsteen - 4th Of July,Asbury Park ( Sandy ) - Toronto`1981 - SSE](https://www.youtube.com/watch?v=kSDO0obnEGU)
 
 [Watch Video Highlight](https://videopress.com/embed/CMB9DGt1)
 
@@ -10,13 +20,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1981-0120b.jpg.webp)
 
-**1983:** Bruce records "[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)" and "[Betty Jean](../2019-02-13_roll-of-the-dice-betty-jean/post.md)." Both remain unreleased to this day.<br>
+**1983:** Bruce records “[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)” and “[Betty Jean](../2019-02-13_roll-of-the-dice-betty-jean/post.md).” Both remain unreleased to this day.<br>
 
-**1987:** In his home studio, Bruce kicks off recording sessions for what will become his next album, *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* On this first day, Bruce records "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)," "[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)," and "[When You Need Me](../2020-01-30_roll-of-the-dice-when-you-need-me/post.md)." That last one won't be released for more than a decade.<br>
+**1987:** In his home studio, Bruce kicks off recording sessions for what will become his next album, *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* On this first day, Bruce records “[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/),” “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/),” and “[When You Need Me](../2020-01-30_roll-of-the-dice-when-you-need-me/post.md).” That last one won’t be released for more than a decade.<br>
 
 [Watch on Youtube: Springsteen When You Need Me](https://www.youtube.com/watch?v=SEFHIAdPyo4)
 
-**1988:** Bruce inducts Bob Dylan into the Rock and Roll Hall of Fame at New York's Waldorf-Astoria Hotel. This is the last public appearance Bruce will make with his wife, Julianne Phillips. The all-star jam is a joy to watch, particularly Bruce and Mick Jagger sharing the microphone for "[(I Can't Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/)."<br>
+**1988**: Bruce inducts Bob Dylan into the Rock and Roll Hall of Fame at New York’s Waldorf-Astoria Hotel. This is the last public appearance Bruce will make with his wife, Julianne Phillips. The all-star jam is a joy to watch, particularly Bruce and Mick Jagger sharing the microphone for “[(I Can’t Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/).”<br>
 
 [Watch on Youtube: Bruce Springsteen inducts Bob Dylan Rock and Roll Hall of Fame inductions 1988](https://www.youtube.com/watch?v=SRu66l3QI_U)
 
@@ -30,13 +40,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1988-01-20.png.webp)
 
-**1991:** Bruce joins Max and others at McLoone's Rum Runner in Sea Bright, New Jersey for a benefit for Jim Faulkner. Amongst the set of covers: a smoking "[Tobacco Road](../2018-11-21_meeting-across-the-river-bruce-springsteen-max-weinberg-and-tim-mcloone-tobacco-road/post.md)."<br>
+**1991:** Bruce joins Max and others at McLoone’s Rum Runner in Sea Bright, New Jersey for a benefit for Jim Faulkner. Amongst the set of covers: a smoking “[Tobacco Road](../2018-11-21_meeting-across-the-river-bruce-springsteen-max-weinberg-and-tim-mcloone-tobacco-road/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen, Max Weinberg, Tim McLoone - "Tobacco Road" - Sea Bright, 1991-01-20](https://www.youtube.com/watch?v=x_4ldqSuqNg)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Asbury_Park_Press_1991_01_25_Page_38.jpg.webp)
 
-**1994:** At the Rock and Roll Hall of Fame induction ceremony, Rod Stewart and Elton John are slated to perform a duet of "[Come Together.](../2018-01-15_meeting-across-the-river-bruce-springsteen-and-axl-rose/post.md)" At the last minute, Rod isn't able to make it, so the producers ask Bruce to step in. Bruce declines, so they move on to Axl Rose, who accepts. Apparently Axl is a more intriguing duet partner than Elton, though, because when Axl asks Bruce to join him, this time Bruce says yes. Axl and Bruce had no warning this was coming, and therefore no rehearsal time. Mere minutes after being asked to step in, this is what went down.<br>
+**1994**: At the Rock and Roll Hall of Fame induction ceremony, Rod Stewart and Elton John are slated to perform a duet of “[Come Together.](../2018-01-15_meeting-across-the-river-bruce-springsteen-and-axl-rose/post.md)” At the last minute, Rod isn’t able to make it, so the producers ask Bruce to step in. Bruce declines, so they move on to Axl Rose, who accepts. Apparently Axl is a more intriguing duet partner than Elton, though, because when Axl asks Bruce to join him, this time Bruce says yes. Axl and Bruce had no warning this was coming, and therefore no rehearsal time. Mere minutes after being asked to step in, this is what went down.<br>
 
 [Watch on Youtube: Axl Rose and Bruce Springsteen perform "Come Together"](https://www.youtube.com/watch?v=UtzkBewRsiE)
 
@@ -44,10 +54,10 @@
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** Bruce's *From My Home to Yours* radio show returns with its first new episode of the year, Volume 17: "Lawyers, Guns & Money."<br>
+**2021:** Bruce’s *From My Home to Yours* radio show returns with its first new episode of the year, Volume 17: “Lawyers, Guns & Money.”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3)
 
-That evening, Bruce kicks off the inaugural celebration for President Joe Biden with a gorgeous solo performance of "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)."
+That evening, Bruce kicks off the inaugural celebration for President Joe Biden with a gorgeous solo performance of “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md).”
 
 [Watch on Youtube: Bruce Springsteen Performs "Land of Hope and Dreams"| Biden-Harris Inauguration 2021](https://www.youtube.com/watch?v=fW_Vny_aXNM)

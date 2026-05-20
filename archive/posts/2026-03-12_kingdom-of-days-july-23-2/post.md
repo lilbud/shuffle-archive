@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 23"
+author: "Ken"
+excerpt: "Don’t even know where to start today–treasures abound. Listen to a gorgeous Bruce Springsteen Band performance from ’71, the earliest known performance of “New York City Serenade,” watch a delightful Copenhagen street performance, and so very much more."
+tags: alejandro-escovedo atlanta be-bop-a-lula be-true beast-of-burden bergen born-in-the-usa-tour born-to-run-tour canada cardiff cats-on-a-smooth-surface copenhagen damrosch-park dancing-in-the-dark denmark devils-and-dust-tour down-thunder-road east-rutherford eric-burdon funk-song gimme-that-wine gothenburg if-i-should-fall-behind im-on-fire italy janey-dont-you-lose-heart john-magnusson lenox maxs-kansas-city mike-appel new-york-city nightline norway river-tour-2016 sad-eyes sonny-kenn stone-pony stray-cats streets-of-fire sweden the-bruce-springsteen-band this-depression toronto tv-movie udine uk wales we-gotta-get-out-of-this-place wholl-stop-the-rain with-every-wish working-on-a-dream-tour world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/19710723_2_front.jpg
+post_id: 57811
+---
 **1971:** The Bruce Springsteen Band opens for The Richard Goldman Band in Damrosch Park in New York City, delivering a fantastic, jazzy, horn-fueled hour-long set. The show was recorded from the soundboard in absolutely *outstanding* quality, perhaps the best recording from this period. If you haven't given it a listen before, trust me: do so now.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NTSZmMxw)

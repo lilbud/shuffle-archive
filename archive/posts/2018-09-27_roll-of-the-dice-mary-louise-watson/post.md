@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Roll of the Dice: Mary Louise Watson"
+author: "Ken"
+excerpt: "What can we say about this early, bluesy Steel Mill original other than that it showcases a young Bruce Springsteen developing his stage presence and patter? Um… let’s just go with that."
+tags: bruce-springsteen-band mary-louise-watson steel-mill weird-science
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/weird.jpg
+post_id: 4530
+---
 When I started this blog, I promised to make my way through Bruce's entire catalog–released and unreleased–and give each song due consideration and analysis.
 
 But I'm sorry: I simply cannot make it through a single listen of "Mary Louise Watson" — a bluesy unreleased Springsteen original from his Steel Mill days — without recalling this classic (and probably NSFW, so be forewarned) scene from *Weird Science:*
 
-[Watch on Youtube: Weird Science (5/12) Movie CLIP - Gary's Blues (1985) HD](https://www.youtube.com/watch?v=g9GBuciv20A?start=76)
+[Watch on Youtube: Weird Science (5/12) Movie CLIP - Gary's Blues (1985) HD](https://www.youtube.com/watch?v=g9GBuciv20A)
 
 I mean, come on. Listen to Bruce's early 1971 performance below, and especially when you get to the spoken-word mid-song break, tell me you aren't picturing Anthony Michael Hall with Bruce's voice.
 

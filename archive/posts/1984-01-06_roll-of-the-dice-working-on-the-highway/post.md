@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Working on the Highway"
+author: "Ken"
+excerpt: "Working on the Highway: Perhaps the best jailbait song ever."
+tags: bitusa child-bride nebraska working-on-the-highway
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/unnamed-4.jpg
+post_id: 181
+---
 One of Springsteen's most head-scratching penchants is for pairing dark lyrics with melodies so upbeat that you'll find yourself dancing, singing, and celebrating some low or pitiful characters.
 
 We fist-pump and chant while Bruce sings about a down-and-out Vietnam vet in "Born in the U.S.A." We sing along while Bruce crowd-surfs his way through "Hungry Heart," a song about a home-wrecking, family-abandoning philanderer.

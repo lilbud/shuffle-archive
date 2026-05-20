@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Western Stars"
+author: "Ken"
+excerpt: "“Western Stars” is Bruce’s magnum opus–a gorgeously cinematic, metatextual commentary on his life’s work and journey."
+tags: western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/western-1.jpg
+post_id: 16557
+---
 For Bruce Springsteen, all roads lead west.
 
 His fondness for cinema, his fascination with the American west, his reckoning with age and remembrance of glory days–all those avenues converge in the land of sunsets and arrive at "Western Stars."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The South Community Choir of Asbury Park and Bruce Springsteen: I've Got a Feeling (Everything's Gonna Be Alright)"
+author: "Ken"
+excerpt: "In 2001 and 2003, Bruce opened several of his Asbury Park holiday shows by joining the South Community Choir of Asbury Park on this timely gospel classic."
+tags: albertina-walker ive-got-a-feeling-everythings-gonna-be-alright south-community-choir-of-asbury-park
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/content.jpg
+post_id: 22583
+---
 I had this post originally scheduled for the end of the month, but it struck me this morning as better suited for today.
 
 On the evening of December6 2001, Bruce kicked off his holiday concert by joining the South Community Choir of Asbury Park for an eight-minute gospel rave-up of "I've Got a Feeling (Everything's Gonna Be Alright)."

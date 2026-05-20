@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'll See You in My Dreams"
+author: "Ken"
+excerpt: "Bruce’s closing track on Letter to You is laced with love, loss, longing, and promise."
+tags: ill-see-you-in-my-dreams letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/seeyou.jpg
+post_id: 30860
+---
 I held my granddaughter for the first time today.
 
 With a lifetime of all of seven days packed into her 5 pounds 7 ounces, she fell asleep in my arms. And as the fumes from my red-eye flight and morning rush ran out, I fell asleep too.

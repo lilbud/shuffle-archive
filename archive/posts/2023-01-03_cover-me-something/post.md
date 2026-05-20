@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Something"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen paid tribute the passing of The Quiet One by opening his 2001 holiday show with a cover of George Harrison’s greatest hit."
+tags: george-harrison something the-beatles
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/something.jpg
+post_id: 31939
+---
 George Harrison passed away on November 29, 2001, just a few days before Bruce Springsteen was set to kick off a festive run of holiday shows in Asbury Park. It was a tradition he’d started only a year prior with a pair of holiday benefits, and this year–so soon after the September 11th terror attacks–his community was in serious need of both succor and celebration.
 
 But when a Beatle passes, there’s really no other choice for a rock and roll musician but to pay one’s respects.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 10"
+author: "Ken"
+excerpt: "On this date: Bruce Springsteen meets Jon Landau and Ennio Morricone, plays his first show in Japan, inducts his band into the Rock and Roll Hall of Fame, and more."
+tags: beaver-brown before-the-fame big-mans-west born-in-the-usa-tour boston chicken-scratch-tour child denver ennio-morricone gotj-tour greensboro hall-of-fame italy japan johnny-99 jon-landau kittys-back new-york-city river-tour-2016 rome springsteen-on-broadway stone-pony tokyo working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/esbhof.jpg
+post_id: 56431
+---
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
 **1971:** The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the “Bruce Springsteen Acoustyc Jam.”<br>

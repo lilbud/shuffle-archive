@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Lisa Lowell: Secret Garden"
+author: "Ken"
+excerpt: "Way back in 2011, Sessions Band vocalist Lisa Lowell stopped by E Street Radio and gave us a great cover of Bruce’s “Secret Garden.”"
+tags: lisa-lowell secret-garden
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/lisalowell.jpg
+post_id: 18396
+---
 You’re familiar with Lisa Lowell’s voice, even if you don’t know her name.
 
 You can hear her backing vocals all over Bruce’s [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album, as far back as “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md),” and even on recently released tracks like “[I’ll Stand By You](../2018-08-09_roll-of-the-dice-ill-stand-by-you-always/post.md).” And of course, she was an on-stage presence throughout the Seeger Session Tour.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: We Are Alive"
+author: "Ken"
+excerpt: "“We Are Alive” delivers one of Bruce’s most hopeful messages through his some of his most macabre imagery–quite an impressive feat."
+tags: we-are-alive wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/wearealive-1.jpg
+post_id: 3987
+---
 > *"Is there anybody ALIVE out there?!?"*<br>
 
 Bruce finally answered his own question on the last track of his [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album in 2012, in an adventurous olio that manages to deliver one of his most hopeful messages through his most macabre imagery–quite an impressive feat.
@@ -82,7 +92,7 @@ But of course, that's what Bruce does.
 
 Watch this wonderfully filmed performance from London in 2012, pay attention to Bruce's face and voice as he calls upon the spirits past and present, and join the chorus that helps "We Are Alive" take flight.
 
-https://youtu.be/C-dhZR5uTgY
+[Watch on Youtube: Bruce Springsteen - We Are Alive - London 2012 HD (with subtitles)](https://www.youtube.com/watch?v=qFyg5hE-5qA)
 
 **We Are Alive**<br>
 **Recorded** 2011<br>

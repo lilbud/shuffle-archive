@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Melissa McClelland: Factory"
+author: "Ken"
+excerpt: "A Labor Day special, courtesy of Canadian singer-songwriter Melissa McClellan’s rocking arrangement of “Factory.”"
+tags: factory melissa-mcclelland
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/melissa.jpg
+post_id: 21108
+---
 A Labor Day special today, courtesy of Canadian singer-songwriter Melissa McClelland.
 
 If her name sounds vaguely familiar and her voice sounds *very* familiar, that's probably because she frequently accompanies Sarah McLachlan on tour, playing the bass guitar and providing powerful backing vocals. If you've seen Sarah before, you've likely seen Melissa.

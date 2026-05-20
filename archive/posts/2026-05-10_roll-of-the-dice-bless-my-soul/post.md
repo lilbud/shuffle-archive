@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Bless My Soul"
+author: "Ken"
+excerpt: "This uncirculating, fifty-year-old recording showcases the Bruce Springsteen Band at the height of their powers."
+tags: bless-my-soul the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/bless.webp
+post_id: 35514
+---
 I've got a treat for you today.
 
 It's kind of like two treats, actually, because *any* Bruce Springsteen Band performance is a delight in and of itself.

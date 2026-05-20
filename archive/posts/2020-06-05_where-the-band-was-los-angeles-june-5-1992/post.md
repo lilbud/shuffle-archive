@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, June 5, 1992 (TJ's story)"
+author: "Ken"
+excerpt: "Guest-blogger TJ Jones was on-hand for Bruce’s secret rehearsal show in 1992 (Bruce’s his first with his new band), and he tells his story today."
+tags: tj-jones world-tour-1992
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/19920605_2_front.jpg
+post_id: 18728
+---
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce's first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*<br>
+***Editor’s Note:*** *Today’s guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce’s first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*<br>
 
 June 5, 1992. I will always remember that date.
 
@@ -14,13 +24,13 @@ I was living in Virginia Beach in 1992, and in May that year the local rock stat
 
 About two weeks before the show, every day for four days, the station played a snippet of a Springsteen song. If you called in and identified it, you qualified for a drawing.
 
-I think it was on the second day that they played about a second of "[Candy's Room.](../2022-05-02_roll-of-the-dice-candys-room/post.md)" I knew it right away, called in and got through. That Friday, they drew my name out of the four people that won that week. I could not believe it. One week later, I was on my way to California.
+I think it was on the second day that they played about a second of “[Candy's Room.](../2022-05-02_roll-of-the-dice-candys-room/post.md)” I knew it right away, called in and got through. That Friday, they drew my name out of the four people that won that week. I could not believe it. One week later, I was on my way to California.
 
 The morning of the show, my friend and I, along with DJ Jay Philpot, got on the plane to fly to L.A. When we got to the hotel, we received instructions to meet later that afternoon in the lobby with all of the other radio contest winners. They loaded us onto a bus and we were off to the secret location in Hollywood. It was a couple of months after the L.A. riots, and I remember passing through areas with burnt out buildings.
 
 When we arrived at the studio, there were already a number of people outside the doors waiting to get in. After a little while, the doors opened and someone came out to announce that Bruce wanted the contest winners to come in. We made our way to the front, through the doors, and into a wide-open hall. Right away, we saw Bruce and the band on the stage and rushed right up front. So for a little while, the 30 or so contest winners with our guests were the only fans there.
 
-I remember Bruce working through the chord changes of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" with the band. He stopped and asked several of us where we were from. Then I remember him playing an acoustic version of "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and telling us that we were going to help sing the chorus.
+I remember Bruce working through the chord changes of “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” with the band. He stopped and asked several of us where we were from. Then I remember him playing an acoustic version of “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” and telling us that we were going to help sing the chorus.
 
 He left the stage until showtime. There was time to get food and drinks, which were provided. There were a lot of music industry people there. I remember Little Steven walking by me to hang out with someone.
 
@@ -62,7 +72,7 @@ As show time neared, the contest winners were right back up front. The show was 
 
 [Watch Video Highlight](https://videopress.com/embed/er94Z6vt)
 
-- and an acoustic "Hungry Heart"
+- and an acoustic “Hungry Heart”
 
 [Watch Video Highlight](https://videopress.com/embed/71qk28wQ)
 
@@ -84,4 +94,4 @@ What an experience. Over time, I've forgotten some of the details but other part
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*

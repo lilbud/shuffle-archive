@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Summertime Blues"
+author: "Ken"
+excerpt: "With can’t-catch-a-break lyrics belied by an infectious and instantly recognizable riff, “Summertime Blues” was tailor-made for a Springsteen set list. Watch some of Bruce’s great performances of it inside."
+tags: eddie-cochran summertime-blues
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/summertime.jpg
+post_id: 15050
+---
 With one of the most recognizable riffs in rock and roll and lyrics aimed right at rock's core audience, it's no wonder that "Summertime Blues" became a monster hit when rockabilly legend Eddie Cochran released it in the summer (appropriately) of 1958.
 
 [Watch on Youtube: Summertime Blues](https://www.youtube.com/watch?v=1C38Zevwyx4)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Precious Metal: Two Hearts"
+author: "Ken"
+excerpt: "Check out Precious Metal’s hard-driving, power pop rendition of “Two Hearts,” approved by The Boss himself (or so we’re told)."
+tags: precious-metal two-hearts
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/precious.jpg
+post_id: 20105
+---
 When L.A.-based Precious Metal covered Bruce Springsteen's "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" on their self-titled 1990 album, The Boss himself raved about it.
 
 Or so we're told at least, by the band themselves.

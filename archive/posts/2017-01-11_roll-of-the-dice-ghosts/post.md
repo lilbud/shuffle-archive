@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Ghosts"
+author: "Ken"
+excerpt: "A joyful but haunted anthem that both celebrates and mourns our losses."
+tags: ghosts letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/ghost.jpg
+post_id: 41196
+---
 > "Death's final and lasting gift to the living is an expanded vision of life itself."
 >
-> *–Bruce Springsteen, on stage nightly in 2023*
+> *–Bruce Springsteen, on stage nightly in 2023*<br>
 
 "Ghosts" is a haunted song.
 
@@ -36,15 +46,15 @@ That's the specter that haunts "Ghosts." Not the surface joy, nor the subtext of
 
 We don't hear it immediately, though. As "Ghosts" opens, Bruce speaks to his fallen friend, who visits him in a dream.
 
-> *I hear the sound of your guitar*
-> *Coming in from the mystic far*
-> *The stone and the gravel in your voice*
-> *Come in my dreams and I rejoice*
+> *I hear the sound of your guitar*<br>
+> *Coming in from the mystic far*<br>
+> *The stone and the gravel in your voice*<br>
+> *Come in my dreams and I rejoice*<br>
 
-> *It's your ghost moving through the night*
-> *Spirit filled with light*
-> *I need you by my side*
-> *Your love and I'm alive*
+> *It's your ghost moving through the night*<br>
+> *Spirit filled with light*<br>
+> *I need you by my side*<br>
+> *Your love and I'm alive*<br>
 
 It's territory Bruce has trod elsewhere–even on the same album, in fact. "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" is essentially a song-length expansion of the first verse of "Ghosts." The notion of ghosts as friendly companions has been part of his private and public musings since at least the passing of Clarence Clemons in 2011.
 
@@ -56,9 +66,9 @@ Bruce has always known a good hook when he stumbles on one, but even he couldn't
 
 Maybe it's the catharsis in those words, but it's all too easy to focus all of our attention on them and miss the remainder of the chorus. That's where the true haunting begins.
 
-> *I can feel the blood shiver in my bones*
-> *I'm alive and I'm out here on my own*
-> *I'm alive and I'm coming home*
+> *I can feel the blood shiver in my bones*<br>
+> *I'm alive and I'm out here on my own*<br>
+> *I'm alive and I'm coming home*<br>
 
 Even as he rejoices, Bruce feels a chill in his bones. He's alive, but the rest of his original bandmates aren't. (Ordinarily in these essays, I differentiate between the songwriter and his point-of-view character, but "Ghosts" is so clearly autobiographical that it seems silly to do so here.)
 
@@ -68,20 +78,20 @@ The last line of the chorus–and the song–reveals the song's haunted heart: *
 
 And at this point, his awareness subtly but powerfully transforms the song.
 
-> *Old buckskin jacket you always wore*
-> *Hangs on the back of my bedroom door*
-> *Boots and the spurs you used to ride*
-> *Click down the hall but never arrive*
+> *Old buckskin jacket you always wore*<br>
+> *Hangs on the back of my bedroom door*<br>
+> *Boots and the spurs you used to ride*<br>
+> *Click down the hall but never arrive*<br>
 
-> *Your old Fender Twin from Johnny's Music downtown*
-> *Still set on 10 to burn this house down*
-> *Count the band in then kick into overdrive*
-> *By the end of the set we leave no one alive*
+> *Your old Fender Twin from Johnny's Music downtown*<br>
+> *Still set on 10 to burn this house down*<br>
+> *Count the band in then kick into overdrive*<br>
+> *By the end of the set we leave no one alive*<br>
 
-> *Ghosts running through the night*
-> *Our spirits filled with light*
-> *I need, need you by my side*
-> *Your love and I'm alive*
+> *Ghosts running through the night*<br>
+> *Our spirits filled with light*<br>
+> *I need, need you by my side*<br>
+> *Your love and I'm alive*<br>
 
 We notice the continued use of spectral imagery: a pair of cowboy boots clicking down the hall is a delightfully spooky, almost Scooby-Doo-ish trope, but it's also (we assume) completely apropos for Theiss' younger self.
 
@@ -91,10 +101,10 @@ But perhaps we miss the subtle shift of the second chorus: it's no longer *your*
 
 The E Street Band hushes here, so that Bruce might have his final moments of communion with his former bandmates.
 
-> *I shoulder your Les Paul and finger the fretboard*
-> *I make my vows to those who've come before*
-> *I turn up the volume, let the spirits be my guide*
-> *Meet you brother and sister on the other side*
+> *I shoulder your Les Paul and finger the fretboard*<br>
+> *I make my vows to those who've come before*<br>
+> *I turn up the volume, let the spirits be my guide*<br>
+> *Meet you brother and sister on the other side*<br>
 
 This is where past becomes present. Bruce is deliberately vague in his reference to "those who've come before." It refers to both the musical influences of a high-school guitarist and the fallen comrades of a septuagenarian rock star, allowing the singer a moment of temporal confluence before the final chorus and "la la" coda, in which the entire E Street Band join him, playing the roles of ghosts themselves.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 22"
+author: "Ken"
+excerpt: "A very busy day in Springsteen history: Bruce takes home a Golden Globe, kicks off an Australian tour, performs for benefits and TV specials, and more. Lots of great footage today!"
+tags: australia blood-brothers cbs-sunday-morning donald-trump ghost-of-tom-joad-tour golden-globes hope-for-haiti new-orleans new-york-city-serenade pegasus perth rolling-stone san-francisco steel-mill streets-of-philadelphia sundance-blues-band the-upstage vini-lopez we-shall-over-come
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/26274125167_c9ec18b421_o.jpg
+post_id: 55628
+---
 **1949:** “Mad Dog” Vini Lopez, original E Street Band drummer, is born in Neptune Township, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/vini.jpg.webp)

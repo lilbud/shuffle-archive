@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: She's a Woman"
+author: "Ken"
+excerpt: "“She’s a Woman” is one for the completists, a funky guitar showcase with substandard lyrics. Bruce would get it right a few years later with “She’s the One.”"
+tags: shes-a-woman the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/woman.jpg
+post_id: 15117
+---
 Warning: this is another one for the completists out there–the folks who want to hear everything Bruce has ever played at least once, regardless of quality.
 
 If you're still with me, you're my kind of people.

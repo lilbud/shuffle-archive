@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Heathers: Dancing in the Dark"
+author: "Ken"
+excerpt: "Twin sisters Louise and Ellie Macnamara paid tribute to one of their great musical influences on the day his latest album was released."
+tags: dancing-in-the-dark heathers
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/heathers.jpg
+post_id: 23803
+---
 Twin sisters Ellie and Louise Macnamara are lifelong Bruce Springsteen fans, and it shows.
 
 They’ve been singing together in their native Ireland as Heathers (yes, that’s an homage to the film) since they were seventeen. They’re thirty now, and in interviews they almost always cite Bruce as one of their key musical influences while growing up.

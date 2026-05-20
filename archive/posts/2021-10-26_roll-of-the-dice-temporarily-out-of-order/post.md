@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Temporarily Out of Order"
+author: "Ken"
+excerpt: "It’s a muddy recording, but this early rocker has a self-deprecating “I’m Goin’ Down” charm that wins us over."
+tags: steel-mill temporarily-out-of-order
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/temporarily.jpg
+post_id: 30465
+---
 As the saying goes, this one is for the completists.
 
 As Steel Mill songs go, "Temporarily Out of Order" is a pretty tight, light, and fun mid-tempo rocker with a clever conceit. The only problem is the recording: while it's clear enough to make out most of Bruce's important lyrics, the guitar jams completely drown out the vocals at times, leaving us with an incomplete document of Bruce's 1970 original song.

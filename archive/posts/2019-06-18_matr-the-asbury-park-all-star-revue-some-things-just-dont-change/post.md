@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Asbury Park All-Star Revue, Some Things Just Don't Change"
+author: "Ken"
+excerpt: "For a couple of nights in 1977, Steve was the front man and Bruce was the sidekick. Listen in on a highlight from those shows, a wonderful “cover” of Little Steven’s “Some Things Just Don’t Change.”"
+tags: asbury-park-all-star-revue some-things-just-dont-change southside-johnny steve-van-zandt
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/steve.jpg
+post_id: 10188
+---
 When a fellow fan asks me what shows I most wish I could have been at, the famous Asbury Park All-Star Revue shows from May 1977 rank pretty high on the list.
 
 Technically, they weren't Springsteen shows–they were *supposed* to be Southside Johnny shows. But Southside got sick and couldn't perform, putting four shows at the Monmouth Arts Center at risk of cancellation.

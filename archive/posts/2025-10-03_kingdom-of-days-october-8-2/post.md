@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 8"
+author: "Ken"
+excerpt: "Bruce shoots the video for “Brilliant Disguise,” Nils drops by David Letterman’s show, Jake makes an early E Street Band appearance back in 2009, and Ben Stiller resurrects his Bruce impression on SNL. More highlights inside."
+tags: american-land backstreets ben-stiller brilliant-disguise bruce-springsteen-band caserta castiles david-letterman east-rutherford giants-stadium italy jake-clemons john-fogerty little-steven-and-the-disciples-of-soul my-hometown native-american night nils-lofgren orlando permanent-vacation r-e-m saturday-night-live seeger-sessions-tour sun-city tenth-avenue-freeze-out tracy-chapman vote-for-change-tour working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/juststories.jpg
+post_id: 61075
+---
 ***New for 2025:** New entry for 1979; video for 2004*<br>
 
 **1965:** The Castiles play what is believed to be their first publicly advertised gig at the I.B. Club in Howell, New Jersey.<br>
@@ -10,7 +20,7 @@
 
 [Watch on Youtube: Born To Run](https://www.youtube.com/playlist?list=OLAK5uy_nZs0gvllzGn7y9-5OuorN7W37HPrPGrn8)
 
-**1979:** Bruce and the E Street Band record “[Party Lights](../2019-11-14_roll-of-the-dice-party-lights/post.md)” at The Power Station in New York City. It will remain unreleased for more than 35 years.<br>
+**1979:** Bruce and the E Street Band record "[Party Lights](../2019-11-14_roll-of-the-dice-party-lights/post.md)" at The Power Station in New York City. It will remain unreleased for more than 35 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)
 
@@ -18,29 +28,29 @@
 
 [Watch on Youtube: Nils Lofgren on Late Night with David Letterman, 1987-10-08](https://www.youtube.com/watch?v=Sm-860N8T1w)
 
-**1987:** Bruce films the video for “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” at Fort Hancock in Sandy Hook, New Jersey, singing the vocal live over the album’s instrumental track for a remarkable 24 takes. Meiert Avis directs the shoot and the video, and we are fortunate to have [his lengthy and fascinating recollection](https://meiertavis.com/archives/1215) of the events.<br>
+**1987:** Bruce films the video for "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" at Fort Hancock in Sandy Hook, New Jersey, singing the vocal live over the album's instrumental track for a remarkable 24 takes. Meiert Avis directs the shoot and the video, and we are fortunate to have [his lengthy and fascinating recollection](https://meiertavis.com/archives/1215) of the events.<br>
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1987-1008.jpg.webp)
 
-That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in New York City, where they perform “[Native American](../2019-10-25_matr-little-steven-and-bruce-springsteen-native-american/post.md)” and “Sun City.”
+That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in New York City, where they perform "[Native American](../2019-10-25_matr-little-steven-and-bruce-springsteen-native-american/post.md)" and "Sun City."
 
 [Watch on Youtube: Little Steven and Bruce Springsteen-"Native American".(Subtítulos en Español)](https://www.youtube.com/watch?v=WkJkooAjDrg)
 
-**1992:** A scheduled show at Mountain View’s Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.<br>
+**1992:** A scheduled show at Mountain View's Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1992-10-08.jpg.webp)
 
-**1998:** Bruce and Mike Appel testify in the Royal Courts of Justice in London to prevent the unauthorized publication of some of Bruce’s early recorded but unreleased songs.<br>
+**1998:** Bruce and Mike Appel testify in the Royal Courts of Justice in London to prevent the unauthorized publication of some of Bruce's early recorded but unreleased songs.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1998-10-08a.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1998-10-08b.jpg.webp)
 
-**2004:** The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on stage for “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” and Bruce guests with R.E.M. on “[Permanent Vacation](../2018-04-20_meeting-across-the-river-rem-and-bruce-springsteen-permanent-vacation/post.md).”<br>
+**2004:** The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on stage for "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" and Bruce guests with R.E.M. on "[Permanent Vacation](../2018-04-20_meeting-across-the-river-rem-and-bruce-springsteen-permanent-vacation/post.md)."<br>
 
-[Watch on Youtube: R.E.M. 2004/10/08 - Vote For Change Tour, TD Waterhouse Centre, Orlando (w/Springsteen & Lofgren)](https://www.youtube.com/watch?v=imXUy4RyuNw)
+[Watch on Youtube: R.E.M. 2004/10/08 - Vote For Change Tour, TD Waterhouse Centre, Orlando (w/Springsteen & Lofgren)](https://www.youtube.com/watch?v=imXUy4RyuNw?start=3)
 
 [Watch on Youtube: REM & Bruce Springsteen - Permanent Vacation](https://www.youtube.com/watch?v=ZfxMHXJZdnU)
 
@@ -56,7 +66,7 @@ That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in
 
 [Watch on Youtube: Bruce Springsteen with The SSB - American Land](https://www.youtube.com/watch?v=mWKhbNVX9L0)
 
-**2009:** At Night Four of five at Giants Stadium on the Working on a Dream Tour, Bruce and the E Street Band perform the entire *Born to Run* album, during which Jake Clemons makes an early E Street appearance with Ed Manion and Curt Ramm on “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md).”<br>
+**2009:** At Night Four of five at Giants Stadium on the Working on a Dream Tour, Bruce and the E Street Band perform the entire *Born to Run* album, during which Jake Clemons makes an early E Street appearance with Ed Manion and Curt Ramm on "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen-Tenth Ave Freeze-Out-Giants Stadium-10/08/09](https://www.youtube.com/watch?v=wSNy8KR9dZc)
 

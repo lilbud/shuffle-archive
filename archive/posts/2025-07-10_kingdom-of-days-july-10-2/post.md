@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 10"
+author: "Ken"
+excerpt: "The Bruce Springsteen Band debuted on this date in 1971. Listen to their first performance inside, plus more highlights from this date in history."
+tags: castiles cats-on-a-smooth-surface cc-rider down-the-road-a-piece john-hammond london sheffield stone-pony tunnel-of-love-tour uk wembley western-stars world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/19880710_front.jpg
+post_id: 57665
+---
 ***New for 2025:** No updates*<br>
 
 **1966:** The Castiles play a brief set at the Surf 'N' See Club in Sea Bright, New Jersey.<br>

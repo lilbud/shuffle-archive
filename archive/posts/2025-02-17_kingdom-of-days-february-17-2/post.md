@@ -1,10 +1,20 @@
-**1970:** Bruce meets Nils Lofgren for the first time at The Matrix in San Francisco, where both Steel Mill (Bruce's band) and Grin (Nils' band) are playing.<br>
+---
+layout: post
+title: "February 17"
+author: "Ken"
+excerpt: "On this date: Bruce meets Nils for the first time and plays with Ronnie Spector and Flo and Eddie."
+tags: australia bruce-willis flo-and-eddie freehold germany ghost-of-tom-joad-tour grin hamburg john-mcenroe lawsuit-tour melbourne nils-lofgren richfield ronnie-spector san-francisco steel-mill stephen-stills
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/spector.jpg
+post_id: 55960
+---
+**1970:** Bruce meets Nils Lofgren for the first time at The Matrix in San Francisco, where both Steel Mill (Bruce’s band) and Grin (Nils’ band) are playing.<br>
 
-**1972:** Bruce plays a solo acoustic show at Freehold Township High School. The set list includes his never-released "[No Need](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)," and "[Cowboys of the Sea](../2021-09-17_roll-of-the-dice-cowboys-of-the-sea/post.md)," and "[She's a Woman](../2020-01-24_roll-of-the-dice-shes-a-woman/post.md)."<br>
+**1972:** Bruce plays a solo acoustic show at Freehold Township High School. The set list includes his never-released “[No Need](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/),” and “[Cowboys of the Sea](../2021-09-17_roll-of-the-dice-cowboys-of-the-sea/post.md),” and “[She’s a Woman](../2020-01-24_roll-of-the-dice-shes-a-woman/post.md).”<br>
 
 **1974:** Bruce cancels a show in Columbus following the firing of original E Street Band drummer Vini Lopez.<br>
 
-**1977:** Ronnie Spector and Flo and Eddie make guest appearances with Bruce and the E Street Band at the Richfield Coliseum. Together, they perform "[Baby, I Love You](../2018-09-02_meeting-across-the-river-bruce-springsteen-and-ronnie-spector-baby-i-love-you/post.md)," "[Walking in the Rain](../2022-01-13_matr-ronnie-spector-and-the-e-street-band-walking-in-the-rain/post.md)," "[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md)," and "[Say Goodbye to Hollywood](../2019-08-27_matr-ronnie-spector-and-the-e-street-band-say-goodbye-to-hollywood/post.md)" (the last of which was recently recorded in the studio with the E Street Band).<br>
+**1977:** Ronnie Spector and Flo and Eddie make guest appearances with Bruce and the E Street Band at the Richfield Coliseum. Together, they perform “[Baby, I Love You](../2018-09-02_meeting-across-the-river-bruce-springsteen-and-ronnie-spector-baby-i-love-you/post.md),” “[Walking in the Rain](../2022-01-13_matr-ronnie-spector-and-the-e-street-band-walking-in-the-rain/post.md),” “[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md),” and “[Say Goodbye to Hollywood](../2019-08-27_matr-ronnie-spector-and-the-e-street-band-say-goodbye-to-hollywood/post.md)” (the last of which was recently recorded in the studio with the E Street Band).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KSeYskRd)
 

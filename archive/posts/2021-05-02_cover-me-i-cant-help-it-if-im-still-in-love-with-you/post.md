@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I Can't Help It (If I'm Still in Love With You)"
+author: "Ken"
+excerpt: "One time only: At a 1978 soundcheck, Bruce covered Hank William’s 1951 #2 hit."
+tags: hank-williams i-cant-help-it-if-im-still-in-love-with-you linda-ronstadt
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/canthelp.jpg
+post_id: 26520
+---
 "I Can't Help It (If I'm Still in Love With You)" stormed the Billboard Country chart when Hank Williams released it in 1951...
 
 [Watch on Youtube: Hank Williams - I Can't Help It (If I'm Still In Love With You)](https://www.youtube.com/watch?v=StyKrwHhWdM)

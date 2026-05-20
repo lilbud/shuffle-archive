@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Beaver Brown, Money (That's What I Want)"
+author: "Ken"
+excerpt: "Bruce Springsteen has covered Motown’s first big hit several times over the years, but only two club performances from the eighties were caught on tape. Take a listen to both inside."
+tags: barrett-strong beaver-brown money-thats-what-i-want the-beatles
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/money.jpg
+post_id: 14436
+---
 Barrett Strong's original 1959 recording of "Money (That's What I Want)" ushered in the age of Motown as a cultural force. Peaking at #2 on the Billboard R&B chart and #23 on the Hot 100, "Money" was Motown's first of many hit singles.
 
 If the original recording below sounds a bit loose, that's because it was: "Money" was the result of an improvisational recording session–so improvisational in fact, that the guitarist and bassist remained unknown for years, because they were high school amateurs who happened to be passing by the studio at the right time.

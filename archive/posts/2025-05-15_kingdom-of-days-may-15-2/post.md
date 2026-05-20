@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 15"
+author: "Ken"
+excerpt: "On this date: Dr. Zoom and the Sonic Boom play their final gig, Bruce takes over a dancing school ball in Germany (really), and more."
+tags: born-in-the-usa canary-islands cleveland devils-and-dust-tour dr-zoom-and-the-sonic-boom france germany ghost-of-tom-joad-tour gijon give-the-girl-a-kiss hershey jay-weinberg las-palmas lucille lyon munich native-american rising-tour spain steve-van-zandt stolen-car twist-and-shout working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/348699415_207239028355172_674563633466168878_n.jpg
+post_id: 56767
+---
 ***New for 2025:** Video for 2023*<br>
 
 **1971:** Dr. Zoom and the Sonic Boom make their second and final appearance under that moniker, at Newark State College's Ernie the Chicken Festival. Miraculously, the show is recorded in very good quality–take a listen below for great covers like "[Will You Love Me Tomorrow](../2018-01-20_cover-me-will-you-love-me-tomorrow/post.md)" and "[It Takes a Lot to Laugh, It Takes a Train to Cry](../2018-04-23_cover-me-it-takes-a-lot-to-laugh-it-takes-a-train-to-cry/post.md)" and great Springsteen originals like "[Look Towards the Land](../2018-12-10_roll-of-the-dice-look-towards-the-land/post.md)" and "[Goin' Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)." Later that same evening, Bruce makes his debut as a member of The Sundance Blues Band at The Student Prince.<br>

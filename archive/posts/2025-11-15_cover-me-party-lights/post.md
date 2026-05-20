@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Party Lights"
+author: "Ken"
+excerpt: "In the waning days of 1975, Bruce broke out this charming 1962 one-hit wonder, and it led to a River-era outtake."
+tags: claudine-clark party-lights
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/partylights.jpg
+post_id: 35076
+---
 "Party Lights" must have seemed like an unlikely cover for Bruce Springsteen and the E Street Band when they broke it out on the Born to Run Tour.
 
 For one thing, it was a song about a teenage girl, written and recorded by a girl only a few months out of her teens herself. For another… well, listen and hear for yourself.

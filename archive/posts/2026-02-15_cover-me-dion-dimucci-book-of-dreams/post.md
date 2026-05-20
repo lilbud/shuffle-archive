@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Dion Covers"
+author: "Ken"
+excerpt: "Dion’s second cover of a Lucky Town track is both faithful to the original and distinctly Dion. It’s lovely and well worth a listen."
+tags: book-of-dreams dion
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/71FbOfBDd-L._UF10001000_QL80_.jpg
+post_id: 10632
+---
 Bruce Springsteen's connection with Dion DiMucci goes way back to 1975 (even further if you count a second-degree association when Steven Van Zandt and The Dovells backed Dion in a 1972 show in Miami), and Bruce has called Dion "the link between Sinatra and rock and roll."
 
 The two have performed together on stage in every decade since the 1970s, so it was perhaps only a matter of time before Dion tried his hand at covering one or two of Bruce's songs.

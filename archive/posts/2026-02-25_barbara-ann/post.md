@@ -1,3 +1,11 @@
+---
+layout: post
+title: "Barbara Ann"
+author: "Ken"
+excerpt: "The Rock and Roll Hall of Fame has had its share of awkward moments, but none as cringe as when The Beach Boys accepted their…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/02/1900x1900-000000-80-0-0-2.jpg
+post_id: 68006
+---
 The Rock and Roll Hall of Fame has had its share of awkward moments, but none as cringe as when The Beach Boys accepted their induction.
 
 It started on the endearing end of the awkwardness spectrum when a humble and grateful Brian Wilson was thrown off balance by Mike Love's attempt to adjust Brian's microphone.

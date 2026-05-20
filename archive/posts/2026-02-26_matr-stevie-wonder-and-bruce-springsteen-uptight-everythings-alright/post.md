@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Uptight (Everything's Alright)"
+author: "Ken"
+excerpt: "One time only: Bruce joins The Rolling Stones, Tina Turner, and a host of other all-stars to back Stevie Wonder on his 1966 classic “Uptight (Everything’s Alright).”"
+tags: rock-and-roll-hall-of-fame stevie-wonder uptight-everythings-alright
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/admin-ajax-42.jpg
+post_id: 13040
+---
 Okay, so this one's a stretch, but I'm a completist, remember?
 
 Still, Bruce really did join Stevie Wonder on stage for a one-time-only performance of Stevie's classic "Uptight (Everything's Alright)."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Devil's Arcade"
+author: "Ken"
+excerpt: "Bruce’s Magic album closer is one of his most carefully constructed, emotionally harrowing, and deeply romantic songs ever."
+tags: devils-arcade magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/devils.jpg
+post_id: 26708
+---
 The saying dates back at least to the fourteenth century in English, and possibly a thousand years before that in other languages: *An idle mind is the devil's playground.*
 
 In 2007, Bruce Springsteen updated the metaphor for modern times and crafted one of his most stunningly layered and deeply romantic songs around it.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Lost in the Flood"
+author: "Ken"
+excerpt: "Ferocious in concert, limp on vinyl, “Lost in the Flood” is nevertheless a lyrically brilliant piece of work."
+tags: greetings-from-asbury-park lost-in-the-flood
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/greatflood087.jpg
+post_id: 825
+---
 Putting the dice aside for the day to fill a request: E Street Shuffle reader David asked for my take on "Lost in the Flood." It was a surprisingly tough assignment, because my feelings about the song are conflicted, depending on which version we're discussing.
 
 Let me start by saying something that's probably tantamount to heresy among Bruce fans: I'm not convinced that "Lost in the Flood' is the masterpiece that most seem to view it as–not on vinyl, anyway. Don't get me wrong, it's a great song: there are absolutely flashes of lyrical brilliance, and it's furiously powerful when Bruce performs it with the E Street Band in concert.

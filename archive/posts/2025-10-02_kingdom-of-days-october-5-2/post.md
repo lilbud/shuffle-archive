@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: October 5"
+author: "Ken"
+excerpt: "On this date: Bruce releases Tunnel of Love, his eighth studio album. Plus: Bruce performs on SNL (and winds up in the doghouse during rehearsals), an epic Neil Young guest appearance, and much more."
+tags: across-the-border all-along-the-watchtower bad-day barack-obama beaver-brown born-to-run-book columbus fire italy john-fogerty john-glenn lawsuit-tour lonesome-day magic-tour man-on-the-moon mr-spaceman my-hometown neil-young new-york-city philadelphia r-e-m rising-tour rockin-in-the-free-world rosalita san-francisco santa-barbara saturday-night-live seeger-sessions-tour st-paul the-promised-land the-rising tunnel-of-love valerie verona vini-lopez vote-for-change-tour youngstown youre-missing
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/tunnel-of-love.jpg
+post_id: 61048
+---
 ***New for 2025:** Video for 2004 and 2006*<br>
 
-**1974**: Bruce and the E Street Band perform their one-time-only cover of “Twistin’ the Night Away” at Albright College in Reading, Pennsylvania.<br>
+**1974:** Bruce and the E Street Band perform their one-time-only cover of "Twistin' the Night Away" at Albright College in Reading, Pennsylvania.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1974-1005.jpg.webp)
 
@@ -30,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1987-10-05b.jpg.webp)
 
-**2002:** Bruce and the E Street Band perform “[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)” and “[You’re Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)” on *Saturday Night Live* in New York City. The afternoon rehearsals are caught on tape–watch and see what happens when Bruce realizes he started the rehearsal without noticing that Patti wasn’t there yet.<br>
+**2002:** Bruce and the E Street Band perform "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)" and "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)" on *Saturday Night Live* in New York City. The afternoon rehearsals are caught on tape–watch and see what happens when Bruce realizes he started the rehearsal without noticing that Patti wasn't there yet.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/chXvrMZv)
 
@@ -38,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/kXtX77yt)
 
-**2004:** Neil Young guest stars at Bruce’s Vote for Change show in St. Paul, joining Bruce for “[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md),” “[All Along the Watchtower](../2020-08-13_matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/post.md),” and “[Rockin’ in the Free World](../2019-04-16_matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/post.md).”<br>
+**2004:** Neil Young guest stars at Bruce's Vote for Change show in St. Paul, joining Bruce for "[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md)," "[All Along the Watchtower](../2020-08-13_matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/post.md)," and "[Rockin' in the Free World](../2019-04-16_matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Live In St Paul 2004 - Full Concert (HD Remastered)](https://www.youtube.com/watch?v=grkLn4dpbZc)
 
@@ -48,9 +58,9 @@
 
 [Watch on Youtube: Bruce Springsteen w/ John Fogerty Centerfield (Live VFC 2004 10 05)](https://www.youtube.com/watch?v=ExdLcwIZdsk)
 
-**2006:** One of the best shows from the Seeger Sessions Tour, at the ancient Arena di Verona: Bruce tour premieres “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” and “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md),” along with Patti’s “[Valerie](../2020-12-13_matr-patti-scialfa-and-bruce-springsteen-valerie/post.md)” (played in honor of her final appearance on the tour until its final stand) and Bruce’s first-ever performance of “[Samson and Delilah.](../2020-09-25_cover-me-samson-and-delilah/post.md)” For more highlights from this show, see my [*Where the Band Was* report](../2018-10-05_where-the-band-was-verona-october-5-2006/post.md).<br>
+**2006:** One of the best shows from the Seeger Sessions Tour, at the ancient Arena di Verona: Bruce tour premieres "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," along with Patti's "[Valerie](../2020-12-13_matr-patti-scialfa-and-bruce-springsteen-valerie/post.md)" (played in honor of her final appearance on the tour until its final stand) and Bruce's first-ever performance of "[Samson and Delilah.](../2020-09-25_cover-me-samson-and-delilah/post.md)" For more highlights from this show, see my [*Where the Band Was* report](../2018-10-05_where-the-band-was-verona-october-5-2006/post.md).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y2JOWKSyUA4)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y2JOWKSyUA4?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&start=2342&wmode=transparent)
 
 [Watch on Youtube: Bruce Springsteen - Old Dan Tucker](https://www.youtube.com/watch?v=S-GHbDFrwlU)
 
@@ -60,7 +70,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Verona 2006 - Full Broadcast (Italian FM Radio Broadcast)](https://www.youtube.com/watch?v=KvadUhGEKY0)
 
-**2007:** The young Magic Tour rolls into Philadelphia for its first two-night stand. Night One at the Wachovia Center features tour debuts for “[No Surrender,](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” “[Candy’s Room](../2022-05-02_roll-of-the-dice-candys-room/post.md),” “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” (in place of Patti’s “[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)“) and “[My Hometown.](../2020-04-09_roll-of-the-dice-my-hometown/post.md)”<br>
+**2007:** The young Magic Tour rolls into Philadelphia for its first two-night stand. Night One at the Wachovia Center features tour debuts for "[No Surrender,](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" (in place of Patti's "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)") and "[My Hometown.](../2020-04-09_roll-of-the-dice-my-hometown/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen Radio Nowhere live Philadelphia 10/05/2007](https://www.youtube.com/watch?v=1RrxmM2jpxg)
 
@@ -68,7 +78,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-10-05b.jpg.webp)
 
-**2008:** Bruce appears at a rally for presidential candidate Barack Obama at Ohio State University in Columbus, where Bruce opens with a partial “Mr. Spaceman” in honor of former senator and astronaut John Glenn.<br>
+**2008:** Bruce appears at a rally for presidential candidate Barack Obama at Ohio State University in Columbus, where Bruce opens with a partial "Mr. Spaceman" in honor of former senator and astronaut John Glenn.<br>
 
 [Watch on Youtube: Bruce Springsteen - The Promised Land - Obama Rally Columbu](https://www.youtube.com/watch?v=M8AwYsQfVxg)
 
@@ -82,10 +92,10 @@
 
 [Watch on Youtube: Bruce Springsteen launching Born to Run, Conversation with Dan Stone](https://www.youtube.com/watch?v=nXqxyBWp9Ho)
 
-**2017:** Bruce makes a small tweak in *Springsteen on Broadway*, swapping out “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” for “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)” as previews continue. In attendance tonight: Jessica Springsteen<br>
+**2017:** Bruce makes a small tweak in *Springsteen on Broadway*, swapping out "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" for "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" as previews continue. In attendance tonight: Jessica Springsteen<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jjFcAf1z)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce plays his “B” setlist that includes “[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)” and “This Hard Land” in place of his two duets with Patti. In attendance tonight: John Mayer.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce plays his "B" setlist that includes "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "This Hard Land" in place of his two duets with Patti. In attendance tonight: John Mayer.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/johnmayer.jpg.webp)

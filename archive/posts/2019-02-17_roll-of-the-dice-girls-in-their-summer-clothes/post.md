@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Girls in Their Summer Clothes"
+author: "Ken"
+excerpt: "It won Bruce a Grammy he didn’t even know he was nominated for. It’s full of hidden callbacks to “Thunder Road” and echoes of “Born to Run.” It’s my favorite 21st-century Springsteen song, and it mystifies Bono with its relative obscurity. Listen to “Girls in Their Summer Clothes” like you’ve never heard it before inside."
+tags: girls-in-their-summer-clothes magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/girlsintheirsummerclothes_single.jpg
+post_id: 7412
+---
 > "I didn't even know I was up for a Grammy! I opened the newspaper on Monday and saw that I had won, and thought, ‘Well, that's great!'" *–Bruce Springsteen, MTV News, February 10, 2009*<br>
 
 Coming from any other artist, under any other circumstances, that line might sound just a bit too coy.
@@ -99,13 +109,13 @@ There's so much to love in these four lines. Just from a storytelling perspectiv
 
 Oh, and just in case you're skeptical about my argument that Bruce is deliberately and lyrically contrasting "Girls in Their Summer Clothes" with "Thunder Road" throughout the song, take note of those last two lines before the last chorus:
 
-> *In just a glance down here on Magic **Street***<br>
-> *Love's a fool's dance, I ain't got much sense but I still got my **feet***<br>
+*In just a glance down here on Magic **Street***<br>
+*Love's a fool's dance, I ain't got much sense but I still got my **feet***<br>
 
 …and compare it with the last two lines of "Thunder Road" before its final coda:
 
-> *They scream your name at night in the **street***<br>
-> *Your graduation gown lies in rags at their **feet***<br>
+*They scream your name at night in the **street***<br>
+*Your graduation gown lies in rags at their **feet***<br>
 
 Well played, Bruce. Well played.
 

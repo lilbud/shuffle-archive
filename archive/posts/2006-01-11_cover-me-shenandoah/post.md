@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Shenandoah"
+author: "Ken"
+excerpt: "Performed only once and buried deep within its album, Bruce’s version of “Shenandoah” is faithful and true to the song’s spirt."
+tags: shenandoah we-shall-over-come-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/shenandoah.webp
+post_id: 33405
+---
 "Shenandoah" is one of the purest folk songs on *We Shall Overcome: The Seeger Sessions–*in the sense that it's almost impossible to definitively trace its origin and evolution. It's generally believed to have originated as a sea shanty, but in true folk fashion it's likely that it was altered and adapted by sailors and seamen over the years to the point where the song's geography makes no sense.
 
 Consensus dictates that "Shenandoah" originated with American and Canadian fur traders in the nineteenth century, but it had spread worldwide in popularity by the mid-1800s. The earliest known version was recorded in 1906 by Charles Rosher, and it can be heard (along with several other early incantations) in the video below, which also features a lot more historical background on the song.

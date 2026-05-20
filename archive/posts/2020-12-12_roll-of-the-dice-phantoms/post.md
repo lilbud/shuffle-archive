@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Phantoms"
+author: "Ken"
+excerpt: "Often dismissed as a work-in-progress “Zero and Blind Terry,” “Phantoms” is actually a completely different song (with the same music). It represents the closing of a chapter in Bruce’s songwriting."
+tags: phantoms zero-and-blind-terry
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/phantoms.jpg
+post_id: 8268
+---
 > You know I always loved a lonely town
 > Those empty streets, no one around
 > You fall in love with lonely, you end up that way — Bruce Springsteen, 2019

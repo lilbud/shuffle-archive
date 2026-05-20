@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Gijon, June 26, 2013"
+author: "Ken"
+excerpt: "What the heck was I doing at this particular show? Believe it or not, I was (relatively) in the neighborhood, and I’m sure glad I was."
+tags: aint-good-enough-for-you because-the-night better-days drive-all-night gijon my-love-will-not-let-you-down radio-nowhere spain thunder-road wrecking-ball-tour you-can-look
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/20130626_2_booklet2.jpg
+post_id: 2806
+---
 There was absolutely no reason for me to be at this show. It was half a world away from home, and Gijon isn’t exactly an international hub. If I was going to choose one show to attend for all of 2013, I would have chosen one in Italy or Sweden, where Bruce is pretty much guaranteed to put on an amazing show.
 
 But as it turned out, my company had its annual European conference scheduled in Madrid the exact week that Bruce would be playing in Gijon, and once I figured out that the two cities were a very long but very driveable-in-a-day distance apart, I knew I had to be there. With Bruce touring abroad for all of 2013, this would be my only chance to see him that year.

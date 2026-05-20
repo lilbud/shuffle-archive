@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Spare Parts: Blogger About Town"
+author: "Ken"
+excerpt: "I know, I know–another vacation. But this one’s short, and I brought you back something!"
+tags: american-babylon dancing-in-the-dark hungry-heart ill-work-for-your-love joe-grushecky letter-to-you stand-up-for-heroes
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/backtowork.jpg
+post_id: 30801
+---
 I know, I know.
 
 I sure do take vacations an awful lot these days, don't I?

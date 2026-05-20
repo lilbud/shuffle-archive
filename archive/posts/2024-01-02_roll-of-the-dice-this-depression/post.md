@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: This Depression"
+author: "Ken"
+excerpt: "Years before he openly confessed his lifelong battle with depression, Bruce hid it in plain sight as the centerpiece of his Wrecking Ball album."
+tags: this-depression wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/depression.jpg
+post_id: 16059
+---
 In retrospect, it couldn't have been more obvious.
 
 When Bruce Springsteen released his [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album in 2012, many a music critic admired "This Depression" with "if we didn't know better…" praise.

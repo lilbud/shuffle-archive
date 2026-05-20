@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: June 4"
+author: "Ken"
+excerpt: "Happy birthday, Born in the U.S.A.! Celebrate by watching some historic footage from the Newcastle ’85 performance (and the hilarious British music critics’ reviewing it); then listen to the world premieres of “American Skin (41 Shots)” and “Further On (Up the Road).”"
+tags: american-skin atlanta bologna born-in-the-usa born-in-the-usa-tour dancing-in-the-dark devils-and-dust-tour further-on-up-the-road glory-days italy london my-fathers-house newcastle reunion-tour river-tour stockholm sweden thunder-road uk wholl-stop-the-rain working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/bitusa.jpg
+post_id: 56996
+---
 ***New for 2025:** Audio for 2000 and 2005; new entry for 2017*<br>
 
-**1981:** Bruce and the E Street Band play their fifth of six shows at London’s Wembley Arena on the River Tour. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29124/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-4-1981-Wembley-Arena-London-UK.html).<br>
+**1981:** Bruce and the E Street Band play their fifth of six shows at London's Wembley Arena on the River Tour. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29124/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-4-1981-Wembley-Arena-London-UK.html).<br>
 
 [Watch on Youtube: Jackson Cage (Live at Wembley Arena, London, UK - 6/4/1981)](https://www.youtube.com/watch?v=AD-C22noboo)
 
@@ -12,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1984-06-04.jpg.webp)
 
-**1985:** The European leg of the Born in the U.S.A. Tour continues at the first of two nights at St. James’ Park in Newcastle. The British television coverage is hysterical to watch; even in 1985, some critics still didn’t know quite what to make of him.<br>
+**1985:** The European leg of the Born in the U.S.A. Tour continues at the first of two nights at St. James' Park in Newcastle. The British television coverage is hysterical to watch; even in 1985, some critics still didn't know quite what to make of him.<br>
 
 [Watch on Youtube: Bruce Springsteen - Newcastle, June 4 1985 news coverage](https://www.youtube.com/watch?v=yluGYwh_Ceo)
 
@@ -24,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Daily_Post__Merseyside_ed___Wed__Jun_5__1985_.jpg.webp)
 
-**2000:** A momentous Reunion show in Atlanta, featuring the world premieres of “[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/),” which opens the show, and “American Skin (41 Shots)” which sparks a controversy with law enforcement that will heighten as the tour rolls into its final, legendary, New York City stand next week. Take a listen to that debut performance of “American Skin (41 Shots)” below, in a crystal clear IEM recording that has not circulated until now.<br>
+**2000:** A momentous Reunion show in Atlanta, featuring the world premieres of "[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)," which opens the show, and "American Skin (41 Shots)" which sparks a controversy with law enforcement that will heighten as the tour rolls into its final, legendary, New York City stand next week. Take a listen to that debut performance of "American Skin (41 Shots)" below, in a crystal clear IEM recording that has not circulated until now.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Wx7WRyqt)
 
@@ -34,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2000-06-04.jpg.webp)
 
-**2005:** The Devils & Dust solo acoustic tour moves on to Italy, where this first show in Bologna is highlighted by the tour premiere of “[My Father’s House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md).”<br>
+**2005:** The Devils & Dust solo acoustic tour moves on to Italy, where this first show in Bologna is highlighted by the tour premiere of "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)."<br>
 
 [Watch on Youtube: My Father's House (solo acoustic) Bruce Springsteen June 4, 2005 Bologna, ITA](https://www.youtube.com/watch?v=daRsdZKxBlU)
 
@@ -46,12 +56,12 @@
 
 [Watch on Youtube: Bruce Springsteen - Bologna, Italy - June 4, 2005 [audio]](https://www.youtube.com/watch?v=v65zWmgyt9A)
 
-**2009:** Night One of three in Stockholm opens with the tour premiere of “[Who’ll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)” and features the final performance to date of “[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md).”<br>
+**2009:** Night One of three in Stockholm opens with the tour premiere of "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" and features the final performance to date of "[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)."<br>
 
 [Watch on Youtube: Springsteen - Who'll Stop the Rain - Stockholm Sweden June 4, 2009](https://www.youtube.com/watch?v=kg5hvBT3Ef0)
 
 [Watch on Youtube: Bruce Springsteen Live in Stockholm 2009](https://www.youtube.com/watch?v=Iub8BOWu8RU)
 
-**2017:** Bruce drops by The Asbury Hotel to check out Danny Clinch’s new photo exhibition, “Transparent.”<br>
+**2017:** Bruce drops by The Asbury Hotel to check out Danny Clinch's new photo exhibition, "Transparent."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/06/Daily_News_2017_06_06_19-scaled.jpg.webp)

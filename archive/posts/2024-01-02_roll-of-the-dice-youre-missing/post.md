@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You're Missing"
+author: "Ken"
+excerpt: "Written in the aftermath of 9/11, “You’re Missing” gives voice to the grief and loss we all experience sooner or later."
+tags: the-rising youre-missing
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/missing.jpg
+post_id: 15955
+---
 Even now, almost eighteen years later, "You're Missing" hits like a punch to the gut.
 
 Until Bruce released it on *The Rising* in 2002, we didn't know how much we needed this song. Still reeling from a national tragedy, it seemed that everyone in America knew someone directly affected by the 9/11 terror attacks, and we were still grappling with how to process it.

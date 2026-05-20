@@ -1,10 +1,20 @@
+---
+layout: post
+title: "February 28"
+author: "Ken"
+excerpt: "Rarities abound at gigs played on this day. Listen to live performances of “Lion’s Den,” “So Young and In Love,” “Janey, Don’t You Lose Heart,” and more. Plus: Greatest Hits is released on this date in 1995."
+tags: backstreets child duluth ghost-of-tom-joad-tour greatest-hits greensboro hartford janey-dont-you-lose-heart kittys-back lawsuit-tour lions-den magic-tour manchester mtv penn-state reunion-tour richmond rising-tour river-tour rolling-stone so-young-and-in-love springsteen-on-broadway st-louis steel-mill tunnel-of-love-express-tour uk vinnie-roslin worcester
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/greatest-hits.jpg
+post_id: 56015
+---
 **1969:** Bruce, Vini Lopez, Danny Federici, and Vinnie Roslin jam at the Upstage in Asbury Park. Within weeks, they will debut their new band, Child.<br>
 
-**1970:** Steel Mill plays their second of two shows at Richmond's Free University. This is Vinnie Roslin's final show; Steven Van Zandt will replace him within the month.<br>
+**1970:** Steel Mill plays their second of two shows at Richmond’s Free University. This is Vinnie Roslin’s final show; Steven Van Zandt will replace him within the month.<br>
 
-> *![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1970-0228.jpg.webp)*<br>
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1970-0228.jpg.webp)
 
-**1973:** Bruce and the as-yet-unnamed E Street Band play the only show out of two weeks of scheduled gigs opening for Paul Butterfield's Better Days that is held as scheduled–the rest were cancelled for low ticket sales–and even this show is poorly attended.<br>
+**1973:** Bruce and the as-yet-unnamed E Street Band play the only show out of two weeks of scheduled gigs opening for Paul Butterfield’s Better Days that is held as scheduled–the rest were cancelled for low ticket sales–and even this show is poorly attended.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1973-02-28.jpg.webp)
 
@@ -14,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/46881393554_83cda3fa2c_o.jpg.webp)
 
-**1981:** Bruce and the band bring the River Tour to the Coliseum in Greensboro, North Carolina–his first time performing for what will prove to be one of Bruce's most fervent and appreciative audiences.<br>
+**1981:** Bruce and the band bring the River Tour to the Coliseum in Greensboro, North Carolina–his first time performing for what will prove to be one of Bruce’s most fervent and appreciative audiences.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Tcamyiqp)
 
@@ -22,15 +32,15 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-28.png.webp)
 
-**1985:** Bruce makes the cover of *Rolling Stone* when he tops the Readers' Poll for the magazine's annual music awards.<br>
+**1985:** Bruce makes the cover of *Rolling Stone* when he tops the Readers’ Poll for the magazine’s annual music awards.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/rolling-stone-cover-volume-442-2-28-1985-bruce-springsteen.jpg.webp)
 
-**1986:** MTV airs the results of Rolling Stone Magazine's Readers Poll for 1985. Bruce wins the award for Artist of the Year.<br>
+**1986:** MTV airs the results of Rolling Stone Magazine’s Readers Poll for 1985. Bruce wins the award for Artist of the Year.<br>
 
 [Watch on Youtube: Rolling Stone Reader's Poll - Bruce Springsteen - 1986-02-28](https://www.youtube.com/watch?v=PHGJEwpSzNc)
 
-**1988:** The opening stand of the Tunnel of Love Express Tour continues with the second of three shows at the Centrum in Worcester. Bruce is still a little rusty: he forgets the opening line to "Born to Run" (played acoustically on this tour) and has to restart it.<br>
+**1988:** The opening stand of the Tunnel of Love Express Tour continues with the second of three shows at the Centrum in Worcester. Bruce is still a little rusty: he forgets the opening line to “Born to Run” (played acoustically on this tour) and has to restart it.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VXq5DyXB)
 
@@ -40,7 +50,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1988-0228.jpg.webp)
 
-**1995:** Bruce's *Greatest Hits* album is released, featuring four new songs recorded for this collection: "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)," "[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)," "[Blood Brothers,](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)" and "This Hard Land."<br>
+**1995:** Bruce’s *Greatest Hits* album is released, featuring four new songs recorded for this collection: “[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md),” “[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md),” “[Blood Brothers,](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)” and “This Hard Land.”<br>
 
 [Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=1glxaEB5G7I)
 
@@ -48,13 +58,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1995-02-28b.png.webp)
 
-**1996:** Bruce's solo acoustic tour moves on to the Apollo Theater in Manchester, England.<br>
+**1996:** Bruce’s solo acoustic tour moves on to the Apollo Theater in Manchester, England.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fpaePJsI)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/Manchester_Evening_News_Thu__Feb_29__1996_-scaled.jpg.webp)
 
-**2000:** The Reunion Tour resumes with a show at Penn State University, featuring the U.S. debut of "[Lion's Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)" in honor of the Nittany Lions.<br>
+**2000:** The Reunion Tour resumes with a show at Penn State University, featuring the U.S. debut of “[Lion’s Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)” in honor of the Nittany Lions.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YNMmA6Ua)
 
@@ -68,11 +78,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2003-02-28b.jpg.webp)
 
-**2006:** Bruce releases a new live CD, *Hammersmith Odeon, London '75*, the soundtrack for the DVD release included in the anniversary box set for *Born to Run*.<br>
+**2006:** Bruce releases a new live CD, *Hammersmith Odeon, London ’75,* the soundtrack for the DVD release included in the anniversary box set for *Born to Run*.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Thunder Road (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=6O3MO2y30fU)
 
-**2008:** The Magic Tour resumes at the Hartford Civic Center with the tour premiere of "So Young and in Love." The set also features rare outings for "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)."<br>
+**2008:** The Magic Tour resumes at the Hartford Civic Center with the tour premiere of “So Young and in Love.” The set also features rare outings for “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)” and “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - So Young and In Love [Live] Hartford ´08](https://www.youtube.com/watch?v=Qau5lULCMgE)
 
@@ -88,7 +98,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2008-02-28.jpg.webp)
 
-**2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after almost a month-long break. Patti is absent with a back injury, so Bruce plays the B-set ("[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" stand in for the two duets).<br>
+**2018**: *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after almost a month-long break. Patti is absent with a back injury, so Bruce plays the B-set (“[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)” and “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” stand in for the two duets).<br>
 
 **2020:** When a local third-grader profiles Bruce for her biography assignment at school, Bruce surprises her class by attending in person.<br>
 

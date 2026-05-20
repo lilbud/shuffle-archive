@@ -1,3 +1,13 @@
+---
+layout: post
+title: "ROTD: We Shall Overcome Introduction"
+author: "Ken"
+excerpt: "The true, winding road from a backyard birthday party to a critically acclaimed, Grammy-winning album."
+tags: we-shall-overcome-the-seeger-sessions
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2006/01/springsteen-seeger-front.jpg
+post_id: 36318
+---
 On September 23, 1997, Bruce Springsteen threw himself a 48th birthday party.
 
 He’d recently bought a house on an expansive property in Colts Neck, New Jersey, but he’d been more or less continually on tour since 1995 and hadn’t had a chance to enjoy it. With the Ghost of Tom Joad Tour behind him, Bruce decided to hold an outdoor fiesta for his family and friends, and he needed a band for the occasion.

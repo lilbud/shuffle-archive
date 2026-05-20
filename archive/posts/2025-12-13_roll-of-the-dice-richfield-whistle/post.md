@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Richfield Whistle"
+author: "Ken"
+excerpt: "A year after recording “James Lincoln Deere,” Bruce revisits his anti-hero and crafts a much strong and grayer tale."
+tags: james-lincoln-deere richfield-whistle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/whistle.jpeg
+post_id: 39588
+---
 Earlier this week, we took a listen to Bruce Springsteen's unreleased *Nebraska*-era work-in-progress, "Jim Deer."
 
 Springsteen's 1982 acoustic home demo featured a protagonist driven to cold-blooded murder by unemployment and a brutal economy. "Jim Deer" was too heavy-handed to earn an official release (at the time, at least), but Bruce wasn't ready to give up on his protagonist just yet.

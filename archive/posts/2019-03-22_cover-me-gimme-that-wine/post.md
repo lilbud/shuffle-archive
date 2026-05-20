@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Gimme That Wine"
+author: "Ken"
+excerpt: "Before Bruce had Kevin Buell to lean on, when he broke a guitar string it was Clarence Clemons to the rescue. Originally a lark, Clarence’s rendition of “Gimme That Wine” became a genuine (if rare) highlight when on-stage misfortune would strike."
+tags: clarence-clemons gimme-that-wine lambert-hendricks-and-ross
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/gimme.jpg
+post_id: 7890
+---
 Sometimes you gotta vamp, sometimes you gotta tell a joke.
 
 And sometimes, rarely, you need to resort to more drastic stalling tactics.
@@ -17,6 +27,8 @@ Having proven himself so able to command the microphone when needed, Clarence's 
 By that time, of course, Clarence was always at the ready for his moment in the spotlight, and so was the band. Did you notice how loose that first performance was? Compare it with the one from nine months later:
 
 [https://estreetshuffle.com/wp-content/uploads/2019/03/108-Gimme-That-Wine.flac?_=3](https://estreetshuffle.com/wp-content/uploads/2019/03/108-Gimme-That-Wine.flac?_=3)
+
+<https://estreetshuffle.com/wp-content/uploads/2019/03/108-Gimme-That-Wine.flac>
 
 Clarence had one last star turn the following year in Lenox, MA, shortly before the release of *Born to Run*. After that, "Gimme That Wine" became just another piece of E Street Band history.
 

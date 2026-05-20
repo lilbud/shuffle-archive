@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Star-Spangled Banner"
+author: "Ken"
+excerpt: "“The Star Spangled Banner” was written on and for a day like this very one. Watch Bruce Springsteen play a lovely version of it in 2004."
+tags: francis-scott-key the-star-spangled-banner
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/banner.jpg
+post_id: 24153
+---
 On September 13, 1814, America was under attack.
 
 Just three weeks earlier, the Capitol had been stormed and almost burned to the ground by looters and rioters. The British soldiers burned the White House, U.S. Treasury, and other institutions, too.

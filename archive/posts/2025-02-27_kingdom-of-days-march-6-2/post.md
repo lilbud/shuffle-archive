@@ -1,12 +1,22 @@
+---
+layout: post
+title: "Kingdom of Days: March 6"
+author: "Ken"
+excerpt: "On this date in Springsteen history: Bruce releases his Wrecking Ball album, reunites with Steel Mill bandmate Robbin Thompson in Richmond, makes a surprise appearance with Soul Asylum and more."
+tags: bruce-hornsby lawsuit-tour magic-tour miami new-york-city reese-witherspoon reunion-tour richmond rising-tour river-tour-2016 robbin-thompson rochester rosalita soul-asylum springsteen-on-broadway st-louis steel-mill stephen-colbert tampa the-tracks-of-my-tears thunder-road working-on-the-highway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/wb.jpg
+post_id: 56097
+---
 ***New for 2025:** No updates*<br>
 
 **1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.<br>
 
-**1973:** Bruce cancels a gig in Vancouver, BC, where he was scheduled to open for Paul Butterfield’s Better Days.<br>
+**1973:** Bruce cancels a gig in Vancouver, BC, where he was scheduled to open for Paul Butterfield's Better Days.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1973-03-06.png.webp)
 
-**1977:** Bruce and the band continue the Lawsuit Tour’s Florida swing with a show at Jai Alai Fronton in Miami.<br>
+**1977:** Bruce and the band continue the Lawsuit Tour's Florida swing with a show at Jai Alai Fronton in Miami.<br>
 
 [Watch on Youtube: Bruce Springsteen 3/06/77 - Miami Live Concert](https://www.youtube.com/watch?v=GX_J6NoHtzg)
 
@@ -14,13 +24,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-03-06.png.webp)
 
-**1995:** Bruce joins Soul Asylum on stage at Tramps in New York City for “[The Tracks of My Tears](../2019-10-16_matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/post.md).”<br>
+**1995:** Bruce joins Soul Asylum on stage at Tramps in New York City for "[The Tracks of My Tears](../2019-10-16_matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Soul Asylum - "Tracks of My Tears" 1995-03-06](https://www.youtube.com/watch?v=PlhXokknEVc)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1995-03-06.jpg.webp)
 
-**2000:** The Reunion Tour continues its Florida leg with a show at Tampa’s Ice Palace.<br>
+**2000:** The Reunion Tour continues its Florida leg with a show at Tampa's Ice Palace.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QGXzMswB)
 
@@ -28,13 +38,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2000-03-06b.jpg.webp)
 
-**2003:** Bruce Hornsby and former Steel Mill bandmate Robbin Thompson join Bruce and the band for Hank Ballard’s “[Let’s Go, Let’s Go, Let’s Go](../2018-09-26_matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/post.md)” during the Rising Tour’s stop at the Coliseum in Richmond.<br>
+**2003:** Bruce Hornsby and former Steel Mill bandmate Robbin Thompson join Bruce and the band for Hank Ballard's "[Let's Go, Let's Go, Let's Go](../2018-09-26_matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/post.md)" during the Rising Tour's stop at the Coliseum in Richmond.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Let's Go, Let's Go, Let's Go" - 2003-03-06](https://www.youtube.com/watch?v=0R97Ohj_qdE)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2003-03-06.jpg.webp)
 
-**2008:** The Magic Tour stops at Rochester’s Blue Cross Arena, where “Rosalita (Come Out Tonight)” makes its welcome return after a five-year absence.<br>
+**2008:** The Magic Tour stops at Rochester's Blue Cross Arena, where "Rosalita (Come Out Tonight)" makes its welcome return after a five-year absence.<br>
 
 [Watch on Youtube: Rosie in Rochester](https://www.youtube.com/watch?v=MbTMTE_qC20)
 
@@ -46,13 +56,13 @@
 
 **2012:** Bruce releases his seventeenth studio album, *[Wrecking Ball](../2023-03-28_album-companion-wrecking-ball/post.md).*<br>
 
-[Watch on Youtube: We Take Care Of Our Own - Bruce Springsteen](https://www.youtube.com/watch?v=fkEU3JjNARs)
+[Watch on Youtube: We Take Care Of Our Own - Bruce Springsteen](https://www.youtube.com/watch?v=fkEU3JjNARs?list=OLAK5uy_m9imIkWn-NTaCynnLiLR9Xsrfnhth8sx0)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2012-03-05a.png.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2012-03-05b.png.webp)
 
-**2016:** The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lucky (and talented) fan Tom England gets to join the band on-stage for “[Working on the Highway.](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)”<br>
+**2016:** The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lucky (and talented) fan Tom England gets to join the band on-stage for "[Working on the Highway.](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - Stolen Car- St. Louis 03/06/2016](https://www.youtube.com/watch?v=GZswWtjvWGQ)
 
@@ -66,7 +76,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2016-03-06b.jpg.webp)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Actress Reese Witherspoon is in attendance tonight, and this is her first time seeing Bruce perform live. She’s unprepared for the emotional power of his performance; watch her describe the experience to late-night talk show host Stephen Colbert the following night.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Actress Reese Witherspoon is in attendance tonight, and this is her first time seeing Bruce perform live. She's unprepared for the emotional power of his performance; watch her describe the experience to late-night talk show host Stephen Colbert the following night.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DmFWvPio)
 

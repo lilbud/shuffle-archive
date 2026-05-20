@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 18"
+author: "Ken"
+excerpt: "The premiere of “Can’t Help Falling in Love” and “Give My Love to Rose,” the filming of “Broken Radio,” the E Street Band premiere of “Better Days,” and an on-stage Bruce and Clarence collision lead the highlights from this date in history."
+tags: 23rd-street-lullaby as-long-as-i-can-be-with-you broken-radio dancing-in-the-dark france give-my-love-to-rose houston im-on-fire jesse-malin johnny-cash new-york-city ottawa paris patti-scialfa penn-state ramrod reunion-tour rising-tour river-tour river-tour-2016 springsteen-on-broadway steel-mill
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/april-18th-2024-syracuse-ny-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56556
+---
 ***New for 2025:** New entry for 1975 and 2024*<br>
 
 **1970:** Steel Mill plays a gig at Ocean County College in Toms River, New Jersey.<br>
@@ -12,23 +22,23 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1974-04-18.jpg.webp)
 
-**1975:** Bruce and his studio team move to the Record Plant in New York City. On this first day of recording, they work on “Thunder Road” and “Jungleland.”<br>
+**1975:** Bruce and his studio team move to the Record Plant in New York City. On this first day of recording, they work on "Thunder Road" and "Jungleland."<br>
 
-**1981:** Bruce plays his first-ever show in France on this first of two nights at the Palais des Sports de Saint-Ouen in Paris. Another first: Bruce debuts his cover of “[Can’t Help Falling in Love](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/)” at this show.<br>
+**1981:** Bruce plays his first-ever show in France on this first of two nights at the Palais des Sports de Saint-Ouen in Paris. Another first: Bruce debuts his cover of "[Can't Help Falling in Love](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/)" at this show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wNB0ZUQS)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1981-04-18-1.jpg.webp)
 
-**1999:** TNT airs a Johnny Cash tribute special, on which Bruce performs “[Give My Love to Rose](../2020-10-29_cover-me-give-my-love-to-rose/post.md).”<br>
+**1999:** TNT airs a Johnny Cash tribute special, on which Bruce performs "[Give My Love to Rose](../2020-10-29_cover-me-give-my-love-to-rose/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
 
-**2000:** At their Reunion show in Houston, fans witness the E Street Band premiere of “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md).”<br>
+**2000:** At their Reunion show in Houston, fans witness the E Street Band premiere of "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MuIILEbI)
 
-**2003:** At the Corel Centre in Ottawa on the Rising Tour, Bruce plays “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” for the only time on the tour. In the encores, Clarence collides with Bruce during “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md),” falls on top of him, knocks them both to the ground, and they somehow manage to continue playing the entire time!<br>
+**2003:** At the Corel Centre in Ottawa on the Rising Tour, Bruce plays "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" for the only time on the tour. In the encores, Clarence collides with Bruce during "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)," falls on top of him, knocks them both to the ground, and they somehow manage to continue playing the entire time!<br>
 
 [Watch on Youtube: Ramrod Bruce Springsteen 4/18/2003 Ottawa, ON](https://www.youtube.com/watch?v=iwyYmRypZGk)
 
@@ -38,11 +48,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2003-04-18-rotated.jpg.webp)
 
-**2004:** Patti plays two live shows to promote her upcoming *23rd Street Lullaby* album at The Hit Factory in New York City. Bruce provides backing vocals and guitar on “[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)” and “[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/).” The initial run of the album will include a bonus disc with a live track from this show, but you can watch Patti’s entire concert from that night below.<br>
+**2004:** Patti plays two live shows to promote her upcoming *23rd Street Lullaby* album at The Hit Factory in New York City. Bruce provides backing vocals and guitar on "[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)" and "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)." The initial run of the album will include a bonus disc with a live track from this show, but you can watch Patti's entire concert from that night below.<br>
 
 [Watch on Youtube: Patti Scialfa - Live at The Hit Factory in New York City - 2004-04-18](https://www.youtube.com/watch?v=WMG0Ji8Qqi4)
 
-**2007:** Bruce and Jesse Malin film the video for Jesse’s single, “[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md).”<br>
+**2007:** Bruce and Jesse Malin film the video for Jesse's single, "[Broken Radio](../2019-08-17_matr-jesse-malin-and-bruce-springsteen-broken-radio/post.md)."<br>
 
 [Watch on Youtube: Jesse Malin - Broken Radio (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=dlmBCrBJokA)
 
@@ -62,6 +72,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2024:** Bruce tour premieres “Growin’ Up” at JMA Wireless Dome in Syracuse.<br>
+**2024:** Bruce tour premieres "Growin' Up" at JMA Wireless Dome in Syracuse.<br>
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=KSW0waJOEXY)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - "Growin' Up" - Syracuse, New York - April 18, 2024](https://www.youtube.com/watch?v=KSW0waJOEXY)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Precious Memories"
+author: "Ken"
+excerpt: "Sometime in late 1981, Bruce sat down with a tape recorder and attempted a cover of “Precious Memories.” Listen to that demo here."
+tags: precious-memories willie-nelson
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/precious.jpg
+post_id: 4180
+---
 Bruce was fascinated with traditional American folk and gospel long, *long* before the Seeger Sessions.
 
 Although it took until his 2006 album for us to hear Bruce's arrangements, we'd occasionally catch a glimpse through live tracks like "[This Land is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)," and compilation releases like "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)."
@@ -6,7 +16,7 @@ But way back in the autumn of 1981, Bruce was tinkering with the classic gospel 
 
 [Watch on Youtube: RARE! Precious Memories-Bruce Springsteen](https://www.youtube.com/watch?v=AqEPaOFcI-E)
 
-It's difficult if not impossible to judge from the recording if there was a particular version that influenced Bruce to tackle "Precious Memories." Dozens of artists have covered it going back to the 1920s (it was written by J.B.F. Wright in 1935) in a variety of styles. Sister Rosetta Tharpe's version was one of the more prominent early recordings...
+It's difficult if not impossible to judge from the recording if there was a particular version that influenced Bruce to tackle "Precious Memories." Dozens of artists have covered it going back to the 1920s (it was written by J.B.F. Wright in 1935) in a variety of styles. Sister Rosetta Tharpe's version was one of the more prominent early recordings…
 
 [Watch on Youtube: SISTER ROSETTA THARPE - Precious Memories [1956]](https://www.youtube.com/watch?v=qLnnd_02ncI)
 

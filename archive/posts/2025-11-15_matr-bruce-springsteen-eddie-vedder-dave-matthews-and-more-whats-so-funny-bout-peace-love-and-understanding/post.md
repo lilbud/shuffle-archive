@@ -1,3 +1,13 @@
+---
+layout: post
+title: "(What's So Funny 'Bout) Peace, Love and Understanding"
+author: "Ken"
+excerpt: "Bruce galvanized his audiences to vote for change by leading all-star team-ups on Nick Lowe’s earnest anthem."
+tags: bonnie-raitt dave-matthews eddie-vedder elvis-costello jackson-browne john-fogerty jon-bon-jovi nick-lowe r-e-m the-chicks vote-for-change whats-so-funny-bout-peace-love-and-understanding willie-nile
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/brinsley-1.jpg
+post_id: 39880
+---
 It was supposed to be a joke.
 
 "This song was supposed to be an old hippie," Nick Lowe told *A.V. Club* in 2011, "laughed at by the new thinking, saying to these new smarty-pants types: ‘Look, you think you got it all going on. You can laugh at me, but all I'm saying is what's so funny about peace, love, and understanding?'"

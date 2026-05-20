@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Stockton Girls"
+author: "Ken"
+excerpt: "One of the more curious of Bruce’s work-in-progress River-era home demos, “Stockton Girls” offers an inside look at a songwriter striving to bring a theme to life."
+tags: stockton-girls
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/stockton-girl.jpg
+post_id: 16356
+---
 We took a look at Bruce Springsteen's abandoned "[Stockton Boys](../2019-01-10_roll-of-the-dice-stockton-boys/post.md)" home demos a year or so ago; today we'll listen to their sister song.
 
 Truthfully, "Stockton Girls" really shouldn't qualify as a separate song–it's more of a "Stockton Boys" variation than anything else. The melody is identical, as is the theme. If it weren't for the fact that Bruce rewrote the entire set of lyrics, we'd consider it an experiment in gender-fluid songwriting.
@@ -14,33 +24,33 @@ The song construction of "Stockton Boys" and "Stockton Girls" is similar: it's F
 
 But while the boys aren't particularly interested in romance (they're too busy acting tough, making noise), the girls are looking for some dance partners:
 
-> *Soon as Friday night comes around, 8 o'clock they roll into town*
-> *Looking for a few good thrills with a paycheck to kill*
-> *Her hands hurt ???*
-> *Baby wants to go out, baby wants to dance*
-> *Baby wants to find a little romance*
-> *To take her away*
-> *Oh Stockton girls, they got no diamonds or pearls*
-> *Running down from the factories*
-> *Oh Stockton girls, diamonds and pearls*
-> *I love those Stockton girls*
+> *Soon as Friday night comes around, 8 o'clock they roll into town*<br>
+> *Looking for a few good thrills with a paycheck to kill*<br>
+> *Her hands hurt ???*<br>
+> *Baby wants to go out, baby wants to dance*<br>
+> *Baby wants to find a little romance*<br>
+> *To take her away*<br>
+> *Oh Stockton girls, they got no diamonds or pearls*<br>
+> *Running down from the factories*<br>
+> *Oh Stockton girls, diamonds and pearls*<br>
+> *I love those Stockton girls*<br>
 
 Stockton is clearly a blue-collar town. The girls work in the factories, the boys in the mills. Neither have anything to show for it besides the paychecks burning a hole in their pockets.
 
 Even the second verses are parallel, with the Stockton Boys leaving their wives and kids at home while the Girls ditch their kids and fathers for the night:
 
-> *Susie worked down at the ???*
-> *She got a kid and an old man*
-> *That she takes care of ???*
-> *They come down when the day is done*
-> *And baby wants to rock, baby wants to roll*
-> *Baby wants to find, but it's too cold*
-> *Stockton girls, ain't got no diamonds or pearls*
-> *They come running down from the mill*
-> *Oh Stockton girls*
-> *Stockton girls, they got no diamonds or pearls*
-> *They come running down from the factory*
-> *I love those Stockton girls*
+> *Susie worked down at the ???*<br>
+> *She got a kid and an old man*<br>
+> *That she takes care of ???*<br>
+> *They come down when the day is done*<br>
+> *And baby wants to rock, baby wants to roll*<br>
+> *Baby wants to find, but it's too cold*<br>
+> *Stockton girls, ain't got no diamonds or pearls*<br>
+> *They come running down from the mill*<br>
+> *Oh Stockton girls*<br>
+> *Stockton girls, they got no diamonds or pearls*<br>
+> *They come running down from the factory*<br>
+> *I love those Stockton girls*<br>
 
 Bruce never finished either song (that we know of), although he would develop a similar theme in "Out on the Street" and repurpose a couple of "Stockton Boys" lyrics for "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."
 

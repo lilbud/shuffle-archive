@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: August 8"
+author: "Ken"
+excerpt: "Today is a relatively quiet date in Springsteen history, but there’s one momentous exception: the very first performance ever of “Backstreets.” Listen to it here."
+tags: akron backstreets born-in-the-usa-tour born-to-run-tour cats-on-a-smooth-surface east-rutherford new-york-city philadelphia rising-tour springsteen-on-broadway stone-pony
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/wantad.jpg
+post_id: 57928
+---
 ***New for 2025:** Audio for 1975*<br>
 
-**1970:** A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothing’s Festival is cancelled when the event’s local venues become ensnared in a web of regulatory oversight.<br>
+**1970:** A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothing's Festival is cancelled when the event's local venues become ensnared in a web of regulatory oversight.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1970-08-08a.png.webp)
 
@@ -14,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1974-08-08.jpg.webp)
 
-**1975:** “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” is played for the first time ever, as the Born to Run Tour begins to pick up steam in Akron, Ohio. “[Then She Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)” also makes its tour premiere tonight.<br>
+**1975:** "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" is played for the first time ever, as the Born to Run Tour begins to pick up steam in Akron, Ohio. "[Then She Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)" also makes its tour premiere tonight.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D1aamrTq)
 
@@ -22,7 +32,7 @@
 
 **1978:** A planned Darkness Tour stop at Ryserson University in Toronto is cancelled.<br>
 
-**1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for seven songs, including a work-in-progress (and never released) “On the Prowl” and covers of “[Ready Teddy,](../2018-02-01_cover-me-ready-teddy/post.md)” “[Come On, Let’s Go,](../2018-10-19_cover-me-come-on-lets-go/post.md)” and “[Come On Over to My Place](../2018-04-12_matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/post.md).”<br>
+**1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for seven songs, including a work-in-progress (and never released) "On the Prowl" and covers of "[Ready Teddy,](../2018-02-01_cover-me-ready-teddy/post.md)" "[Come On, Let's Go,](../2018-10-19_cover-me-come-on-lets-go/post.md)" and "[Come On Over to My Place](../2018-04-12_matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/GZQFnl9z)
 
@@ -30,7 +40,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/qUtloRcX)
 
-**2003:** Bruce and the E Street Band play their first of three Rising Tour nights at Lincoln Financial Field in Philadelphia, where fans enjoy the first full-band “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)” of the tour.<br>
+**2003:** Bruce and the E Street Band play their first of three Rising Tour nights at Lincoln Financial Field in Philadelphia, where fans enjoy the first full-band "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" of the tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RC0F6oBf)
 

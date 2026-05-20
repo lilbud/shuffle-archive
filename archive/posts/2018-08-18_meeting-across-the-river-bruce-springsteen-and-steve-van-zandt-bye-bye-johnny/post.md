@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Little Steven, Bye Bye Johnny"
+author: "Ken"
+excerpt: "Chuck Berry’s “Bye Bye Johnny” inspired one of Bruce’s own songs, but strangely he’s only covered it a few times. Here’s his most recent performance, with Little Steven and the Disciples of Soul."
+tags: bye-bye-johnny chuck-berry little-steven-and-the-disciples-of-soul
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/byebye.jpg
+post_id: 3764
+---
 True fact: Chuck Berry wrote *five* songs about Mr. Johnny B. Goode, so you'd be forgiven for confusing any of them with the titular and most famous of them.
 
 "Bye Bye Johnny" debuted two years after "[Johnny B. Goode](../2018-01-22_meeting-across-the-river-check-berry-bruce-springsteen-and-the-e-street-band/post.md)." When last we left Johnny, his mother was proclaiming and predicting that someday he'd be a man, bandleader, and a star with his name in lights. When "Bye Bye Johnny" begins, Johnny's mom is putting her boy on a bus and sending him west to stardom.
@@ -10,7 +20,7 @@ In Berry's version, Johnny's mom had toiled and saved to buy her son a guitar an
 
 Considering it inspired a song in his catalog, it's surprising that Bruce has only covered the song three times over the years, and never in an "official" E Street Band concert setting. Here's the most recent of those three performances, from Bruce's Asbury Park guest appearance with Little Steven and the Disciples of Soul from April 2017.
 
-[Watch on Youtube: Little Steven & the Disciples of Soul w/Bruce Springsteen, Asbury Park, NJ 04/22/2017](https://www.youtube.com/watch?v=GDOEFWUmXUU?start=277)
+[Watch on Youtube: Little Steven & the Disciples of Soul w/Bruce Springsteen, Asbury Park, NJ 04/22/2017](https://www.youtube.com/watch?v=GDOEFWUmXUU)
 
 **Bye Bye Johnny**<br>
 **First performed:** July 17, 1982 (Red Bank, NJ)<br>

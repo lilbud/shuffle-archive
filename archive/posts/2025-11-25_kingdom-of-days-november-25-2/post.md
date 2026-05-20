@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 25"
+author: "Ken"
+excerpt: "On this date: Bruce meets David Bowie, Charlie Giordano makes his official E Street Band debut, a remarkable acoustic show in Asbury Park, and more."
+tags: amherst asbury-park backstreets billie-jean-king born-in-the-usa-tour charlie-giordano dallas danny-federici darkness-tour david-bowie detroit ghost-of-tom-joad-tour john-mayall johnny-bye-bye livin-in-the-future madrid magic-tour newark patti-scialfa radio-nowhere reason-to-believe soozie-tyrell spain springsteen-on-broadway st-louis steel-mill thunder-road vini-lopez
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/19961125_front.jpg
+post_id: 62431
+---
 ***New for 2025:** Advertisement for 1973*<br>
 
 **1970:** Steel Mill spends Thanksgiving eve headlining at Newark State College.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 21"
+author: "Ken"
+excerpt: "On this date: Born in the U.S.A. passes Thriller’s run on the U.S. album chart, Bruce plays his first-ever show in Toronto, and more."
+tags: bobby-bandiera born-in-the-usa born-to-run-tour canada holiday-shows ontario springsteen-on-broadway tim-mcloone toronto
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/bruce-springsteen-stand-with-teachers-1480x832-1.jpg
+post_id: 63394
+---
 ***New for 2025:** No updates*<br>
 
 **1973: "**Bruce Springsteen and his studio band" headline at Sandy's in Beverly, Massachusetts.<br>

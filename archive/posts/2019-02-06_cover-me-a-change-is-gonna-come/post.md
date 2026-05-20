@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: A Change is Gonna Come"
+author: "Ken"
+excerpt: "One time only: Bruce and the E Street Band deliver a soaring cover of Sam Cooke’s civil rights anthem at a 1988 soundcheck in Atlanta."
+tags: a-change-is-gonna-come sam-cooke
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/Exhibits_Vietnam_Music_ChangeGonnaCome.jpg
+post_id: 7400
+---
 Sam Cooke's "A Change Is Gonna Come" predicted the achievements of the American Civil Rights movement, but tragically Cooke never lived to see them. In fact, he never even got to see how influential his song became, because he died mere days before the single was released (oddly, as a B-side to "[Shake](../1976-01-12_cover-me-shake/post.md/)").
 
 Intensely and intimately autobiographical, Cooke's song was a marked departure for the romantic soul singer, but after experiencing acts of racism repeatedly, he was compelled to write about it. Born from first hand experience, the song came naturally, with lush orchestration that builds throughout the song and conveys a sense of determination that will not be denied.

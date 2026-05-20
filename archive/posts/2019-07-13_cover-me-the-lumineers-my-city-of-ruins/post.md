@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Lumineers: My City of Ruins"
+author: "Ken"
+excerpt: "Listen to the The Lumineers show their Jersey roots when they cover Bruce’s “My City of Ruins” during a German radio station studio appearance."
+tags: my-city-of-ruins the-lumineers
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/lumineers.jpg
+post_id: 10784
+---
 The Lumineers may be Denver-based, but they got their start in New Jersey and count Bruce among their influences. Sometimes that influence is under the surface, but sometimes it's right on top.
 
 And when the band visited Radio Hamburg on a 2012 trip to Germany, Bruce was very much top of mind.

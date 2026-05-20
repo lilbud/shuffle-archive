@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Diddy Wah Diddy"
+author: "Ken"
+excerpt: "Bo Diddley’s ode to the mythical locale of Diddy Wah Diddy became the perfect way to thank fans for a great tour."
+tags: bo-diddley diddy-wah-diddy joe-grushecky-and-the-houserocker
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/diddy.jpg
+post_id: 27715
+---
 It ain't no town, and it ain't no city.
 
 It *was* a place, though, at least in the imaginations of southern African-Americans in the early 20th century–as real as East Jabip was in my white Jewish neighborhood in Philadelphia, or the lovely burg of Bumfuck to my South Jersey friends.

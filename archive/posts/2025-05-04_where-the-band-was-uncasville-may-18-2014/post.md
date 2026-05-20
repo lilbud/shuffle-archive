@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Uncasville, May 18, 2014"
+author: "Ken"
+excerpt: "Bruce wraps up the High Hopes Tour with a barn burner, exhausting himself in the process. He barely made it through the show, but oh, what a show."
+tags: dream-baby-dream high-hopes-tour jump jungleland santa-claus-is-comin-to-town seven-angels uncasville
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/unca2.jpg
+post_id: 2165
+---
 Instead of writing a fresh take on this closing show of the High Hopes Tour, I'm going to reprint my contemporaneous Facebook review from the morning after the show.
 
 Not because I'm lazy, and not because I want to embarrass myself with how ridiculously off-base I was in my prognosis, but because it really does capture the way it felt not just to me, but to many of the people who were there with me. Even people I didn't know at the time–when we compare notes years later, we all remember being shaken by the way the show ended:

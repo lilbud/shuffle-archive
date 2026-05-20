@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Rob Notes: Spirit in the Night"
+author: "Ken"
+excerpt: "Rob Notes turns in an excellent seventies hard rock version of one of Bruce’s earliest songs."
+tags: rob-notes spirit-in-the-night
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/notes.jpg
+post_id: 33030
+---
 My apologies for the recent skip days: I've had a busy couple of weeks with work and family travel. We should be back in a groove now, though, so let's start back up with one of my favorite recent Springsteen covers.
 
 Rob Notes is a German singer-songwriter with incredible range, no matter how you measure it: musically (he's equally at home at the piano or with an electric guitar), vocally (with a range of more than three octaves), and in his choice of material, which includes both original songs and covers of classics from Bette Midler to Bruce Springsteen.

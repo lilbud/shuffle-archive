@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, March 17, 2016"
+author: "Ken"
+excerpt: "The first second night of the 2016 tour featured St. Patrick Day surprises and an extended ESB family reunion."
+tags: american-land brilliant-disguise death-to-my-hometown hungry-heart i-wanna-marry-you independence-day los-angeles meet-me-in-the-city river-2016-tour shout sports-arena tenth-avenue-freeze-out the-ties-that-bind
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/la2-1.jpg
+post_id: 1145
+---
 [Watch Video Highlight](https://videopress.com/embed/vlByZSBh)
 
 One of the most amazing things about the E Street Band isn’t just its longevity, but its longevity across generations. Jake Clemons ably fills his uncle’s shoes and then some; Jay Weinberg sat in for his dad when prior commitments conflicted with ESB tours; and on this night in Los Angeles, Danny Federici’s daughter Madison and son Jason made their ESB debut on tambourine and accordion respectively for “[Tenth Avenue Freeze-out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” and a video tribute to their dad. Jarod Clemons (Clarence’s son) and Olivia Tallent (Garry’s daughter) also joined the band for a brief, joyous, tender, multi-generational moment.

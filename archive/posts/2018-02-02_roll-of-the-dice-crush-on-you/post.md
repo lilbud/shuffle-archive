@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Crush on You"
+author: "Ken"
+excerpt: "Bruce proclaims “Crush on You” to be a masterpiece, and I agree. Only he’s being sarcastic, and I’m not."
+tags: 1-2-crush-on-you crush-on-you river-tour river-tour-2016 rolling-stones the-clash
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/crush.png
+post_id: 525
+---
 What if the The Clash and The Rolling Stones got together back in the day and wrote a song?
 
 If you didn't know better, you might swear that's exactly what happened the first time you heard Bruce Springsteen's "Crush on You."
@@ -18,17 +28,17 @@ Musically, the E Street Band can barely contain the lyrics, barreling forth with
 
 And those lyrics! "Crush on You" features some of Bruce's most playful lines, almost playing like a cartoon at times:
 
-> *My feets were flying down the street just the other night*
-> *When a Hong Kong special pulled up at the light*
-> *What went inside, man, was just c'est magnifique!*
-> *I wanted to hold the bumper and let her drag me down the street*
+> *My feets were flying down the street just the other night*<br>
+> *When a Hong Kong special pulled up at the light*<br>
+> *What went inside, man, was just c'est magnifique!*<br>
+> *I wanted to hold the bumper and let her drag me down the street*<br>
 
 (Yeah, I know it reads like that meter is impossible, but Bruce manages to squeeze it in.)
 
 And without exaggeration, one of my all-time favorite Springsteen lyrics is:
 
-> *Sometimes I spot a little stranger standing ‘cross the room*
-> *My brain takes a vacation just to give my heart more room*
+> *Sometimes I spot a little stranger standing ‘cross the room*<br>
+> *My brain takes a vacation just to give my heart more room*<br>
 
 I love that image.
 

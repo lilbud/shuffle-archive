@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 27"
+author: "Ken"
+excerpt: "A jam-packed day in Springsteen history: watch Bruce’s full Syracuse 1985 show, the live debut of “Streets of Philadelphia,” plus rare footage from the Ghost of Tom Joad Tour in Tokyo, the release of Working on a Dream, and more."
+tags: across-the-border australia born-in-the-usa-tour chicago darkness-on-the-edge-of-town david-crosby drive-all-night ghost-of-tom-joad-tour japan los-angeles no-surrender perth river-tour-2016 springsteen-on-broadway streets-of-philadelphia syracuse tokyo working-on-a-dream
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/woad.jpg
+post_id: 55810
+---
 **1973:** Night Four of five for Bruce at The Quiet Knight in Chicago opening for the Persuasions.<br>
 
 **1985:** Bruce and the E Street Band wrap the first leg of the *Born in the U.S.A.* Tour at the Carrier Dome in Syracuse. The show is captured by a fan on video, and you can watch it here.<br>
@@ -8,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1985-01-27b.png.webp)
 
-**1986:** Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for *Born in the U.S.A.*), and Favorite Pop/Rock Male Video Artist. He's not in attendance though, so his awards are accepted on his behalf by...<br>
+**1986:** Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for *Born in the U.S.A.*), and Favorite Pop/Rock Male Video Artist. He’s not in attendance though, so his awards are accepted on his behalf by…<br>
 
 [Watch on Youtube: Bruce Springsteen Wins Pop/Rock Male Video - AMA 1986](https://www.youtube.com/watch?v=BbB4dkQ5xFc)
 
@@ -18,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1986-01-27.png.webp)
 
-**1994:** Bruce debuts "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" at the *Commitment to Life* AIDS benefit in Los Angeles.<br>
+**1994:** Bruce debuts “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)” at the *Commitment to Life* AIDS benefit in Los Angeles.<br>
 
 [Watch on Youtube: Bruce Springsteen - Los Angeles - 1994-01-27 news coverage](https://www.youtube.com/watch?v=lhL-btWA-o4)
 
@@ -34,7 +44,7 @@
 
 [Watch on Youtube: Across the Border - Tokyo, January 27, 1997](https://www.youtube.com/watch?v=wIjVa0j4N68)
 
-**2009:** *Working on a Dream*, Bruce's sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.<br>
+**2009**: *Working on a Dream,* Bruce’s sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.<br>
 
 [Watch on Youtube: Working On A Dream](https://www.youtube.com/playlist?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2009-01-27b.png.webp)
 
-**2016:** The River Tour (2016 Edition) moves on to Madison Square Garden, where "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)" makes its tour premiere.<br>
+**2016:** The River Tour (2016 Edition) moves on to Madison Square Garden, where “[Candy’s Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)” makes its tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen "Meet Me in the City" MSG NYC 1/27/16](https://www.youtube.com/watch?v=2vkOSjgsP0s)
 
@@ -52,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg.webp)
 
-**2017:** Night 3 in Perth features the first and only performance of "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" in Australia to date.<br>
+**2017:** Night 3 in Perth features the first and only performance of “[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)” in Australia to date.<br>
 
 [Watch on Youtube: Bruce Springsteen Perth Australia 2017. Drive All Night.](https://www.youtube.com/watch?v=tMo4WuOlqV8)
 

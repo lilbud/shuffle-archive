@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sitting on Top of the World"
+author: "Ken"
+excerpt: "Although it’s believed that Bruce played blues classic “I’m Sitting on Top of the World” on multiple occasions, only one recording and definitively dated performance survives. Listen to it inside."
+tags: child cream mississippi-sheiks richmond sitting-on-top-of-the-world the-bruce-springsteen-band
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/sitting.jpg
+post_id: 5131
+---
 "Sitting on Top of the World" is an American blues standard, recently recognized by the Library of Congress for its historical and cultural significance. It dates back to 1930, when it was first recorded by The Mississippi Sheiks, and its evergreen popularity is no doubt due in large part to its ironic lyrics: in any incarnation, the singer recounts his woes but still insists with each verse that he's "sitting on top of the world" — determined to remain optimistic even though nothing about his circumstances may warrant it.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RqeW7-tmVU4)

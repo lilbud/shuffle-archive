@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Burnin' Train"
+author: "Ken"
+excerpt: "It sticks out like a musical sore thumb, but lyrically “Burnin’ Train” is right at home on Letter to You with its theme of longevity through great sex."
+tags: burnin-train letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/burningtrain.jpg
+post_id: 30561
+---
 So the story goes that Bruce Springsteen wrote his [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md)album in a ten-day spurt of creativity, crafting nine new songs and supplementing them with three never-released older ones.
 
 That's not exactly true, though. In reality, a full half of the album's twelve songs were extant long before he wrote the other six in early 2019. But at least all twelve songs were recorded during a week-long session with the E Street Band that November, right?

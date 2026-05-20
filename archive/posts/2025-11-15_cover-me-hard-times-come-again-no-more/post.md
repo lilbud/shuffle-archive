@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Hard Times Come Again No More"
+author: "Ken"
+excerpt: "At the height of the Great Recession, Bruce heartened his audiences with a nightly encore of Stephen Foster’s 1854 classic."
+tags: hard-times-come-again-no-more stephen-foster
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/hardtimessmall.jpg
+post_id: 32365
+---
 Stephen Foster's impact on American music can't be understated. You know his songs even if you didn't know he wrote them: "Oh! Susanna," "Camptown Races," "Swanee River," and of course his 1854 classic "Hard Times Come Again No More."
 
 [Watch on Youtube: "Hard Times Come Again No More" (1905) - Edison Quartet](https://www.youtube.com/watch?v=SRMN0V4uxY4)

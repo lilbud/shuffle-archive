@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 20"
+author: "Ken"
+excerpt: "On this date: Steven Van Zandt makes his E Street Band debut as the Born to Run tour gets underway. Plus: he may be the best at capturing a crowd’s attention, but even Bruce can’t compete with a moon landing."
+tags: alan-vega all-that-heaven-will-allow barcelona born-to-run-tour bridgeport child clarence-clemons denmark devils-and-dust-tour dream-baby-dream east-rutherford horsens im-goin-down magic-tour maxs-kansas-city new-york-city providence reunion-tour river-tour-2016 spain springsteen-on-broadway steve-van-zandt u2
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/19750720_2_front.jpg
+post_id: 57793
+---
 ***New for 2025:** Audio for 1975*<br>
 
 **1969:** Child plays their last of six consecutive nights at the Pandemonium in Wanamassa, New Jersey. On this night, however, the band isn't the center of attention: during Bruce's performance, Neil Armstrong lands and walks on the moon. That's tough for anyone to compete with, and the band takes issue with the distracting televisions placed around the club. They won't play this club again.<br>

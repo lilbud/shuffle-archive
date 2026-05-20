@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Garland Jeffreys and Bruce Springsteen: Hail Hail Rock 'n' Roll"
+author: "Ken"
+excerpt: "One time only: Garland Jeffreys coaxes Bruce Springsteen onto the stage at Light of Day 2002 to join him on his last great hit, “Hail Hail Rock ‘n’ Roll.”"
+tags: garland-jeffreys hail-hail-rock-n-roll
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/hailhail.jpg
+post_id: 16724
+---
 Garland Jeffreys should have been a much bigger star than he is, and there were a few brief moments ("[Wild in the Streets](../2018-04-18_matr-garland-jeffreys-and-bruce-springsteen-wild-in-the-streets/post.md)" in 1973 and "[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md)" in 1981) where it seemed he might be on his way.
 
 The last time was in 1992, when "Hail Hail Rock 'n' Roll" (the lead single off his *Don't Call Me Buckwheat* album) cracked the Top 40 across Europe and even the Top 10 on the Dutch and Swiss charts.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Hang Up My Rock and Roll Shoes"
+author: "Ken"
+excerpt: "Bruce has covered this Chuck Willis classic from 1958 three times over his career. Listen to the first and watch the last inside."
+tags: buffalo darkness-tour hang-up-my-rock-and-roll-shoes saginaw working-on-a-dream-tour
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/hangup.jpg
+post_id: 2116
+---
 Chuck Willis passed away in 1958 just as he was reaching the pinnacle of his career, so he never got to see “Hang Up My Rock and Roll Shoes” become a hit and an enduring classic.
 
 Many artists have kept the song alive, Bruce among them. Bruce performed the song three times over his career. Here’s the first time, in 1978, on the Darkness on the Edge of Town Tour in Saginaw:

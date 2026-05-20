@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: St. Louis, August 23, 2008"
+author: "Ken"
+excerpt: "Yes, it was *that* good. On a night when no one expected it, Bruce played his best 21st century show with a scorching performance and a die-hard’s dream setlist."
+tags: adam-raised-a-cain backstreets dancing-in-the-dark drive-all-night for-you little-queenie magic-tour mountain-of-love rendezvous sophie-satanovsky spirit-in-the-night st-louis then-she-kissed-me thunder-road when-you-walk-in-the-room
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/stlouis08.png
+post_id: 3907
+---
 Let's address the controversy right off the bat:
 
 It's almost impossible to anoint a "best show ever." Besides the inherent subjectivity of the reviewer, unless you were actually at "every show ever," you can't expect to speak with authority when you declare the king of the heap.

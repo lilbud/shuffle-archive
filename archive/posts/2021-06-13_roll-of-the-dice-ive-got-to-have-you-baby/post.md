@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Got to Have You, Baby"
+author: "Ken"
+excerpt: "Let’s listen on the Bruce Springsteen Band’s 1972 rehearsal sessions and their loose, fun performance of a lost Springsteen original."
+tags: i-got-to-have-you-baby the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/gottahve.jpg
+post_id: 27895
+---
 Ah… summer's here. Time to take those old, good-time Bruce Springsteen Band recordings for a spin!
 
 We'll take a few trips back to the Bruce Springsteen Band era this summer, starting with this gem from the band's March 1972 rehearsal sessions at Tinker West's Challenger Eastern Surfboards makeshift studio. You're in for a treat, because the sound quality of this recording is outstanding.

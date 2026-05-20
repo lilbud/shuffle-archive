@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Southside Johnny and Bruce Springsteen, I've Been Working Too Hard"
+author: "Ken"
+excerpt: "Twice only: Bruce joins Southside Johnny on the Little Steven-penned 1991 rave-up, “I’ve Been Working Too Hard.”"
+tags: ive-been-working-too-hard jon-bon-jovi southside-johnny steve-van-zandy
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/ive-been-working.jpg
+post_id: 11077
+---
 Don't call it a comeback album (because he was never gone), and don't you dare call it a return to form.
 
 Let's just call it a reunion album, because eight of the eleven tracks on Southside Johnny's 1991 *Better Days* album were written by Steve Van Zandt, and Southside Johnny and Little Steven make for a magic combination.

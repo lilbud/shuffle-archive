@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Arabian Nights"
+author: "Ken"
+excerpt: "One of the last songs to be cut from Bruce’s debut album, “Arabian Nights” is a glimpse at the surreal inner world of an introverted musician."
+tags: arabian-nights
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/Arabian-Nights.png
+post_id: 11225
+---
 Until it was bumped from [*Greetings From Asbury Park, N.J*,](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) by "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "Arabian Nights" was a lock for inclusion on Bruce's debut album.
 
 But CBS President Clive Davis felt that *Greetings* had a little too much solo material and not enough band songs or potential hits, so off to the brand-new vault went "Arabian Nights."
@@ -12,59 +22,59 @@ Bruce recorded four songs on that first day of recording, of which only one woul
 
 But like the famous book that inspired him, "Arabian Nights" has some shockingly racist and misogynist language as well, albeit attributed to the narrator's mother. (Let's not try to read too much autobiography into the circumstances; it's hard to imagine either of his parents in the roles they're cast in here.)
 
-> *Shrieks of sheikhs as they come across the movie screen*
-> *A thousand sand dune soldiers led by an Arabian queen*
-> *Harem girls move like Clancy's dancers through my dirty dreams*
-> *I wake up on the floor clutching a bed lamp*
+> *Shrieks of sheikhs as they come across the movie screen*<br>
+> *A thousand sand dune soldiers led by an Arabian queen*<br>
+> *Harem girls move like Clancy's dancers through my dirty dreams*<br>
+> *I wake up on the floor clutching a bed lamp*<br>
 
-> *Mama comes in, she screams, "Whoa, you been out with that tramp again last night*
-> *That silver sequined Arab black bitch, you know, the one Mama don't like"*
-> *But, Mama, she sings me moontime melodies with this great Top 40 hook*
-> *Mama just stares and Papa don't care but he says, "Look Mama, the girl's alright, the girl's*
-> *alright"*
+> *Mama comes in, she screams, "Whoa, you been out with that tramp again last night*<br>
+> *That silver sequined Arab black bitch, you know, the one Mama don't like"*<br>
+> *But, Mama, she sings me moontime melodies with this great Top 40 hook*<br>
+> *Mama just stares and Papa don't care but he says, "Look Mama, the girl's alright, the girl's*<br>
+> *alright"*<br>
 
 "Arabian Nights" belongs to a brief period of songwriting in which Bruce seems more focused on style than substance. As he would (much) later joke, he had his rhyming dictionary ever at the ready. (I have to imagine he was immensely self-satisfied with his opening "shrieks of sheikhs.")
 
 Still, it's a funny setup that establishes the song's conceit: a narrator whose inner world is far more vivid than his outer one. In "Arabian Nights" Bruce paints three scenes, exploring fantasies of sex, glory, and adventure, while always grounding the narrator in the mundane.
 
-> *He turns and says, "Tell me, son, what's the word?" ‘Cause, you know, he can't hear*
-> *Papa the word's out on the curb but don't go near it*
-> *It's criticized as too absurd, even the animals fear it*
-> *Papa says, "Fetch me my flashlight, son," and he stumbles out the front door*
+> *He turns and says, "Tell me, son, what's the word?" ‘Cause, you know, he can't hear*<br>
+> *Papa the word's out on the curb but don't go near it*<br>
+> *It's criticized as too absurd, even the animals fear it*<br>
+> *Papa says, "Fetch me my flashlight, son," and he stumbles out the front door*<br>
 
-> *So come out from behind your bunkers 'cause the liftoff's been a bust*
-> *Papa's gone and Mama's dead and buried in my rocket dust*
-> *Well, you're alone now for the first time, don't worry 'cause that's all right*
-> *All fear will completely disappear come the Arabian night*
+> *So come out from behind your bunkers 'cause the liftoff's been a bust*<br>
+> *Papa's gone and Mama's dead and buried in my rocket dust*<br>
+> *Well, you're alone now for the first time, don't worry 'cause that's all right*<br>
+> *All fear will completely disappear come the Arabian night*<br>
 
 Still, if Bruce isn't writing a true story, he's at least inspired by one. Estranged from his father and left behind by both parents (as Bruce was at the time), the narrator is a musician, too:
 
-> *Now soundman smiles and turns the dials to set the meter reading rising*
-> *He pulls the singer's voice from out of his pocket to see if the audience likes it*
-> *And in the very first row sits sweet Jenny Roe with a bell on her shoe and she wants him to make it*
-> *He flicks a switch but Jenny moves too fast and the audience sways to the sound of her shotgun blast*
+> *Now soundman smiles and turns the dials to set the meter reading rising*<br>
+> *He pulls the singer's voice from out of his pocket to see if the audience likes it*<br>
+> *And in the very first row sits sweet Jenny Roe with a bell on her shoe and she wants him to make it*<br>
+> *He flicks a switch but Jenny moves too fast and the audience sways to the sound of her shotgun blast*<br>
 
-> *The manager comes running out from behind stage, says, "Check the band's arms for bullet holes, make that man roll up his sleeves"*
-> *The drummer shoots himself with cyanide then asked to be relieved*
-> *And me, I just say, "It's too crazy in here, which is the stage door out? I gotta get up tomorrow morning for work"*
-> *The promoter said, "Once you're in they all lead out, but what's the matter, man, ain't you heard?*
+> *The manager comes running out from behind stage, says, "Check the band's arms for bullet holes, make that man roll up his sleeves"*<br>
+> *The drummer shoots himself with cyanide then asked to be relieved*<br>
+> *And me, I just say, "It's too crazy in here, which is the stage door out? I gotta get up tomorrow morning for work"*<br>
+> *The promoter said, "Once you're in they all lead out, but what's the matter, man, ain't you heard?*<br>
 
-> *There's a war going on on the outside and I'm paying you to sing like a bird*
-> *So get in and get tough or get up and get out 'cause things aren't too tight"*
-> *I said, "Don't worry, man, everything's gonna loosen up come the Arabian night*
+> *There's a war going on on the outside and I'm paying you to sing like a bird*<br>
+> *So get in and get tough or get up and get out 'cause things aren't too tight"*<br>
+> *I said, "Don't worry, man, everything's gonna loosen up come the Arabian night*<br>
 
 Yeah, we're definitely not in an autobiography, because Bruce Springsteen would *never* be getting up in the morning for work. Still, we're obviously listening to an aspiring rocker, and a straight-edge one to boot: Bruce practically hits us over the head with drug references, but our narrator refuses to partake. When the scene gets crazy and the promoter blocks the exits, our narrator summons the Arabian night to carry him into the zone for his performance.
 
 Act III brings us back to where we started: the narrator's bedroom. This time there's a street brawl brewing outside–or maybe it's in his dreams. Either way, Bruce's protagonist is on the inside looking out.
 
-> *Well, I got back in bed but outside my window I heard another gang fight*
-> *It's Duke and the boys against the devil's best men and both sides have drawn their knives*
-> *Now Duke he's a well known knife fighter and with one quick jab he brings the devil down*
-> *He smiles 'cause he knows there's a good bounty on devils in any God-fearing town*
+> *Well, I got back in bed but outside my window I heard another gang fight*<br>
+> *It's Duke and the boys against the devil's best men and both sides have drawn their knives*<br>
+> *Now Duke he's a well known knife fighter and with one quick jab he brings the devil down*<br>
+> *He smiles 'cause he knows there's a good bounty on devils in any God-fearing town*<br>
 
-> *So Duke sold the devil to some priest in Pennsylvania to exhibit on his altar Christmas night*
-> *But the devil's eyes, they still burn red with fire as long as Duke walks upright*
-> *And he swears there's going to be a showdown come sundown on the Arabian night*
+> *So Duke sold the devil to some priest in Pennsylvania to exhibit on his altar Christmas night*<br>
+> *But the devil's eyes, they still burn red with fire as long as Duke walks upright*<br>
+> *And he swears there's going to be a showdown come sundown on the Arabian night*<br>
 
 "Arabian Nights" is strangely constructed–there aren't any choruses, and it may be a stretch to say there are verses, so much do they vary in length and meter. Musically too, "Arabian Nights" meanders; Bruce seems to be accompanying himself as soundtrack more than song. (Although there's a passage around two minutes in that sounds a lot like "Growing Up.")
 
@@ -76,10 +86,10 @@ In the end, it's easy to see why "Arabian Nights" was voted off the island, but 
 
 This recording doesn't have the exchange between the narrator and his father; instead, we hear this equally mysterious passage:
 
-> *And there's a tenseness in the air, don't you know, can't you feel*
-> *There's something hanging there, pull back the mist and reveal it*
-> *Even if you fear what you hear, try to conceal it*
-> *And if what Mama feels is too real, she just claims she don't feel it*
+> *And there's a tenseness in the air, don't you know, can't you feel*<br>
+> *There's something hanging there, pull back the mist and reveal it*<br>
+> *Even if you fear what you hear, try to conceal it*<br>
+> *And if what Mama feels is too real, she just claims she don't feel it*<br>
 
 **Bonus #2:** These are Bruce's early handwritten lyrics for "Arabian Nights," and if you read carefully, you'll see several places where the lyrics differ from even that early version above.<br>
 

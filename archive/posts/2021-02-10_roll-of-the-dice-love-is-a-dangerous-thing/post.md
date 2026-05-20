@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Love Is a Dangerous Thing"
+author: "Ken"
+excerpt: "One of Bruce’s creepier unreleased outtakes foreshadowed better songs still to come."
+tags: love-is-a-dangerous-thing
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/love-danger.jpg
+post_id: 25184
+---
 Thank goodness Bruce didn't release this one. It's just plain creepy.
 
 Catchy, yes. But still: *creepy*.

@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Little Queenie"
+author: "Ken"
+excerpt: "Are you loose? Bruce certainly was, the first time the E Street Band covered Chuck Berry’s 1959 classic, “Little Queenie.”"
+tags: bomb-scare-show chuck-berry little-queenie milwaukee philadelphia st-louis
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/0x1900-000000-80-0-0.jpg
+post_id: 6213
+---
 There Bruce was: biding time at the bar of the Hotel Pffffffffister, when he was supposed to be on stage playing.
 
 When a bomb threat disrupted his show at the Uptown Theater in Milwaukee on the evening of October 2, 1975, Bruce and the band were forced to take a *three hour* intermission only seven songs into the show.
 
-What does one do during an unscheduled three-hour intermission at a hotel bar? Well... listening to the band's, um, *loose* performance of Chuck Berry's "Little Queenie" when they re-took the stage at midnight, it's not hard to figure out.
+What does one do during an unscheduled three-hour intermission at a hotel bar? Well… listening to the band's, um, *loose* performance of Chuck Berry's "Little Queenie" when they re-took the stage at midnight, it's not hard to figure out.
 
 [Watch on Youtube: Bruce Springsteen - LITTLE QUEENIE 1975 (audio)](https://www.youtube.com/watch?v=CkCRdMY9g6E)
 
@@ -22,7 +32,7 @@ But the band's smokingest performance of "Little Queenie" was its last (to date,
 
 [Watch on Youtube: Bruce Springsteen -- LITTLE QUEENIE --- St. Louis 2008](https://www.youtube.com/watch?v=oncRaQa76qA)
 
-Bruce has played "Little Queenie" at least once a decade since the 1970s, so it's due for a return... just as soon as Bruce gets back on the road.
+Bruce has played "Little Queenie" at least once a decade since the 1970s, so it's due for a return… just as soon as Bruce gets back on the road.
 
 **Little Queenie**<br>
 **First performed:** September 1, 1971 (Long Branch, NJ)<br>

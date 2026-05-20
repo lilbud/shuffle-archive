@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: One of Us Must Know (Sooner or Later)"
+author: "Ken"
+excerpt: "One time only: At a 1988 soundcheck, Bruce and the E Street Band covered Dylan’s 1966 shoulda-been-a-hit single."
+tags: bob-dylan one-of-us-must-know-sooner-or-later
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/261636-one-of-us-must-know-sooner-or-later.jpg
+post_id: 35846
+---
 Long before *From My Home to Yours* made it easy, you could get a glimpse into Bruce Springsteen's musical influences if you were sneaky enough to figure out a way into his sound checks.
 
 Because while Bruce leads the E Street Band through old warhorses and nightly specials before every show to make sure everything sounds just right, he's also given to improvising songs he's never played in concert–and probably never will.

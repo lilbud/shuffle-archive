@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Everybody's Looking for Somebody"
+author: "Ken"
+excerpt: "Everybody’s looking for *something*, but I’ll be darned if I can figure out what. Give this brief home demo a listen and see if you can figure out what Bruce is singing about."
+tags: everybodys-looking-for-somebody
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/Man-on-Suitcase.jpg
+post_id: 9380
+---
 
 Actually, it's not at all clear to me that *anybody's* looking for somebody.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Ghosts"
+author: "Ken"
+excerpt: "A joyful but haunted anthem that both celebrates and mourns our losses."
+tags: ghosts letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/ghost.jpg
+post_id: 41196
+---
 > "Death's final and lasting gift to the living is an expanded vision of life itself."
 >
 > *–Bruce Springsteen, on stage nightly in 2023*<br>

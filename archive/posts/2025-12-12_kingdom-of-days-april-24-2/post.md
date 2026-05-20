@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 24"
+author: "Ken"
+excerpt: "Highlights today include a Steel Mill recording from 1970, a radio broadcast from 1973, the one-and-only performance of “Dollhouse,” and much more."
+tags: austria belgium cats-on-a-smooth-surface chicken-scratch-tour dollhouse france frankie from-my-home-to-yours ghent ghost-of-tom-joad-tour good-lovin hartford high-hopes-tour if-i-should-fall-behind london lyon main-point pretty-flamingo raleigh reunion-tour river-tour san-jose seeger-sessions-tour steel-mill steve-van-zandt stone-pony the-rascals uk upstage vienna wild-thing wmmr working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/26274134117_4b6d2ce116_o.jpg
+post_id: 56611
+---
 **1970:** Steel Mill plays a show at Monmouth College in West Long Branch, New Jersey. Listen to the amazing thirty-minute epic “Garden State Parkway Blues” below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/K8rRLDke)

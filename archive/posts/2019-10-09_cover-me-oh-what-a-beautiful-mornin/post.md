@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Oh, What a Beautiful Mornin'"
+author: "Ken"
+excerpt: "One time only: In tribute to Elaine Steinbeck (wife of John), Bruce plays a gentle, acoustic cover of the opening song from the classic Broadway musical Oklahoma!"
+tags: oh-what-a-beautiful-mornin oklahoma rogers-and-hammerstein
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/beautiful-morn.jpg
+post_id: 13437
+---
 Okay, we all know that Bruce Springsteen is a John Steinbeck fan.
 
 But did you know that Steinbeck's wife was a Bruce Springsteen fan?
@@ -12,7 +22,7 @@ Bruce's first choice of song that evening was a classic drawn directly from the 
 
 I almost feel silly sharing the original 1943 cast album recording for comparison, because *of course* you know it. We all do–it's one of the most well-known songs from one of the most well-known musicals.
 
-[Watch on Youtube: 1943 HITS ARCHIVE: Oh, What A Beautiful Mornin' - Alfred Drake ("Oklahoma!" cast album)](https://www.youtube.com/watch?v=lyaCmhBg4H0)
+[Watch on Youtube: 1943 HITS ARCHIVE: Oh, What A Beautiful Mornin' - Alfred Drake (](https://www.youtube.com/watch?v=lyaCmhBg4H0)
 
 In 1998, Bruce was still very much performing in his Tom Joad style, and it's a little bit jarring to hear him sing such a sunny song in a style that would have been right at home on his 1995-1997 acoustic tour.
 

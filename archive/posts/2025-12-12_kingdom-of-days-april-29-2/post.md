@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 29"
+author: "Ken"
+excerpt: "On this date: Bruce makes his legendary late-night Graceland expedition. Plus: great video of Bruce’s return visit to JazzFest and rare performances and premieres over the years."
+tags: bobby-bandiera chicken-scratch-tour dr-john eddie-floyd elvis elvis-costello graceland hearts-of-stone high-hopes-tour hope-concert jazzfest john-fogerty kittys-back linda-let-me-be-the-one london-calling memphis my-kind-of-town new-orleans oslo philadelphia red-bank river-tour rotterdam run-through-the-jungle shane-fontayne something-you-got steve-van-zandt stone-pony sunrise the-netherlands working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/26274134007_d68e0d7c7f_o.jpg
+post_id: 56631
+---
 **1954:** Michael Barakan (a.k.a. Shane Fontayne, 1992-93 touring band guitarist) is born.<br>
 
 ![Shane Fontayne](https://www.museumofmakingmusic.org/media/zoo/images/shane-fontayne_ff606a9bdf573c239bbd8ff41684a5ee.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Pittsburgh, September 11, 2016"
+author: "Ken"
+excerpt: "Bruce delivers a powerful, emotional, and cathartic communal experience at his first 9/11 show since the 2001 attacks."
+tags: american-skin-41-shots downbound-train into-the-fire joe-grushecky light-of-day long-walk-home my-city-of-ruins new-york-city-serenade pittsburgh river-tour-2016 streets-of-fire youre-missing
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/pitt16.jpg
+post_id: 4357
+---
 Even coming off a run of three amazing shows in [Virginia Beach](../2018-09-05_where-the-band-was-virginia-beach-september-5-2016/post.md) and [Philadelphia](../2018-09-09_where-the-band-was-philadelphia-september-9-2016/post.md), I had high expectations for Pittsburgh–even higher than for the previous shows, in fact.
 
 For one thing, this was one last return to an arena on a tour leg that was predominantly stadium-based, and I always prefer the intimacy of an arena (hey, it's all about the comparison) to a cavernous stadium.

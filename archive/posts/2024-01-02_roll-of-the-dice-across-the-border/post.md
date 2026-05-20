@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Across the Border"
+author: "Ken"
+excerpt: "A salve for troubled times, Bruce’s sublime “Across the Border” reminds us of the power and necessity of hope."
+tags: across-the-border the-ghost-of-tom-joad
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/borderline.jpg
+post_id: 20492
+---
 > "This is a song about how even after the world reveals itself, people keep on going. We return to faith and hope and belief in love, because that's all there is." *–Bruce Springsteen, London, April 27 1996*<br>
 
 If there's a song in Bruce's catalog that we all need right now, it's "Across the Border."

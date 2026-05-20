@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and John Eddie: Blue Suede Shoes"
+author: "Ken"
+excerpt: "One time only (and *almost* another): Bruce joins John Eddie on Carl Perkins’ breakthrough rockabilly hit."
+tags: blue-suede-shoes carl-perkins elvis-presley john-eddie nick-ferraro philly-elvis
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/bluesuede.jpg
+post_id: 22286
+---
 For an artist with an appreciation of (and even at times a fixation on) rockabilly records, it's somewhat surprising that one of the earliest and most well-known rockabilly hits isn't among the countless songs Bruce has properly covered in concert.
 
 Although most people today would probably associate it with Elvis Presley, it was Carl Perkins who wrote and first recorded "Blue Suede Shoes," and it was Perkins who had the bigger hit with it.

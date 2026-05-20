@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Elvis Costello and Bruce Springsteen: I Can't Stand Up For Falling Down"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and Elvis Costello team up on a Sam and Dave classic made famous by Elvis in 1980."
+tags: elvis-costello i-cant-stand-up-for-falling-down sam-and-dave
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/cantstand.jpg
+post_id: 29632
+---
 Bruce's fondness for the Stax greats is well documented, particularly when it comes to Sam and Dave. Over the last few years, we've looked at "[Soul Man](../2018-07-25_meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/post.md), "[Hold On, I'm Comin'](../2019-04-24_matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/post.md)" "[I Thank You](../2020-08-20_matr-bruce-springsteen-and-sam-moore-i-thank-you/post.md)," and "[When Something Is Wrong With My Baby](../2021-05-26_matr-bruce-springsteen-and-sam-moore-when-something-is-wrong-with-my-baby/post.md)," all smash hits from the legendary duo.
 
 But if there's anyone in Bruce's circle that can match his admiration, it's Elvis Costello. In their appearance together on Elvis' 2009 *Spectacle* series, Bruce and Elvis explained what made Sam and Dave so great.

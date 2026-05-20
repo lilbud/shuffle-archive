@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Munich, April 16, 1981 (Dan's Story)"
+author: "Ken"
+excerpt: "Part Two of guest-blogger Dan French’s amazing E Street Adventure from the original European River Tour."
+tags: dan-french
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/df6.png
+post_id: 26562
+---
 Editor's Note
 
 ***Editor's Note:*** *This is Part Two of guest blogger Dan French's incredible E Street adventure from 1981. If you haven't already, be sure to read* *[Part One](../2021-04-14_where-the-band-was-frankfurt-april-141981-dans-story/post.md)* *before continuing on.*<br>

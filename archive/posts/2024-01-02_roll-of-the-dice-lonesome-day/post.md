@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lonesome Day"
+author: "Ken"
+excerpt: "Relationship song or 9/11 catharsis? Either way, “Lonesome Day” helps us process the pain of betrayal and hold our self-destructive urges in check."
+tags: lonesome-day the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/lonesome.jpg
+post_id: 16918
+---
 Okay, I'm just gonna put this out there, even though I know most of y'all will vehemently disagree with me:
 
 "Lonesome Day" is *not* about 9/11.

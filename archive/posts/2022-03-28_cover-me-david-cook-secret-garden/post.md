@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, David Cook: Secret Garden"
+author: "Ken"
+excerpt: "When the American Idol winner’s tour brought him to Bruce’s hometown, he knew he wanted to work up something special for the occasion. And he did."
+tags: david-cook secret-garden
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/davidcook.jpg
+post_id: 33564
+---
 Tucked away on the Walmart exclusive edition of the American Idol winner's 2015 *Digital Vein* album is David Cook's daringly fresh cover of Bruce Springsteen's "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)."
 
 [Watch on Youtube: David Cook - Secret Garden (Bruce Springsteen Cover) (Walmart Edition Bonus)](https://www.youtube.com/watch?v=Em1DR7vXvzI)

@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Editor's Note: 30 Days Out"
+author: "Ken"
+excerpt: "In which I take a deep breath, answer questions, and say “thanks!”"
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/calendar.jpg
+post_id: 408
+---
 
 It's been thirty days since I started developing estreetshuffle.com, and twenty days since it went live; that seems like a good time to step back for a moment and say:
 

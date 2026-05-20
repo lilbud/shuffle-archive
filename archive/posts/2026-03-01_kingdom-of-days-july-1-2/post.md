@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 1"
+author: "Ken"
+excerpt: "The Born in the U.S.A. Tour gets underway, and the Reunion Tour comes to a close. Plus: catch guest spots with Brian Wilson and La Bamba, and listen to the E Street Band tinker with “New York City Serenade” during a Darkness soundcheck."
+tags: barbara-ann berkeley born-in-the-usa-tour brian-wilson clarence-clemons darkness-tour from-my-home-to-yours la-bamba live-in-new-york-city madison-square-garden new-york-city new-york-city-serenade reunion-tour stone-pony surfin-usa
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/cover_14.jpg
+post_id: 57558
+---
 **1972:** Bruce makes a guest appearance with Norman Seldin and the Joyful Noyze, of which Clarence Clemons is a member. This is only the third time Bruce has ever performed with Clarence.<br>
 
 **1973:** Bruce, David Sancious, Richard Blackwell, and Suki Lahav layer overdubs onto "Santa Ana" at 914 Sound Studios in Blauvelt, completing the song. It will remain unreleased for another 25 years.<br>

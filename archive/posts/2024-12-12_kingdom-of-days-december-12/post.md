@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 12"
+author: "Ken"
+excerpt: "On this date: Bruce records one of the most beloved, evergreen holiday pop songs ever. Plus: the first “It’s My Life,” a Hurricane Sandy telethon performance and more."
+tags: antwerp belgium bobby-bandiera born-to-run-tour bruce-springsteen-band ghost-of-tom-joad-tour greenvale hartford highway-29 holiday-shows hurricane-sandy jackson-cage jon-bon-jovi magic-tour nashville new-york-city patti-scialfa river-tour santa-claus-is-comin-to-town soozie-tyrell southside-johnny springsteen-on-broadway steel-mill student-prince the-river who-says-you-cant-go-home
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/greenvale.jpg
+post_id: 55289
+---
 ***New for 2024:** New entry for 1970, 2008, and 2023; audio and for 1975*<br>
 
 **1969:** Steel Mill (or as the poster puts it, "Child under an assumed name") headlines at Monmouth College in West Long Branch, New Jersey.<br>

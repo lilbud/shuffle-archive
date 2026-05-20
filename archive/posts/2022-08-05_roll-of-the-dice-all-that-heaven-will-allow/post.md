@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: All That Heaven Will Allow"
+author: "Ken"
+excerpt: "The brightest song on Tunnel of Love is a hat tip to a classic 1955 romance film."
+tags: all-that-heaven-will-allow tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/1200px-All_That_Heaven_Allows_1955_trailer_1.jpg
+post_id: 36657
+---
 It was a tale of… well, if not forbidden then at least frowned-upon love.
 
 The year was 1955, and the film was *All That Heaven Allows*. Directed by Douglas Sirk, the film starred Jane Wyman as Cary, a wealthy widow, and Rock Hudson as Ron, her gardener turned suitor.

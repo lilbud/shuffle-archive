@@ -1,16 +1,26 @@
+---
+layout: post
+title: "Kingdom of Days: April 8"
+author: "Ken"
+excerpt: "Out of work during the pandemic, Bruce takes a side gig as a radio DJ. Plus: controversy ensues when Bruce cancels a Greensboro show in protest over discrimination in North Carolina,"
+tags: anaheim barcelona cats-on-a-smooth-surface chicken-scratch-tour cincinnati cleveland dancing-in-the-dark dream-baby-dream greensboro high-hopes-tour houston lost-in-the-flood magic-tour pay-me-my-money-down reunion-tour river-tour-2016 rockin-all-over-the-world spain st-louis steve-van-zandt stone-pony switzerland tom-morello working-on-a-dream-tour world-tour-1993 zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/myhomeyours.jpg
+post_id: 56403
+---
 ***New for 2025:** Video for 2014*<br>
 
-**1976:** The second of two nights in Cleveland on the Chicken Scratch Tour features the last “[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)” for 33 years.<br>
+**1976:** The second of two nights in Cleveland on the Chicken Scratch Tour features the last "[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)" for 33 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-08 Allen Theatre, Cleveland, OH](https://www.youtube.com/watch?v=rij7NJhcmoI)
 
-**1984:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: “Proud Mary,” “[Dirty Water,](../2022-03-18_cover-me-dirty-water/post.md)” “[I’m Bad, I’m Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md),” and “[Lucille](../1976-01-07_cover-me-lucille/post.md/).”<br>
+**1984:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: "Proud Mary," "[Dirty Water,](../2022-03-18_cover-me-dirty-water/post.md)" "[I'm Bad, I'm Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md)," and "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Cats on a Smooth Surface - Stone Pony - 1984-04-08](https://www.youtube.com/watch?v=E0nGuxZTSNo)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1984-04-08.jpg.webp)
 
-**1993:** At the second of two shows in Zurich, Bruce plays “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” for the first and only time this year and tour debuts “Rockin’ All Over the World.”<br>
+**1993:** At the second of two shows in Zurich, Bruce plays "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" for the first and only time this year and tour debuts "Rockin' All Over the World."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D126GX2S)
 
@@ -18,7 +28,7 @@
 
 [Watch on Youtube: Sample Bruce Springsteen Zürich 1993 04 08 complete show](https://www.youtube.com/watch?v=I-FAIxCEA98)
 
-**1999**: Bruce and the reunited E Street Band play their final rehearsal in Barcelona before the kick-off of the Reunion Tour the following day.<br>
+**1999:** Bruce and the reunited E Street Band play their final rehearsal in Barcelona before the kick-off of the Reunion Tour the following day.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1999-04-08.jpg.webp)
 
@@ -34,11 +44,11 @@
 
 [Watch on Youtube: Live in Barcelona](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
-**2008:** Night Two in Anaheim at the Honda Center for the Magic Tour, with Tom Morello making another guest appearance and “Thunder Road” serving as a rare set opener.<br>
+**2008:** Night Two in Anaheim at the Honda Center for the Magic Tour, with Tom Morello making another guest appearance and "Thunder Road" serving as a rare set opener.<br>
 
 [Watch on Youtube: Springsteen at Honda Center - 2008-04-08](https://www.youtube.com/watch?v=ZNgu0Ai-5CU)
 
-**2009:** The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)” and “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/).”<br>
+**2009:** The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen Houston 2009 04 08 Badlands, Outlaw Pete and No Surrender](https://www.youtube.com/watch?v=iLs5BY-Ih94)
 
@@ -48,9 +58,9 @@
 
 **2011:** Little Steven's Underground Garage airs Part 2 of The Bruce and Stevie Show. Absolutely essential listening for a fan of Bruce, Stevie, great music, and lifelong friendships.<br>
 
-[Watch Video](https://videopress.com/embed/1lqTkF5o?hd=1&loop=0&autoPlay=0&permalink=1)
+[Watch Video](https://videopress.com/embed/1lqTkF5o)
 
-**2014:** The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of this leg due to *Lilyhammer* filming conflicts) with a show at the USBank Arena in Cincinnati, where “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)” makes a rare appearance. News coverage and highlights below.<br>
+**2014:** The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of this leg due to *Lilyhammer* filming conflicts) with a show at the USBank Arena in Cincinnati, where "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" makes a rare appearance. News coverage and highlights below.<br>
 
 [Watch on Youtube: Bruce Springsteen kicks of US tour in Cincinnati Tuesday](https://www.youtube.com/watch?v=EQ26Q42ntMw)
 
@@ -62,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2014-04-08.jpg.webp)
 
-**2016:** With two days’ notice, Bruce cancels his upcoming show in Greensboro in protest of the state’s adoption of a law discriminating against transgender people. Bruce’s decision generates increased news coverage and national discussion around an already controversial law.<br>
+**2016:** With two days' notice, Bruce cancels his upcoming show in Greensboro in protest of the state's adoption of a law discriminating against transgender people. Bruce's decision generates increased news coverage and national discussion around an already controversial law.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/2016-0408.jpg.webp)
 

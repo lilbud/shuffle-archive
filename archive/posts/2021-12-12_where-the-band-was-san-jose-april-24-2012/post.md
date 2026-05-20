@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: San Jose, April 24, 2012"
+author: "Ken"
+excerpt: "Bruce kicks off the California leg of the Wrecking Ball tour with an intense performance in San Jose."
+tags: san-jose thundercrack we-take-care-of-our-own wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/20120424_3_front-1.jpg
+post_id: 1745
+---
 [Watch on Youtube: Bruce Springsteen We Take Care Of Our Own 2012 04 24 San Jose,CA CamMix HD 720p](https://www.youtube.com/watch?v=G-aE4KzzC5k)
 
 One month into the Wrecking Ball Tour, the setlists were loosening but still WB-heavy. The new material had fully gelled, and older songs were starting to make their way back into the setlists. And they don’t get much older than “[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md),” which made a rare appearance that led up to one of the funniest moments I’ve seen at a Springsteen show.

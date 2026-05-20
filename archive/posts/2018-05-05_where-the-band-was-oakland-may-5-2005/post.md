@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Oakland, May 5, 2005"
+author: "Ken"
+excerpt: "In which I learn the downside of a celebrity encounter at a show."
+tags: devils-and-dust-tour land-of-hope-and-dreams nebraska oakland two-faces
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/20050505_front.jpg
+post_id: 1907
+---
 I was *so* looking forward to this show.
 
 It was my first chance to see Bruce perform acoustically in a small venue, and my friend Steve and I made the trip from Seattle because we weren't sure if there would be a Pacific Northwest leg later (there was).
@@ -16,7 +26,7 @@ We even lucked out with the tour premiere of "[Land of Hope and Dreams](../2018-
 
 [Watch on Youtube: Bruce Springsteen - Land of Hope and Dreams - Oakland, May 5 2005](https://www.youtube.com/watch?v=psFjDUQuviY)
 
-...but even though I was there, I have to rely on the bootleg for to remind me of most of the detail and nuance of Bruce's performance that night.
+…but even though I was there, I have to rely on the bootleg for to remind me of most of the detail and nuance of Bruce's performance that night.
 
 Why? Because sitting directly in front of me and one seat to the right was the late, great Robin Williams, and I was fascinated watching his reactions to the songs–so much so that I forgot to notice my own. Robin was clearly a fan, and he was rapt for the entire show, with the same joy and wonder playing across his face as the rest of us. (In my imagination, I pictured him joining Bruce on stage for an encore of "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" in full Elmer Fudd mode, but alas, it was not to be.)
 

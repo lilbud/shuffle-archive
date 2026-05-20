@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Hey, Good Lookin'"
+author: "Ken"
+excerpt: "Bruce’s one and only cover of “Hey, Good Lookin'” was a bit of a hot mess, but that’s its charm. Take a listen inside."
+tags: hank-williams hey-good-lookin southside-johnny
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/hey-good.jpg
+post_id: 13438
+---
 By now, we shouldn’t be surprised at the range of covers Bruce Springsteen is prone to playing in concert.
 
 Still, “Hey, Good Lookin’,” Hank Williams’ #1 country hit from 1951, seems like one of the least likely contenders. (It’s certainly tough to imagine a fan bringing a sign for it.)

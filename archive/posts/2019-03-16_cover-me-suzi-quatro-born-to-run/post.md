@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Suzi Quatro: Born to Run"
+author: "Ken"
+excerpt: "Suzi Quatro aims high and scores with her bold cover of Bruce’s signature anthem."
+tags: born-to-run suzi-quatro
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/quatro.jpg
+post_id: 7801
+---
 You might have heard Suzi Quatro's cover of "Born to Run" before.
 
 But if Youtube's stats are to be trusted, you might not have heard *this* version before.

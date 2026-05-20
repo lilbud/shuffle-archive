@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: September 8"
+author: "Ken"
+excerpt: "Happy birthday, Jay Weinberg, born on this date in 1990. Also on this date: Bruce plays The Stone Pony for the very first time, wins an MTV VMA, performs “State Trooper” live for the first time, and more."
+tags: auburn-hills blackberry-booze-band born-in-the-usa-tour chicago chimes-of-freedom darkness-on-the-edge-of-town detroit eddie-vedder get-up-stand-up hartford human-rights-now-tour italy jay-weinberg jole-blon miami mtv-video-music-awards my-hometown pittsburgh reunion-tour river-tour roger-scott rosemont state-trooper stone-pony streets-of-philadelphia this-depression tom-morello turin wholl-stop-the-rain wrecking-ball-tour wrigley-field
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/09/1900x1900-000000-80-0-0.jpg
+post_id: 59599
+---
 ***New for 2025:** New entry for 1977 and 2024*<br>
 
 **1973:** Bruce and the E Street Band play an afternoon show for the University of Pittsburgh and Carnegie Mellon University.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1973-0908.jpg.webp)
 
-**1974:** Bruce makes his first-ever on-stage appearance at The Stone Pony in Asbury Park, sitting in with Steve Van Zandt and Southside Johnny's Blackberry Booze Band (the forerunner of The Asbury Jukes). Garry and Vini join in as well, and the jam lasts well into the night.<br>
+**1974:** Bruce makes his first-ever on-stage appearance at The Stone Pony in Asbury Park, sitting in with Steve Van Zandt and Southside Johnny’s Blackberry Booze Band (the forerunner of The Asbury Jukes). Garry and Vini join in as well, and the jam lasts well into the night.<br>
 
 **1977:** Bruce holds a recording session at The Record Plant in New York City.<br>
 
@@ -16,13 +26,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1981-09-08.jpg.webp)
 
-**1984:** At Night Two in Hartford on the Born in the U.S.A. Tour, Bruce plays "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" for the very first time.<br>
+**1984:** At Night Two in Hartford on the Born in the U.S.A. Tour, Bruce plays “[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)” for the very first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live debut of "State Trooper" Hartford, 1984-09-08](https://www.youtube.com/watch?v=54ioyqhbVPQ)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/Hartford_Courant_1984_09_13_Page_111.jpg.webp)
 
-After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio special. It won't be broadcast until December, but you can listen to it below. (The interview is interspersed between and within songs, so be careful if you skip ahead.)
+After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio special. It won’t be broadcast until December, but you can listen to it below. (The interview is interspersed between and within songs, so be careful if you skip ahead.)
 
 [Watch Video Highlight](https://videopress.com/embed/TnYc9num)
 
@@ -36,11 +46,11 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-08.jpg.webp)
 
-**1990:** Future honorary/second-generation E Streeter and Slipknot drummer Jay Weinberg is born. Jay will one day fill his father's shoes behind the drums when Max's TV commitments prevent him from appearing in many shows on the Working on a Dream Tour.<br>
+**1990:** Future honorary/second-generation E Streeter and Slipknot drummer Jay Weinberg is born. Jay will one day fill his father’s shoes behind the drums when Max’s TV commitments prevent him from appearing in many shows on the Working on a Dream Tour.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/maxweinbergjay.jpg.webp)
 
-**1994:** Bruce wins the MTV Video Music Award for Best Video from a Film for "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" (although he loses to Tom Petty's "Mary Jane's Last Dance" in the Best Male Video category). Bruce appears live at the awards, performing his award-winning song backed by Roy, Max, Bobby King, and Tommy Sims.<br>
+**1994:** Bruce wins the MTV Video Music Award for Best Video from a Film for “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)” (although he loses to Tom Petty’s “Mary Jane’s Last Dance” in the Best Male Video category). Bruce appears live at the awards, performing his award-winning song backed by Roy, Max, Bobby King, and Tommy Sims.<br>
 
 [Watch on Youtube: Bruce Springsteen Live performance VMA Awards Streets of Philedephia](https://www.youtube.com/watch?v=9Wk02N6bcIw)
 
@@ -56,7 +66,7 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1999-09-08a.jpg.webp)
 
-**2012:** On Night Two at Wrigley Field, Eddie Vedder and Tom Morello reprise their guest appearances from the night before, and Bruce plays "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)" for only the third time ever.<br>
+**2012:** On Night Two at Wrigley Field, Eddie Vedder and Tom Morello reprise their guest appearances from the night before, and Bruce plays “[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)” for only the third time ever.<br>
 
 [Watch on Youtube: Bruce Springsteen - This Depression (With Tom Morello) - Wrigley Field; Chicago, IL - 9.8.2012](https://www.youtube.com/watch?v=_TRdkkamG5o)
 

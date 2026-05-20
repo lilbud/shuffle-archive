@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Hey Blue Eyes"
+author: "Ken"
+excerpt: "One of Bruce’s most devastatingly powerful songs is one of the least-known and -heard from his official catalog. Listen to the dark, multi-layered “Hey Blue Eyes” inside."
+tags: american-beauty hey-blue-eyes
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/blueeye.jpg
+post_id: 10927
+---
 At the very end of an EP that almost nobody noticed (including the artist, it seems, because he's never even once performed *any* of the songs on it) resides one of Bruce Springsteen's most breathtaking songs.
 
 "Hey Blue Eyes" is absolutely devastating in its withering criticism of American hypocrisy, but that's not the impressive part. What makes "Hey Blue Eyes" such an astonishingly powerful song is the way it works on three completely different levels all at once–all while set against a deceptively lilting melody that seems ignorant of the lyrical content (a deliberate piece of Springsteen meta-commentary).

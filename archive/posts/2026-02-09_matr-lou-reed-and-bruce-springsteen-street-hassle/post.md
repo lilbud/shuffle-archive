@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Street Hassle"
+author: "Ken"
+excerpt: "Tramps like us, we were born to pay. So says an uncredited Bruce Springsteen in his 1978 spoken-word monologue buried deep within Lou Reed’s epic “Street Hassle.”"
+tags: lou-reed street-hassle
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/street.jpg
+post_id: 7437
+---
 On Memorial Day weekend in 1977, Bruce Springsteen finally settled his long-running legal dispute with Mike Appel that had prevented him from recording a follow up to his 1975 album *Born to Run.*
 
 Road-weary (the band had been on the road for almost two solid years) and with a solid stash of new material, it only took four days for Bruce to return to the studio and begin recording *Darkness on the Edge of Town.*

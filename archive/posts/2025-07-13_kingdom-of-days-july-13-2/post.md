@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 13"
+author: "Ken"
+excerpt: "On this date: Listen to a work-in-progress “Born to Run” from the Bottom Line and a rare E Street Band “Man’s Job.” Plus Patti releases her first solo album, Rumble Doll—listen to her in-depth radio interview inside."
+tags: belgium born-in-the-usa-tour bottom-line canada devils-and-dust-tour east-troy france george-theiss london new-york-city ottawa paris patti-scialfa philadelphia river-2016-tour river-tour rumble-doll springsteen-on-broadway tw-classic-festival uk wechter wembley world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/rumbledoll.jpg
+post_id: 57721
+---
 ***New for 2025:** New entry for 1975 and 1979*<br>
 
 **1974:** Bruce headlines two shows at the Bottom Line in New York City. By this time, recording sessions are underway for *Born to Run*, and Bruce has been writing prolifically. These shows feature work-in-progress versions of "Jungleland" and "Born to Run" and are fascinating to listen to.<br>

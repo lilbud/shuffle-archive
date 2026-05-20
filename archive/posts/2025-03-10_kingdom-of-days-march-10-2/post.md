@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 10"
+author: "Ken"
+excerpt: "Bruce debuts “The Fever” and “Don’t Look Back,” records “The Klansman,” and more."
+tags: castiles dont-look-back drive-all-night glory-days houston hungry-heart incident-on-57th-street lawsuit-tour magic-tour mickey-rourke phoenix providence ramrod reunion-tour rising-tour river-tour-2016 rosalita sunrise the-klansman the-mighty-hornets the-price-you-pay toledo uniondale
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/phoenix1.jpg
+post_id: 56135
+---
 ***New for 2025:** New entry for 1972 ,1978, 2018, and 2024; audio for 1974*<br>
 
 **1967:** The Castiles play the Hullabaloo in Middletown, New Jersey.<br>

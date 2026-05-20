@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Promised Land"
+author: "Ken"
+excerpt: "Is “The Promised Land” a song of defiance or surrender? That depends on the ear of the behearer."
+tags: darkness darkness-on-the-edge-of-town lost-in-the-flood the-promised-land
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/newsBerryPromisedLand.jpg
+post_id: 2700
+---
 So I think by now I've pretty well established that I can be a little bit, um, detail-obsessed when it comes to Bruce's music.
 
 But I might be pushing the envelope with this confession:

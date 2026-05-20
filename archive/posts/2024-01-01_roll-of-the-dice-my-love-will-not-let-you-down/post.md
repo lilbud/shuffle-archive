@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Love Will Not Let You Down"
+author: "Ken"
+excerpt: "Springsteen’s “My Love Will Not Let You Down” – an introvert’s inner scream"
+tags: 18-tracks born-in-the-usa dancing-in-the-dark live-in-nyc my-love-will-not-let-you-down tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/mylove.jpg
+post_id: 397
+---
 For every song that made it on a Springsteen album, there's one (and usually a lot more) that didn't. The man is nothing if not prolific.
 
 Many of the outtakes eventually make their way into circulation, either officially or unofficially, and you can usually understand why they were left off the album. Not because they weren't great songs, though–Bruce has very few clunkers.

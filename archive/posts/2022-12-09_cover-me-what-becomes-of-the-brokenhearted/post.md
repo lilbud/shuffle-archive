@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: What Becomes of the Brokenhearted"
+author: "Ken"
+excerpt: "Bruce’s cover of this Motown classic may be the only track on Only the Strong Survive to rival the original."
+tags: jimmy-ruffin what-becomes-of-the-brokenhearted
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/broken.jpg
+post_id: 39748
+---
 If you only read the lyrics, you'd think you had stumbled across the unlikeliest pop hit ever.
 
 "What Becomes of the Brokenhearted" is a seriously dark song, an exercise in self-pity as told by a narrator at the end of his emotional rope.

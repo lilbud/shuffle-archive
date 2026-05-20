@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 28"
+author: "Ken"
+excerpt: "Happy birthday, Bobby King! Plus: a sizzling set in a rainy Rock Creek Park, the debut of “Summertime Blues,” the emotional return of “Jungleland,” and more."
+tags: bobby-king born-to-run-tour darkness-tour darlington-county devils-and-dust-tour east-rutherford giants-stadium gothenburg im-goin-down ireland jay-weinberg jesse-malin joe-grushecky jungleland kilkenny magic-tour miami norway oslo pittsburgh river-tour-2016 rock-creek-park seville spain summertime-blues sweden trapped tucson uk washington-dc working-on-a-dream-tour working-on-the-highway world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/gothen2-1.jpg
+post_id: 57868
+---
 **1944:** Bobby King, backing vocalist on "Roll of the Dice" and "Man's Job" and throughout World Tour 1992 and World Tour 1993, is born in Lake Charles, Louisiana.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/bobby.jpg.webp)

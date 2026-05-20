@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Window"
+author: "Ken"
+excerpt: "This early composition by 18-year-old Bruce Springsteen reveals a growing awareness and concern for societal ills."
+tags: 1968-notebook the-window
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/window.jpg
+post_id: 23072
+---
 Let's take another dip into Bruce Springsteen's "[1968 Notebook,](https://estreetshuffle.com/index.php/page/2/?s=1968+notebook)" a treasure trove of early compositions revealed for public viewing when it went up for auction in 2006.
 
 While many of those prehistoric songs were incomplete and some were just wisps, today's entry is a fully-formed but lost-to-history song (complete with chord notations) that Bruce is believed to have performed during a string of solo shows at the Off Broad Street Coffee House in Red Bank in the spring of 1968.

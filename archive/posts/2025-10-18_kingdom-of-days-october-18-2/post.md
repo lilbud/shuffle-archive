@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 18"
+author: "Ken"
+excerpt: "Bruce broke up the band on this date in 1989, but there are plenty of happy highlights too: the first-ever performances of “Drive All Night” and “Hungry Heart,” an adorable tape-recorded message to local schoolchildren, the premiere of Legends of Springsteen, Charlie’s first E Street appearance, and more."
+tags: alliance-of-neighbors american-babylon-tour ames barack-obama ben-stiller bill-clinton billy-joel bologna bon-jovi born-in-the-usa-tour born-to-run-tour boston canada charlie-giordano dan-fogelberg dion-dimucci drive-all-night e-street-break-up edmonton forward garry-tallent hungry-heart im-a-rocker iowa italy jimmy-kimmel joan-jett joe-ely joe-grushecky john-sebastian jungleland lawsuit-tour legends-of-springsteen light-of-day live-1975-85 los-angeles madison-square-garden magic-tour meeting-across-the-river michelle-moore new-york-city ohio passaic phoebe-snow reunion-tour rising-tour river-tour roy-elementary-school scott-kempner springsteen-on-broadway st-louis stand-on-it tacoma thunder-road washington-dc wild-innocent-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/roxy75.jpg
+post_id: 61151
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1973:** Bruce and the E Street Band play their fourth of five nights at Oliver's in Boston.<br>

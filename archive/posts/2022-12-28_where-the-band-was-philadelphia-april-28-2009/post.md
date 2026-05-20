@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Philadelphia, April 28, 2009"
+author: "Ken"
+excerpt: "On Night One (of six!) in Philadelphia on the Working on a Dream tour, Bruce granted my all-time most-wished-for chase song."
+tags: fire mountain-of-love philadelphia the-fever working-on-a-dream-tour you-cant-sit-down
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/20090428_front.jpg
+post_id: 1749
+---
 Ah, Philly. As I like to put it: a good place to be *from*.
 
 I escaped to the Pacific Northwest half my life ago, but as long as Bruce continues to tour, I'll keep going back. (Also, I have family there.)

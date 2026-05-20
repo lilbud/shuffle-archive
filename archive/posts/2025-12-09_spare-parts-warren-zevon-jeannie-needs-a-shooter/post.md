@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Warren Zevon: Jeannie Needs a Shooter"
+author: "Ken"
+excerpt: "The maybe-true story of Warren Zevon’s sort-of half-cover of a lost Springsteen original."
+tags: jeannie-needs-a-shooter warren-zevon
+categories: meeting-across-the-river roll-of-the-dice spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/BadLuck.jpg
+post_id: 18390
+---
 This is an odd one.
 
 "Jeannie Needs a Shooter" isn't entirely a Springsteen original, and it's certainly not a cover. Bruce doesn't perform on the track, either, so how are we to classify it? Good thing we have a "Spare Parts" category!

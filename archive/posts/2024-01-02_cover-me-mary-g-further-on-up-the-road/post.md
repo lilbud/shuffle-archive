@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Mary G: Further On (Up the Road)"
+author: "Ken"
+excerpt: "Mary G’s version of “Further On (Up the Road)” is a cover of a cover, but it stands on its own as a fresh, wonderful take on Bruce’s song."
+tags: further-on-up-the-road mary-g
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/furthermaryg.png
+post_id: 23577
+---
 In general, I don’t buy into the whole “cover of a cover” thing.
 
 When someone professes to cover a cover, I usually find they’re just imitating a cover artist’s arrangement without bringing anything new or fresh to the table. In the process, they often lose the connection to the original that led the first cover artist to re-arrange it to begin with.

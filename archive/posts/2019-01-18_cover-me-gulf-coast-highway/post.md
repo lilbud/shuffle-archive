@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Gulf Coast Highway"
+author: "Ken"
+excerpt: "Bruce covered Nanci Griffith’s gorgeous ballad at a 1988 soundcheck in New York City."
+tags: gulf-coast-highway nanci-griffith
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/nancy.jpg
+post_id: 6681
+---
 In February 1988, just prior to the kickoff of Bruce's Tunnel of Love Express Tour, Nanci Griffith released her sixth studio album, *Little Love Affairs.*
 
 Tucked away at the end of Side One of that album is a gorgeous duet with Mac McAnally called "Gulf Coast Highway," that sounds for all the world like a Bruce Springsteen song.

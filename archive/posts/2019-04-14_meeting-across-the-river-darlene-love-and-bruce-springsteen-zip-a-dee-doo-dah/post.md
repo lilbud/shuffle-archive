@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Darlene Love and Bruce Springsteen, Zip-a-Dee-Doo-Dah"
+author: "Ken"
+excerpt: "Bruce celebrates Darlene Love’s induction into the Rock and Roll Hall of Fame by joining her on her 1963 hit."
+tags: bob-b-soxx-and-the-blue-jeans darlene-love rock-and-roll-hall-of-fame zip-a-dee-doo-dah
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/zipadee.jpg
+post_id: 4045
+---
 You might be more familiar with "Zip a Dee Doo Dah" in its original Disney incarnation, but in 1963, it went all the way to #8 on the charts when Bob B. Soxx and The Blue Jeans covered it. And if you're not familiar with that band, you're probably familiar with their featured vocalist on the track: Darlene Love.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PWOkSyR_NhU)

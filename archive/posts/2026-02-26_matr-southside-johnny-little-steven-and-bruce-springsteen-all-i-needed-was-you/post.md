@@ -1,3 +1,13 @@
+---
+layout: post
+title: "All I Needed Was You"
+author: "Ken"
+excerpt: "Twice only: Bruce, Southside, and Little Steven trade lead vocals on Steve’s standout track from Southside’s 1991 don’t-call-it-a-comeback album."
+tags: all-i-needed-was-you little-steven southside-johnny
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/stevesouthbruce.jpg
+post_id: 20802
+---
 Little Steven may have written it, but on the evening of December 17, 2000, it belonged to three longtime friends.
 
 "All I Needed Was You" was the second track on Southside Johnny's 1991 don't-call-it-a-comeback album, *Better Days*. (Its first three tracks–"Coming Back," "All I Needed Was You," and "It's Been a Long Time" certainly send a pointed message, though.)

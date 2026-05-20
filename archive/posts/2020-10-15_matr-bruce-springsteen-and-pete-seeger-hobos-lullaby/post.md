@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Pete Seeger: Hobo's Lullaby"
+author: "Ken"
+excerpt: "One of the rare outtakes from the Seeger Sessions, “Hobo’s Lullaby” features Bruce and Pete Seeger in one of their few studio recordings together."
+tags: arlo-guthrie give-us-your-poor hobos-lullaby pete-seeger
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/yourpoor.jpg
+post_id: 20113
+---
 There aren't a lot of outtakes floating around from Bruce's original Seeger Sessions, but there are a couple hiding in plain sight... if you know where to look for them.
 
 We shone a spotlight on one of them ("[If I Had a Hammer](../2019-10-07_cover-me-if-i-had-a-hammer/post.md)") about a year ago; now let's take a look at another.

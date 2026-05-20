@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Robert Gordon: Heartbreak Hotel"
+author: "Ken"
+excerpt: "Bruce covered it throughout the Darkness Tour, but his first performance of Elvis’ breakthrough hit was with a musician the song inspired."
+tags: elvis-presley heartbreak-hotel robert-gordon
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/heartbreakhotel.jpg
+post_id: 26453
+---
 "Heartbreak Hotel" was Elvis Presley's first monster hit, topping the Billboard Hot 100 for seven weeks, the Country & Western chart for *seventeen* weeks, and even reaching #3 on the R&B chart–all at the same time.
 
 [Watch on Youtube: Elvis Presley - Heartbreak Hotel (Official Audio)](https://www.youtube.com/watch?v=e9BLw4W5KU8)

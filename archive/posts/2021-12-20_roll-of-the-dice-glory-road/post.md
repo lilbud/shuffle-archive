@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Glory Road"
+author: "Ken"
+excerpt: "Never recorded, released, or performed, Bruce’s legendary “Glory Road” provides fascinating insight into the evolution of two of his signature songs. Check out early lyrics and artifacts inside."
+tags: born-to-run glory-road thunder-road
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/Glory-road-movie-logo.png
+post_id: 15954
+---
 Of the many mysteries surrounding Bruce Springsteen's early work, few are as tantalizing as the never-recorded, never-performed "Glory Road."
 
 Bruce included it on an early 1974 track list for his upcoming third album (which proved to be further out than he might have wished for at the time)…

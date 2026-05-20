@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Cover Me Round-up: I'm on Fire"
+author: "Ken"
+excerpt: "It’s his most covered song by a long shot. To include all the covers of “I’m on Fire” I’ve featured on the blog over the…"
+post_id: 68319
+---
 It's his most covered song by a long shot.
 
 To include all the covers of "I'm on Fire" I've featured on the blog over the years, I'd need a pretty thick volume of its own. Instead, here's a special print-only edition of *Cover Me Round-Up*, featuring my favorite versions from artists both iconic and unknown, drawn from dozens of blog posts over the years.

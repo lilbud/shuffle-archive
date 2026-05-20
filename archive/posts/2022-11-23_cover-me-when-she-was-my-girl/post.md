@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: When She Was My Girl"
+author: "Ken"
+excerpt: "Bruce delivers a remarkably faithful take of The Four Tops’ last great hit."
+tags: four-tops only-the-strong-survive when-she-was-my-girl
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/fourtops.jpg
+post_id: 39396
+---
 By 1981, the Four Tops were a nostalgia act, although few would refer to them as such.
 
 Their remarkable Motown recording career lost focus as the label began eyeing warmer climes, eventually moving west from Detroit to Los Angeles. By that time, Motown had essentially transformed the Four Tops into a covers act, so it probably wasn't difficult for the group to say goodbye and hitch their wagon to a new label.

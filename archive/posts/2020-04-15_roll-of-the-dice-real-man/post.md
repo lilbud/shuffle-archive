@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Roll of the Dice: Real Man"
+author: "Ken"
+excerpt: "In which we ask the question: is there any redeeming virtue in this widely scorned deep cut?"
+tags: human-touch real-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/RealMan.jpg
+post_id: 17359
+---
 It's that moment we all wish for at a Bruce Springsteen show:
 
-> *"We're gonna try out some songs we ain't played yet… we're gonna fly by the seat of our pants a little bit, alright?"*
+> *"We're gonna try out some songs we ain't played yet… we're gonna fly by the seat of our pants a little bit, alright?"*<br>
 
 Heck yes! Bring it on, Bruce–what are we getting? A brand-new unreleased song? A cool tribute cover? A missing-in-action classic, perhaps?
 
@@ -24,41 +34,41 @@ What a waste of some serious talent. (That's David Sancious playing the organ an
 
 As for the lyrics, well even Bruce felt the need to issue a disclaimer before performing it each night: "This next song is a very corny song, so corny I almost threw it off the damn record… but uh, but I guess I'm gonna do it here tonight."
 
-> *Took my baby to a picture show*
-> *Found a seat in the back row*
-> *Sound came up, lights went down*
-> *And Rambo he was blowing 'em down*
-> *I don't need no gun in my fist baby*
-> *All I need is your sweet kiss*
-> *To get me feeling like a real man*
+> *Took my baby to a picture show*<br>
+> *Found a seat in the back row*<br>
+> *Sound came up, lights went down*<br>
+> *And Rambo he was blowing 'em down*<br>
+> *I don't need no gun in my fist baby*<br>
+> *All I need is your sweet kiss*<br>
+> *To get me feeling like a real man*<br>
 
 You know, one would think that Bruce would have learned after "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" that pop culture references rarely age well.
 
-> *Feeling like a real man*
-> *Well you can beat on your chest*
-> *Hell any monkey can*
-> *But you got me feeling like a real man*
-> *Oh feeling like a real man*
+> *Feeling like a real man*<br>
+> *Well you can beat on your chest*<br>
+> *Hell any monkey can*<br>
+> *But you got me feeling like a real man*<br>
+> *Oh feeling like a real man*<br>
 
 As choruses go, this one's pretty, um, primitive–maybe a cut above "Ooh ooh I got a crush on you."
 
 Speaking of "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)," if our first exposure to the next two verses was on paper without the music playing, we might wonder if they were deleted scenes from it–they have virtually the same cadence and construction.
 
-> *Me and my girl Saturday night*
-> *It's a late movie on Channel Five*
-> *The girls were dropping, they're dropping like flies*
-> *To some smooth-talking cool-walking private eye*
-> *I ain't got no nerves of steel*
-> *But all I got to know is if your love is real*
-> *To get me feeling like a real man*
+> *Me and my girl Saturday night*<br>
+> *It's a late movie on Channel Five*<br>
+> *The girls were dropping, they're dropping like flies*<br>
+> *To some smooth-talking cool-walking private eye*<br>
+> *I ain't got no nerves of steel*<br>
+> *But all I got to know is if your love is real*<br>
+> *To get me feeling like a real man*<br>
 
-> *Well now I ain't no fighter that's easy to see*
-> *And as a lover I ain't going down in history*
-> *But when the lights go down and you pull me close*
-> *Well I look in your eyes and there's one thing I know*
-> *Baby I'll be tough enough*
-> *If I can find the guts to give you all my love*
-> *Then I'll be feeling like a real man*
+> *Well now I ain't no fighter that's easy to see*<br>
+> *And as a lover I ain't going down in history*<br>
+> *But when the lights go down and you pull me close*<br>
+> *Well I look in your eyes and there's one thing I know*<br>
+> *Baby I'll be tough enough*<br>
+> *If I can find the guts to give you all my love*<br>
+> *Then I'll be feeling like a real man*<br>
 
 In fact, the similarities don't stop there. Both "Crush on You" and "Real Man" contain dated pop culture references, and they both have *super-*corny lyrics. So why does one work while the other one doesn't?
 

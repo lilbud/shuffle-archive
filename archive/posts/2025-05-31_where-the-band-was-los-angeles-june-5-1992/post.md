@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, June 5, 1992 (TJ's story)"
+author: "Ken"
+excerpt: "Guest-blogger TJ Jones was on-hand for Bruce’s secret rehearsal show in 1992 (Bruce’s his first with his new band), and he tells his story today."
+tags: tj-jones world-tour-1992
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/19920605_2_front.jpg
+post_id: 18728
+---
 Editor's Note
 
 ***Editor’s Note:*** *Today’s guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce’s first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*<br>

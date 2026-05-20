@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Soozie Tyrell, Bruce Springsteen and Patti Scialfa, Ste. Genevieve"
+author: "Ken"
+excerpt: "Bruce and Patti made a guest appearance on this standout track on Soozie Tyrell’s debut solo album."
+tags: patti-scialfa soozie-tyrell ste-genevieve white-lines
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/soozie.jpg
+post_id: 3904
+---
 Just before the Rising Tour kicked off, new E Streeter Soozie Tyrell found time to record her debut album, *White Lines.* Soozie proved herself to be a great singer-songwriter, and the entire album is worth a listen.
 
 One track in particular, though, has a strong Bruce connection: "Ste. Genevieve" is a lovely folk song about perseverance through adversity, in this case a flood that devastates a small town. It's easy to see why the song would appeal to Bruce, and why he agreed to lend his vocals (along with Patti's) to the track.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Oakland, October 26, 2007"
+author: "Ken"
+excerpt: "Oakland ’07 was a solid early-tour outing with a fantastic main set (if a lackluster encore)–and it was my last show with Danny Federici."
+tags: american-land badlands devils-arcade girls-in-their-summer-clothes gyspsy-biker last-ot-die livin-in-the-future long-walk-home magic-tour oakland racing-in-the-street radio-nowhere reason-to-beleive shes-the-one the-promised-land the-rising thundercrack tunnel-of-love two-hearts working-on-the-highway
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/20071026_front.jpg
+post_id: 5191
+---
 My first show of the Magic tour was on a gorgeous autumn day by the Bay with good friends from the Pacific Northwest. Bruce decided to skip us on the first leg, and although we were reasonably confident we'd get a show eventually, we weren't about to take the chance. Road trip!
 
 When I think back on the Magic Tour, it's mostly the later legs that stand out, when the stops were pulled out and the wild cards were truly wild. But going back and listening to this show again… man, this was a solid set.

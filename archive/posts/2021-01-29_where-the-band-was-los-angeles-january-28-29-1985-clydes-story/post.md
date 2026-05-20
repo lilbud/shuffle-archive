@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, January 28-29, 1985 (Clyde's Story)"
+author: "Ken"
+excerpt: "What was it like to be in the room at the “We Are the World” recording session? Guest-blogger Clyde Kaplan knows–he was an assistant engineer at the session, and he shares his story inside."
+tags: clyde-kaplan we-are-the-world
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/watwcover.jpg
+post_id: 24943
+---
 Editor's Note
 
 ***Editor's Note:*** *Today's guest blogger is Clyde Kaplan, former music and television audio mixer, former television associate director–now happily retired.* *In 1985, though, Clyde was an assistant engineer at A&M Studios in Hollywood, a gig that placed him behind the scenes at one of the most exclusive and star-studded Springsteen appearances ever.*<br>

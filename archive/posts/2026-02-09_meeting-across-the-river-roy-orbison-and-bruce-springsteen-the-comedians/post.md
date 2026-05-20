@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Comedians"
+author: "Ken"
+excerpt: "Bruce takes a backing guitar role only on this one, but it’s too beautiful a performance not to include: From Black and White Night, “The Comedians.”"
+tags: black-and-white-night roy-orbison the-comedians
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/roy_and_bruce2.jpg
+post_id: 796
+---
 In a concert filled with Orbison classics, "The Comedians" is an outlier. It was written by Elvis Costello and released on Costello's 1984 album, *Goodbye Cruel World.*
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kfWAx2RypJw)

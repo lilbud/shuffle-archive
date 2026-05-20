@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 3"
+author: "Ken"
+excerpt: "The very first performances of “Loose Ends” and “Lion’s Den” lead off the highlights from this date in Springsteen history. Plus: it’s wedding season!"
+tags: atlanta chicago cleveland coventry darkness-tour england for-you france from-my-home-to-yours glendale italy let-the-four-winds-blow lions-den lisbon loose-ends loving-you milan new-haven nils-lofgren paris portugal reunion-tour river-tour-2016 rock-in-rio san-siro seeger-sessions-tour something-in-the-night tokyo uk uniondale wrecking-ball-tour you-never-can-tell
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/20130603_3_front.jpg
+post_id: 56995
+---
 ***New for 2025:** Deleted entry for 1973 (mis-dated); new entry for 1977 and 2024; audio for 1999; review for 2006*<br>
 
 **1974:** Bruce and the band play the Agora in Cleveland. The show is recorded by WMMS-FM in Cleveland and is well worth a listen for its superb sound quality and rare performances of "Tokyo," "[You Never Can Tell](https://www.youtube.com/watch?v=cAhFjk05aaM)," and "[Let the Four Winds Blow](../2022-02-24_cover-me-let-the-four-winds-blow/post.md)."<br>

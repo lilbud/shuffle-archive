@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Prove it All Night"
+author: "Ken"
+excerpt: "“Prove It All Night” is the heart of Darkness, rock’s most ferocious wedding song, and the closest thing to an E Street mission statement."
+tags: darkness-on-the-edge-of-town prove-it-all-night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/proveit.jpg
+post_id: 20931
+---
 > "'Some of the New York taxi cab drivers, they got a running monologue that they keep going whether somebody's in there or not… I get in with this cat, and he was complaining about how it seems you gotta prove it all night to your boss, then you gotta go home and prove it to your wife and kids, and it seems like it never stops… you know there's a big philosophy there." *–Bruce Springsteen, August 22, 1978*<br>
 > ´´I remember when my father was 43 years old, he packed up everything we had in the house, put it in a trailer, took my mother and my little sister and went to California. They didn´t have jobs, didn´t know what they were gonna do. I found out that you can wait, you can wait, you can wait and… some things just ain´t gonna ever change. You just gotta prove it all night." *–Bruce Springsteen, the very next night*<br>
 

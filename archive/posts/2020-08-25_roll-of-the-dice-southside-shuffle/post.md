@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Southside Shuffle"
+author: "Ken"
+excerpt: "One time only: Bruce turns the spotlight on Southside Johnny when Dr. Zoom and the Sonic Boom play the only known performance of “Southside Shuffle.”"
+tags: dr-zoom-and-the-sonic-boom pretty-little-woman southside-blues southside-johnny southside-shuffle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/southside.jpg
+post_id: 20798
+---
 Of all the band eras in Bruce's career, the shortest-lived was easily Dr. Zoom and the Sonic Boom, which played all of two shows in the spring of 1971 (plus one additional show under the name "Bruce Springsteen and The Friendly Enemies").
 
 But oh, what a band that was: Future E Streeters Steve Van Zandt, Garry Tallent, David Sancious and Vini Lopez, plus Southside Johnny, Albee Tellone on tenor sax, Bobby Feigenbaum on alto sax, Bobby Williams on the drums (yes, there were two drummers), plus no less than *eight* backing vocalists.

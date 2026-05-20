@@ -1,3 +1,13 @@
+---
+layout: post
+title: "One Love"
+author: "Ken"
+excerpt: "An almost B-side for an almost album, “One Love” remains locked away in Bruce’s vault (except for the demo escapee, which you can hear inside)."
+tags: one-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/one-love-1.png
+post_id: 8491
+---
 Bruce's recording sessions for what would become *Born in the U.S.A.* spanned more than two years. "Cover Me" (recorded in January, 1982) would end up as the earliest recorded song on the album; "Dancing in the Dark" would complete the album when it was recorded almost 25 months later.
 
 By the halfway mark in early 1983, Bruce had already written, recorded, and assembled enough material to release as an album–and he came fairly close to doing so, under a working title of *Murder Incorporated.*

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Kenny Chesney: One Step Up"
+author: "Ken"
+excerpt: "Kenny Chesney covered “One Step Up” on disc and on stage, but it’s his live performance that shines as brightly as Bruce’s original."
+tags: kenny-chesney one-step-up
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/kenny.jpg
+post_id: 3762
+---
 "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" had been missing in action for 17 years when Bruce unexpectedly brought it back at his Pittsburgh show on the Devils & Dust tour. He didn't say much by way of introduction, and what he did say was cryptic:
 
 "This for Ken. Thanks for the nice card."

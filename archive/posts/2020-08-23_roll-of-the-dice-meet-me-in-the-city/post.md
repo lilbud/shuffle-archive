@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Meet Me in the City"
+author: "Ken"
+excerpt: "“Meet Me in the City” didn’t make it on The River, but it’s still the perfect, meta summation of Bruce’s landmark album."
+tags: meet-me-in-the-city the-river-outtakes the-ties-that-bind-the-river-collection
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/meetmecity-1.jpg
+post_id: 20111
+---
 For a song that sounds like it was written for the sole purpose of opening a Springsteen concert (which it did for almost all of Bruce's 2016 River Tour's American leg), "Meet Me in the City" hides surprising depth for those who pay close attention to its lyrics.
 
 Take a listen and hear for yourself. (Hint: as with many of Bruce's songs, the secret decoder ring is in the bridge.)

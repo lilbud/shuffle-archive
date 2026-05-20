@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: My Kind of Town"
+author: "Ken"
+excerpt: "One time only: Little Steven and the E Street Band adapt Sinatra’s classic at the height of Lilyhammer’s popularity."
+tags: frank-sinatra lillyhammer my-kind-of-town steven-van-zandt
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/sinatra-1.jpg
+post_id: 31936
+---
 It must be tough to be a tour scheduler for Bruce Springsteen and the E Street Band, even when there's not a pandemic going on.
 
 It's not like the old days where all the band members lived to tour. These days they all have their own solo careers and side interests, and sometimes the stars just won't align perfectly. For example , in 2009, Max Weinberg had to bow out of several shows due to his late night television commitments, so Bruce drafted Jay Weinberg to sit in for his dad.

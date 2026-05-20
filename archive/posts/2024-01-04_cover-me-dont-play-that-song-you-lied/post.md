@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Don't Play That Song (You Lied)"
+author: "Ken"
+excerpt: "Who’d have thought a 60-year-old “Stand By Me” clone would become a fan-favorite centerpiece on tour?"
+tags: dont-play-that-song dont-play-that-song-you-lied only-the-strong-survive
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/02/dontplay.jpg
+post_id: 41557
+---
 Who would have thought a 1962 "[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)" clone would end up a centerpiece of Bruce Springsteen's world tour six decades later?
 
 As any of the 100,000+ lucky fans present for the opening shows know, that's exactly what happened.

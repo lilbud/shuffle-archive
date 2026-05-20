@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Natural Magic"
+author: "Ken"
+excerpt: "Sweet and slight, “Natural Magic” signaled a turn toward more soulful, romantic songs in Bruce’s set lists."
+tags: natural-magic the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/admin-ajax-58.jpg
+post_id: 18297
+---
 Ah, the summer of 1971: a golden era for fans of the soul side of Bruce Springsteen.
 
 I'm far too young to have caught The Bruce Springsteen Band live in concert (I was only three years old when they disbanded), but I seem to turn to those bootlegs whenever summer nears. Something about those warm, bluesy rock and soul arrangements feels appropriate for a lazy, sunny afternoon.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 8"
+author: "Ken"
+excerpt: "Oh, the ignominy: Rejections, second fiddles, and name mangling mark January 8th in Springsteen history."
+tags: big-mans-west boston canada indianapolis steve-van-zandt stone-pony toronto
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/19850108_front.jpg
+post_id: 55555
+---
 **1970**: After driving across the U.S., Steel Mill auditions for a gig at The Family Dog on The Great Highway in San Francisco. They are rejected.<br>
 
 **1971:** Temporarily without a band (Bruce disbanded Steel Mill in December), Bruce appears at the Upstage in Asbury Park as one of headliner Steve Van Zandt’s “friends.” Other friends on stage include Garry Tallent, Danny Federici, and Southside Johnny. Who knew there was espresso in New Jersey in 1971?<br>

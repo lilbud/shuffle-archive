@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Camera Obscura: Tougher Than the Rest"
+author: "Ken"
+excerpt: "Scottish band Camera Obscura makes a subtle change to Bruce’s enduring, romantic “Tougher Than the Rest,” to powerful effect."
+tags: camera-obscura tougher-than-the-rest
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/camera-obscura-the-sweetest-thing-2009-2.jpg
+post_id: 10189
+---
 A fascinating thing happens when a heterosexual woman sings “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/).”
 
 When you swap the genders of the singer and the addressee, but you keep the rest of the lyrics intact, the song transforms.

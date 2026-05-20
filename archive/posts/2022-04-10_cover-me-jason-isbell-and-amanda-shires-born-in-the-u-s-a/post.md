@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jason Isbell and Amanda Shires: Born in the U.S.A."
+author: "Ken"
+excerpt: "Jason Isbell and Amanda Shires kicked off an alt-country reimagining of Bruce’s Born in the U.S.A. album with their stunning cover of the title track."
+tags: amanda-shires born-in-the-u-s-a jason-isbell
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/isbell.jpg
+post_id: 33817
+---
 Today's *Cover Me* entry has literally been on my "To Blog" list from Day One.
 
 So why haven't I featured it before now? I guess because it's so darn good that I assumed everyone already knew it.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 29"
+author: "Ken"
+excerpt: "On this date: Seattle and Philadelphia get set list rarities, and Bruce opens for Steve Wonder."
+tags: barack-obama charlotte chicken-scratch-tour detroit easy-money kittys-back magic-tour new-york-city one-step-up philadelphia point-blank renegades seattle springsteen-on-broadway stevie-wonder trapped tunnel-of-love-express-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-29-detroit-mi-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56306
+---
 **1973:** Bruce and his band open for Stevie Wonder at Kutztown State College.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1973-03-29a.jpg.webp)

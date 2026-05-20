@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Jersey Girl"
+author: "Ken"
+excerpt: "If there was ever a song that sounds like (but isn’t) a Springsteen original, it would have to be Tom Waits’ “Jersey Girl.” Check out Bruce’s great cover performances inside, including a rare Springsteen/Waits duet with hybrid lyrics!"
+tags: jersey-girl live-1975-85 tom-waits
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/bruce-springsteen-jersey-girl-cbs-3.jpg
+post_id: 11448
+---
 Honestly now: are we *really* sure Bruce Springsteen didn't write "Jersey Girl?"
 
 I mean, I know that Tom Waits is clearly credited with it, and that his wonderful original version debuted on his 1980 album *Heartattack and Vine* almost a full year before Bruce ever performed it.

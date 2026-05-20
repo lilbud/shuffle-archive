@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Paul Simon, Billy Joel, James Taylor, and more: Rock and Roll Music"
+author: "Ken"
+excerpt: "One time only: Bruce leads an all-star line-up on a raucous cover of Chuck Berry’s “Rock and Roll Music.”"
+tags: billy-joel chuck-berry james-taylor paul-simon rock-and-roll-music
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/rrmusic.jpg
+post_id: 27052
+---
 The first time Bruce Springsteen performed with Chuck Berry, the rock pioneer had no idea who Bruce was. That's understandable, though–in April 1973, hardly anyone did.
 
 But when Bruce and his band (they didn't even have a name at the time, that's how early this was) were hired to open for Berry, Bruce begged the promoter to let his band back the headliner for his set, too.

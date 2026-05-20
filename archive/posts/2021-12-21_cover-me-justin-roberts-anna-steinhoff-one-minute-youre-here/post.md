@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Justin Roberts & Anna Steinhoff: One Minute You're Here"
+author: "Ken"
+excerpt: "Four-time Grammy nominee and kids’ singer-songwriter Justin Roberts tackles the very grown-up “One Minute You’re Here,” and it’s just perfect."
+tags: anna-steinhoff justin-roberts one-minute-youre-here
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/oneminute.jpg
+post_id: 26208
+---
 If you don’t know who [Justin Roberts](https://www.justinrobertsmusic.com/) is, you probably don’t have kids at home.
 
 If you do know who Justin Roberts is, you’re probably wondering what a four-time Grammy nominee for Best Musical Album for Children is doing covering an existential song like Bruce Springsteen’s “[One Minute You’re Here](../2021-05-30_roll-of-the-dice-one-minute-youre-here/post.md).”

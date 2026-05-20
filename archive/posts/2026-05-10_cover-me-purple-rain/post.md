@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Purple Rain"
+author: "Ken"
+excerpt: "Two days after Prince’s untimely departure, Bruce and the E Street Band took the stage in purple and delivered one of their greatest covers ever."
+tags: prince purple-rain
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/purple-rain.jpg
+post_id: 25181
+---
 > "There's never been anyone better. Bandleader, showman, arranger… Whenever I would catch one of [Prince's] shows, I would always leave humbled. I'm going to miss that. We're going to miss that." *— Bruce Springsteen, April 23, 2016*<br>
 
 Has there ever been a song more loaded with feels than "Purple Rain?" (Answer: no.)

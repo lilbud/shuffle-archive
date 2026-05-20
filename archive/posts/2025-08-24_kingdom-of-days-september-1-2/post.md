@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 1"
+author: "Ken"
+excerpt: "On this date: Bruce plays “Chimes of Freedom” for the first time, records a live performance for Clarence’s future album, has a chance encounter with a Boston street musician and more."
+tags: adam-raised-a-cain born-in-the-usa-tour boston child clarence-clemons darkness-tour david-gonzalez detroit east-rutherford from-my-home-to-yours giants-stadium its-time-to-go-home peter-wolf raise-your-hand reunion-tour river-tour-2016 route-66 springsteen-on-broadway stone-pony the-bruce-springsteen-band washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/20230901-east-rutherford-nj-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 59529
+---
 ***New for 2025:** New entry for 1977 and 1988; audio for 1999*<br>
 
 **1969:** Child plays a Labor Day gig at Freak Beach in East Long Branch, New Jersey.<br>

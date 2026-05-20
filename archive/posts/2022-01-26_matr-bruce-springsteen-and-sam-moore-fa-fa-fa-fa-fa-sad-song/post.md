@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Sam Moore: Fa-fa-fa-fa-fa (Sad Song)"
+author: "Ken"
+excerpt: "One time only: Soul Man Sam Moore teams up with Bruce to cover one of Otis Redding’s greatest hits."
+tags: fa-fa-fa-fa-fa-sad-song otis-redding sam-moore
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/otis-redding-fa-fa-fa-fa.jpg
+post_id: 32245
+---
 In 1966, Otis Redding released his fourth studio album, *Complete and Unbelievable: The Otis Redding Dictionary of Soul.*
 
 And it turns out that the first entry in the soul dictionary is *Fa-fa-fa-fa-fa*.

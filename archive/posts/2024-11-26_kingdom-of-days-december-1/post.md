@@ -1,12 +1,22 @@
+---
+layout: post
+title: "Kingdom of Days: December 1"
+author: "Ken"
+excerpt: "On this date: Bruce guest stars with Bob Seger, serves as temporary front-man for U2, joins Robert Gordon in the studio and more."
+tags: a-secret-history arnhem austin bob-seger born-to-run-book darkness-tour darlington-county fire i-still-havent-found-what-im-looking-for magic-tour norman old-time-rock-and-roll pittsburgh prove-it-all-night river-tour robert-gordon the-netherlands the-price-you-pay u2 where-the-streets-have-no-name
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/bruceu2.jpg
+post_id: 55215
+---
 ***New for 2024:** Video for 2011*<br>
 
 **1973:** Bruce cancels a scheduled show at Quinnipiac University in Hamden, Connecticut.<br>
 
-**1977:** Bruce gifts Robert Gordon with his song “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)” and joins Robert in the studio, playing piano on the recorded track.<br>
+**1977:** Bruce gifts Robert Gordon with his song "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and joins Robert in the studio, playing piano on the recorded track.<br>
 
 [Watch on Youtube: Fire](https://www.youtube.com/watch?v=rQJaMpXH0X0)
 
-**1978:** The Darkness Tour enters into its final month with a show at the University of Oklahoma in Norman. If you’re a fan of the tour arrangement of “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md),” this is your show–the epic intro is the longest ever.<br>
+**1978:** The Darkness Tour enters into its final month with a show at the University of Oklahoma in Norman. If you're a fan of the tour arrangement of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," this is your show–the epic intro is the longest ever.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/GtxsiOUU)
 
@@ -16,7 +26,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "The Price You Pay" - Pittsburgh, 1980-12-01](https://www.youtube.com/watch?v=JtWlz2mOPgk)
 
-**2007:** Bruce ushers in the season when he tour premieres “[Santa Claus is Comin’ to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)” at his Magic show in Arnhem.<br>
+**2007:** Bruce ushers in the season when he tour premieres "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" at his Magic show in Arnhem.<br>
 
 [Watch on Youtube: Bruce Springsteen - She's the One (Arnhem 07)](https://www.youtube.com/watch?v=6zc5lez_sUw)
 
@@ -26,11 +36,11 @@
 
 [Watch on Youtube: Bruce Springsteen Arnhem 1/12/2007 Full Concert](https://www.youtube.com/watch?v=NWYKZHbDLzc)
 
-**2011:** Bruce joins Bob Seger and The Silver Bullet Band on stage at their Madison Square Garden show, joining them in “[Old Time Rock and Roll](../2020-02-01_matr-bob-seger-and-bruce-springsteen-old-time-rock-and-roll/post.md).”<br>
+**2011:** Bruce joins Bob Seger and The Silver Bullet Band on stage at their Madison Square Garden show, joining them in "[Old Time Rock and Roll](../2020-02-01_matr-bob-seger-and-bruce-springsteen-old-time-rock-and-roll/post.md)."<br>
 
 [Watch on Youtube: Bob Seger and Bruce Springsteen Old Time Rock and Roll NYC MSG 12/1/11](https://www.youtube.com/watch?v=OJyjp06AE-w)
 
-**2014:** U2 performs in Times Square for World AIDS Day, but Bono is out of action following a bike accident last month. Bono’s buddies come to the rescue: Bruce and Chris Martin each take a turn fronting the band, with Bruce taking point on “[Where the Streets Have No Name](../2020-10-02_matr-u2-and-bruce-springsteen-where-the-streets-have-no-name/post.md)” and “[I Still Haven’t Found What I’m Looking For](../2019-02-25_matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/post.md).”<br>
+**2014:** U2 performs in Times Square for World AIDS Day, but Bono is out of action following a bike accident last month. Bono's buddies come to the rescue: Bruce and Chris Martin each take a turn fronting the band, with Bruce taking point on "[Where the Streets Have No Name](../2020-10-02_matr-u2-and-bruce-springsteen-where-the-streets-have-no-name/post.md)" and "[I Still Haven't Found What I'm Looking For](../2019-02-25_matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/post.md)."<br>
 
 [Watch on Youtube: U2 with BRUCE SPRINGSTEEN WHERE THE STREETS HAVE NO NAME from TIMES SQUARE NYC 12/1/14](https://www.youtube.com/watch?v=6pTo3SE0VFs)
 

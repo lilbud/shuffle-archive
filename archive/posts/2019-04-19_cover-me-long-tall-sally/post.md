@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Long Tall Sally"
+author: "Ken"
+excerpt: "Lots of times with lots of people: “Long Tall Sally” is tried and true when Bruce joins fellow musicians for an impromptu jam. Check out some of his best performances inside."
+tags: john-fogerty la-bamba little-richard long-tall-sally max-weinberg-7 stray-cats the-fabulous-greaseband
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/little-richard-long-tall-sally-big.jpg
+post_id: 8273
+---
 Is there anyone Bruce *hasn't* played "Long Tall Sally" with?
 
 It sure doesn't seem like it.
@@ -6,19 +16,19 @@ He played it in New Jersey clubs throughout 1982 with artists like John Eddie an
 
 https://youtu.be/fOARS7D5s8o
 
-He played a slower, horn-fueled version with La Bamba in 1989...
+He played a slower, horn-fueled version with La Bamba in 1989…
 
 [Watch on Youtube: La Bamba and Bruce Springsteen - "Long Tall Sally" - July 1 1989](https://www.youtube.com/watch?v=4bQCj1S5ino)
 
-...and a faster, horn-fueled version with the Max Weinberg 7:
+…and a faster, horn-fueled version with the Max Weinberg 7:
 
 [Watch on Youtube: Bruce Springsteen - Stand Up For Heroes, November 9, 2011 NYC - Long Tall Sally - 5//7](https://www.youtube.com/watch?v=CrC1hQHwOqc)
 
-He's played it with Hall of Famers...
+He's played it with Hall of Famers…
 
 [Watch Video Highlight](https://videopress.com/embed/xqFLtRiw)
 
-...and with bands devoted to keeping Hall of Famers' music alive:
+…and with bands devoted to keeping Hall of Famers' music alive:
 
 [Watch on Youtube: Bruce Springsteen & The Fabulous Greaseband](https://www.youtube.com/watch?v=a0fwM4ce1_A)
 

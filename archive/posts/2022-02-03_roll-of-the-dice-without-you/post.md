@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Without You"
+author: "Ken"
+excerpt: "Bruce Springsteen’s best party song since “Sherry Darling” is buried at the bottom of his 1996 EP."
+tags: blood-brothers without-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/withoutyou.jpg
+post_id: 32251
+---
 Buried at the bottom of his 1996 *Blood Brothers* EP, "Without You" is a forgettable entry in Bruce Springsteen's catalog. Forgettable, that is, except for the day you listen to it, the entirety of which you'll be unable to get it out of your head.
 
 That's because "Without You" is a perfect pop song. as light as air and as fun as a house party. And a party is pretty much what "Without You" sounds like, from its opening "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)"-esque party noises to the carte blanche, ebullient backing vocals that pervade it.

@@ -1,3 +1,11 @@
+---
+layout: post
+title: "Introduction"
+author: "Ken"
+excerpt: "“The country we carry in our heart is waiting.’” –Bruce Springsteen, New York Times, August 4, 2004 In the summer of 2004, Bruce Springsteen was…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/05/BSP155302.webp
+post_id: 68809
+---
 > “The country we carry in our heart is waiting.'” *–Bruce Springsteen, New York Times, August 4, 2004*
 
 In the summer of 2004, Bruce Springsteen was all over the news.

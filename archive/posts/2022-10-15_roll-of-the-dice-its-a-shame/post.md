@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: It's a Shame"
+author: "Ken"
+excerpt: "Jon Landau logs a lone performer credit on this obscure hybrid outtake from the Darkness era."
+tags: its-a-shame jons-jam prove-it-all-night the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/shame.jpg
+post_id: 37140
+---
 On May 28, 1977, Bruce Springsteen and former manager Mike Appel settled the mutual litigation that barred Springsteen from a recording studio for almost a year. Only four days later, Bruce and the E Street Band were back in the recording studio, recording eight songs that first night alone for what would eventually become [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). He was overflowing with material, arriving almost every day with new songs for the band to test drive.
 
 On June 14th, Bruce had the bones of a song he was eager to flesh out, but Max and Garry had yet to arrive. Unwilling to wait, he enlisted Jon Landau on drums and road manager Bob Chirmside on bass and led the E Street-ish Band through what the session log labeled as "Jon's Jam."

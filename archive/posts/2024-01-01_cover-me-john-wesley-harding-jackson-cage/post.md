@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, John Wesley Harding: Jackson Cage"
+author: "Ken"
+excerpt: "Available on three different album releases, John Wesley Harding’s cover of “Jackson Cage” deserves its repeated exposure. It’s one of the few Bruce covers I enjoy more than the original."
+tags: jackson-cage john-wesley-harding
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/otherpeople.jpg
+post_id: 3754
+---
 Singer-songwriter John Wesley Harding is no stranger to Bruce’s music. He’s performed with Bruce twice before (including a wonderful [“Wreck on the Highway” duet](../2025-06-18_kingdom-of-days-june-18-2/post.md/)), and Bruce hand-picked Harding to be his opening act–Bruce’s first in two decades–during his 1995 Berkeley gigs.
 
 Harding has a new album out this year–brilliantly entitled *Greatest Other People’s Hits*— and it includes his wonderful cover of “[Jackson Cage,](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)” originally recorded and released in 1997 on the *One Step Up/Two Steps Back* tribute album. It’s also available as a bonus track on the reissue of his *Awake* album.

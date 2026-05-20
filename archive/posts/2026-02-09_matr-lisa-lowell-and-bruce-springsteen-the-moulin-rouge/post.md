@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "The Moulin Rouge"
+author: "Ken"
+excerpt: "Bruce contributes some smoking guitar licks to Lisa Lowell’s sultry ode to the Moulin Rouge."
+tags: lisa-lowell the-moulin-rouge
+categories: meeting-across-the-river
+post_id: 6254
+---
 Lisa Lowell is familiar name to E Street Nation. Her vocals can be found all over Bruce's nineties-forward catalog ("Better Days," "Across the Border," and "Land of Hope and Dreams" to name but a few), and she was a featured background singer on the Seeger Sessions Tour.
 
 After Lisa lent her support to a cool dozen of Bruce's released tracks (plus three of Patti's), Bruce decided to return the favor, playing electric guitar on her sultry track "The Moulin Rouge" on Lisa's *Beautiful Behavior* album.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Seven Angels"
+author: "Ken"
+excerpt: "“Seven Angels” is a terrific pop song with a great riff–a surprising castoff from the Human Touch sessions that deserves greater exposure."
+tags: high-hopes-tour seven-angels tracks uncasville
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/7angelslogo.png
+post_id: 2465
+---
 Talk about a sleeper: "Seven Angels" is a terrific pop song, both sly and serious, funny and fearful, exaggeration with the ring of truth.
 
 Recorded in 1990 during the *Human Touch* sessions, it's a mystery why Bruce chose not to include it on the album. It's lean and catchy, with a killer riff (Bruce plays both guitar and bass on the track) and lyrics that'll bring a smile to your face if you even pay half-attention. And as he has many times before and since, Bruce borrows biblical imagery to tell a very down-to-earth story of the flesh.

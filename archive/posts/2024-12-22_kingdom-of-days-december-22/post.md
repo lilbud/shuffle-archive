@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 22"
+author: "Ken"
+excerpt: "Watch Bruce’s surprise appearance at a 2008 holiday show. Plus: Bruce heads west and gets his California driver’s license. These and more highlights inside."
+tags: 634-5789 bobby-bandiera castiles cherry-hill gary-u-s-bonds having-a-party hope-concert jon-bon-jovi merry-christmas-baby run-run-rudolph santa-claus-is-comin-to-town southside-johnny springsteen-on-broadway stone-pony tenth-avenue-freeze-out
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/cadriverlice.jpg
+post_id: 55373
+---
 ***New for 2024:** No updates*<br>
 
 **1966:** The Castiles play a gig at the Hullaballoo in Middletown, New Jersey.<br>

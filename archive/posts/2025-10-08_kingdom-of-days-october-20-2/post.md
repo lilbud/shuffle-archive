@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 20"
+author: "Ken"
+excerpt: "Bruce’s final show at the Spectrum, a guest appearance with Neil Young and Bob Dylan, a hometown Houserockers show, those famous Time and Newsweek covers, and more–all from this date."
+tags: american-babylon-tour berlin bob-dylan born-to-run-book carlisle denver devils-and-dust-tour frankfurt germany highway-61-revisited joe-grushecky neil-young new-hampshire october-assault philadelphia pittsburgh rainy-day-woman rising-tour river-tour springsteen-on-broadway the-fever the-promise wild-innocent-tour worcester working-on-a-dream-tour your-love-keeps-lifting-me-higher-and-higher
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/philly09.jpg
+post_id: 61182
+---
 ***New for 2025:** Audio for 1995 and 2002*<br>
 
 **1973:** Bruce plays his first-ever show in New Hampshire when he and the band play a show at Franklin Pierce College.<br>
@@ -24,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1980-1023.jpg.webp)
 
-**1994:** Bruce and Neil Young make a guest appearance for two songs (“[Rainy Day Women #12 & 35](../2020-01-29_matr-bob-dylan-bruce-springsteen-and-neil-young-rainy-day-women-12-35/post.md)” and “[Highway 61 Revisited](../2018-11-07-meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/post.md/)“) at Bob Dylan’s show at the Roseland Ballroom in New York City.<br>
+**1994:** Bruce and Neil Young make a guest appearance for two songs ("[Rainy Day Women #12 & 35](../2020-01-29_matr-bob-dylan-bruce-springsteen-and-neil-young-rainy-day-women-12-35/post.md)" and "[Highway 61 Revisited](../2018-11-07-meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/post.md/)") at Bob Dylan's show at the Roseland Ballroom in New York City.<br>
 
 [Watch on Youtube: Bob Dylan - Rainy Day Women #12 & 35 with Bruce Springsteen and Neil Young 1994](https://www.youtube.com/watch?v=s3-uk7pmEFI)
 
@@ -32,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Daily_News_1994_10_27_299-scaled.jpg.webp)
 
-**1995:** Bruce once again joins Joe Grushecky and The Houserockers at their show at Nick’s Fat City in Pittsburgh. The show is broadcast live on the radio, and much of the show will be officially released 26 years later on the 25th anniversary edition of [*American Babylon.*](../2020-10-17_american-babylon-a-retrospective/post.md) (Get it [here!](https://orcd.co/JoeGrusheckyAmericanBabylon25))<br>
+**1995:** Bruce once again joins Joe Grushecky and The Houserockers at their show at Nick's Fat City in Pittsburgh. The show is broadcast live on the radio, and much of the show will be officially released 26 years later on the 25th anniversary edition of [*American Babylon.*](../2020-10-17_american-babylon-a-retrospective/post.md) (Get it [here!](https://orcd.co/JoeGrusheckyAmericanBabylon25))<br>
 
 [Watch Video Highlight](https://videopress.com/embed/EnDIW6ai)
 
@@ -48,7 +58,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1995-10-20b.png.webp)
 
-**2002:** At the Velodrom in Berlin on the Rising Tour, Bruce and E Street Band tour premiere “The Promise” late in the set, the first time that song is performed in Europe.<br>
+**2002:** At the Velodrom in Berlin on the Rising Tour, Bruce and E Street Band tour premiere "The Promise" late in the set, the first time that song is performed in Europe.<br>
 
 [Watch on Youtube: Bruce Springsteen The Promise and Incident on 57th Street (Audio) from Berlin 20.10.2002](https://www.youtube.com/watch?v=JZ1Pvyw_5Y4)
 
@@ -56,13 +66,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2002-10-20.png.webp)
 
-**2005:** Bruce tour premieres “[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)” at his solo acoustic show at the DCU Center in Worcester.<br>
+**2005:** Bruce tour premieres "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" at his solo acoustic show at the DCU Center in Worcester.<br>
 
 [Watch on Youtube: Bruce Springsteen "The Fever" - Worcester, 2005-10-20](https://www.youtube.com/watch?v=N2JJ-JyjwS8)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2005-10-20.png.webp)
 
-**2009:** Bruce plays his 36th and final show at the Philadelphia Spectrum, performing the *Born in the U.S.A.* album in its entirety–but that’s not even close to the show’s top highlight. Bruce opens with a true shocker–the first “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” in 28 years–and wraps the set with a by-request audible of “[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)” that ranks as one of the best performances (IMO, anyway) of the modern era. The tour premiere of “[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)” also makes an appearance in the encore, and Vini Lopez makes a guest appearance on “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,17344/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-10-20-2009-Wachovia-Spectrum-Philadelphia-PA.html).<br>
+**2009:** Bruce plays his 36th and final show at the Philadelphia Spectrum, performing the *Born in the U.S.A.* album in its entirety–but that's not even close to the show's top highlight. Bruce opens with a true shocker–the first "[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)" in 28 years–and wraps the set with a by-request audible of "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)" that ranks as one of the best performances (IMO, anyway) of the modern era. The tour premiere of "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)" also makes an appearance in the encore, and Vini Lopez makes a guest appearance on "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,17344/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-10-20-2009-Wachovia-Spectrum-Philadelphia-PA.html).<br>
 
 [Watch on Youtube: Springsteen - The Price you Pay - The Spectrum October 20, 2009](https://www.youtube.com/watch?v=46dEVLFvze4)
 
@@ -90,7 +100,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3)
 
-**2021:** At the Javits Center in New York City, Bruce supports The Robin Hood Foundation with an acoustic set of “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md),” “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md),” and “Thunder Road.”<br>
+**2021:** At the Javits Center in New York City, Bruce supports The Robin Hood Foundation with an acoustic set of "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," and "Thunder Road."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/V4mnAWFo)
 

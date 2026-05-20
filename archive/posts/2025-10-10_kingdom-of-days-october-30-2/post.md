@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 30"
+author: "Ken"
+excerpt: "Patti Smith makes her one and only guest appearance on an E Street stage, the debuts of “Born in the U.S.A.” (the single) and “Brilliant Disguise” (the video), and more."
+tags: ames back-in-your-arms bart-haynes because-the-night born-in-the-usa boston brilliant-disguise bruce-springsteen-band camryn-sherer castiles devils-and-dust-tour dirty-water flo-and-eddie hungry-heart hurricane-sandy kittys-back lawsuit-tour los-angeles magic-tour new-york-city patti-smith richmond river-tour rochester rock-and-roll-hall-of-fame seeger-sessions-tour stockholm sweden the-main-point u2 world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/19761030_2_front.jpg
+post_id: 61249
+---
 ***New for 2025:** No updates*<br>
 
 **1965:** Castiles drummer Bart Haynes quits the band. A year later, Bart will join the Marines and ship out to Vietnam, where he will be killed in action. Bruce will remember Bart often–in his shows, in print, and on Broadway.<br>
@@ -12,13 +22,13 @@
 
 **1973:** Bruce and the boys headline two shows at The Main Point in Bryn Mawr, Pennsylvania–their second of a three-night stand. Richard Blackwell makes a guest appearance on congas.<br>
 
-**1976:** Patti Smith guest-stars on Night Three (of six) at the Palladium in New York City, joining Bruce and the Band for an unusual version of “Rosalita (Come Out Tonight).”<br>
+**1976:** Patti Smith guest-stars on Night Three (of six) at the Palladium in New York City, joining Bruce and the Band for an unusual version of "Rosalita (Come Out Tonight)."<br>
 
 [Watch on Youtube: Bruce Springsteen (w/ Patti Smith) - ROSALITA - LAND OF A 1000 DANCES (1976)](https://www.youtube.com/watch?v=NcAdOEJeZfo)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Philadelphia_Daily_News_1976_11_17_Page_31-scaled.jpg.webp)
 
-**1980:** Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sports Arena, where Flo and Eddie contribute guest backing vocals to “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
+**1980:** Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sports Arena, where Flo and Eddie contribute guest backing vocals to "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen (feat. Flo & Eddie), "Hungry Heart" Los Angeles, 1980-10-30](https://www.youtube.com/watch?v=mARXAqjapMc)
 
@@ -32,7 +42,7 @@
 
 [Watch on Youtube: Born in the U.S.A.](https://www.youtube.com/watch?v=tRx212PUa4g)
 
-**1987:** Bruce premieres the video for his latest single, “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/),” the first single from *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* Watch the video and news coverage below.<br>
+**1987:** Bruce premieres the video for his latest single, "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)," the first single from *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* Watch the video and news coverage below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
@@ -52,7 +62,7 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1992-10-30b.png.webp)
 
-**2005:** Bruce’s solo acoustic show at the TD Banknorth Garden in Boston is filmed but will remain unreleased with one exception: a video for “[Matamoros Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)” that Bruce will release fourteen years later in support of Project Adelante. In the encores, Bruce tour premieres “[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)” as a Boston special. In attendance tonight: Senator John Kerry.<br>
+**2005:** Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but will remain unreleased with one exception: a video for "[Matamoros Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)" that Bruce will release fourteen years later in support of Project Adelante. In the encores, Bruce tour premieres "[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)" as a Boston special. In attendance tonight: Senator John Kerry.<br>
 
 [Watch on Youtube: Project Adelante](https://www.youtube.com/watch?v=T5hpk4taBZY)
 
@@ -60,13 +70,13 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2005-10-30.png.webp)
 
-**2006:** Bruce and the Sessions Band complete their Scandinavian leg with a show at the Globe Arena in Stockholm, where Bruce tour premieres “[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md).”<br>
+**2006:** Bruce and the Sessions Band complete their Scandinavian leg with a show at the Globe Arena in Stockholm, where Bruce tour premieres "[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md)."<br>
 
 [Watch on Youtube: Stockholm 30/10/2006](https://www.youtube.com/playlist?list=PLJTyL9twk3zDomyuC3EcOwtaHX3Jno-iX)
 
 [Watch on Youtube: Bruce Springsteen, The River, Seeger Sessions, Stockholm 30/10/06](https://www.youtube.com/watch?v=l3DkvDa6LIw)
 
-**2007:** At Night Two in Los Angeles on the Magic Tour, Bruce celebrates Halloween a day early, once again (as in Halloweens past) emerging from a coffin to start the show. Bruce also tour premieres “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)” during the encores.<br>
+**2007:** At Night Two in Los Angeles on the Magic Tour, Bruce celebrates Halloween a day early, once again (as in Halloweens past) emerging from a coffin to start the show. Bruce also tour premieres "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" during the encores.<br>
 
 [Watch on Youtube: HALLOWEEN EVE / RADIO NOWHERE - BRUCE SPRINGSTEEN©](https://www.youtube.com/watch?v=YweY5JtFZH4)
 

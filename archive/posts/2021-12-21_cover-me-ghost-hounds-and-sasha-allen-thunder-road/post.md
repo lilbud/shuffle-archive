@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Ghost Hounds and Sasha Allen: Thunder Road"
+author: "Ken"
+excerpt: "Pittsburgh rockers The Ghost Hounds team up with Sasha Allen on a terrific cover of one of Bruce’s greatest hits."
+tags: ghost-hounds sasha-allen thunder-road
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/ghosthounds.jpg
+post_id: 22193
+---
 The Houserockers aren't the only rock band keeping the Pittsburgh sound alive.
 
 The Ghost Hounds perfectly capture the gritty sound of the Steel City, and if you haven't heard of them yet, you will. Before the pandemic took them off the road, The Ghost Hounds were opening for acts you probably *have* heard of: The Rolling Stones, ZZ Top, Bob Seger, and Willie Nelson, for example.

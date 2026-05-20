@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Crying in the Rain"
+author: "Ken"
+excerpt: "One time only: At a 1988 soundcheck in Tacoma, Bruce covered The Everly Brothers’ 1962 hit, “Crying in the Rain.” Listen to it inside."
+tags: crying-in-the-rain the-everly-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/the-everly-brothers-crying-in-the-rain-warner-bros-2.jpg
+post_id: 9597
+---
 You might think that The Everly Brothers' "Crying in the Rain" is an unlikely candidate for a Bruce Springsteen cover treatment, but...
 
 Well, actually you'd be right. Bruce has never covered it. Not officially, at least, but at least once on the Tunnel of Love Express Tour, he played it during a sound check. Given the song's heartbreak theme, it makes sense that it sprung to mind while rehearsing that tour's love-centric main set.

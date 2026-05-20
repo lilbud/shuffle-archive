@@ -1,3 +1,11 @@
+---
+layout: default-post
+title: "Year Two: Complete!"
+author: "Ken"
+excerpt: "We’re two years old! Thanks for joining–I hope you stick around for year three!"
+categories: spare-parts uncategorized
+post_id: 15454
+---
 Today marks the end of Year Two for this blog.
 
 Or put another way: today marks my 1,167th post over 730 consecutive days of daily publishing, with over 443,000 visitors stopping by and another 854 of you subscribing via e-mail. (Never miss a day!)

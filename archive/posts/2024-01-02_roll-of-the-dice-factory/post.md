@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Factory"
+author: "Ken"
+excerpt: "“Factory” ranks among the best of Bruce’s early song-writing, with lyrical economy and an instrumental track both spare and ornate–it’s a marvel of restraint and emotional bravery."
+tags: born-to-run come-on darkness-on-the-edge-of-town david-lindley factory lets-go-tonight
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/factory.jpg
+post_id: 5306
+---
 My wife and I have this debate from time to time: when it comes to art–any form of it–sometimes you can love something you don't like.
 
 That holds true for music especially: sometimes you can admire and appreciate a song more than you actually enjoy listening to it.

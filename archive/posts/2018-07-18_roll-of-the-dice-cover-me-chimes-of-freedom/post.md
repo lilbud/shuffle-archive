@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice/Cover Me: Chimes of Freedom"
+author: "Ken"
+excerpt: "When Bruce announced his participation in the Amnesty International Human Rights Now! Tour in 1988, his re-arrangement and performance of this Bob Dylan classic became the title track of an EP released the following month."
+tags: amnesty-international-tour bob-dylan chimes-of-freedom darkness-tour human-rights-now-tour tunnel-of-love-tour
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/SPRINGSTEEN_CHIMES_5X5_site-700x700.jpg
+post_id: 3131
+---
 On July 3, 1988, during a worldwide radio broadcast of his Tunnel of Love show in Stockholm, Bruce announced his participation in an upcoming super-star tour under the aegis of Amnesty International.
 
 The impetus for the *Human Rights Now!* Tour was the 40th anniversary of the Declaration of Human Rights, and it was a cause that Bruce was pleased to support.
@@ -21,7 +31,7 @@ Bruce hasn't performed the song since 1988, but he actually did perform it once 
 [Watch Video Highlight](https://videopress.com/embed/6l3WlkHI)
 
 **Chimes of Freedom**<br>
-**Recorded:** July 3, 1988<br>
+**Recorded** July 3, 1988<br>
 **Released:** *Chimes of Freedom* (1988)<br>
 **First performed:** September 1, 1978 (Detroit, MI)<br>
 **Last performed:** October 15, 1988 (Buenos Aires, Argentina)<br>

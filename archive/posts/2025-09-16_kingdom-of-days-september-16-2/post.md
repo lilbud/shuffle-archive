@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 16"
+author: "Ken"
+excerpt: "On this date: A performance by the Castiles that would be officially released almost 50 years later, Bruce uploads a new, under-the-radar cover, and the one and only performance to date of “Let’s Be Friends (Skin to Skin).” Lots more highlights inside."
+tags: argentina born-to-run-tour buenos-aires castiles chapter-verse dallas danny-federici darkness-tour double-shot-of-my-babys-love from-my-home-to-yours ghost-of-tom-joad-tour greenville hartford homestead i-cant-get-no-satisfaction joe-grushecky new-york-city pittsburgh purple-haze rising-tour solo-le-pido-a-dios working-on-a-dream-tour wrecking-ball-tour you-cant-judge-a-book-by-the-cover
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/19780916_2_front-1.jpg
+post_id: 59657
+---
 ***New for 2025:** New entry for 1977, 1983, and 2002*<br>
 
 **1967:** The Castiles play two cover sets at the grand opening of The Left Foot, a short-lived teen club based in the rec center of St. Peter's Episcopal Church in Freehold. One of the songs played tonight–a cover of Willie Dixon's "[You Can't Judge a Book by the Cover](../2018-12-02_cover-me-you-cant-judge-a-book-by-the-cover/post.md)" will eventually become an official release on *Chapter and Verse* almost 50 years later. The set also includes covers of Jimi Hendrix's "[Purple Haze](../2019-02-19_cover-me-purple-haze/post.md)" and The Yardbirds' "[Jeff's Boogie](../2020-04-21_cover-me-jeffs-boogie/post.md)" that showcases just how accomplished on the guitar Bruce had already become by age eighteen.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Mavericks: Hungry Heart"
+author: "Ken"
+excerpt: "From their latest album, check out The Mavericks’ country-ska take on Bruce’s “Hungry Heart.”"
+tags: hungry-heart the-mavericks
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/Mavericks_PlayTheHits_3000px.jpg
+post_id: 14966
+---
 The Mavericks are certainly no stranger to Bruce's catalog–[their cover of "All That Heaven Will Allow"](../2019-02-28_cover-me-the-mavericks-all-that-heaven-will-allow/post.md) is one of the finer Springsteen covers out there.
 
 Now they're at it again: just a couple of months ago they released their latest album, an all-covers compilation entitled *Play the Hits*.

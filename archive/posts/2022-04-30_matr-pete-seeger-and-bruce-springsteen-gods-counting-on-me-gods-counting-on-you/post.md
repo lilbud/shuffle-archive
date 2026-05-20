@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Pete Seeger and Bruce Springsteen: God's Counting on Me… God's Counting on You"
+author: "Ken"
+excerpt: "The final collaboration between Pete Seeger and Bruce Springsteen was a new protest song written by Seeger in response to the BP oil spill disaster."
+tags: gods-counting-on-me-gods-counting-on-you pete-seeger
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/seeger.jpg
+post_id: 34327
+---
 On April 20, 2010, the Deepwater Horizon drilling rig exploded, spilling more than 210 million gallons of oil into the Gulf of Mexico in what would become one of the biggest environmental disasters in American history.
 
 [Watch on Youtube: 2010: Blowout: The Deepwater Horizon Disaster](https://www.youtube.com/watch?v=XkGOukBrqgs)

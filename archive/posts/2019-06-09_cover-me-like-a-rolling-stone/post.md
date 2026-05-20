@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Like a Rolling Stone"
+author: "Ken"
+excerpt: "It took four decades, but Bruce finally got around to covering the most acclaimed song of all time. Take a listen inside."
+tags: bob-dylan like-a-rolling-stone
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Bob-Dylan-like-a-rolling-stone.jpg
+post_id: 10315
+---
 There's not much point in introducing Bob Dylan's "Like a Rolling Stone."
 
 You already know it.

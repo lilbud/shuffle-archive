@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Can't Take It No More"
+author: "Ken"
+excerpt: "This early Springsteen original features fine vocals from Bruce and Robbin and a typically great Steel Mill guitar jam–but ouch, those lyrics."
+tags: i-cant-take-it-no-more steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/exasperated.jpg
+post_id: 14215
+---
 For at least a few months from the autumn of 1970 through the early weeks of 1971, if you caught Steel Mill in concert, you might have heard this original Springsteen song.
 
 For the vast majority of us who didn't… well, I'd venture to say that we didn't miss out on much when it comes to "I Can't Take It No More."

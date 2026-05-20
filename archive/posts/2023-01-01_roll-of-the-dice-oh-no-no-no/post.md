@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Oh No No No"
+author: "Ken"
+excerpt: "“Oh No No No” is an unfinished attempt at a he-said/she-said. Too bad we lack the music to pair with these unpublished lyrics, so we could see what Bruce was aiming for."
+tags: oh-no-no-no
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/ohnonono.jpg
+post_id: 5526
+---
 Sometimes, Bruce's unreleased, recorded lyrics stand on their own as poetry. But sometimes, you really need the music to know what he was going for.
 
 "Oh No No No" is in the latter category.

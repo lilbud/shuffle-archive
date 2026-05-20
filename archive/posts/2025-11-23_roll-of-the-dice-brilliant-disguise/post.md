@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Brilliant Disguise"
+author: "Ken"
+excerpt: "“Brilliant Disguise” is a nakedly intimate, exquisitely written, and intensely performed exploration of self-doubt and the mysteries and insecurities of relationships."
+tags: brilliant-disguise tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/bruce-springsteen-brilliant-disguise-cbs-4.jpg
+post_id: 583
+---
 > *God have mercy on the man who doubts what he's sure of.*<br>
 
 That's the single greatest last line of any rock song ever (IMO, anyway).

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 29"
+author: "Ken"
+excerpt: "On this date: Bruce and the E Street Band open the MTV Video Music Awards, play a one-time-only cover of “(I Heard That) Lonesome Whistle” and more."
+tags: born-in-the-usa-tour child dancing-in-the-dark darkness-tour i-heard-that-lonesome-whistle im-a-rocker largo mtv-video-music-awards nashville new-york-city philadelphia pittsburgh ramrod rising-tour springsteen-on-broadway steel-mill the-rising vernon washington-dc world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/20020829_2_front.jpg
+post_id: 59500
+---
 ***New for 2025:** New entry for 1977 and 1979*<br>
 
 **1969:** Child plays a gig at the Ocean Side Surf Club in Sea Bright, New Jersey.<br>
@@ -20,13 +30,13 @@
 
 **1977:** Bruce and the band are in the studio, recording for what will become *Darkness on the Edge of Town*.<br>
 
-**1978:** Bruce and the E Street Band play their second of two nights at the Stanley Theater in Pittsburgh, where Bruce tour premieres “[It’s My Life](../2021-11-23_cover-me-its-my-life/post.md)” and plays “[(I Heard That) Lonesome Whistle](https://estreetshuffle.com/index.php/2019/12/07/cover-me-i-heard-that-lonesome-whistle/)” for the first and only time to date. The TV show *PM Magazine* airs a segment shortly afterward, featuring footage from this show–check it out below.<br>
+**1978:** Bruce and the E Street Band play their second of two nights at the Stanley Theater in Pittsburgh, where Bruce tour premieres "[It's My Life](../2021-11-23_cover-me-its-my-life/post.md)" and plays "[(I Heard That) Lonesome Whistle](https://estreetshuffle.com/index.php/2019/12/07/cover-me-i-heard-that-lonesome-whistle/)" for the first and only time to date. The TV show *PM Magazine* airs a segment shortly afterward, featuring footage from this show–check it out below.<br>
 
 [Watch on Youtube: Bruce Springsteen - I HEARD THAT LONESOME WHISTLE 1978 (audio)](https://www.youtube.com/watch?v=eScrQVnfB34)
 
 [Watch on Youtube: Bruce Springsteen, PM Magazine 1978](https://www.youtube.com/watch?v=NuJ-g62ekzc)
 
-**1979:** Bruce and the E Street Band record an alternate version of “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)” at The Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band record an alternate version of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" at The Power Station in New York City.<br>
 
 [Watch on Youtube: The River](https://www.youtube.com/watch?v=BjSsFvrrh7g)
 
@@ -34,17 +44,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/lUINKgNF)
 
-**1992:** Night Two at The Philadelphia Spectrum on World Tour 1992 features the last “[All or Nothin’ at All](../2018-01-30_roll-of-the-dice-all-or-nothing-at-all/post.md)” for seventeen years and a “Follow That Dream” show closer.<br>
+**1992:** Night Two at The Philadelphia Spectrum on World Tour 1992 features the last "[All or Nothin' at All](../2018-01-30_roll-of-the-dice-all-or-nothing-at-all/post.md)" for seventeen years and a "Follow That Dream" show closer.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/C5ZvQSju)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-29.png.webp)
 
-**1995:** Bruce and Joe Grushecky sit down for an interview at Cheers in Long Branch to promote Joe’s upcoming Bruce-produced album, [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md).<br>
+**1995:** Bruce and Joe Grushecky sit down for an interview at Cheers in Long Branch to promote Joe's upcoming Bruce-produced album, [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md).<br>
 
 [Watch on Youtube: Joe Grushecky and Bruce Springsteen in conversation](https://www.youtube.com/playlist?list=PL39D3CD52696EBA54)
 
-**2002:** On a rainy night, Bruce and the E Street Band kick off the MTV Video Music Awards, performing “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)” outside Hayden Planetarium in New York City for the cameras followed by a private 75-minute concert in the rain.<br>
+**2002:** On a rainy night, Bruce and the E Street Band kick off the MTV Video Music Awards, performing "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" outside Hayden Planetarium in New York City for the cameras followed by a private 75-minute concert in the rain.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DJSBoofS)
 
@@ -52,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2002-08-29.png.webp)
 
-**2012:** Bruce and the band play an unusual venue: the Vernon Downs Raceway, a horse racing track in central New York State. Bruce delivers a great set list, tour premiering [“Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)” and “[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)” and giving rare outings to “[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md),” “[I’m a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md),” the 1978 version of “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” and “[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md).”<br>
+**2012:** Bruce and the band play an unusual venue: the Vernon Downs Raceway, a horse racing track in central New York State. Bruce delivers a great set list, tour premiering ["Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)" and "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" and giving rare outings to "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)," the 1978 version of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" and "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen plays concert at Vernon Downs](https://www.youtube.com/watch?v=1nsW3dQSPAY)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Lucinda Williams and Bruce Springsteen, Disgusted"
+author: "Ken"
+excerpt: "One time only: Bruce joined Lucinda Williams and her band on stage in London to perform a cover of Melvin Jackson’s “Disgusted.”"
+tags: disgusted lucinda-williams
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/jackson.jpg
+post_id: 6177
+---
 “Disgusted” was recorded by Melvin “Lil’ Son” Jackson back in 1951, but it remained in the vault for years, finally seeing the light of day on a 1968 compilation album.
 
 [Watch on Youtube: Disgusted](https://www.youtube.com/watch?v=JI_I3Dp8_z8)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Tenth Avenue Freeze-Out"
+author: "Ken"
+excerpt: "Part myth, part strut, and all magic: it’s the story of Bad Scooter and the E Street Band."
+tags: born-to-run clarence-clemons steve-van-zandt tenth-avenue-freeze-out the-essential-bruce-springsteen
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/tenthavenuefreezeout_sin-nl.jpg
+post_id: 5731
+---
 Let's get one thing out of the way right off the bat: I'm not even going to *try* to analyze and explain what the phrase "Tenth Avenue freeze-out" means. After all, if you ask Bruce, even he'll admit:
 
 [Watch Video Highlight](https://videopress.com/embed/0IwH2mV0)
@@ -80,6 +90,7 @@ Regardless of whether it's literally Clarence or just a voice in Bruce's own hea
 > *All the little pretties raise their hands*<br>
 > *I'm gonna sit back right easy and laugh*<br>
 > *When Scooter and the Big Man bust this city in half, oh*<br>
+
 > *Tenth Avenue freeze-out!*<br>
 
 "Tenth Avenue Freeze-Out" is often regarded as the story of Bruce and Clarence, and there's some merit to that interpretation. But the song is bigger than that: it's the story of the E Street Band, and how Bruce discovered the power of fraternity.

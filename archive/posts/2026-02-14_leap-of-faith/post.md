@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Leap of Faith"
+author: "Ken"
+excerpt: "Leap of Faith Recorded: Late 1991 Released: Lucky Town (1992) First performed: May 6, 1992 (New York City, NY) Last performed: February 14, 2017…"
+post_id: 67620
+---
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=U4ALQoRaB9w)
 

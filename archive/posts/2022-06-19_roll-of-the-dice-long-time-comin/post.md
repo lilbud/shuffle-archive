@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Long Time Comin'"
+author: "Ken"
+excerpt: "The final chapter in Bruce’s father-and-son songwriting."
+tags: devils-and-dust long-time-comin
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/camping.jpg
+post_id: 35690
+---
 > "We are ghosts or we are ancestors in our children's lives. We either lay our mistakes, our burdens upon them and we haunt them, or we assist them in laying those old burdens down, and we free them from the chain of our own flawed behavior. And as ancestors, we walk alongside them, and we assist them in finding their own way, and some transcendence." *–Bruce Springsteen, Springsteen on Broadway*<br>
 
 Bruce Springsteen said those words while recalling "the greatest moment in my life with my dad"–the moment his father offered his version of an apology to the son he hadn't shown up for when he had the chance.

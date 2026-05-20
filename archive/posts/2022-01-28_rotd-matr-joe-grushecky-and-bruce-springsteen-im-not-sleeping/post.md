@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/MatR: Joe Grushecky and Bruce Springsteen: I'm Not Sleeping"
+author: "Ken"
+excerpt: "It’s one of Joe and Bruce’s best songwriting collaborations and on-stage moments, as fresh today as it was when they wrote it a quarter-century ago."
+tags: im-not-sleeping joe-grushecky
+categories: meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/imnotsleeping.jpg
+post_id: 32253
+---
 Joe Grushecky and Bruce Springsteen's songwriting partnership started with *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*, but it certainly didn't end there.
 
 Inspired by their songwriting chemistry, Bruce and Joe continued collaborating even once *American Babylon* was in the can, writing a collection of songs in 1995, many of which are still unreleased.

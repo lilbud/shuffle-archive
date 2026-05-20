@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: October 21"
+author: "Ken"
+excerpt: "This date in Springsteen history features guest-spots galore: John Eddie, Marshall Crenshaw, Elliott Murphy, Nils Lofgren, Joe Grushecky, Greg Kihn, and Jon Bon Jovi all share a stage with Bruce. Plus: rare performances, great shows, and more."
+tags: american-babylon-tour born-in-the-usa-tour born-to-run cadillac-ranch canada chicago clarence-clemons devils-and-dust-tour elliott-murphy ghost-of-tom-joad-tour gimme-shelter greg-kihn hamilton im-goin-down joe-grushecky john-eddie jon-bon-jovi los-angeles love-of-the-common-people magic-tour marshall-crenshaw mountain-view my-love-will-not-let-you-down nils-lofgren no-surrender oakland pittsburgh providence rebel-music reunion-tour seeger-sessions-tour spain springsteen-on-broadway suspicious-minds terrys-song valencia world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/19991021_2_front.jpg
+post_id: 61183
+---
 ***New for 2025:** Audio for 2006; review for 2012; new entry for 2024*<br>
 
-**1972:** Clarence Clemons plays his final show with Norman Selden’s Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen’s new band.<br>
+**1972:** Clarence Clemons plays his final show with Norman Selden's Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen's new band.<br>
 
 **1974:** Bruce postpones a scheduled show at Camden County College to exactly a month later.<br>
 
@@ -18,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-21c.png.webp)
 
-**1992:** Bruce and his new touring band play their first of two nights at Mountain View’s Shoreline Amphitheater.<br>
+**1992:** Bruce and his new touring band play their first of two nights at Mountain View's Shoreline Amphitheater.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gPmGIaLQ)
 
@@ -34,7 +44,7 @@
 
 [Watch on Youtube: Bruce Springsteen, John Eddie, and Friends - "Bang a Gong (Get It On)" / "Route 66"](https://www.youtube.com/watch?v=9osA0jMFeBk)
 
-**1995:** Bruce joins Joe Grushecky and The Houserockers for their second of two shows at Nick’s Fat City in Pittsburgh, where Bruce plays “[Gimme Shelter](../2019-09-09_matr-joe-grushecky-and-bruce-springsteen-gimme-shelter/post.md)” in full for the first and only time. “[Rebel Music](../2020-03-25_matr-joe-grushecky-and-bruce-springsteen-rebel-music/post.md/)” will eventually be released on Grushecky’s *October Assault* CD, and several songs from this show will be released on the 25th anniversary re-issue of [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md).<br>
+**1995:** Bruce joins Joe Grushecky and The Houserockers for their second of two shows at Nick's Fat City in Pittsburgh, where Bruce plays "[Gimme Shelter](../2019-09-09_matr-joe-grushecky-and-bruce-springsteen-gimme-shelter/post.md)" in full for the first and only time. "[Rebel Music](../2020-03-25_matr-joe-grushecky-and-bruce-springsteen-rebel-music/post.md/)" will eventually be released on Grushecky's *October Assault* CD, and several songs from this show will be released on the 25th anniversary re-issue of [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md).<br>
 
 [Watch on Youtube: Gimme shelter - Joe Grushecky with Bruce Springsteen](https://www.youtube.com/watch?v=5WmQuWwpyf8)
 
@@ -42,7 +52,7 @@
 
 [Watch on Youtube: Light of Day (Live)](https://www.youtube.com/watch?v=B5nlBl0H6YM)
 
-**1996:** Bruce plays a solo acoustic show at Arizona State University in Tempe, where local resident Nils Lofgren makes a guest appearance for “[No Surrender.](../2021-11-18_roll-of-the-dice-no-surrender/post.md)”<br>
+**1996:** Bruce plays a solo acoustic show at Arizona State University in Tempe, where local resident Nils Lofgren makes a guest appearance for "[No Surrender.](../2021-11-18_roll-of-the-dice-no-surrender/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen & Nils Lofgren, "No Surrender" Tempe, 1996-10-21](https://www.youtube.com/watch?v=ZW2CbgB4iJQ)
 
@@ -60,11 +70,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2000-10-21b.png.webp)
 
-**2005:** Bruce plays a solo acoustic show at the Dunkin’ Donuts Center in Providence, where he plays “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)” on acoustic guitar for the first time on the tour.<br>
+**2005:** Bruce plays a solo acoustic show at the Dunkin' Donuts Center in Providence, where he plays "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" on acoustic guitar for the first time on the tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mdvpoUqG)
 
-**2006:** Bruce and the Sessions Band continue their Spanish tour with a show in Valencia, debuting their cover of “[Love of the Common People](../2020-10-21_cover-me-love-of-the-common-people/post.md).”<br>
+**2006:** Bruce and the Sessions Band continue their Spanish tour with a show in Valencia, debuting their cover of "[Love of the Common People](../2020-10-21_cover-me-love-of-the-common-people/post.md)."<br>
 
 [Watch on Youtube: Bruce and the Seeger Valencia 06](https://www.youtube.com/watch?v=xJdDNH2Hwzw)
 
@@ -72,7 +82,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Valencia 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=jkIGTsVsbLk)
 
-**2007:** Bruce and the E Street Band bring the Magic Tour to Chicago’s United Center for the first of two nights.<br>
+**2007:** Bruce and the E Street Band bring the Magic Tour to Chicago's United Center for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AnsrBEUd)
 
@@ -80,7 +90,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-21b.png.webp)
 
-**2012:** Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Ontario, where Bruce tour premieres “[Terry’s Song](../2018-07-30_roll-of-the-dice-terrys-song/post.md)” in tribute to an 11-year-old girl who recently passed away.<br>
+**2012:** Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Ontario, where Bruce tour premieres "[Terry's Song](../2018-07-30_roll-of-the-dice-terrys-song/post.md)" in tribute to an 11-year-old girl who recently passed away.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - MY LOVE WILL NOT LET YOU DOWN at Hamilton, Copps Coliseum](https://www.youtube.com/watch?v=wLmM7zJFX_A)
 

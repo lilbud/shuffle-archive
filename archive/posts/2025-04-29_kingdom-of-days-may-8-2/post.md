@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 8"
+author: "Ken"
+excerpt: "On this date: The live premiere of “Wages of Sin” and the last performance of “Run Through the Jungle.” Plus: Bruce returns to the Hammersmith Odeon after more than 30 years. More highlights inside."
+tags: aint-good-enough-for-you asbury-park barcelona baton-rouge beaver-brown chicken-scratch-tour clive-davis columbia-records dave-marsh finland ghost-of-tom-joad-tour hartford john-hammond just-before-the-dawn london mtv-week-in-rock my-generation penn-state reunion-tour rising-tour river-tour rotterdam run-through-the-jungle saturday-night-live seeger-sessions-tour spain stockholm sweden the-fast-lane the-netherlands turku uk upstage wages-of-sin working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/turku2.jpg
+post_id: 56718
+---
 ***New for 2025:** New entry for 1975; video for 2000; audio for 2000 and 2003*<br>
 
 **1972:** John Hammond sends the demos that Bruce recorded on May 3 to Clive Davis, president of Columbia Records. He includes a note that reads:<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Coalesce Choir: American Skin (41 Shots)"
+author: "Ken"
+excerpt: "In the aftermath of George Floyd’s murder, Americana artist Domenic Cicola assembled The Coalesce Choir to record a powerful community cover of Bruce’s “American Skin (41 Shots).”"
+tags: american-skin-41-shots dominic-cicala the-coalesce-choir
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/coalesce.jpg
+post_id: 27147
+---
 In the aftermath of George Floyd's murder, Washington DC-based Americana artist Domenic Cicala found himself feeling frustrated and powerless.
 
 Unable to protest in the streets for health reasons, Domenic decided to protest through song. He reached out to his artistic network and built a musical coalition called The Coalesce Choir to raise money and awareness for Black Lives Matter.

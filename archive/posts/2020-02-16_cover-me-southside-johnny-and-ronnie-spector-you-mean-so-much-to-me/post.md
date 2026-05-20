@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Southside Johnny and Ronnie Spector: You Mean So Much to Me"
+author: "Ken"
+excerpt: "The story of “You Mean So Much to Me” continues beyond its last E Street stage appearance. Listen to the definitive cover by Southside Johnny and Ronnie Spector, plus Bruce and Ronnie’s unexpected 1977 team-up."
+tags: southside-johnny you-mean-so-much-to-me
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/south-ronnie.jpg
+post_id: 15636
+---
 I wrote about "[You Mean So Much to Me](../2020-01-13_roll-of-the-dice-you-mean-so-much-to-me/post.md)" last month, tracing its evolution from a brassy Bruce Springsteen Band jam to a cool, jazzy showcase for the E Street keyboardists.
 
 But the story doesn't end there.

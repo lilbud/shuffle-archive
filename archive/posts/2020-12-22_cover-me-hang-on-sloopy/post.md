@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Hang on Sloopy"
+author: "Ken"
+excerpt: "Bruce’s first concert performance of “Hang On Sloopy” gets the entire Greensboro Coliseum crowd on its feet for a deafening singalong. Watch the electrifying moment inside."
+tags: hang-on-sloopy my-girl-sloopy the-mccoys the-strangeloves the-vibrations
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/The-McCoys-Hang-On-Sloopy-1534271136-compressed.jpg
+post_id: 17118
+---
 Somewhat improbably, I find myself pulling into Greensboro, North Carolina on the first evening of a ten-day cross-country bus trip/publicity stunt for work (long story, not relevant), about an hour before Bruce Springsteen is due to take the stage at the Coliseum.
 
 I manage to snag an entire row of late-breaking side-stage tickets and drag my co-workers (some fans, some newbies) to the show. I'm fully expecting a standard Working on a Dream show, but that's fine by me–this is a "bonus" show, after all.

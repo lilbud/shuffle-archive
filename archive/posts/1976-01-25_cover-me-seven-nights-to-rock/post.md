@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Seven Nights to Rock"
+author: "Ken"
+excerpt: "On the Rising Tour (and pretty much every year since) Bruce resurrected an obscure single from one of rock’s great but forgotten influencers."
+tags: moon-mullican seven-nights-to-rock
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/seven-nights.jpg
+post_id: 26456
+---
 Aubrey "Moon" Mullican was never the crossover star he should have been.
 
 Born in 1909, Mullican was too old to ride the rock and roll wave when it crested, even though he helped create it.
@@ -28,7 +38,7 @@ Bruce Springsteen covered it, too–more than one hundred times, in fact. It was
 
 Bruce played "Seven Nights to Rock" several times on the Magic, Working on a Dream, Wrecking Ball, and River Tours, too, although it never again sounded as vital as it did on the Rising Tour.
 
-There was one particularly memorable performance in 2014, though, when Patti Scialfa decided that perhaps seven nights was a bit *too* much rocking for her husband, and that perhaps *she* might like to do a bit of rocking, too...
+There was one particularly memorable performance in 2014, though, when Patti Scialfa decided that perhaps seven nights was a bit *too* much rocking for her husband, and that perhaps *she* might like to do a bit of rocking, too…
 
 [Watch on Youtube: Bruce Springsteen Seven Nights To Rock Pittsburgh 4-22-14](https://www.youtube.com/watch?v=4YwZBIDDpck)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Darlene Love: Just Another Lonely Mile"
+author: "Ken"
+excerpt: "Darlene Love’s debut album featured this Springsteen-authored, Van Zandt-produced, Spectorian gem."
+tags: darlene-love just-another-lonely-mile steve-van-zandt
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/darlene.jpg
+post_id: 30012
+---
 > "For *Introducing Darlene Love*, Van Zandt reached out to many of the best songwriters in the world, including Springsteen… "I said to them, 'I want big,'" Van Zandt says. "I want horns and strings. Her voice wants that. And I told them we weren't waiting, so I gave them a month or two." *— Steve Van Zandt to Andy Greene, Rolling Stone, August 21, 2015*<br>
 
 What can Bruce Springsteen do on a month-or-two deadline?

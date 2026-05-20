@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Spare Parts: What I Did on My Autumn Vacation"
+author: "Ken"
+excerpt: "A brief highlight round-up of my Springsteen-related events and activities from this past week."
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/IMG_1844.jpeg
+post_id: 30419
+---
 Hello again!
 
 You might have noticed I took this past week off, although my definition of "off" apparently means only publishing one blog post a day instead of two, along with filing a couple of special reports for Backstreets.

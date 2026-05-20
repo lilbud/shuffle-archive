@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and U2, I Still Haven't Found What I'm Looking For"
+author: "Ken"
+excerpt: "It’s a veritable lovefest every time Bruce joins U2 on their iconic anthem, “I Still Haven’t Found What I’m Looking For.”"
+tags: i-still-havent-found-what-im-looking-for rock-and-roll-hall-of-fame u2
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/u2still.jpg
+post_id: 7435
+---
 It's one of the most iconic songs from one of rock's most iconic bands.
 
 Upon release in 1987, it topped the Billboard Hot 100 chart. A quarter-century later, it was firmly lodged in Rolling Stone Magazine's 100 Greatest Songs of All Time.
@@ -20,7 +30,7 @@ This remains one of my favorite Springsteen/U2 performances:
 
 How do you top two guest performances like those? Well, when the opportunity presents itself, you take the lead.
 
-In 2014, U2 was scheduled to give a free performance in Times Square to observe World AIDS Day, but two weeks before the gig, Bono broke his arm in a motorcycle accident. Unwilling to cancel the performance, Bono called in a few favors, and U2 took the stage as scheduled, but with temporary frontmen: Bruce and Chris Martin each took a turn at the microphone, and one of Bruce's numbers was... well, by now you know.
+In 2014, U2 was scheduled to give a free performance in Times Square to observe World AIDS Day, but two weeks before the gig, Bono broke his arm in a motorcycle accident. Unwilling to cancel the performance, Bono called in a few favors, and U2 took the stage as scheduled, but with temporary frontmen: Bruce and Chris Martin each took a turn at the microphone, and one of Bruce's numbers was… well, by now you know.
 
 [Watch Video Highlight](https://videopress.com/embed/aSL5ziVQ)
 

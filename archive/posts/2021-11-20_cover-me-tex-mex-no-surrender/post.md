@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tex Mex: No Surrender"
+author: "Ken"
+excerpt: "From their 2013 album The Best Has Yet to Come, Frank Get and Tex Mex deliver a nostalgic, tender reading of Bruce’s 1984 anthem."
+tags: frank-get no-surrender tex-mex
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/frankget.jpg
+post_id: 31021
+---
 I don't know why so many of my favorite Springsteen covers originate in Italy, but they do.
 
 Like this one, for instance.

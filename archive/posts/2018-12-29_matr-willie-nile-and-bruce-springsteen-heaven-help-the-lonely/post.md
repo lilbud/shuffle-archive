@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Willie Nile and Bruce Springsteen, Heaven Help the Lonely"
+author: "Ken"
+excerpt: "“Heaven Help the Lonely” should have been a hit single for Willie Nile; Bruce clearly enjoyed playing it with Willie at back-to-back Light of Day appearances."
+tags: heaven-help-the-lonely joe-grushecky light-of-day willie-nile
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/heavenhelp.jpg
+post_id: 6323
+---
 The fact that "Heaven Help the Lonely" didn't become a Number One hit song is just one of the many crimes and indignities inflicted upon Willie Nile.
 
 Watch his official video for what should have been a heavy rotation single off his 1991 album, *Places I Have Never Been* (which itself should have been released a decade earlier, but Nile's recording career was mired in legal troubles), and tell me that doesn't sound like a hit record.

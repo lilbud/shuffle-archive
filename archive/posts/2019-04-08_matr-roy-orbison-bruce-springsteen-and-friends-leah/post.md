@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison, Bruce Springsteen and Friends: Leah"
+author: "Ken"
+excerpt: "One time only: Bruce joins an all-star backing band to accompany Roy Orbison’s soaring vocals on “Leah.”"
+tags: black-and-white-night leah roy-oribison
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/leah.jpg
+post_id: 7888
+---
 Roy Orbison's "Leah" wasn't intended to be a single; it was actually the B-side for his 1962 release, "Working for the Man." But with that gorgeous, soaring melody and Orbison's preternaturally high vocals, how could it not be?
 
 "Leah" defied the odds and outperformed its A-side, peaking at #25 on the Billboard Hot 100. ("Working for the Man" made it only to #33.)

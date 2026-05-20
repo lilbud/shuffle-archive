@@ -1,24 +1,34 @@
+---
+layout: post
+title: "Santa Claus is Comin' to Town"
+author: "Ken"
+excerpt: "Here’s the sad story behind Bruce’s most beloved holiday classic."
+tags: eddie-cantor harry-reser phil-spector santa-claus-is-comin-to-town the-crystals the-four-seasons
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/santa.jpg
+post_id: 31072
+---
 It was already one of the most famous Christmas songs of all time before Bruce Springsteen immortalized it for annual radio play.
 
 That's probably because it's also one of the most malleable holiday classics, taking twists and turns in both lyrics and arrangement since its first recording in 1934.
 
 Haven Gillespie wrote the lyrics for "Santa Claus is Comin' to Town" during the height of the Great Depression, and his words reflected the concerns of the day:
 
-> *The season is near, the happiest time*
-> *Gotta bring cheer with every last dime*
-> *Santa Claus is coming to town!*
+> *The season is near, the happiest time*<br>
+> *Gotta bring cheer with every last dime*<br>
+> *Santa Claus is coming to town!*<br>
 
-> *We've gotta dig deep and cover the list*
-> *Gotta see that nobody is missed*
-> *Santa Claus is coming to town!*
+> *We've gotta dig deep and cover the list*<br>
+> *Gotta see that nobody is missed*<br>
+> *Santa Claus is coming to town!*<br>
 
-> *Let's keep home fires burning*
-> *Let's give with out a pause*
-> *Let's prove to those less fortunate that there is a Santa Claus*
+> *Let's keep home fires burning*<br>
+> *Let's give with out a pause*<br>
+> *Let's prove to those less fortunate that there is a Santa Claus*<br>
 
-> *Oh the joy will be yours , that wonderful day*
-> *Knocking on doors and shouting hurray*
-> *Santa Claus is coming to town!*
+> *Oh the joy will be yours , that wonderful day*<br>
+> *Knocking on doors and shouting hurray*<br>
+> *Santa Claus is coming to town!*<br>
 
 It was this version–set to music by J. Fred Coots–that radio star Eddie Cantor performed on his radio show that 1934 holiday season.
 

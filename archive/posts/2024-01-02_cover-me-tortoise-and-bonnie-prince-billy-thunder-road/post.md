@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tortoise and Bonnie "Prince" Billy: Thunder Road"
+author: "Ken"
+excerpt: "Perhaps the most surprising and effective re-interpretation of “Thunder Road” ever, Tortoise and Bonnie “Prince” Billy transform Bruce’s classic song of escape into a dark, sinister temptation."
+tags: thunder-road tortoise-and-bonnie-prince-billy
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/bonnie.jpg
+post_id: 13812
+---
 My rule for what makes for a great cover of a Bruce Springsteen song: do it different or do it better.
 
 This one definitely falls in to the former category.

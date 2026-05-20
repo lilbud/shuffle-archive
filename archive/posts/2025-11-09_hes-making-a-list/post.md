@@ -1,3 +1,12 @@
+---
+layout: post
+title: "He's making a list…"
+author: "Ken"
+excerpt: "I apologize. I know I said last time that I wasn’t going to provide any additional Bookshelf Collection updates via the main blog/email feed, but…"
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/join-our-mailing-list.jpg
+post_id: 62933
+---
 I apologize.
 
 I know I said last time that I wasn't going to provide any additional Bookshelf Collection updates via the main blog/email feed, but several of you wrote to me requesting that I set up an email list for updates so that you don't have to remember to manually check a buried page on the web site each week.

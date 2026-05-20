@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: John Eddie, Bruce Springsteen, and Friends: Hey Tonight"
+author: "Ken"
+excerpt: "One time only (in public at least): Bruce Springsteen covers John Fogerty’s 1971 hit single with John Eddie, Greg Kihn, Elliott Murphy, and Marshall Crenshaw."
+tags: creedence-clearwater-revival elliott-murphy greg-kihn hey-tonight john-eddie marshall-crenshaw
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/hey-tonight.jpg
+post_id: 36370
+---
 Together with its flipside "Have You Ever Seen the Rain" (they were released as dual A-sides), "Hey Tonight climbed as high as #8 on the Billboard Hot 100 when Creedence Clearwater Revival released it in 1971.
 
 [Watch on Youtube: Creedence Clearwater Revival - Hey Tonight](https://www.youtube.com/watch?v=tk8ZRq7uzrk)

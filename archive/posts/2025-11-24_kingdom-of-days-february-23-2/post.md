@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 23"
+author: "Ken"
+excerpt: "Can a day in Bruce history get any more packed? Hear the backstory from Ernest “Boom” Carter’s first show; listen to Bruce, Madonna, and Prince play together in 1985; watch a classic Grammy Awards performance with Elvis Costello and Dave Grohl, and much more!"
+tags: atlanta australia castiles chicago cleveland dave-grohl eddie-vedder elvis-costello ernest-boom-carter france ghost-of-tom-joad-tour grammy-awards high-hopes-tour hunter-valley inglewood joe-grushecky lawsuit-tour london-calling madonna prince river-tour river-tour-2016 spill-the-wine steve-van-zandt the-beatles the-ghost-of-tom-joad westbury
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/huntervalley.jpg
+post_id: 56010
+---
 **1964:** The Beatles make their third appearance on the Ed Sullivan show, and fourteen-year-old Bruce Springsteen is watching.<br>
 
 [Watch on Youtube: The Beatles - Twist & Shout - Performed Live On The Ed Sullivan Show 2/23/64](https://www.youtube.com/watch?v=b-VAxGJdJeQ)

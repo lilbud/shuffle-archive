@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Everything But the Girl: Tougher Than the Rest"
+author: "Ken"
+excerpt: "My all-time favorite Bruce cover: a tender re-working of “Tougher Than the Rest” by a vocalist with the emotional range to perfectly capture the song’s nuance."
+tags: everything-but-the-girl tougher-than-the-rest tracey-thorn
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/ebtg.jpg
+post_id: 4437
+---
 This is probably my all-time favorite Bruce cover.
 
 I've been in love with Tracey Thorn's voice since I first discovered Everything But the Girl's *Idlewild* album while perusing my college radio station's album library one day before my weekly show. By the time I got to "I Always Was Your Girl," I was hooked but good.

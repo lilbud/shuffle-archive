@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Stories featuring Garrison Starr: Born in the U.S.A."
+author: "Ken"
+excerpt: "Achingly beautiful and deeply sad, the folks behind Scary Pockets deliver a gorgeous arrangement of “Born in the U.S.A.” that will have you hearing the song in an entirely new light."
+tags: born-in-the-u-s-a garrison-starr scary-pockets stories
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/stories.jpg
+post_id: 19888
+---
 Last winter, we took a look at the [*outstandingly* funky spin that Scary Pockets put on Bruce's "Dancing in the Dark,"](../2019-12-01_cover-me-scary-pockets-and-darren-criss-dancing-in-the-dark/post.md) and I've been a fan of their consistently fresh, fun, and fantastic covers ever since. (Check out their archive [here](https://www.youtube.com/channel/UC-2JUs_G21BrJ0efehwGkUw), but be forewarned: you can easily get lost for hours down that hole)
 
 Now the folks behind Scary Pockets are back with a new series, simply called Stories.

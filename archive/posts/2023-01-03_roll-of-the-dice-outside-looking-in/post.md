@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Outside Looking In"
+author: "Ken"
+excerpt: "In which Bruce wears his influence so much on his sleeve that it’s practically a “Peggy Sue” tattoo."
+tags: outside-looking-in the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/peggysuetattoo.jpg
+post_id: 25452
+---
 > "I didn't want to be pegged as a revivalist, so I was hesitant to wear my influences too clearly on my sleeve at the moment." — Bruce Springsteen to Brian Hiatt, *Rolling Stone*, November 25, 2010
 
 Who can blame him?

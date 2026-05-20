@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Wanna Be With You"
+author: "Ken"
+excerpt: "A lost power-pop classic, “I Wanna Be With You” charms with its lovesick loser protagonist, fiercely defiant lyrics and exuberant arrangement."
+tags: i-wanna-be-with-you outtakes raspberries reunion
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/wanna.jpg
+post_id: 226
+---
 In a parallel universe, Bruce Springsteen released every song he ever wrote and holds the record for most pop hits by a single artist.
 
 In this universe, however, Springsteen discarded or stashed away bona fide power pop gems that other artists would have sold their soul to have written, because they didn't fit the message he was trying to communicate at the time.

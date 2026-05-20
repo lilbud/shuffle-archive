@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 19"
+author: "Ken"
+excerpt: "Bruce makes a Daily Show appearance, records tracks for the Seeger Sessions album, and closes out the L.A. Sports Arena on this date in history. Highlights and more inside."
+tags: asbury-park belfast dallas drive-all-night erie-canal froggie-went-a-courtin ghost-of-tom-joad-tour give-the-girl-a-kiss greensboro john-henry jon-stewart lawsuit-tour lewiston los-angeles mrs-mcgrath new-orleans o-mary-dont-you-weep old-dan-tucker pay-me-my-money-down reunion-tour river-tour river-tour-2016 seeger-sessions shenandoah stephen-king the-daily-show the-promise working-on-a-dream wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/belfast96.jpg
+post_id: 56191
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2016-03-19a.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2016-03-19b.jpg.webp)

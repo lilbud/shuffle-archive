@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: May 9"
+author: "Ken"
+excerpt: "On this date: The E Street Band debuts their new name, Jon Landau sees the future of rock and roll, and Bruce makes his first appearance on Saturday Night Live. New video and more highlights inside."
+tags: atlantic-city bloomington bonnie-raitt cambridge chicken-scratch-tour e-street-band ghost-of-tom-joad-tour jon-landau london madrid mobile poland santiago saturday-night-live seeger-sessions-tour spain springsteen-on-broadway st-lukes straight-time the-ghost-of-tom-joad tunnel-of-love-express-tour warsaw world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/snlbruce.jpg
+post_id: 56719
+---
 ***New for 2025:** Audio for 1974; review for 1976; new entry for 1980 and 2024; video for 2023*<br>
 
-**1974:** A watershed moment for Bruce, when he plays two shows opening for Bonnie Raitt at the Harvard Square Theater in Cambridge, Massachusetts. Not only is his band introduced as “The E Street Band” for the very first time at the early show, but Jon Landau attends the late show and is moved to write his famous “rock and roll future” review.<br>
+**1974:** A watershed moment for Bruce, when he plays two shows opening for Bonnie Raitt at the Harvard Square Theater in Cambridge, Massachusetts. Not only is his band introduced as "The E Street Band" for the very first time at the early show, but Jon Landau attends the late show and is moved to write his famous "rock and roll future" review.<br>
 
 [Watch on Youtube: Springsteen and I](https://www.youtube.com/watch?v=i3hDt5fEge0)
 
@@ -14,21 +24,21 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/The_Mobile_Register_1976_05_10_40-scaled.jpg.webp)
 
-**1980:** Bruce and team complete the mix for “Stolen Car” at Clover Studios in Los Angeles.<br>
+**1980:** Bruce and team complete the mix for "Stolen Car" at Clover Studios in Los Angeles.<br>
 
 [Watch on Youtube: Stolen Car](https://www.youtube.com/watch?v=f0RNWwXcQiU)
 
-**1984:** “[Dancing in the Dark,](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” the first single off *Born in the U.S.A.* is sent to radio stations. It will appear in record stores shortly and become Bruce’s greatest hit.<br>
+**1984:** "[Dancing in the Dark,](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" the first single off *Born in the U.S.A.* is sent to radio stations. It will appear in record stores shortly and become Bruce's greatest hit.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1984-05-09.jpg.webp)
 
-**1985:** The news is out: Bruce Springsteen is getting married to actress/model Julianne Phillips in Lake Oswego. When Juli’s parents confirm the news, the press runs with the story.<br>
+**1985:** The news is out: Bruce Springsteen is getting married to actress/model Julianne Phillips in Lake Oswego. When Juli's parents confirm the news, the press runs with the story.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1985-05-09a.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1985-05-09b.jpg.webp)
 
-**1988:** The Tunnel of Love Express heads to Bloomington, Minnesota for the first of two nights. Eavesdrop on the soundcheck below, featuring Nils singing lead on a cover of “He Can’t Love You.”<br>
+**1988:** The Tunnel of Love Express heads to Bloomington, Minnesota for the first of two nights. Eavesdrop on the soundcheck below, featuring Nils singing lead on a cover of "He Can't Love You."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gz3jjnQH)
 
@@ -44,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1992-05-09.jpg.webp)
 
-**1993:** Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md),” “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md),” and “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)” below.<br>
+**1993:** Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)," "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)," and "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" below.<br>
 
 [Watch on Youtube: Bruce Springsteen arrives at Santiago de Compostela](https://www.youtube.com/watch?v=0OtYo4bIv60)
 
@@ -60,7 +70,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/5MQ16PaR)
 
-**2006:** Bruce and the Sessions Band play a televised show at St. Luke’s Church in London. Watch the performance in great quality below, especially Bruce’s hilarious mistake on “[Jacob’s Ladder](../2019-04-18_rotd-cover-me-jacobs-ladder/post.md)” at minute 36.<br>
+**2006:** Bruce and the Sessions Band play a televised show at St. Luke's Church in London. Watch the performance in great quality below, especially Bruce's hilarious mistake on "[Jacob's Ladder](../2019-04-18_rotd-cover-me-jacobs-ladder/post.md)" at minute 36.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2j9sa8J0)
 
@@ -68,13 +78,13 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce and the E Street Band tour premiere “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” at their final night of three at RDS Arena in Dublin.<br>
+**2023:** Bruce and the E Street Band tour premiere "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" at their final night of three at RDS Arena in Dublin.<br>
 
-[Watch on Youtube: Bruce Springsteen & The E Street Band:](https://www.youtube.com/watch?v=72D0bTXbNm4)
+[Watch on Youtube: Bruce Springsteen & The E Street Band: "Something in the Night" (live @ Dublin, 9.5.2023)](https://www.youtube.com/watch?v=72D0bTXbNm4)
 
 [Watch on Youtube: Bruce Springsteen - Trapped Dublin 09-05-2023](https://www.youtube.com/watch?v=2qnWOvaFhaY)
 
-**2024:** Bruce’s voice falls victim to a cold but the show must go on when World Tour 2024 arrives in Belfast.<br>
+**2024:** Bruce's voice falls victim to a cold but the show must go on when World Tour 2024 arrives in Belfast.<br>
 
 [Watch on Youtube: Born to Run by Bruce Springsteen live in Belfast (9th May 2024)](https://www.youtube.com/watch?v=q6i-F4IYBVc)
 

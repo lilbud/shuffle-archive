@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Album Companion: American Beauty"
+author: "Ken"
+excerpt: "Let’s take a moment to revisit Bruce’s only EP with all new material."
+tags: american-beauty
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/BRUCE_AMERICAN_BEAUTY-500x500-300x300-1.jpg
+post_id: 32756
+---
 I'll be taking this week mostly off while I'm re-uniting with my co-workers for the first time in almost two years at a work event in New York, but you'll hear from me here and there with a few pieces that don't fit this blog's usual themes.
 
 As long-time readers know, my editorial calendar is determined by a metaphorical roll of the dice (in reality, Google's random number generator), so I never know what I'll be writing about beyond the current month.

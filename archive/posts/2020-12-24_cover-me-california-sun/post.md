@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: California Sun"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the E Street Band cover the last great pre-British Invasion rock classic."
+tags: california-sun joe-jones the-rivieras
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/casun.jpg
+post_id: 18566
+---
 “California Sun” cracked the Billboard Hot 100 twice, but neither time was by a west coast band.
 
 New Orleans-based Joe Jones was the first to record it, and he took it to #89 in 1961.

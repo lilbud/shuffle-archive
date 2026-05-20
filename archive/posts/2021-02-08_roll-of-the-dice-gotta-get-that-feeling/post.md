@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Gotta Get That Feeling"
+author: "Ken"
+excerpt: "Bruce’s modern vocals fall just a tad short of his glorious vintage backing track, but he more than made up for it when he performed “Gotta Get That Feeling” in concert."
+tags: gotta-get-that-feeling the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/gottaget.jpg
+post_id: 24827
+---
 Sometimes Bruce strikes gold when he grafts modern elements onto decades-old backing tracks, but sometimes he falls just a tad short, and "Gotta Get That Feeling" is one of those times.
 
 Let's say he struck silver.

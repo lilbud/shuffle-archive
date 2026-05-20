@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: My Sweet Lord"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen paid tribute to the recently departed George Harrison by performing Harrison’s greatest hit at Bruce’s first 2001 holiday show."
+tags: george-harrison my-sweet-lord
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/mysweetlord.jpg
+post_id: 14568
+---
 George Harrison passed away just a week after Thanksgiving in 2001, so when Bruce kicked off his first holiday show of the year a few days later in Asbury Park, before delving into seasonal favorites he started with a pair of tributes to the late, great musician.
 
 First out of the gate was Harrison’s Beatles classic, “[Something](../2021-12-28_cover-me-something/post.md).” The second song of the night was Harrison’s greatest hit: “My Sweet Lord,” which topped charts around the world in 1971. (It also generated a fair amount of controversy, thanks to a bit of unintentional copyright infringement, but that’s a story for another day and a different blog.)

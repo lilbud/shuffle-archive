@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lucky Man"
+author: "Ken"
+excerpt: "This Tunnel of Love outtake is the mirror image of “Valentine’s Day,” an artfully and subtly constructed escape fantasy that would have been a perfect fit on the album."
+tags: brilliant-disguise lucky-man tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/luckyman.jpg
+post_id: 16171
+---
 To the degree that fans think about "Lucky Man" at all (after all, it was a 1987 B-side that didn't see an official album release for more than a decade–and even then it was buried as the very last track on Disc 3 of *Tracks*), we tend to fall on two sides: those who think the title is sincere and those who think it's ironic.
 
 Consider me on Team Sincere.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Waiting on the End of the World"
+author: "Ken"
+excerpt: "Bruce recorded “Waiting on the End of the World” twice, with both the “other” band and the E Street Band–yet he didn’t release either version. I have a theory as to why,"
+tags: greatest-hits streets-of-philadelphia waiting-on-the-end-of-the-world
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/apocalypsecover.0.jpg
+post_id: 2714
+---
 Friend of the blog John J. Kelly requested I jump the queue with this one. It's a good pick, and a challenging one.
 
 "Waiting on the End of the World" is one of the more obscure entries even among Bruce's catalog of unreleased outtakes, and it has a curious history.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Do It With a Feeling"
+author: "Ken"
+excerpt: "Almost certainly a holdover from the Steel Mill era, the heavy “Do It With Feeling” is ill-suited for the light-on-its-feet Bruce Springsteen Band."
+tags: do-it-with-a-feeling the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2522de05-7fde-4aef-9e63-78b95a7f3029.jpg
+post_id: 28463
+---
 It showed up for the first time in a Bruce Springsteen Band set list, but one listen to "Do It With a Feeling" is all it takes to convince that Bruce wrote it for Steel Mill.
 
 [Watch Video Highlight](https://videopress.com/embed/bhuDuZRb)

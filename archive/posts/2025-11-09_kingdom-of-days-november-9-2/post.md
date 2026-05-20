@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 9"
+author: "Ken"
+excerpt: "“Santa Ana” returns after more than three decades away, Nils steals the stage at a Seeger Sessions show in Birmingham, and Bruce debuts a brand new song: “Yankees Win.”"
+tags: austin bernie-williams birmingham devils-and-dust-tour england glory-days hall-and-oates houston independence-day joe-torre land-of-hope-and-dreams light-of-day long-tall-sally maxs-kansas-city milwaukee new-york-city nils-lofgren open-all-night pay-me-my-money-down philadelphia reunion-tour river-tour santa-ana seeger-sessions-tour spirit-in-the-night springsteen-on-broadway stand-up-for-heroes steve-van-zandt thundercrack uk uniondale used-cars waltz-across-texas world-tour-1992 yankees-win
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/bs241109_01.jpg
+post_id: 61317
+---
 ***New for 2025:** New entry for 1977 and 2024; audio for 2006*<br>
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the fourth of a five-night/ten-show stand.<br>

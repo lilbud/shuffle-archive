@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Code of Silence"
+author: "Ken"
+excerpt: "“Code of Silence” is Bruce’s only live recording to win a Grammy, but his studio version with Joe Grushecky is pretty great, too."
+tags: a-good-life code-of-silence joe-grushecky the-essential-bruce-springsteen
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/shh.jpg
+post_id: 3985
+---
 Quick, name the only live Springsteen performance to win a Grammy.
 
 Okay, that would probably be harder if you hadn't already read the title of this post. But yeah, it's not "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" or "[War](../2019-05-27_cover-me-war/post.md)" or "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" or "American Skin (41 Shots)" or any of the other live recordings you'll hear on the radio (other then E Street Radio, that is).

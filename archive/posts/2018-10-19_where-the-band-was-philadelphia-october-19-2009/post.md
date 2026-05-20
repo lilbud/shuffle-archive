@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Where the Band Was: Philadelphia, October 19, 2009"
+author: "Ken"
+excerpt: "Bookended by a wild card opener and closer, punctuated by a full Born to Run album performance and the debut of Philly Elvis, my last show at the Spectrum was a memorable one."
+tags: all-shook-up backstreets hungry-heart i-wanna-marry-you its-hard-to-be-a-saint-in-the-city land-of-hope-and-dreams philadelphia philly-elvis spectrum when-you-walked-in-the-room working-on-a-dream-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/20091019_2_front.jpg
+post_id: 5135
+---
 Of all the Philadelphia shows I've seen, this was the Philly-est of all.
 
 From the "Holy moley" flashback opener "[When You Walked in the Room](https://estreetshuffle.com/?p=21789)" to the Philly special "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)" closer, this was the last concert I saw at the Spectrum before its destruction, and boy was it was a memorable one.
 
-I'd flown in for the show with a friend of mine and met another local friend there, and we passed a gorgeous October day in line waiting for the pit lottery. While I was long-since accustomed to meeting and making new friends in line before a show, I have to admit being surprised by the gentleman in full Elvis regalia standing not far to my left that afternoon. My first thought was, "He can't possibly wear that during the show... he'll be a human ball of sweat." But pretty soon, my attention returned to my friends, and I forgot about Elvis.
+I'd flown in for the show with a friend of mine and met another local friend there, and we passed a gorgeous October day in line waiting for the pit lottery. While I was long-since accustomed to meeting and making new friends in line before a show, I have to admit being surprised by the gentleman in full Elvis regalia standing not far to my left that afternoon. My first thought was, "He can't possibly wear that during the show… he'll be a human ball of sweat." But pretty soon, my attention returned to my friends, and I forgot about Elvis.
 
 We scored the pit at lottery time and staked out our position toward the back of it. By this point in the tour, no one really new what to expect at showtime. Content-wise, the tour had long since ceased being the Working on a Dream Tour;[the title track](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md) was the only holdover in the setlist. If anything, it had become the full-album tour, as Bruce had almost as an afterthought decided that he would feature a full album at each of the last shows of the tour. Tonight–the third of a four-night stand in Philly–we'd hear the full album of *Born to Run*, exciting to me only because it meant my first chance to hear "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" live and extend my streak of always getting at least one song I hadn't heard Bruce sing before.
 
@@ -14,7 +24,7 @@ So I wasn't just shocked when Bruce opened with it in Philly–I was downright t
 
 [Watch on Youtube: Springsteen - When You Walk in the Room - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=9d-rXvjew9U)
 
-"[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" followed, and then "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," and that's a pretty amazing opening three-pack. "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" was next, and Bruce came right back to where we were standing... and then crowd-surfed right over us! It's been pretty common-place since, but at the time this was my first "hands-on" experience with Bruce.
+"[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" followed, and then "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," and that's a pretty amazing opening three-pack. "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" was next, and Bruce came right back to where we were standing… and then crowd-surfed right over us! It's been pretty common-place since, but at the time this was my first "hands-on" experience with Bruce.
 
 [Watch on Youtube: Springsteen - Hungry Heart - The Spectrum October 19, 2009 - crowd surf over me](https://www.youtube.com/watch?v=T5UIoNC0zRg)
 
@@ -22,11 +32,11 @@ Then we settled in for the album performance–and surprisingly, even though I'd
 
 [Watch on Youtube: Springsteen - Backstreets - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=uz6KL6XNI94)
 
-But first it was wild card time–otherwise known as the "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)" sign collection. The first request Bruce honored was from the wayback machine–"[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)"–but it was the next two that were special... and the first one was by accident!
+But first it was wild card time–otherwise known as the "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)" sign collection. The first request Bruce honored was from the wayback machine–"[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)"–but it was the next two that were special… and the first one was by accident!
 
 [Watch on Youtube: Springsteen - Saint in the City - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=vKddm_oELhU)
 
-A gentleman in the pit brought a "Two Hearts" request sign, with a marriage proposal on the other side. Sounds like he had a great plan, except for the fact that Bruce had already played "Two Hearts" as the second song of the show. So when Bruce pulled the sign, that was kind of an awkward moment, until Bruce rescued it by conferring with the band and playing instead... "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)." That lost River classic hadn't been played (by the band, at least) in 28 years, and it was our second jaw-dropping moment of the night.
+A gentleman in the pit brought a "Two Hearts" request sign, with a marriage proposal on the other side. Sounds like he had a great plan, except for the fact that Bruce had already played "Two Hearts" as the second song of the show. So when Bruce pulled the sign, that was kind of an awkward moment, until Bruce rescued it by conferring with the band and playing instead… "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)." That lost River classic hadn't been played (by the band, at least) in 28 years, and it was our second jaw-dropping moment of the night.
 
 [Watch on Youtube: Springsteen - I Wanna Marry You - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=C1-8Svei9GM)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Melissa Etheridge: Thunder Road"
+author: "Ken"
+excerpt: "Straight from her daily stay-at-home Facebook Live concerts, here’s Melissa Etheridge’s gorgeous rendition of “Thunder Road.”"
+tags: melissa-etheridge thunder-road
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/melissa.jpg
+post_id: 17935
+---
 I've got a triple treat for you today, dear readers: a gorgeous cover, one of Bruce's best-ever duets, and a news alert for a very special event coming this week.
 
 Every single day for the past month, Melissa Etheridge has been gifting us with mini-concerts on Facebook Live. Last week, on Day 28, her set included a gorgeous, heartfelt solo piano cover of "Thunder Road" that should be required viewing for any Springsteen fan.

@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Endless Night"
+author: "Ken"
+excerpt: "Bruce took a break during the River sessions to lend his backing vocals to the artist he reportedly once called the only singer he’d pay money to see. Take a listen."
+tags: endless-night graham-parker
+categories: meeting-across-the-river
+post_id: 11229
+---
 At the tail end of 1979, while Bruce was recording *The River*, Graham Parker and The Rumour were recording their next album as well. Danny Federici was doing double duty at the time, recording with both the E Street Band and with The Rumor–he appears all over the album. Parker's album had another E Street connection as well: *Darkness on the Edge of Town* engineer Jimmy Iovine was in the producer's chair for Parker's 1980 release.
 
 One evening, Bruce dropped by Graham's studio, and the subsequent jam session led to a Springsteen guest appearance that's more than a cameo but not quite a duet.

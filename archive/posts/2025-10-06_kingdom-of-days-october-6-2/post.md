@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 6"
+author: "Ken"
+excerpt: "On this date: Bruce plays “Two Hearts” for the first time, and the E Street Band tackles “Kitty’s Back” for the first time in 24 years. Plus: Bruce plays an Obama campaign rally and more."
+tags: barack-obama devils-and-dust devils-and-dust-tour ellen-shipley incident-on-57th-street jackson-browne kittys-back magic-tour philadelphia richfield rising-tour river-tour rochester sacramento springsteen-on-broadway streets-of-philadelphia the-rising thunder-road town-called-heartbreak worcester world-tour-1992 ypsilanti
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/20021006_8_front.jpg
+post_id: 61049
+---
 ***New for 2025:** Review for 1980*<br>
 
 **1973:** Bruce opens for Jackson Browne at Villanova University. Before the show, the two future rock legends play a cover of The Eagles' "Peaceful Easy Feeling" in a pre-show jam.<br>

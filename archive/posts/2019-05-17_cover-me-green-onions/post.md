@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Green Onions"
+author: "Ken"
+excerpt: "Listen to the E Street Band cover the Stax classic “Green Onions” in a rare instrumental performance."
+tags: booker-t-and-the-mgs green-onions
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/green-onions.jpg
+post_id: 9990
+---
 Given Bruce's love for everything Stax, "Green Onions" was bound to make an appearance on the E Street Stage sooner or later. Even if you don't know it by name, you know it by sound–Booker T.'s instrumental B-side to "Behave Yourself" quickly overshadowed its A-side and hit the Billboard Hot 100 during the summer of 1962. Stax rushed an A-side re-release to market in September, barely hitting the shelves before "Green Onions" peaked at #3 the last week of the month.
 
 [Watch on Youtube: Booker T. & The MG's - Green Onions (Official Audio)](https://www.youtube.com/watch?v=0oox9bJaGJ8)

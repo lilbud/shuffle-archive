@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: You Never Can Tell"
+author: "Ken"
+excerpt: "The E Street Band goes viral when they nail a song they’d never attempted before… or had they?"
+tags: chuck-berry you-never-can-tell
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/younever.jpg
+post_id: 16169
+---
 On July 7, 2013 in Leipzig, Germany, Bruce took a sign request early in the show for "You Never Can Tell," Chuck Berry's final Top 40 hit of the 1960s.
 
 [Watch on Youtube: Chuck Berry - You Never Can Tell (Lyrics)](https://www.youtube.com/watch?v=KeKPkGflDB4)

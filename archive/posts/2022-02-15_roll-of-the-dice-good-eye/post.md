@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Good Eye"
+author: "Ken"
+excerpt: "It took more than a quarter-century for Bruce to commit a blues song to disc, but when he did it was a barnstormer."
+tags: good-eye working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/goodeye.jpg
+post_id: 32610
+---
 Bruce Springsteen was singing the blues long before he signed his first record deal, but it took him more than a quarter-century to commit a true blues song to vinyl.
 
 "Good Eye" is as bluesy as rock and roll gets.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Divine Fits: Hungry Heart"
+author: "Ken"
+excerpt: "When Britt Daniel of Spoon and Dan Boeckner of Wolf Parade formed Divine Fits, one of the covers they performed together was Bruce Springsteen’s “Hungry Heart.” Check it out inside."
+tags: divine-fits hungry-heart
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/divine.jpg
+post_id: 22117
+---
 
 It was fun while it lasted.
 

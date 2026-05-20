@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Letter"
+author: "Ken"
+excerpt: "Mere weeks after the original’s release, The Castiles cover “The Letter” by the Box Tops."
+tags: the-box-tops the-castiles the-letter
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/letter.jpg
+post_id: 2974
+---
 From way back in the age of The Castiles, here's Bruce's only ever performance* of "The Letter," originally made famous by The Box Tops and one of Rolling Stones' 500 Greatest Songs of All Time.
 
 This performance is from The Castiles' gig on September 30, 1967 at The Left Foot in Bruce's home town of Freehold, NJ. And yes, that means this performance was only mere weeks after the song was originally released in August 1967, which is probably why the arrangement is so close to the original.

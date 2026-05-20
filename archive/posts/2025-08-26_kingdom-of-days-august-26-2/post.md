@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 26"
+author: "Ken"
+excerpt: "On this date: the live debut of “Be True,” Bruce’s first show in New Brunswick (the province, not the town), and more."
+tags: atlantic-city be-true book-of-dreams born-in-the-usa-tour boston canada dancing-in-the-dark darkness-tour downbound-train glory-days jah-love largo max-weinberg moncton providence reunion-tour stand-and-deliver toronto washington-dc world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/20230826-foxborough-ma-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 59422
+---
 ***New for 2025:** New entry for 1977 and 1979*<br>
 
 **1970:** Steel Mill rehearses in Wanamassa, New Jersey for their upcoming appearance at the Nashville Music Festival.<br>

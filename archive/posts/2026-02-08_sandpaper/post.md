@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Sandpaper"
+author: "Ken"
+excerpt: "On March 27, 2024, Bruce Springsteen made a surprise appearance at Zach Bryan’s show at Brooklyn’s Barclays Center. Few recognized the song they sang, because…"
+post_id: 66316
+---
 On March 27, 2024, Bruce Springsteen made a surprise appearance at Zach Bryan’s show at Brooklyn’s Barclays Center.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=07MFGBvHiEk)

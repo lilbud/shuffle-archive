@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 27"
+author: "Ken"
+excerpt: "On this date: Bruce films the video for “Glory Days,” makes a guest appearance with Robert Gordon, plays the last “The Price You Pay” for almost 30 years, and more."
+tags: belgium boston brighton cautious-man chicken-scratch-tour cologne darkness-tour devils-and-dust-tour dublin elliott-murphy germany ghent glory-days heartbreak-hotel hungry-heart ireland ive-been-working-too-hard john-sayles las-vegas london no-surrender peter-wolf philadelphia reunion-tour rising-tour river-tour river-tour-2016 robert-gordon seeger-sessions-tour seven-nights-to-rock southside-johnny stone-pony the-price-you-pay uk viva-las-vegas were-having-a-party wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/live-downloads-review-may-27th-2023-amsterdam-ne-johan-v0-WrzoEH3wyA2XWBppPwTo0poKC3V6nGzXBWJJhg9DoxE.webp
+post_id: 56856
+---
 ***New for 2025:** New entry for 1983 and 2017*<br>
 
 **1976:** Bruce and the E Street Band play for the U.S. Military Academy at West Point.<br>

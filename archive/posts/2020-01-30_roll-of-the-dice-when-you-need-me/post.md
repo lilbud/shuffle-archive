@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Roll of the Dice: When You Need Me"
+author: "Ken"
+excerpt: "“When You Need Me” was one of the first songs Bruce recorded for Tunnel of Love, but given the direction of the final album, this pop trifle never stood a chance."
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/needme.jpg
+post_id: 15843
+---
 Ask a fan or a critic about Bruce Springsteen's [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) album, and odds are pretty good you'll hear the term "divorce album."
 
 At the very least, we tend to characterize the album as an anthology of love gone wrong, infected by doubt, insecurity, shame, and secrets.
@@ -18,31 +27,31 @@ There's not much to write home about in "When You Need Me." I'm probably going t
 
 Lyrically, there's not a lot of artistry on display–no symbolism or layered meaning–just a straightforward profession of love and fidelity.
 
-> *When you need me call my name*
-> *‘Cause without you my life just wouldn't be the same*
-> *If you want me come sunny skies or rain*
-> *When you need me just call my name*
+> *When you need me call my name*<br>
+> *‘Cause without you my life just wouldn't be the same*<br>
+> *If you want me come sunny skies or rain*<br>
+> *When you need me just call my name*<br>
 
-> *If you miss me, I'll be there*
-> *To brush the sunlight from your hair*
+> *If you miss me, I'll be there*<br>
+> *To brush the sunlight from your hair*<br>
 
 Okay, let's pause for a second: why in the world would Bruce promised to brush the *sunlight* from his love's hair? That makes no sense taken either literally or metaphorically, and it's always bugged me about this song.
 
 Sorry. Let's continue.
 
-> *I'll be there to guide you when trouble walks beside you*
-> *If you need me I'll be there*
-> *And when this dirty world has been cold to you*
-> *I got two strong arms waitin' to hold you*
-> *And when those mean days come along*
-> *We'll stand together and we'll take 'em on*
-> *So if you need me just call my name*
+> *I'll be there to guide you when trouble walks beside you*<br>
+> *If you need me I'll be there*<br>
+> *And when this dirty world has been cold to you*<br>
+> *I got two strong arms waitin' to hold you*<br>
+> *And when those mean days come along*<br>
+> *We'll stand together and we'll take 'em on*<br>
+> *So if you need me just call my name*<br>
 
-> *When you need me call my name*
-> *‘Cause without you my life just isn't the same*
-> *‘Cause when this world kicked me around*
-> *Baby you picked me up off the ground*
-> *So if you need me I'll be there*
+> *When you need me call my name*<br>
+> *‘Cause without you my life just isn't the same*<br>
+> *‘Cause when this world kicked me around*<br>
+> *Baby you picked me up off the ground*<br>
+> *So if you need me I'll be there*<br>
 
 I really want to find some substance to break down and analyze (I don't feel like I'm doing my job otherwise), but what we hear is pretty much all we get.
 

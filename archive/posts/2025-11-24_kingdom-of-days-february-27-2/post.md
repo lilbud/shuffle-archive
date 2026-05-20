@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 27"
+author: "Ken"
+excerpt: "Happy birthday, Jake Clemons! A 20/20 segment from 1986 and a Late Night with Jimmy Fallon performance from 2012 lead the other highlights from this date in Springsteen history."
+tags: 20-20 bruce-springsteen-band cincinnati curt-ramm freehold i-wanna-be-with-you im-goin-down jake-clemons jimmy-fallon lawsuit-tour one-step-up richmond river-tour-2016 rochester steel-mill tenth-avenue-freeze-out this-land-is-your-land we-take-care-of-our-own wrecking-ball
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/jakeclemons2.jpg
+post_id: 56014
+---
 **1970:** Steel Mill barely makes it across the country from California to Virginia for their gig at Richmond’s Free University.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1970-0227.jpg.webp)

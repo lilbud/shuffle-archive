@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: (I Heard That) Lonesome Whistle"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the E Street Band cover Hank Williams’ 1951 classic, “(I Heard That) Lonesome Whistle.”"
+tags: hank-williams i-heard-that-lonesome-whistle
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/hank-williams.jpg
+post_id: 14364
+---
 I've featured Bruce's covers of Hank Williams' songs a few times over the past couple of years.
 
 Bruce has long and often discussed his fondness for Williams' music, and he's covered several of his songs. However, those performances tend to be few and far between, often not even during an official show but rather at pre-show soundchecks. (See "[Jambalaya (On the Bayou)](https://estreetshuffle.com/index.php/2019/09/14/cover-me-jambalaya-on-the-bayou/)" and "[I'm So Lonesome I Could Cry](../2018-11-01_cover-me-im-so-lonesome-i-could-cry/post.md)" as examples.)

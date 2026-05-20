@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 21"
+author: "Ken"
+excerpt: "Today’s highlights include a show from the short-lived Sundance Blues Band and Springsteen’s Hall of Fame induction of (and duet with) Roy Orbison."
+tags: 60-minutes american-land bring-em-home buffalo-gals canada eyes-on-the-prize how-can-i-keep-from-singing jacobs-ladder my-fathers-place river-tour rock-and-roll-hall-of-fame roy-orbison seeger-sessions sundance-blues-band toronto
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/The_Toronto_Star_1981_01_23_55.jpg
+post_id: 55627
+---
 **1972:** Upon returning home from his aborted relocation to California, Bruce reunites with his eponymous band (now called The Sundance Blues Band) at The Captain’s Garter in Neptune, New Jersey.<br>
 
 [Watch on Youtube: Sundance Blues Band, "Why's It So Hard" 1972- 01-21](https://www.youtube.com/watch?v=Xa69gujpD7g)

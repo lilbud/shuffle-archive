@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lonely Night in the Park"
+author: "Ken"
+excerpt: "This Born to Run outtake is a mess, an absolute mishmash. But I love it nonetheless."
+tags: lonely-night-in-the-park
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/lonelynight.jpg
+post_id: 2461
+---
 When Sirius first announced its E Street Radio station, fans wondered if it would feature any rare or unheard songs, or if it would stick to released tracks and more mainstream bootleg recordings. We didn't have to wait long to find out: shortly after the station debuted in 2005, this well-documented but never-heard (by me, at least!) song entered the rotation with absolutely no fanfare. To call me surprised is to put it mildly.
 
 I'd long wondered what this song sounded like. I knew it was an outtake from the *Born to Run* sessions, and while there aren't many of them, the few that exist are genuine gems, lush and romantic songs like "[Linda, Let Me Be the One](../2021-03-27_roll-of-the-dice-linda-let-me-be-the-one/post.md)" and ""So Young and in Love." So once I realized what I was listening to and got over my dumbfoundedness, I paid close attention, and…

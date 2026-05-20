@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Steve Earle and Bruce Springsteen, Johnny Come Lately"
+author: "Ken"
+excerpt: "One time only: Bruce joins Steve Earle and the Dukes on “Johnny Come Lately,” Earle’s sibling song to “Born in the U.S.A.”"
+tags: born-in-the-usa johnny-come-lately steve-earle
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/steve-earle-johnny-come-lately-1988-5.jpg
+post_id: 6260
+---
 The first time I heard Steve Earle's "Johnny Come Lately," I thought to myself: this sounds like a companion piece to "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
 
 [Watch on Youtube: Steve Earle - Johnny Come Lately](https://www.youtube.com/watch?v=xVaPwdgezWI)
@@ -6,20 +16,20 @@ Thematically, the two songs are *very* similar: both are told from the point of 
 
 Lyrically, there are are some stark similarities as well–especially Earle's very first lines:
 
-> *I'm an American, boys, and I've come a long way*
-> *Born and bred in the USA*
+> *I'm an American, boys, and I've come a long way*<br>
+> *Born and bred in the USA*<br>
 
 But Earle's song is slyer than Bruce's–most of the song details the heroic exploits and triumphant return of a World War II veteran, but at the very last verse we discover that the narrator has actually just been retelling his grandfather's song in order to contrast it with his own.
 
-> *Now my grandaddy sang this song*
-> *Told me about London when the Blitz was on*
-> *How he married grandma and brought her back home*
-> *A hero throughout his land*
+> *Now my grandaddy sang this song*<br>
+> *Told me about London when the Blitz was on*<br>
+> *How he married grandma and brought her back home*<br>
+> *A hero throughout his land*<br>
 
 *Now I'm standing on a runw*ay in San Diego
-> *A couple Purple Hearts and I move a little slow*
-> *There's nobody here, maybe nobody knows*
-> *About a place called Vietnam*
+> *A couple Purple Hearts and I move a little slow*<br>
+> *There's nobody here, maybe nobody knows*<br>
+> *About a place called Vietnam*<br>
 
 It's a gut punch, and just like with "Born in the U.S.A.," you have to listen carefully to the lyrics to feel it, or else you'll be carried along by the rollicking backing track without realizing what just happened.
 

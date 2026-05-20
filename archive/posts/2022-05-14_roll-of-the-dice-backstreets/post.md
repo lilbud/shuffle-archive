@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Backstreets"
+author: "Ken"
+excerpt: "A forbidden love leads to a bitter betrayal in one of Bruce’s most powerful epics."
+tags: backstreets born-to-run shes-the-one suki-lahav
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/city-street-night-car-cobblestone-urban-525290-wallhere.com_.jpg
+post_id: 32364
+---
 > "Suki left the [E Street Band] around March 1975. She and her husband, Louis, decided to go back to Israel. Louis was our engineer and had done terrific work on the albums, as well as running sound on the live shows. I believe he got crazy because, quite simply, Bruce fell in love with Suki and she with him. She then had to get out to try and save the marriage." — Mike Appel, *Down Thunder Road: The Making of Bruce Springsteen* (1992)
 
 We may never know the true story of the friendship between Bruce Springsteen and Suki Lahav.

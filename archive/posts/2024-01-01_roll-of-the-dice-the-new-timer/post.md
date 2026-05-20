@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The New Timer"
+author: "Ken"
+excerpt: "“The New Timer” is a master class in taut storytelling and a companion piece to “Nebraska.” It deserves more recognition than it receives."
+tags: dale-maharidge journey-to-nowhere the-ghost-of-tom-joad the-new-timer
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/journey.jpg
+post_id: 3124
+---
 "The New Timer" is a sleeper that will keep you up all night, just like its protagonist. Narratively one of the strongest songs on [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md), it often goes overlooked and undiscussed by both fans and artist alike.
 
 That may be in part because of the quiet it requires–"The New Timer" demands one's full attention or none at all. A thematic companion piece to "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)" (much as their respective albums are as well), "The New Timer" is perhaps more story than song. In fact, if you listen closely, you'll notice that most of the couplets only roughly rhyme. It's the narrative that's important here.

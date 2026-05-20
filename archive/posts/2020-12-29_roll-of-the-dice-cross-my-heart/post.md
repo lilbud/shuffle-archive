@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Cross My Heart"
+author: "Ken"
+excerpt: "Beneath its prurient lyrics, there’s surprising substance to Bruce’s nuanced updating of Sonny Boy Williamson’s classic blues song."
+tags: cross-my-heart human-touch
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/crossmyheart-1.jpg
+post_id: 24156
+---
 "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)" is generally considered to be Bruce's first officially released song featuring cunnilingus, but it's actually his second. He slipped "Cross My Heart" past fans with very little notice.
 
 [Watch on Youtube: Bruce Springsteen - Cross My Heart (Audio)](https://www.youtube.com/watch?v=x6dxQpS8_xY)

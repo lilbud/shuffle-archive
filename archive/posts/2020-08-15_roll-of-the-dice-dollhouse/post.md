@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Dollhouse"
+author: "Ken"
+excerpt: "“Dollhouse” features the E Street Band at their new waviest, transforming a River outtake to a piece of power pop perfection."
+tags: dollhouse the-ties-that-bind-album tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/dollhouse.jpg
+post_id: 20374
+---
 I'll admit it: "Dollhouse" is one of my guilty pleasures.
 
 Rarely requested or even (I suspect) remembered, this 1979 outtake from *The River* is power pop perfection–not because of the lyrics (which are perfectly satisfactory), though.

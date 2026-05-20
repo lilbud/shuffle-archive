@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 15"
+author: "Ken"
+excerpt: "Great duets highlight this day in Bruce history: “Thunder Road” with Melissa Etheridge, and “Highway to Hell” and “Darkness on the Edge of Town” with Eddie Vedder."
+tags: australia detroit eddie-vedder ernest-boom-carter germany ghost-of-tom-joad-tour high-hopes-tour highway-to-hell jole-blon lakeland lawsuit-tour melbourne melissa-etheridge munich one-step-up river-tour thunder-road vini-lopez
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/melbourne14.jpg
+post_id: 55947
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-15a.png.webp)
 
 **1974:** After firing drummer Vini Lopez three days earlier, Bruce cancels a show at the University of Toledo so that the band has time to rehearse with new drummer Ernest “Boom” Carter.<br>

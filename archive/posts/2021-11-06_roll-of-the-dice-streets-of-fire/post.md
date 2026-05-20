@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Streets of Fire"
+author: "Ken"
+excerpt: "If you’re paying attention to the words, you’re doing it wrong. This is song you feel, not hear."
+tags: darkness-on-the-edge-of-town streets-of-fire
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/streetsoffire.jpg
+post_id: 30554
+---
 > *Pouring outside. Windy. Windows open. Turn the lights out and perfect setting for "Streets of Fire."* — Anonymous Springsteen Fan
 
 She gets it, that anonymous fan. The rest of this essay is just going to use a lot more words to say the same thing.
@@ -56,7 +66,7 @@ Or better yet: when the storm is inside.
 
 I wasn't kidding earlier about the third verse missing half its lyrics. Bruce gets about halfway through and then gives up and just bluffs the rest.
 
-If you check out his official web site, or his *Songs* book, or the liner notes to *Darkness on the Edge of Town*, Bruce doesn't even pretend that there's a second half to the verse. We hear nonsense phrases, something like, "...and don't look at my face, mumble mumble mumble, 'cause I'm stranded on the wire," but none of it appears in the official copyrighted lyrics. (And this is why you really don't want me analyzing the lyrics.)
+If you check out his official web site, or his *Songs* book, or the liner notes to *Darkness on the Edge of Town*, Bruce doesn't even pretend that there's a second half to the verse. We hear nonsense phrases, something like, "…and don't look at my face, mumble mumble mumble, 'cause I'm stranded on the wire," but none of it appears in the official copyrighted lyrics. (And this is why you really don't want me analyzing the lyrics.)
 
 So I'm always entertained when he plays it in concert (on bootleg mostly–I've been lucky enough to catch it live twice), because I know he's going to have to figure out what to say when he gets to that part, and he usually fakes it or repeats different lines from earlier in the song.
 
@@ -75,7 +85,7 @@ But one would be forgetting: when it comes to "Streets of Fire," the words don't
 Don't listen. Just feel.
 
 **Streets of Fire**<br>
-**Recorded:** June 24 – December 29, 1977<br>
+**Recorded** June 24 – December 29, 1977<br>
 **Released:** *Darkness on the Edge of Town* (1978)<br>
 **First performed:** May 23, 1978 (Buffalo, NY)<br>
 **Last performed:** September 11, 2016 (Pittsburgh, PA)<br>

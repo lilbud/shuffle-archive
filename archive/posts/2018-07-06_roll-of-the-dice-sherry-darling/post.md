@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sherry Darling"
+author: "Ken"
+excerpt: "“Sherry Darling” is synonymous with summer–one of Bruce’s loosest, most carefree (and believe it or not, romantic) songs, yet it dates back to the serious Darkness sessions."
+tags: darkness-on-the-edge-of-town darkness-tour sherry-darling the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/sherry.jpg
+post_id: 2966
+---
 Ninety-nine percent of the time, Bruce picks the right take of a song to officially release. With "Sherry Darling," however, I humbly submit he got it wrong.
 
 Listen to this outtake from the [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)sessions, recorded more than three years before the release of *The River*, and tell me that it's not superior to the final release:
@@ -28,41 +38,41 @@ In early performance, Bruce called for the audience to create lots of "party noi
 
 "Sherry Darling" is raucous by design–we have too much fun to take issue with the callousness and short fuse of the protagonist, who is nearing his limit of what he'll put up with for his girl:
 
-> *Your Mamma's yapping in the back seat*
-> *Tell her to push over and move them big feet*
-> *Every Monday morning I gotta drive her down to the unemployment agency*
-> *Well this morning I ain't fighting, tell her I give up*
-> *Tell her she wins if she'll just shut up*
-> *But it's the last time that she's gonna be riding with me*
+> *Your Mamma's yapping in the back seat*<br>
+> *Tell her to push over and move them big feet*<br>
+> *Every Monday morning I gotta drive her down to the unemployment agency*<br>
+> *Well this morning I ain't fighting, tell her I give up*<br>
+> *Tell her she wins if she'll just shut up*<br>
+> *But it's the last time that she's gonna be riding with me*<br>
 
 He talks a good game, doesn't he? But listen to his tone soften toward the end of the chorus, and you can't help but suspect he's perhaps bluffing a bit:
 
-> *And you can tell her there's a hot sun beating on the black top*
-> *She keeps talking she'll be walking that last block*
-> *And she can take a subway back to the ghetto tonight*
-> *Well I got some beer and the highway's free*
-> *And I got you and baby you've got me*
-> *Hey, hey, hey, what you say, Sherry Darling*
+> *And you can tell her there's a hot sun beating on the black top*<br>
+> *She keeps talking she'll be walking that last block*<br>
+> *And she can take a subway back to the ghetto tonight*<br>
+> *Well I got some beer and the highway's free*<br>
+> *And I got you and baby you've got me*<br>
+> *Hey, hey, hey, what you say, Sherry Darling*<br>
 
 When you're young, and you have nothing but time, a car, a girl, and some beer… it's pretty clear that our hero's frustration is less about his girl's mom, and more about the fleetingness of summer:
 
-> *Now there's girls melting on the beach*
-> *And they're so fine but so out of reach*
-> *‘Cause I'm stuck in traffic down here on 53rd Street*
-> *Now Sherry my love for you is real*
-> *But I didn't count on this package deal*
-> *And baby this car just ain't big enough for her and me*
+> *Now there's girls melting on the beach*<br>
+> *And they're so fine but so out of reach*<br>
+> *‘Cause I'm stuck in traffic down here on 53rd Street*<br>
+> *Now Sherry my love for you is real*<br>
+> *But I didn't count on this package deal*<br>
+> *And baby this car just ain't big enough for her and me*<br>
 
 There's just a *bit* of doubt here: so many girls, so little summertime! Is Sherry really worth the aggravation?
 
 Bruce answers that in the last chorus, where the protagonist suddenly lapses into romantic rhapsody:
 
-> *Well let there be sunlight, let there be rain*
-> *Let the brokenhearted love again*
-> *Sherry, we can run with our arms open wide before the tide*
-> *To all the girls down at Sacred Heart*
-> *And all you operators back in the park*
-> *Say hey, hey, hey, what you say, Sherry Darling*
+> *Well let there be sunlight, let there be rain*<br>
+> *Let the brokenhearted love again*<br>
+> *Sherry, we can run with our arms open wide before the tide*<br>
+> *To all the girls down at Sacred Heart*<br>
+> *And all you operators back in the park*<br>
+> *Say hey, hey, hey, what you say, Sherry Darling*<br>
 
 Sorry, girls–and enjoy your conquests, you operators–our guy has Sherry, and that's all he needs and wants.
 

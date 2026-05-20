@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Swallowed Up (In the Belly of the Whale)"
+author: "Ken"
+excerpt: "A bonus track that could have been a title track, “Swallowed Up” is the thematic centerpiece of one of Bruce’s strongest albums."
+tags: swallowed-up-in-the-belly-of-the-whale wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/Jonah-2.jpg
+post_id: 17933
+---
 When is a bonus track not a bonus track?
 
 When it's the album's summational track.

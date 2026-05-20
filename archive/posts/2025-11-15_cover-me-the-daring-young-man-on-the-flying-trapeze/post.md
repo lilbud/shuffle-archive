@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Daring Young Man on the Flying Trapeze"
+author: "Ken"
+excerpt: "One of the rarest gems from the Seeger Sessions Tour: a traditional yet wry arrangement of an American classic."
+tags: the-daring-young-man-on-the-flying-trapeze
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/02/Gemini_Generated_Image_fkmxabfkmxabfkmx.png
+post_id: 19926
+---
 Add this one near the top of “Songs Least Likely to Be Covered by Bruce Springsteen.”
 
 First published in 1867, “The Daring Young Man on the Flying Trapeze” was written by George Leybourne and Gaston Lyle based on the exploits of trapeze artist Jules Leotard.

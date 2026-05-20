@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 7"
+author: "Ken"
+excerpt: "On this date in Springsteen history: Not one, not two, but *three* Australian shows, the “Lawsuit Tour” opener, and no respect in Atlanta for “Bruce Silversteen.”"
+tags: albany american-skin-41-shots atlanta australia australian-urban-orchestra champaign ghost-of-tom-joad-tour girls-in-their-summer-clothes high-hopes-tour lawsuit-tour light-of-day long-tall-sally my-love-will-not-let-you-down new-york-city-serenade perth red-bank river-tour sydney thunder-road we-wear-the-mask widener-college youngstown
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/2023-02-07-hollywood-fl-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 55882
+---
 **1974:** Bruce and the band open for NRBQ at Richards in Atlanta. The club accidentally promotes him as “Bruce Silversteen.”<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/02/1997-02-07-resize.jpg.webp)

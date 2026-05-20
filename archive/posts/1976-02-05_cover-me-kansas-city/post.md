@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kansas City"
+author: "Ken"
+excerpt: "One of rock’s most covered songs produced some memorable Springsteen on-stage performances."
+tags: cats-on-a-smooth-surface james-brown john-bon-jovi k-c-loving kasnsas-city little-willie-littlefield max-weinberg-7 the-beatles wilbert-harrison
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/02/little-willie-littlefield-k-c-loving-uk-vinyl-lp-album-record-k-c-101-498224_1000x994.webp
+post_id: 24352
+---
 Even among frequently-covered songs, "Kansas City" stands out. Not only has pretty much everybody performed it on stage at one point or another, but there are more than three hundred *recorded* versions as well.
 
 "Kansas City" was only the second hit song from famed songwriters Jerry Leiber and Mike Stoller, although it took a couple of tries to catch fire. When first recorded and released by Little Willie Littlefield in 1952 under the name "K.C. Loving" it attracted little notice.
@@ -18,13 +28,13 @@ Today, "Kansas City" is firmly enshrined in the Grammy Hall of Fame, and *Rollin
 
 Bruce's first known performance of "Kansas City" came surprisingly far into his career, at a private birthday party for Clarence Clemons in 1979 for which no audio circulates.
 
-Two years later, however, Bruce broke out Leiber and Stoller's oft-covered hit on the River Tour in... well, where else but Kansas City?
+Two years later, however, Bruce broke out Leiber and Stoller's oft-covered hit on the River Tour in… well, where else but Kansas City?
 
 [Watch Video Highlight](https://videopress.com/embed/AAvL4f8E)
 
 Bruce's first public performance of "Kansas City" featured the mash-up with Little Richard's "Hey Hey Hey Hey" from The Beatles' arrangement, as would most of his subsequent performances over the years. Most of those performances would be at club appearances, however, rather than "proper" tour concerts.
 
-Surprisingly, Bruce and the E Street Band only performed "Kansas City" twice more after that 1981 premiere, and the first one was more than two decades later on the Rising Tour in... yeah, you guessed it. More than twice the length of their earlier performance and far more assured, this is the E Street Band's definitive performance of "Kansas City."
+Surprisingly, Bruce and the E Street Band only performed "Kansas City" twice more after that 1981 premiere, and the first one was more than two decades later on the Rising Tour in… yeah, you guessed it. More than twice the length of their earlier performance and far more assured, this is the E Street Band's definitive performance of "Kansas City."
 
 [Watch on Youtube: Kansas City 9-24-02](https://www.youtube.com/watch?v=Ua-rVI2bCNQ)
 
@@ -40,7 +50,7 @@ If you're a fan of that brassy arrangement, check out Bruce's performance with T
 
 It's took more than a decade for Bruce to play "Kansas City" again, but it was worth the wait. During his first-ever concert in Liverpool, Bruce welcomed a local boy to the stage for an electrifying couple of songs.
 
-[Watch on Youtube: Bruce Springsteen brings out Paul McCartney in Liverpool - 07/06/2025](https://www.youtube.com/watch?v=X0o4MT_Lwxo?start=211)
+[Watch on Youtube: Bruce Springsteen brings out Paul McCartney in Liverpool - 07/06/2025](https://www.youtube.com/watch?v=X0o4MT_Lwxo)
 
 "Kansas City" is one of those songs that's too perennially popular to disappear for good. Whether at a surprise club appearance or a stadium concert, we're almost certain to hear Bruce play it again.
 

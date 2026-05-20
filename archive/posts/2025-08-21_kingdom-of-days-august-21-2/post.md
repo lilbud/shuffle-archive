@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 21"
+author: "Ken"
+excerpt: "Guest appearances galore on this date in history: Flo and Eddie, Little Steven and the Disciples of Soul, Marah’s Dave Bielanko, and more. Plus: the premiere of the modern arrangement of “Dancing in the Dark” and more."
+tags: atlanta bobby-jean born-in-the-usa-tour born-to-run-tour boston castiles cats-on-a-smooth-surface dancing-in-the-dark darkness-tour east-rutherford flo-and-eddie giants-stadium hungry-heart i-fought-the-law jessica-springsteen lawsuit-tour little-steven live-1975-85 los-angeles madison-square-garden magic-tour miami-horns nashville native-american new-york-city reunion-tour richfield rising-tour stone-pony sun-city tacoma waterbury world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/BRUCE_NASHVILLE_08.21.08-1160x1160-1.jpg
+post_id: 59399
+---
 ***New for 2025:** New entry for 1979 and 2024*<br>
 
 **1966:** The Castiles co-headline with The Rogues at the Surf 'n' See Club in Sea Bright, New Jersey.<br>

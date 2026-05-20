@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Little Girl (Like You)"
+author: "Ken"
+excerpt: "In which Bruce wisely avoids tossing a lighted match into a powder keg by discarding this destined-for-controversy outtake."
+tags: born-in-the-usa little-girl-like-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/now.jpg
+post_id: 2613
+---
 For every great song Bruce has released over the years, there's at least one great outtake that never saw the light of day.
 
 "Little Girl Like You" isn't one of them.

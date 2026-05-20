@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Blogger's Note: The New Normal"
+author: "Ken"
+excerpt: "A little note to explain the new posting schedule."
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/everyotherday.png
+post_id: 34500
+---
 Hi!
 
 I try not to clutter up your inbox with my miscellaneous notes (my last one was ten months ago), but I felt like it was time to acknowledge what's probably obvious by now if you've been stopping by for more than the last month or two.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 28"
+author: "Ken"
+excerpt: "On this date: Bruce drafts Mumford & Sons at Pinkpop, films a pro-shot show in Stockholm, plays a new song for John Fogerty’s birthday, and gets the green light to start recording again when he settles his legal dispute with Mike Appel."
+tags: child devils-and-dust-tour garland-jeffreys germany glory-days hanover hungry-heart john-sayles london magic-tour main-point manchester mike-appel mumford-and-sons my-generation pete-townshend pinkpop roll-of-the-dice roy-bittan sea-cruise seeger-sessions-tour stockholm student-prince sundance-blues-band sweden the-netherlands the-rising uk world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/Bruce-Springsteen-2012.05.28-Pinkpop-Festival-Cover-Fold.jpg
+post_id: 56857
+---
 ***New for 2025:** New entry for 1975 and 2024; audio for 2005*<br>
 
 **1969:** Child opens for the James Cotton Band for three shows in one day at the Pandemonium in Wanamassa, New Jersey.<br>

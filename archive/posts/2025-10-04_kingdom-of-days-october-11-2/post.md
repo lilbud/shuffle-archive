@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 11"
+author: "Ken"
+excerpt: "On this date: Steel Mill opens for Ike and Tina Turner, Suki Lahav joins the E Street Band, and the Vote for Change Tour wraps up with a star-studded broadcast. These and more highlights inside."
+tags: born-to-run-tour chicago david-sancious gaithersburg gotham-playboys rem richmond river-tour springsteen-on-broadway steel-mill suki-lahav tina-turner vote-for-change-tour washington-dc wild-innocent-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/PearlJam_2004-10-11_Washington_cover_1288381759.jpg
+post_id: 61099
+---
 ***New for 2025:** Review for 1970; new entry for 1979; video for 2004*<br>
 
 **1970:** Steel Mill opens for The Ike and Tina Turner Revue at a shockingly (at least in retrospect) underattended show at The Mosque in Richmond.<br>
@@ -16,23 +26,23 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1974-1011.jpg.webp)
 
-**1975:** Bruce makes his first appearance on *American Top 40* with his charting single, “Born to Run.”<br>
+**1975:** Bruce makes his first appearance on *American Top 40* with his charting single, "Born to Run."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3)
 
-That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Center in Red Bank. David Sancious makes a guest appearance during the late show on “[Carol](../2022-02-17_cover-me-carol/post.md),” and the entire late show can be heard below. Both shows are filmed by Barry Rebo, and snippets will surface years later in official documentaries for *Born to Run* and *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*.
+That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Center in Red Bank. David Sancious makes a guest appearance during the late show on "[Carol](../2022-02-17_cover-me-carol/post.md)," and the entire late show can be heard below. Both shows are filmed by Barry Rebo, and snippets will surface years later in official documentaries for *Born to Run* and *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*.
 
 [Watch on Youtube: Red Bank (10/11/1975)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1DL5_iSUDHpUkeqMP84tuCF)
 
-[Watch on Youtube: Bruce Springsteen "Wings For Wheels" documentary - the "vault" edit](https://www.youtube.com/watch?v=7UbGdcMX00I)
+[Watch on Youtube: Bruce Springsteen "Wings For Wheels" documentary - the "vault" edit](https://www.youtube.com/watch?v=7UbGdcMX00I?start=137)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1975-10-11.jpg.webp)
 
-**1979:** Bruce records “[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)” with the E Street Band at The Power Station in New York City.<br>
+**1979:** Bruce records "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" with the E Street Band at The Power Station in New York City.<br>
 
 [Watch on Youtube: Crush on You](https://www.youtube.com/watch?v=zDN8pvyKYkU)
 
-**1980:** At Night Two at Chicago’s Uptown Theater on the River Tour, Bruce tour premieres “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)” and “[Good Rockin’ Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md),” and “[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)” features a new introduction (actually an older unreleased song) called “[Here She Comes Walkin’](../2020-09-24_roll-of-the-dice-here-she-comes-walkin/post.md).” Bruce will resurrect this introduction more than 35 years later on the River Tour’s sequel.<br>
+**1980:** At Night Two at Chicago's Uptown Theater on the River Tour, Bruce tour premieres "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" and "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)," and "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" features a new introduction (actually an older unreleased song) called "[Here She Comes Walkin'](../2020-09-24_roll-of-the-dice-here-she-comes-walkin/post.md)." Bruce will resurrect this introduction more than 35 years later on the River Tour's sequel.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rrBFWpm2)
 
@@ -48,7 +58,7 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2004-10-11.jpg.webp)
 
-**2017:** One final tweak during the last preview performance of *Springsteen on Broadway:* “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” and “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)” return to their original sequence.<br>
+**2017:** One final tweak during the last preview performance of *Springsteen on Broadway:* "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" return to their original sequence.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8HmDEFpr)
 

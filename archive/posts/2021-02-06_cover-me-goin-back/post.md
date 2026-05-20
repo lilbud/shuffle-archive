@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Goin' Back"
+author: "Ken"
+excerpt: "When Carole King attended Bruce’s show at The Roxy in 1975, Bruce paid tribute by covering her wistful classic, “Goin’ Back.”"
+tags: carole-king dusty-springfield goin-back nils-lofgren the-byrds
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/goin-back.jpg
+post_id: 24472
+---
 There's something about Carole King's nostalgic "Goin' Back" that grabs hold of the hearts of musicians in their mid-twenties.
 
 [Watch on Youtube: Goin' Back - Carole King](https://www.youtube.com/watch?v=AWzgbleoZYE)

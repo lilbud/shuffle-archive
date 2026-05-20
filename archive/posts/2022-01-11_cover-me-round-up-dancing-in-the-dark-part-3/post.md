@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me Round-Up: Dancing in the Dark (Part 3)"
+author: "Ken"
+excerpt: "Six new takes on Bruce’s most popular song–each with its own unique spin."
+tags: benny-sings dancing-in-the-dark downtown-boys half-measure onevoice sad-little-attic-boy the-ruth-moody-band
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/ruthmoody.jpg
+post_id: 31272
+---
 Welcome to a new installment of *Cover Me Round-Up!*
 
 Today's curated collection is my favorite one to date. When it comes to "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" covers, you might think you've heard them all–after all, we've featured *thirty-eight* different renditions here on the Shuffle over the past four years.
@@ -8,7 +18,7 @@ Let's get started with my personal favorite of the bunch: The Ruth Moody Band's 
 
 [Watch on Youtube: The Ruth Moody Band - Dancing in the Dark (Official)](https://www.youtube.com/watch?v=BJbRLHh3j_8)
 
-The Canadian singer-songwriter (and member of The Wailin' Jennys) became a Springsteen fan through *Nebraska*, but when she decided to cover a song of his, she skipped forward a couple of years. "Everyone sort of covers the more ... sort of rawer stuff," she told The Huffington Post in 2013, "and I thought that could potentially be cool to take his greatest hit and folkify it."
+The Canadian singer-songwriter (and member of The Wailin' Jennys) became a Springsteen fan through *Nebraska*, but when she decided to cover a song of his, she skipped forward a couple of years. "Everyone sort of covers the more … sort of rawer stuff," she told The Huffington Post in 2013, "and I thought that could potentially be cool to take his greatest hit and folkify it."
 
 She's right: it's *very* cool, and even the "heeeeeyyyyy baaaaaaaby" works without the slightest hint of 80s cheese.
 

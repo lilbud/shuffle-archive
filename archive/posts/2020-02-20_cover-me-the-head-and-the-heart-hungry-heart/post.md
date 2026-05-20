@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Head and The Heart: Hungry Heart"
+author: "Ken"
+excerpt: "At a special tribute radio show on the occasion of Bruce’s 70th birthday, Springsteen fans The Head and The Heart closed the show with their lovely cover of “Hungry Heart.”"
+tags: hungry-heart the-head-and-the-heart
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/TheHeadandtheHeart.jpg
+post_id: 16090
+---
 Who knew The Head and The Heart are Springsteen fans?
 
 I didn't, at least not until the band showed up for the premiere of *Blinded by the Light* at Sundance and performed a Springsteen tribute in Park City the night before.

@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: May 15"
+author: "Ken"
+excerpt: "On this date: Dr. Zoom and the Sonic Boom play their final gig, Bruce takes over a dancing school ball in Germany (really), and more."
+tags: born-in-the-usa canary-islands cleveland devils-and-dust-tour dr-zoom-and-the-sonic-boom france germany ghost-of-tom-joad-tour gijon give-the-girl-a-kiss hershey jay-weinberg las-palmas lucille lyon munich native-american rising-tour spain steve-van-zandt stolen-car twist-and-shout working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/348699415_207239028355172_674563633466168878_n.jpg
+post_id: 56767
+---
 ***New for 2025:** Video for 2023*<br>
 
-**1971:** Dr. Zoom and the Sonic Boom make their second and final appearance under that moniker, at Newark State College’s Ernie the Chicken Festival. Miraculously, the show is recorded in very good quality–take a listen below for great covers like “[Will You Love Me Tomorrow](../2018-01-20_cover-me-will-you-love-me-tomorrow/post.md)” and “[It Takes a Lot to Laugh, It Takes a Train to Cry](../2018-04-23_cover-me-it-takes-a-lot-to-laugh-it-takes-a-train-to-cry/post.md)” and great Springsteen originals like “[Look Towards the Land](../2018-12-10_roll-of-the-dice-look-towards-the-land/post.md)” and “[Goin’ Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md).” Later that same evening, Bruce makes his debut as a member of The Sundance Blues Band at The Student Prince.<br>
+**1971:** Dr. Zoom and the Sonic Boom make their second and final appearance under that moniker, at Newark State College's Ernie the Chicken Festival. Miraculously, the show is recorded in very good quality–take a listen below for great covers like "[Will You Love Me Tomorrow](../2018-01-20_cover-me-will-you-love-me-tomorrow/post.md)" and "[It Takes a Lot to Laugh, It Takes a Train to Cry](../2018-04-23_cover-me-it-takes-a-lot-to-laugh-it-takes-a-train-to-cry/post.md)" and great Springsteen originals like "[Look Towards the Land](../2018-12-10_roll-of-the-dice-look-towards-the-land/post.md)" and "[Goin' Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)." Later that same evening, Bruce makes his debut as a member of The Sundance Blues Band at The Student Prince.<br>
 
 [Watch on Youtube: Dr. Zoom and the Sonic Boom (Bruce Springsteen) - 1971/05/15 Newark State College {private remaster}](https://www.youtube.com/watch?v=SKlCDDAWNx0)
 
-**1993:** Bruce, Shane Fontayne, Bobby King, and Tommy Sims notice a dancing school ball being held in their hotel in Munich and decide to make an uninvited guest appearance. Someone had the presence of mind to capture the merriment and mayhem, and although it’s very shaky at the start, it’s still a fun watch. Check out “[Lucille](../1976-01-07_cover-me-lucille/post.md/)” and “Twist and Shout” below.<br>
+**1993:** Bruce, Shane Fontayne, Bobby King, and Tommy Sims notice a dancing school ball being held in their hotel in Munich and decide to make an uninvited guest appearance. Someone had the presence of mind to capture the merriment and mayhem, and although it's very shaky at the start, it's still a fun watch. Check out "[Lucille](../1976-01-07_cover-me-lucille/post.md/)" and "Twist and Shout" below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucille (1993-05-16, Bayerischen Hotel, Munchen, Germany)](https://www.youtube.com/watch?v=vKwG9rLdNHM)
 
@@ -14,7 +24,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/izQmoLoJ)
 
-**2003:** The Rising Tour moves on to Gijon. Watch local TV coverage of the show, including the first minute of the opening “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md),” below.<br>
+**2003:** The Rising Tour moves on to Gijon. Watch local TV coverage of the show, including the first minute of the opening "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," below.<br>
 
 [Watch on Youtube: springsteen en gijon 2003 telecinco](https://www.youtube.com/watch?v=udTJ_cq1Wec)
 
@@ -22,13 +32,13 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN EN GIJON TVE 15 05 2003](https://www.youtube.com/watch?v=TVPX_07jL1k)
 
-**2005:** The highlight of Bruce’s solo acoustic show at Cleveland State University is undoubtedly the tour premiere of “Stolen Car,” the first time (outside of a 2003 benefit show) Bruce has played this song in two decades.<br>
+**2005:** The highlight of Bruce's solo acoustic show at Cleveland State University is undoubtedly the tour premiere of "Stolen Car," the first time (outside of a 2003 benefit show) Bruce has played this song in two decades.<br>
 
 [Watch on Youtube: Stolen Car (solo piano) Bruce Springsteen 5/15/2005 Cleveland, OH](https://www.youtube.com/watch?v=QjKxwljcdiM)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-15.jpg.webp)
 
-**2009**: Jay Weinberg sits in on drums again when the Working on a Dream Tour stops at Hersheypark Stadium in Hershey, Pennsylvania. The highlight: the tour premiere and first performance in a decade of “[Give the Girl a Kiss](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md).”<br>
+**2009:** Jay Weinberg sits in on drums again when the Working on a Dream Tour stops at Hersheypark Stadium in Hershey, Pennsylvania. The highlight: the tour premiere and first performance in a decade of "[Give the Girl a Kiss](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen ~ Give the Girl a Kiss ~ 5/15/09](https://www.youtube.com/watch?v=hj6zjx3_S0I)
 
@@ -38,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2009-05-15b.jpg.webp)
 
-**2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md),” “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md),” “[Working on the Highway,](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” and “[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)”<br>
+**2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," "[Working on the Highway,](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" and "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yoA0eBRu)
 

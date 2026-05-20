@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Stand On It"
+author: "Ken"
+excerpt: "Like the man says, If you’re ever going to stand on it at all, stand on it now. The longer you wait, the slower you get."
+tags: stand-on-it tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/stand.png
+post_id: 29683
+---
 > "The moral of this book is quick and easy: If you're ever going to stand on it at all, stand on it now. The longer you wait, the slower you get. — *Stroker Ace, Stand On It* (1973)
 
 To this day, I have no idea what Bruce is actually singing in the first line of "Stand On It."

@@ -1,4 +1,14 @@
-> "Does it matter, does it really matter? *[Laughs]* I'll never tell." *–Bruce Springsteen answering the question "Was Candy a hooker, or what?", Rolling Stone, November 25, 2010*
+---
+layout: post
+title: "Roll of the Dice: Candy's Boy"
+author: "Ken"
+excerpt: "This early ancestor of “Candy’s Room” (and “Drive All Night”) is just as strong as its descendant, featuring a long, sublime solo by Danny Federici. Let’s break it down inside."
+tags: candys-boy candys-room drive-all-night frankie the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/candysboy.jpg
+post_id: 20595
+---
+> "Does it matter, does it really matter? *[Laughs]* I'll never tell." *–Bruce Springsteen answering the question "Was Candy a hooker, or what?", Rolling Stone, November 25, 2010*<br>
 
 Candy was *definitely* a hooker, and it absolutely matters.
 
@@ -12,29 +22,29 @@ Candy's earliest known appearance is in a 1976 rehearsal at Bruce's house, captu
 
 Even in this early prototype, we can hear in almost-finished form the first verse of "Candy's Room"; the only substantive change between this rehearsal and the final vinyl is the substitution of Candy's pop culture heroes for Jesus in her wall decorations.
 
-> *In Candy's room, there are pictures of her savior on the wall*
-> *But to get to Candy's room, you got to walk the darkness of Candy's hall*
-> *Strange men from the city call Candy's number and bring Candy toys*
-> *But when I come knocking she smiles pretty, because she knows tonight I'm gonna be Candy's boy*
+> *In Candy's room, there are pictures of her savior on the wall*<br>
+> *But to get to Candy's room, you got to walk the darkness of Candy's hall*<br>
+> *Strange men from the city call Candy's number and bring Candy toys*<br>
+> *But when I come knocking she smiles pretty, because she knows tonight I'm gonna be Candy's boy*<br>
 
 But after that famous first verse, we leave the familiar behind to take a ride down Route 9 to a cheap motel, out by a location that would eventually serve as a set for "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)."
 
-> *Now in the olden days when the Mongolian gangs rode on Route 9*
-> *We go running scared in the shivering rain, settle down south through the pines*
-> *Dark weekends in the sun in that cheap motel out by the Dynamo*
-> *We loved each other till there was nothing left, and we drove that old car as hard and fast as she would go*
+> *Now in the olden days when the Mongolian gangs rode on Route 9*<br>
+> *We go running scared in the shivering rain, settle down south through the pines*<br>
+> *Dark weekends in the sun in that cheap motel out by the Dynamo*<br>
+> *We loved each other till there was nothing left, and we drove that old car as hard and fast as she would go*<br>
 
 Only the bridge sounds a bit unfinished: the first line is a bit awkward, but the second inverts the "Candy's Room" narrator's bravado to pure pathos:
 
-> *Well I got a cool summer wind, oh Candy you know I needed you*
-> *But now Candy's got a man who takes care of her better than I do*
+> *Well I got a cool summer wind, oh Candy you know I needed you*<br>
+> *But now Candy's got a man who takes care of her better than I do*<br>
 
 The final verse introduces a menacing element to the proceedings–it would appear that at least one of Candy's clients has underworld connections, and he's not happy about her betrayal. Our determined hero doesn't mind, though; he's playing the long game, counting on their survival.
 
-> *Well there's machines and there's fire watching at night in Candy's eyes*
-> *And there's some bad boys for hire, they're gonna blow us because Candy lies*
-> *Well let them do their worst, because when it's all done and we're in the street*
-> *I'll come knocking and you'll smile pretty because I'll be Candy's boy if she wants me to be*
+> *Well there's machines and there's fire watching at night in Candy's eyes*<br>
+> *And there's some bad boys for hire, they're gonna blow us because Candy lies*<br>
+> *Well let them do their worst, because when it's all done and we're in the street*<br>
+> *I'll come knocking and you'll smile pretty because I'll be Candy's boy if she wants me to be*<br>
 
 A year later, Bruce and the E Street Band revisited Candy in the studio, and one of those takes would eventually be released–more than three decades later–on *The Promise*.
 
@@ -44,17 +54,17 @@ The first two verses of the officially released version hew pretty closely to th
 
 Starting with the bridge, however, the variations become more significant. The cool summer wind becomes a cold winter one–a small change that transforms an atmospheric detail into a metaphorical harbinger.
 
-> *Well I got a cold winter wind blowing in behind me and you*
-> *But Candy's got a man who takes care of her better than I do*
+> *Well I got a cold winter wind blowing in behind me and you*<br>
+> *But Candy's got a man who takes care of her better than I do*<br>
 
 Although the final verse still ends the song on a hopeful note, the cold winter wind telegraphs to us the narrator's naivete: we immediately recognize that this story will *not* end well.
 
 Because Bruce devised a way for the bridge to do the heavy storytelling lifting, he was then able to dial back the cynicism of the final verse.
 
-> *Well there's machines and there's fire waiting for us on the edge of town*
-> *And there's some rough boys for hire and they're waiting to blow me and Candy down*
-> *That's all right 'cause they can't touch us now and destroy*
-> *My sweet love, I will forever be Candy's boy*
+> *Well there's machines and there's fire waiting for us on the edge of town*<br>
+> *And there's some rough boys for hire and they're waiting to blow me and Candy down*<br>
+> *That's all right 'cause they can't touch us now and destroy*<br>
+> *My sweet love, I will forever be Candy's boy*<br>
 
 Gone is the reference to Candy's lies or any sense of betrayal. The bad boys are now merely "rough," more existential menaces than true-life ones. The narrator is more hopeful and less passive, but he's just as naive as in the earlier version.
 

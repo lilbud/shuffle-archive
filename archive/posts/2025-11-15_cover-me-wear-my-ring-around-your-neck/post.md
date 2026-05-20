@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Wear My Ring Around Your Neck"
+author: "Ken"
+excerpt: "“Wear My Ring Around Your Neck” may not be one of Elvis’ best songs, but it made for a fun E Street encore cover in the Born to Run era."
+tags: elvis-presley wear-my-ring-around-your-neck
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/ring.jpg
+post_id: 18175
+---
 > “There have been many tough guys. There have been contenders and there have been pretenders, but there is only one king: Elvis Presley.” *–Bruce Springsteen, introducing “Wear My Ring Around Your Neck,” March 8, 1975*
 
 It’s far from Elvis’ best song. In fact, if “Wear My Ring Around Your Neck” is notable for anything, it’s for breaking Elvis’ remarkable streak of ten consecutive #1 hits. (Although to be fair, it did reach #2.)

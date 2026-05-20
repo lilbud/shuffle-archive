@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 20"
+author: "Ken"
+excerpt: "Classic all-star Hall of Fame team-ups lead the highlights from this date in Springsteen history."
+tags: axl-rose bob-dylan canada come-together i-cant-get-no-satisfaction julianne-phillips max-weinberg mick-jagger my-fathers-place new-york-city river-tour rock-and-roll-hall-of-fame rolling-stones spare-parts springsteen-on-broadway tobacco-road toronto tunnel-of-love walk-like-a-man when-you-need-me
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/medium-6.jpg
+post_id: 55626
+---
 **1973:** Bruce plays the third of four nights at My Father’s Place on Long Island.<br>
 
 **1981:** Bruce and the E Street Band resume the River Tour with the first of two shows at Toronto’s Maple Leaf Gardens.<br>

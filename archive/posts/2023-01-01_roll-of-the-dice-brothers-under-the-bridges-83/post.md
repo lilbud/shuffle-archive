@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Brothers Under the Bridges ('83)"
+author: "Ken"
+excerpt: "“Brothers Under the Bridges” is a Born in the U.S.A. outtake bristling with youth and yearning–but it foreshadows Bruce’s twelve-years-later sequel."
+tags: brothers-under-the-bridges-83 tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/bruce-brothers.jpg
+post_id: 13794
+---
 Bruce wrote, recorded, and released (eventually) two songs that share virtually the same title, and almost every scholarly Springsteen resource I've seen states that there's no relationship between the two.
 
 But I don't believe that.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: New York Morning Love"
+author: "Ken"
+excerpt: "Never recorded or performed, Bruce’s notebook lyrics for “New York Morning Love” reveal a budding 18-year-old songwriter grappling with some very adult themes."
+tags: 1968-notebook new-york-morning-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/newyork.jpg
+post_id: 13439
+---
 It's time for another dip into the "[1968 Notebook,](https://estreetshuffle.com/?s=notebook)" a compendium of early, unrecorded song drafts by an eighteen-year-old Bruce Springsteen(!), unbeknownst to fans until it was auctioned, allowing fans to get a peek at it.
 
 Today's entry is the thirteenth song in the notebook's table of contents: "New York Morning Love."

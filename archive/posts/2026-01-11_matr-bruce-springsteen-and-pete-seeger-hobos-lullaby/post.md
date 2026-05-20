@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Hobo's Lullaby"
+author: "Ken"
+excerpt: "One of the rare outtakes from the Seeger Sessions, “Hobo’s Lullaby” features Bruce and Pete Seeger in one of their few studio recordings together."
+tags: arlo-guthrie give-us-your-poor hobos-lullaby pete-seeger
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/yourpoor-1.jpg
+post_id: 20113
+---
 There aren't a lot of outtakes floating around from Bruce's original Seeger Sessions, but there are a couple hiding in plain sight… if you know where to look for them.
 
 Like many of the songs identified with Pete Seeger, "Hobo's Lullaby" dates back a lot further. Goebel Reeves recorded it and released it in the 1930s in his trademark yodeling style.

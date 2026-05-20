@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 15"
+author: "Ken"
+excerpt: "On this date in Springsteen history: Watch a full Light of Day performance, plus the premiere of the video for “Tunnel of Love.”"
+tags: alejandro-escovedo born-in-the-usa-tour charlotte jesse-malin joe-grushecky light-of-day pittsburgh river-tour-2016 tunnel-of-love willie-nile
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/rs-1076-rectangle.jpg
+post_id: 55589
+---
 **1985:** The Born in the U.S.A. Tour pulls into Charlotte for the first of two nights at the Charlotte Coliseum.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YKDm9FGq)

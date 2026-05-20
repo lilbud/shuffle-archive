@@ -1,3 +1,13 @@
+---
+layout: post
+title: "New York, New York"
+author: "Ken"
+excerpt: "What better way to celebrate the re-opening of Springsteen on Broadway than with Bruce’s almost/sorta cover of New York’s unofficial theme song."
+tags: frank-sinatra liza-minelli new-york-new-york
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/newyork.png
+post_id: 27898
+---
 Start spreading the news: I'm leaving today!
 
 Actually, that's not true. I left last night, and by the time you read this, I'll have landed at JFK and am probably in an Uber headed toward New York, New York.
@@ -34,7 +44,7 @@ I'm excited to hear *any* live music again after a year-and-a-half, let alone an
 
 I'm way too excited to blog coherently, so instead of an analytical roll of the dice or a trip through rock and roll history, today you just get my fanboy babbling.
 
-Stay tuned for my report from Re-Opening Night coming on Monday, though... pretty sure I can collect myself by then.
+Stay tuned for my report from Re-Opening Night coming on Monday, though… pretty sure I can collect myself by then.
 
 I think.
 

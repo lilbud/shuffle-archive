@@ -1,3 +1,13 @@
+---
+layout: post
+title: "It's All Right"
+author: "Ken"
+excerpt: "On the final leg of World Tour 1993, Bruce often closed the show with this Curtis Mayfield classic."
+tags: curtis-mayfield its-all-right the-impressions
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/The-Impressions-its-all-right.jpg
+post_id: 3208
+---
 “It’s All Right” is one of Curtis Mayfield’s greatest hits, written and recorded in 1963 during his days fronting The Impressions. It gave the band their first crossover hit, peaking at #4 on the Billboard Hot 100 and the top of the Billboard R&B chart.
 
 [Watch on Youtube: Curtis Mayfield & The Impressions - It's Alright (August, 1963)](https://www.youtube.com/watch?v=6Du9pCalSCU)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 20"
+author: "Ken"
+excerpt: "On this date in history: Danny Federici makes his final appearance with the E Street Band. Watch the emotional performance, plus more highlights from across the years."
+tags: 4th-of-july-asbury-park-sandy australia born-in-the-usa-tour born-to-run dallas danny-federici devils-and-dust dublin emmylou-harris ghost-of-tom-joad-tour indianapolis ireland joe-grushecky lawsuit-tour magic-tour melbourne new-zealand pittsburgh providence rising-tour springsteen-on-broadway sydney tragedy tunnel-of-love-express-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/indy.webp
+post_id: 56238
+---
 ***New for 2025:** Audio for 2008; video for 2013 and 2023*<br>
 
 **1974:** Bruce and his band play two shows at their third night at Gertie's in Dallas.<br>

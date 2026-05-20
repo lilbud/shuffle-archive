@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I'm on Fire"
+author: "Ken"
+excerpt: "It’s one of the great Springsteen mysteries: what exactly makes “I’m on Fire” so freaking popular?"
+tags: born-in-the-u-s-a im-on-fire
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/imonfire.jpg
+post_id: 29026
+---
 At long last, the dice force us to confront one of the great enduring Springsteenian mysteries, namely:
 
 Why is "I'm on Fire" so freaking popular?
@@ -40,27 +50,27 @@ So maybe it's the lyrics. Unlike "Hungry Heart" and "Dancing in the Dark" (the o
 
 It's almost silly to try and analyze "I'm on Fire," so blatant are its lyrics.
 
-> *Hey little girl is your daddy home*
-> *Did he go away and leave you all alone*
-> *I got a bad desire*
-> *Oh I'm on fire*
+> *Hey little girl is your daddy home*<br>
+> *Did he go away and leave you all alone*<br>
+> *I got a bad desire*<br>
+> *Oh I'm on fire*<br>
 
-> *Tell me now baby is he good to you*
-> *Can he do to you the things that I do*
-> *I can take you higher*
-> *Oh I'm on fire*
+> *Tell me now baby is he good to you*<br>
+> *Can he do to you the things that I do*<br>
+> *I can take you higher*<br>
+> *Oh I'm on fire*<br>
 
-> *Sometimes it's like someone took a knife baby edgy and dull*
-> *And cut a six-inch valley through the middle of my soul*
+> *Sometimes it's like someone took a knife baby edgy and dull*<br>
+> *And cut a six-inch valley through the middle of my soul*<br>
 
-> *At night I wake up with the sheets soaking wet*
-> *And a freight train running through the middle of my head*
-> *Only you can cool my desire*
-> *Oh I'm on fire*
+> *At night I wake up with the sheets soaking wet*<br>
+> *And a freight train running through the middle of my head*<br>
+> *Only you can cool my desire*<br>
+> *Oh I'm on fire*<br>
 
 The entire song boils down to:
 
-> *I'm completely obsessed with you, and you should really be with me because I'm way better in bed than that guy you're with.*
+> *I'm completely obsessed with you, and you should really be with me because I'm way better in bed than that guy you're with.*<br>
 
 There's really nothing else left to comment on, except perhaps for the "skull/soul" debate. (He sings the former on both vinyl and stage despite clearly writing the latter in every printed source, including his official web site to this day. This is a more substantial difference than the "sways/waves" thing). Or perhaps we could debate whether the sheets are soaking wet from sweat or some other nocturnal emission.
 

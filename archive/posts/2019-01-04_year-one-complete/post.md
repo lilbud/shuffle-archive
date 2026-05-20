@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Year One: Complete!"
+author: "Ken"
+excerpt: "We’re one year old! Here’s the plan for year two."
+tags: year-one
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/1st.jpeg
+post_id: 6898
+---
 Today marks the end of Year One for this blog, and whether you've been with me from [the beginning](../2018-01-05_is-there-anybody-alive-out-there/post.md) (which would be like five of you) or you just discovered this site for the first time [today](../2026-01-04_january-4/post.md/), I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/thank_you_PNG132.png.webp)

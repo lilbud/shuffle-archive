@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Sometimes at Night"
+author: "Ken"
+excerpt: "A lost Springsteen lyrics sheet surfaces in Belgium, shedding light onto a performed but never recorded Bruce Springsteen Band song."
+tags: sometimes-at-night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/admin-ajax-59.jpg
+post_id: 8490
+---
 Longtime readers know that while I love Bruce's music from pretty much any era, I'm particularly fond of The Bruce Springsteen Band era of 1971-1972.
 
 The Bruce Springsteen Band consisted of future E Street Band members (Bruce, Steve, Garry, Vini Lopez, and Dave Sancious) plus horns and backing vocalists. Bluesy and brassy, the band presaged in a way the big band incarnation of the E Street Band still fifty years(!) down the road.

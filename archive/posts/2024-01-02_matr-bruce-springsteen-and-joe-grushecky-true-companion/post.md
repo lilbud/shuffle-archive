@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Joe Grushecky, True Companion"
+author: "Ken"
+excerpt: "One time only: Bruce joins Joe Grushecky on stage at a benefit show in Pittsburgh for a blistering guitar solo and backing vocals on Joe’s “True Companion.”"
+tags: flood-aid joe-grushecky true-companion
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/Joe_Grushecky_y_The_Houserockers-True_Companion-Frontal.jpg
+post_id: 8428
+---
 
 Bruce Springsteen and Joe Grushecky have shared the stage together many times, but only once did they play Joe's earnest love song "True Companion" together.
 

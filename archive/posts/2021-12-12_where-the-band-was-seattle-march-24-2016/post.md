@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Seattle, March 24, 2016"
+author: "Ken"
+excerpt: "The River (2016) Tour hits its inflection point with a long, spontaneous B-set."
+tags: adam-raised-a-cain bobby-jean eddie-vedder fade-away im-goin-down river-2016-tour seattle
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/seattle.jpg
+post_id: 1151
+---
 There’s a point in every tour where Bruce loosens up, throws the setlist out the window, and transforms the entire concert into a non-stop, unpredictable jet engine of a show.
 
 On the River Tour (2016 edition), I expected it to happen in Philly, but I was wrong. I thought for sure it would happen in Los Angeles, but despite a high-octane three-night stand, those shows were still tightly scripted. I knew it wouldn’t happen in Portland. And after the short (by Bruce’s standards) and predictable show in Portland two days prior, I really wasn’t expecting much out of Seattle. And going into the show, I was at peace with that.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 29"
+author: "Ken"
+excerpt: "A big, big day for Bruce: He sees his first ever rock concert, kicks off his biggest ever tour, films his most popular video, and debuts Nils and Patti as members of the E Street Band. Whew! There’s a lot more inside, too."
+tags: born-in-the-usa-tour brian-de-palma copenhagen courtney-cox dancing-in-the-dark darkness-tour denmark fabulous-greaseband for-you france madison-square-garden magic-tour new-york-city nils-lofgren norway oslo paris patti-scialfa reunion-tour river-tour-2016 rotterdam san-jose seven-nights-to-rock springsteen-on-broadway the-netherlands tunnel-of-love-tour working-on-the-highway world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/june-29th-2024-nijmegen-ne-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 57515
+---
 ***New for 2025:** New entry for 1972, 1975, 1983, and 2024; audio for 1985*<br>
 
 **1962:** Adele Springsteen takes Bruce and Ginny to their first-ever rock concert when Chubby Checker plays at Steel Pier in Atlantic City. She also takes them to see Anita Bryant that evening. Bruce enjoys the afternoon show a lot more than the evening show.<br>

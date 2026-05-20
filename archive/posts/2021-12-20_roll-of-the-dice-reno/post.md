@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Reno"
+author: "Ken"
+excerpt: "“Reno” is easily one of Bruce’s most beautiful, poignant, and cinematic songs–it’s been in my top ten since the moment I first heard it."
+tags: devils-and-dust reno
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/Reno_arch.jpg
+post_id: 18174
+---
 > "[On] his last solo record, *Devils & Dust*, there's a song about the man in the hotel room with the hooker and stuff. My artistic side said, ‘That is so brave.' Then, just thinking right from the heart, I was like, ‘What are you writing about that shit for? Are you fucking crazy?' *–Patti Scialfa to Austin Scaggs, Rolling Stone, September 2007*<br>
 
 If you can get past lyrics that earned Bruce his first "contains adult imagery" explicit CD warning label, you'll find one of Bruce's most beautiful songs and easily his most poignant.

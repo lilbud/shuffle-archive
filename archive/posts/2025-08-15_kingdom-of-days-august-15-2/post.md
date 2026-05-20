@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 15"
+author: "Ken"
+excerpt: "It’s a day for legendary shows, from the 1975 Bottom Line radio broadcast to the ’78 Largo video to the stunning, unpredictable second night in Fenway in 2012. Lots of great video and many more highlights inside."
+tags: auburn-hills back-in-your-arms born-in-the-usa-tour born-to-run-tour boston bottom-line cats-on-a-smooth-surface child darkness-tour detroit fenway-park jacksonville ken-casey knock-on-wood largo magic-tour new-york-city philadelphia rising-tour springsteen-on-broadway stone-pony washington-dc wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/springsteen-bruce-the-e-street-band-2015-complete-bottom-line-broadcast-1975-lp-250.jpg
+post_id: 58378
+---
 ***New for 2025:** New entry for 1977 and 2024; audio for 1985; video for 2008*<br>
 
 **1969:** Child plays a gig at the Student Prince in Asbury Park.<br>

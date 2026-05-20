@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Achy Breaky Heart"
+author: "Ken"
+excerpt: "One time only (and I still can’t believe it happened at all): Bruce Springsteen covered Billy Ray Cyrus’ monster breakout hit, “Achy Breaky Heart.”"
+tags: achy-breaky-heart billy-ray-cyrus dont-tell-my-heart the-marcy-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/Achy-Breaky-Heart.jpg
+post_id: 17116
+---
 > "Laying in bed the other night I said, 'What would really bend everybody's minds?… Achy Breaky Heart!" *–Bruce Springsteen, March 23, 1993*<br>
 
 It sure bent mine.

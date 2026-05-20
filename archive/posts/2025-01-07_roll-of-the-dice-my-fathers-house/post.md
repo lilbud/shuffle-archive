@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Father's House"
+author: "Ken"
+excerpt: "In memory of Donald Stephen Rosen (December 23, 1942 – August 12, 2021)"
+tags: my-fathers-house nebraska
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/dad.jpg
+post_id: 28857
+---
 My dad died today.
 
 He passed away peacefully in his sleep after a swift and vicious stealth attack from bile duct cancer that he didn't even know he had a month ago.

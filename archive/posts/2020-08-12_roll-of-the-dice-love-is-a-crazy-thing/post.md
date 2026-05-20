@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Love Is a Crazy Thing"
+author: "Ken"
+excerpt: "One time only: The Bruce Springsteen Band plays a slight love song that might be a musical ancestor of “Kitty’s Back.”"
+tags: love-is-a-crazy-thing the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/love_is_a_crazy_thing_black_tank_large.jpg
+post_id: 20377
+---
 Towards the tail end of the sparsely-documented Bruce Springsteen Band era, Bruce introduced a song known as "Love Is a Crazy Thing."
 
 Only known to have been performed once (but likely performed more than that), it was at least captured that one time at The Back Door in Richmond, in February 1972.
@@ -14,47 +24,47 @@ As for the lyrics, well, Bruce's early love songs were rarely as layered and nua
 
 So maybe we can cut him a little slack for writing an entire song about a girl who makes absolutely no demand of her boyfriend other than daily sex, and who apparently has no qualities worth singing about besides that.
 
-> *Well love is a crazy thing*
-> *For some woman, it might be a fancy car*
-> *Caviar, or maybe a wedding ring*
-> *But at night time my baby*
-> *It ain't none of these things*
-> *She gives me love*
+> *Well love is a crazy thing*<br>
+> *For some woman, it might be a fancy car*<br>
+> *Caviar, or maybe a wedding ring*<br>
+> *But at night time my baby*<br>
+> *It ain't none of these things*<br>
+> *She gives me love*<br>
 
-> *And she's not the kind of woman who would put you down*
-> *She's not the kind of woman who moves around*
-> *She do anything that you want her to do*
-> *Most of all she let you be like who you got to be*
-> *Let you see whoever you got to see*
-> *Let you do whatever you got to do*
-> *???*
-> *Because you know she gives you…*
+> *And she's not the kind of woman who would put you down*<br>
+> *She's not the kind of woman who moves around*<br>
+> *She do anything that you want her to do*<br>
+> *Most of all she let you be like who you got to be*<br>
+> *Let you see whoever you got to see*<br>
+> *Let you do whatever you got to do*<br>
+> *???*<br>
+> *Because you know she gives you…*<br>
 
-> *Love, its a beautiful thing*
-> *Yeah now woman, watch out cause she is a deadly game*
-> *But no not my baby*
-> *Oh she ain't that kind*
-> *She's sweet, she's wonderful, and she's my girl*
-> *I just love her all the time*
+> *Love, its a beautiful thing*<br>
+> *Yeah now woman, watch out cause she is a deadly game*<br>
+> *But no not my baby*<br>
+> *Oh she ain't that kind*<br>
+> *She's sweet, she's wonderful, and she's my girl*<br>
+> *I just love her all the time*<br>
 
-> *She not the kind of woman that can ???*
-> *She's not the kind of woman who always wants to be your boss*
-> *She do most anything that you want her to do*
-> *Most of all she let you be like who you got to be*
-> *Let you see whoever you got to see*
-> *Let you do whatever you got to do*
-> *???*
+> *She not the kind of woman that can ???*<br>
+> *She's not the kind of woman who always wants to be your boss*<br>
+> *She do most anything that you want her to do*<br>
+> *Most of all she let you be like who you got to be*<br>
+> *Let you see whoever you got to see*<br>
+> *Let you do whatever you got to do*<br>
+> *???*<br>
 
-> *Whoa its a crazy thing*
-> *Some woman, might be a fancy car*
-> *Cadillac or maybe caviar, maybe she wants a wedding ring*
-> *But oh not my baby, she don't want none of these things*
-> *She only wants my love*
-> *Oh take it easy, you gotta give her love*
-> *I'm saying love, you gotta give her love*
-> *Most she wants is love*
-> *She wants love*
-> *Don't you know she wants love*
+> *Whoa its a crazy thing*<br>
+> *Some woman, might be a fancy car*<br>
+> *Cadillac or maybe caviar, maybe she wants a wedding ring*<br>
+> *But oh not my baby, she don't want none of these things*<br>
+> *She only wants my love*<br>
+> *Oh take it easy, you gotta give her love*<br>
+> *I'm saying love, you gotta give her love*<br>
+> *Most she wants is love*<br>
+> *She wants love*<br>
+> *Don't you know she wants love*<br>
 
 "Love Is a Crazy Thing" isn't one of Bruce's stronger songs from that period, but it was a signpost pointing to greater things to come.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Caryl Mack: Two Hearts"
+author: "Ken"
+excerpt: "Singer-songwriter Caryl Mack finds the soul of “Two Hearts” in her gorgeous acoustic cover."
+tags: caryl-mack two-hearts
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/carylmack.jpg
+post_id: 35354
+---
 "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" didn't really do anything for me in its original arrangement.
 
 I recognized the beauty of Bruce's lyrics right away, and I wanted to like the song, but the album track barrels along so quickly that it left me out of breath when all I wanted to do was just *feel*.

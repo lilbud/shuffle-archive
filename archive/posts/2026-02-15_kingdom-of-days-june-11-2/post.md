@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 11"
+author: "Ken"
+excerpt: "Bruce likes to spend June 11th in Italy–watch highlights from three Italian shows held on this date."
+tags: badlands be-true boom-boom elliot-murphy genoa italy jacobs-ladder no-surrender reunion-tour seeger-sessions-tour st-paul trieste tunnel-of-love tunnel-of-love-tour turin we-take-care-of-our-own
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/537091047_18520362721052296_5175092859982628767_n.jpg
+post_id: 57048
+---
 **1988:** The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of "Because the Night."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Q9KzCea1pas)

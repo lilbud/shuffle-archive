@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Bette Midler: Pink Cadillac"
+author: "Ken"
+excerpt: "The Bruce cover that never was: Bette Midler recorded her version of “Pink Cadillac,” but Bruce refused to let her release it. Find out why and check out her live performance of it inside."
+tags: bette-midler pink-cadillac
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/bette.jpg
+post_id: 5897
+---
 Bruce is known for being exceptionally generous with his music, allowing other artists to cover and re-interpret his music with such frequency that it’s almost impossible to keep track of the various covers that are out there.
 
 So it’s remarkable when we hear of a circumstance in which Bruce actually *refused* an artist permission to cover one of this songs. But that’s exactly what happened more than 35 years ago with Bette Midler and “[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md).”

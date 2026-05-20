@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Town Called Heartbreak"
+author: "Ken"
+excerpt: "An answer song of sorts to “If I Should Fall Behind,” Patti Scialfa’s “Town Called Heartbreak” is one of her strongest tracks and a highlight of the early Magic Tour."
+tags: patti-scialfa play-it-as-it-lays town-called-heartbreak
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/patti-scialfa-171262.jpg
+post_id: 19805
+---
 "Work with me, baby."
 
 That's a pretty good distillation of what long-term relationships are like, and that's exactly what "Town Called Heartbreak" is about.
@@ -8,20 +18,20 @@ Patti Scialfa recorded "Town Called Heartbreak" for her 2007 album, *Play It As 
 
 "Town Called Heartbreak" isn't a title you'd expect for a love song, and frankly its lyrics don't scream romance either.
 
-> *They say love*
-> *A love has its very own light*
-> *That can shine through the darkest night*
-> *That we've heard of*
-> *And that light*
-> *That you may want so much*
-> *Well maybe you can never touch*
-> *Though you may try*
-> *Now at night I dream*
-> *I'm all alone*
-> *Big sledgehammer and a cold dark stone*
-> *Man swing the hammer*
-> *World begin to shake*
-> *I'm just living in a town called Heartbreak*
+> *They say love*<br>
+> *A love has its very own light*<br>
+> *That can shine through the darkest night*<br>
+> *That we've heard of*<br>
+> *And that light*<br>
+> *That you may want so much*<br>
+> *Well maybe you can never touch*<br>
+> *Though you may try*<br>
+> *Now at night I dream*<br>
+> *I'm all alone*<br>
+> *Big sledgehammer and a cold dark stone*<br>
+> *Man swing the hammer*<br>
+> *World begin to shake*<br>
+> *I'm just living in a town called Heartbreak*<br>
 
 And yet in a way, "Town Called Heartbreak" very much is a love song. It's about the reality of love, rather than the cliche of it. Maybe we can't be complete without our partners, but they're not all it takes to make us complete.
 

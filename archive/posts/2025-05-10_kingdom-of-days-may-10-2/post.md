@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 10"
+author: "Ken"
+excerpt: "A big day for premieres: “Cautious Man,” “Boom Boom,” “A Good Man Is Hard to Find (Pittsburgh),” and “Bring ’em Home” all make their debuts on this date. More highlights inside."
+tags: a-good-man-is-hard-to-find-pittsburgh bloomington boom-boom bring-em-home cautious-man chicken-scratch-tour devils-and-dust-tour elliott-murphy france garland-jeffreys germany ghost-of-tom-joad-tour ludwigshafen mobile monmouth-college new-york-city paris poland rising-tour seeger-sessions-tour springsteen-on-broadway st-paul steel-mill this-hard-land tunnel-of-love-express-tour warsaw
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/20050510_front.jpg
+post_id: 56750
+---
 ***New for 2025:** New entry for 1978 and 1982; review for 2005; video for 2006*<br>
 
 **1970:** Steel Mill headlines an outdoor concert at Monmouth College in West Long Branch, New Jersey.<br>

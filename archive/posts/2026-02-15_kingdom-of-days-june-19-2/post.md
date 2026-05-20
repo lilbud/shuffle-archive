@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 19"
+author: "Ken"
+excerpt: "Bruce’s high school graduation, rare Steel Mill performances, and abundant tour premieres lead off the highlights from this date in Springsteen history."
+tags: berlin born-to-run buffalo-gals castiles devils-and-dust-tour france garden-state-parkway-blues germany light-of-day montpellier my-lucky-day norway oslo paris reunion-tour richmond rising-tour river-2016-tour rotterdam saratoga-springs seeger-sessions-tour stand-on-it steel-mill sundance-blues-band tenth-avenue-freeze-out the-netherlands tunnel-of-love tunnel-of-love-tour two-faces where-the-bands-are where-was-jesus-in-ohio wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/Berlin2016.jpg.f59d0a5fdd1b1c3524560308cedd627e.jpg
+post_id: 57110
+---
 **1967:** Bruce Springsteen graduates from Freehold Borough High School. He does not attend, however, but instead picks up his diploma later.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1967-0619.jpg.webp)

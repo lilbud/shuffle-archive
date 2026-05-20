@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 27"
+author: "Ken"
+excerpt: "For a rare song, “Janey, Don’t You Lose Heart” is performed on two different occasions on this date. Plus: a complete 1982 bar gig, Bruce headlines Glastonbury, and more."
+tags: brian-fallon cats-on-a-smooth-surface clarence-clemons coma-girl danny-federici devils-and-dust-tour elliot-murphy france gaslight-anthem germany glastonbury gothenburg growin-up hamburg janey-dont-you-lose-heart madison-square-garden magic-tour new-york-city norway oslo paris reunion-tour river-tour-2016 springsteen-on-broadway stone-pony sundance-blues-band sweden the-59-sound uk
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2000-06-27-new-york-ny.jpg
+post_id: 57513
+---
 ***New for 2025:** New entry for 1977, 1979, and 2024; audio for 2008*<br>
 
 **1971:** The Sundance Blues Band plays a gig at the Student Prince in Asbury Park.<br>

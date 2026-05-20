@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Staves: I'm on Fire"
+author: "Ken"
+excerpt: "It’s time for another “I’m on Fire” cover–by a trio who nails it so well that I can only narrow them down to three great performances."
+tags: im-on-fire the-staves
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/staves.jpg
+post_id: 4772
+---
 Yes, I know–I've already featured [quite a few](https://estreetshuffle.com/?s=i%27m+on+fire) "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" covers on the Shuffle, but there are just so darn many of them.
 
 This one in particular is lovely–a quiet, brooding performance by indie-folk trio The Staves out of the UK. Their harmonies lift the song up without losing it's simmering subtext. And that coda… hauntingly powerful.

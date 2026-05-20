@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, David Gray: Streets of Philadelphia"
+author: "Ken"
+excerpt: "Singer-songwriter David Gray stopped by the BBC Radio 2 studios and turned in a quiet cover of Bruce’s “Streets of Philadelphia.”"
+tags: david-gray streets-of-philadelphia
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/davidgray.jpg
+post_id: 13626
+---
 Singer-songwriter David Gray stopped by the BBC Radio 2 studio recently to celebrate the 20th anniversary of his *White Ladder* album.
 
 Gray played a few songs from his milestone album live on the air, and he added a special cover as well: Bruce's award-winning "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)." It's a quiet performance that feels unplanned, and it was captured in terrific quality by the studio crew.

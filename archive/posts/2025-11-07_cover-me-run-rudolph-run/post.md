@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Run Rudolph Run"
+author: "Ken"
+excerpt: "A holiday show favorite! Check out Bruce’s only-in-New Jersey cover performances of Chuck Berry’s classic Christmas rocker."
+tags: bobby-bandiera chuck-berry jimmy-vivino johnny-marks jon-bon-jovi little-queenie max-weinberg-7 run-rudolph-run tim-mcloone
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/chuck-berry-run-rudolph-run-1.jpg
+post_id: 6317
+---
 Meanwhile… I was thinking:
 
 Chuck Berry’s “Run Rudolph Run” is basically the same song as “[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/).” The man was one of the all-time great rock and roll performers, but he also sure knew how to get a lot of mileage from his songs.

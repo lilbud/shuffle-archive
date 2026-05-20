@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Ballad of Easy Rider"
+author: "Ken"
+excerpt: "One time only: Bruce covers Roger McGuinn’s (and Bob Dylan’s?) 1969 classic."
+tags: ballad-of-easy-rider roger-mcguinn the-byrds
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/easyrider.jpg
+post_id: 23583
+---
 "Ballad of Easy Rider" is one of those songs with a murky (and possibly apocryphal) origin.
 
 The story goes something like this: Peter Fonda wanted to use a Bob Dylan song for his upcoming *Easy Rider* movie, and he was hoping Dylan would write a theme song for the film as well.

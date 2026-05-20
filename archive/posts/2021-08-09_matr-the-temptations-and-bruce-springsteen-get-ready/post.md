@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Temptations, Bruce Springsteen, and more: Get Ready"
+author: "Ken"
+excerpt: "Blink and you’ll miss him, but if you watch closely you’ll spot Bruce Springsteen backing The Temptations at their Rock and Roll Hall of Fame induction ceremony."
+tags: get-ready rare-earth smokey-robinson the-temptations
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/getready.jpg
+post_id: 28464
+---
 Inspiration can come from the unlikeliest of places.
 
 In 1966, Jackie Lee took a novelty song called "The Duck" all the way to #14 on the Billboard Hot 100.

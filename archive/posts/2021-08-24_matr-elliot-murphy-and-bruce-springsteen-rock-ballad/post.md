@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Elliott Murphy and Bruce Springsteen: Rock Ballad"
+author: "Ken"
+excerpt: "One time only: Bruce invites Elliott Murphy on stage for an acoustic duet of Elliott’s 1977 “Rock Ballad.”"
+tags: elliott-murphy just-a-story-from-america rock-ballad
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/murphy.png
+post_id: 28866
+---
 On January 31, 1974, *Rolling Stone* reviewed Bruce Springsteen's latest album, *The Wild, The Innocent, and the E Street Shuffle.* The headline on the page read, "He's the Best Dylan Since 1968."
 
 But the reviewer wasn't referring to Bruce.

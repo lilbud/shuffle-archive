@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/Cover Me, Gary U.S. Bonds: Your Love"
+author: "Ken"
+excerpt: "One of many great songs Bruce gave away, “Your Love” is the missing link in a story that begins with “Little White Lies” and ends with “My Love Will Not Let You Down.”"
+tags: ben-e-king gary-u-s-bonds little-white-lies miami-horns my-love-will-not-let-you-down steve-van-zandt your-love
+categories: cover-me cover-you meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/dedication.jpg
+post_id: 3401
+---
 The hardest part about this entry? Figuring out how to tag it.
 
 It's a Springsteen original composition, so it fits under my *Roll of the Dice* series. But Bruce never recorded it himself–he gave it away to Gary U.S. Bonds, so it's a Cover Me entry, too. And yet, Bruce and the E Street Band are the featured musicians, so maybe it's a meeting across the river.

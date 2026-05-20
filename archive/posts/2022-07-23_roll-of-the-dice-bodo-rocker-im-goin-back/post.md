@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: BoDo Rocker (I'm Goin' Back)"
+author: "Ken"
+excerpt: "Move over, “She’s the One” and “Preacher’s Daughter” – “BoDo Rocker” is the Bo Diddley homage we’ve been waiting for."
+tags: bodo-rocker im-goin-back
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/bodo.jpg
+post_id: 36515
+---
 Play this one *loud!*
 
 You still won't be able to make out much of the lyrics, but who cares? When you've got a song called "BoDo Rocker" (short for "Bo Diddley Rocker"), you already know it's not about the words anyway.

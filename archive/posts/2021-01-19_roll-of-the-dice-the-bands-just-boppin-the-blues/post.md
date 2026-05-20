@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Band's Just Boppin' the Blues"
+author: "Ken"
+excerpt: "Listen in on The Bruce Springsteen Band (with guest soloist Southside Johnny) grooving their way through Bruce’s original song, “The Band’s Just Boppin’ the Blues.”"
+tags: the-bands-just-boppin-the-blues the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/boppin.jpg
+post_id: 23949
+---
 In November 1971, The Bruce Springsteen Band was in full swing.
 
 Debuting only four months earlier, Bruce's new five-man combo included Steve Van Zandt, Garry Tallent, David Sancious, and Vini Lopez, and if that seems to you like a prototypical E Street Band, I would not argue.

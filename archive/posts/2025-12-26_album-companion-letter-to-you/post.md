@@ -1,3 +1,13 @@
+---
+layout: post
+title: "ROTD: Letter To You Introduction"
+author: "Ken"
+excerpt: "There’s a truly great EP buried within this over-stuffed and thematically inconsistent album."
+tags: letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/springsteen-lettertoyou-front.jpg
+post_id: 44060
+---
 By now, the story is almost as legendary as the origin of *Nebraska*.
 
 In the summer of 2018, Castiles founder George Thiess passed away after a long battle with lung cancer. Lifelong friend and long-ago bandmate Bruce Springsteen said his farewells during George’s final days.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Your Own Worst Enemy"
+author: "Ken"
+excerpt: "“Your Own Worst Enemy” is the bridge between Magic and Working on a Dream, featuring a lush and layered backing track paired with devastatingly biting lyrics."
+tags: magic your-own-worst-enemy
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/worstenemy.jpg
+post_id: 18392
+---
 Most accounts (including Bruce's) contend that Bruce's *Working on a Dream* album began with the recording of "[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)" during the *Magic* mixing sessions.
 
 But if you ask me, we can trace the true transition directly to "Your Own Worst Enemy," one of the strongest tracks on *Magic.*
@@ -28,28 +38,28 @@ No, what makes "Your Own Worst Enemy" rank so high (in my estimation) in Bruce's
 
 Bruce's first verse is intriguingly vague, planting us (through the use of second-person narration) in the shoes of a protagonist with a guilty conscience:
 
-> *You can't sleep at night*
-> *You can't dream your dream*
-> *Your fingerprints on file*
-> *Left clumsily at the scene*
+> *You can't sleep at night*<br>
+> *You can't dream your dream*<br>
+> *Your fingerprints on file*<br>
+> *Left clumsily at the scene*<br>
 
-> *Your own worst enemy has come to town*
-> *Your own worst enemy has come to town*
+> *Your own worst enemy has come to town*<br>
+> *Your own worst enemy has come to town*<br>
 
 We don't know why yet, but it's clear that we did something wrong, and we're terrified of being found out. Like in "Stolen Car," we wait to get caught.
 
 In the second verse, we start to get an inkling of what we did, and the "Stolen Car" comparison may be an apt one:
 
-> *Yesterday the people were at ease*
-> *Baby slept in peace*
-> *You closed your eyes and saw her*
-> *You knew who you were*
+> *Yesterday the people were at ease*<br>
+> *Baby slept in peace*<br>
+> *You closed your eyes and saw her*<br>
+> *You knew who you were*<br>
 
-> *Now your own worst enemy has come to town*
-> *Your own worst enemy has come*
-> *Your world keeps turnin' 'round and 'round*
-> *But everything is upside down*
-> *Your own worst enemy has come to town*
+> *Now your own worst enemy has come to town*<br>
+> *Your own worst enemy has come*<br>
+> *Your world keeps turnin' 'round and 'round*<br>
+> *But everything is upside down*<br>
+> *Your own worst enemy has come to town*<br>
 
 It appears we may have been unfaithful, and it's haunting us. Even at night, asleep in our own bed, we see our temptress rather than our partner.
 
@@ -57,17 +67,17 @@ Something else to note here: the second chorus is longer than the first, and the
 
 By the time the bridge arrives—which, by the way, seems like it's shared with album-mate "Girls in Their Summer Clothes," so close are they–we're so disappointed in ourselves that we don't even recognize our own reflection. As in "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)," when we look at ourselves we don't see the people we wanted to be.
 
-> *There's a face you know*
-> *Staring back from the shop window*
-> *The condition you're in*
-> *Now you just can't get out of this skin*
+> *There's a face you know*<br>
+> *Staring back from the shop window*<br>
+> *The condition you're in*<br>
+> *Now you just can't get out of this skin*<br>
 
 By this point in the song, we're pretty sure we know what it's about and where it's going. But here comes the magic trick:
 
-> *The times they got too clear*
-> *So you removed all the mirrors*
-> *Once the family felt secure*
-> *Now no one's very sure*
+> *The times they got too clear*<br>
+> *So you removed all the mirrors*<br>
+> *Once the family felt secure*<br>
+> *Now no one's very sure*<br>
 
 Yes, this verse still functions in a personal context, but there's something about that first line: "*The times, they got too clear…"*
 
@@ -81,16 +91,16 @@ We'd become something we weren't ever supposed to be, and facing that uncomforta
 
 Now that the true meaning of the song's title is clear, the final, longest chorus knocks us off balance, setting us up for a knockout punch in the form of one of Bruce's trademark devastating final couplets:
 
-> *Your own worst enemy has come to town*
-> *Your own worst enemy has come*
-> *Everything is falling down*
-> *Your own worst enemy has come to town*
-> *Your own worst enemy has come*
-> *Everything is falling down*
-> *Your own worst enemy has come to town*
+> *Your own worst enemy has come to town*<br>
+> *Your own worst enemy has come*<br>
+> *Everything is falling down*<br>
+> *Your own worst enemy has come to town*<br>
+> *Your own worst enemy has come*<br>
+> *Everything is falling down*<br>
+> *Your own worst enemy has come to town*<br>
 
-> *Your flag it flew so high*
-> *It drifted into the sky*
+> *Your flag it flew so high*<br>
+> *It drifted into the sky*<br>
 
 That final couplet is one of Bruce's best ever, certainly in its use of metaphor. All pretense of any context other than political is abandoned, and the true theme of "Your Own Worst Enemy" is laid bare: in our post-9/11 embrace of nationalism, we let go of the nation we were supposed to be.
 

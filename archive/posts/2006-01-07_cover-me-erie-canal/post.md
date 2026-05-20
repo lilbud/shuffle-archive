@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Erie Canal"
+author: "Ken"
+excerpt: "“Erie Canal” is a nostalgic callback to a slower-paced world. Bruce’s version captures the wistfulness, pride, and celebration of two workers (one human and one equine) at the sunset of their careers."
+tags: billy-murray erie-canal live-in-dublin pete-seeger we-shall-over-come-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/mule.jpg
+post_id: 13792
+---
 "Erie Canal" isn't the folk song you probably think it is. Or at least, it's not as old as you think it is.
 
 By the time Thomas Allen wrote it in 1905, the age of motorized barge travel had already begun. Construction began that year on a new, larger Erie Canal, and Allen's famous song (originally entitled "Low Bridge") was nostalgia even as it was written, memorializing an age of horse- or mule-drawn travel that was already receding into the past.

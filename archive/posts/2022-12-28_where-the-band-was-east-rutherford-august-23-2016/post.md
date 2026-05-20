@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: East Rutherford, August 23, 2016"
+author: "Ken"
+excerpt: "The River Tour begins its morph into the “Autobiography Tour” as the ten-show victory lap kicks off in East Rutherford."
+tags: brilliant-disguise dancing-in-the-dark east-rutherford growin-up independence-day jack-of-all-trades jersey-girl jungleland mansion-on-the-hill my-hometown new-york-city-serenade river-tour-2016 rosalita santa-claus-is-coming-to-town shes-the-one something-in-the-night spirit-in-the-night the-promised-land working-on-the-highway wrecking-ball
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/metlife1-1.jpg
+post_id: 3913
+---
 I didn’t go into this show with sky-high expectations.
 
 Which is weird, because it was Bruce in New Jersey, and somehow, I’d never seen him play there. It was the opening show of a final, ten-show victory lap capping off the 2016 version of the River Tour–and [the last show I’d seen just weeks before in Rome](../2018-07-16_where-the-band-was-rome-july-16-2016/post.md) was one of my best shows ever.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Henry Girls: Reason to Believe"
+author: "Ken"
+excerpt: "From their 2014 album Louder Than Words comes a gorgeously resilient cover of Bruce’s dark, detached Nebraska track."
+tags: reason-to-believe the-henry-girls
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/The_Henry_Girls.jpg
+post_id: 31329
+---
 The Henry Girls hail from a little village in Ulster, Ireland, but their music incorporates as much Americana influences as it does Irish.
 
 Three multi-instrumental sisters with the last name of McLaughlin (they named their combo after their grandfather), The Henry Girls sing in gorgeous harmony and employ a wide range of instruments when recording and performing, both of which they've been doing for almost two decades.

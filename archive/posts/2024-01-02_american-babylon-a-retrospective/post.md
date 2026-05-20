@@ -1,3 +1,13 @@
+---
+layout: post
+title: "American Babylon: A Retrospective"
+author: "Ken"
+excerpt: "On the 25th anniversary of American Babylon, Joe Grushecky and I take a look back at the making and meaning of Joe’s landmark album and his decades-long friendship with producer, co-writer, and collaborator Bruce Springsteen."
+tags: american-babylon chain-smokin comin-down-maria homestead joe joe-grushecky never-be-enough-time only-lovers-left-alive talk-show
+categories: meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/american-babylon.jpg
+post_id: 20444
+---
 Editor's Note
 
 ***Updated November 2, 2021:*** *The 25th anniversary edition of American Babylon is available now, featuring bonus tracks Joe only hinted at during our original July 2020 interview below, and a tremendous live concert recording with Bruce from 1995. Well worth picking up –get it [here](https://orcd.co/JoeGrusheckyAmericanBabylon25).*<br>

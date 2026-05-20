@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, April 26, 2012"
+author: "Ken"
+excerpt: "In which I discover the secret to getting in the building for sound check."
+tags: badlands california-sun death-to-my-hometown los-angeles something-in-the-night tom-morello wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/20120426_booklet2.jpg
+post_id: 1747
+---
 Some of Bruce’s rarest performances are the ones most people never get to hear–Bruce is known for working out new songs or whipping out a never-played-publicly cover during his famously long and meticulous sound checks.
 
 If it’s an outdoor show, depending on acoustics, you might have a good shot at catching something you’ve never heard before. (I caught a wonderful performance of “[Hunter of Invisible Game](../2022-01-18_roll-of-the-dice-hunter-of-invisible-game/post.md)” that way at the Houston High Hopes show; the song has yet to be played in concert in the U.S.) But for arena shows, unless the arena staff screws up and lets the pit crowd in early, you have to be a lot more resourceful.

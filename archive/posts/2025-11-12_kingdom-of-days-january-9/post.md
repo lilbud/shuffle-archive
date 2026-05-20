@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 9"
+author: "Ken"
+excerpt: "On this date: listen to the earliest live recording of Bruce and the E Street Band, a full performance of Springsteen on Broadway, and more."
+tags: atlantic-city-expressway blood-brothers bon-jovi boston greatest-hits radio reunion springsteen-on-broadway steve-van-zandt the-river upstage
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/19730109_front.jpg
+post_id: 55556
+---
 **1971:** Bruce plays the second of two nights at the Upstage in Asbury Park as one of headliner Steve Van Zandt’s “friends.” Other friends on stage include Garry Tallent, Danny Federici, and Southside Johnny.<br>
 
 **1973**: Bruce (and the band that was still more than a year away from being known as “E Street”) drop by Boston’s WBCN-FM for an in-studio interview (Bruce’s very first) to promote their week-long gig at Paul’s Mall. The boys perform six songs, including the ultra-rare “[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)” and “[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md).” They also perform an early version of “[Wild Billy’s Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md),” which wouldn’t be recorded and released until later that year. Here it’s called simply “Circus Song.” The first half is in pretty final form; the second half, however, features some very different lyrics. Take a listen to the audio below–it’s the earliest known live recording of Bruce Springsteen and the E Street Band.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 27"
+author: "Ken"
+excerpt: "On this busy date: Bruce plays three shows in three cities (and two states) in one day, records live tracks for the Chimes of Freedom EP, and opens a show with… Pony Boy?"
+tags: born-to-run charlotte chimes-of-freedom for-you ghost-of-tom-joad-tour hartford kevin-buell london los-angeles magic-tour pony-boy souls-of-the-departed stone-pony streets-of-philadelphia tom-hanks tougher-then-the-rest tunnel-of-love-express-tour uk video-anthology waiting-on-a-sunny-day wild-billys-circus-story wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/20080427_4_front.jpg
+post_id: 56630
+---
 ***New for 2025:** New entry for 1982*<br>
 
 **1973:** Bruce opens for Blood, Sweat and Tears, The Eagles, Joe Walsh, Billy Preston, and more at the Ohio University Music Festival.<br>

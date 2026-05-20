@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Gary U.S. Bonds and the E Street Band: Club Soul City"
+author: "Ken"
+excerpt: "On his 1982 album On the Line, Gary U.S. Bonds covers Bruce’s “Heartbreak Hotel” re-write, “Club Soul City.”"
+tags: club-soul-city gary-u-s-bonds on-the-line
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/clubsoulcity.jpg
+post_id: 8404
+---
 It started the way many of Bruce's great songs did–with a hook.
 
 Sometime during the autumn of 1981, Bruce broke out his cassette recorder at his home in Colts Neck, and recorded two different deliveries of the chorus (if you can call it that) of what would become "Club Soul City."

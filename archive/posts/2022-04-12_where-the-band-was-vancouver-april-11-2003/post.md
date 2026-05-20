@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Vancouver, April 11, 2003"
+author: "Ken"
+excerpt: "My first out-of-town show, and my first time in the pit. Too bad Bruce was sick."
+tags: devils-and-dust my-hometown rising-tour this-hard-land vancouver
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/20030411_front-1.jpg
+post_id: 1555
+---
 
 This show was a first for me in two significant ways:
 

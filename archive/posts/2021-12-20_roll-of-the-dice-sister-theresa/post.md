@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sister Theresa"
+author: "Ken"
+excerpt: "Steel Mill was known for its ferocious guitar jams, but “Sister Theresa” is a fascinating exception: a Springsteen original written for acoustic guitar and recorder(!)"
+tags: sister-theresa steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/nun.jpg
+post_id: 15953
+---
 Before E Street, before The Bruce Springsteen Band, there was Steel Mill.
 
 Actually, there was a succession of bands that featured Bruce Springsteen as a member or leader, each with their own sound, but Steel Mill is probably the most well known. Bruce, Vini Lopez, Danny Federici, and Vinnie Roslin formed the band's original line-up (it would see a few personnel changes before disbanding in early 1971), and together they generated a fervent following not just on the Jersey Shore, but in the Bay Area and in Richmond, Virginia as well.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Gary U.S. Bonds and the E Street Band: Angelyne"
+author: "Ken"
+excerpt: "A cover that was almost a team-up in a parallel universe version of “The River” — Gary U.S. Bonds and Steve Van Zandt replaced Bruce’s original vocals on this outtake from the River recording sessions."
+tags: angelyne gary-u-s-bonds on-the-line steve-van-zandt the-river
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/gary-us-bonds-on-the-line-ab.jpg
+post_id: 7158
+---
 Covers of Bruce Springsteen songs tend to fall into two categories: new interpretations of Bruce's officially released material, or songs Bruce wrote and gave away.
 
 Gary U.S. Bonds' cover of Bruce's "Angelyne" falls into an odd third category, however: Bruce not only gave him the song, he gave him the *recording.* Take a listen to the track below and you'll clearly hear the E Street Band backing Bonds.

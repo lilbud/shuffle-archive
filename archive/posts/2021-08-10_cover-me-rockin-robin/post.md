@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Rockin' Robin"
+author: "Ken"
+excerpt: "One time only: Bruce and the E Street Band cover one of the most infectiously joyous songs in rock and roll."
+tags: bobby-day michael-jackson rockin-robin
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/rockin-robin.jpg
+post_id: 28862
+---
 Twice attempted, twice denied.
 
 Despite its near universal recognition and acclaim, "Rockin' Robin" stopped just short of the top spot on the Billboard Hot 100 not once but twice, peaking at #2 both times.

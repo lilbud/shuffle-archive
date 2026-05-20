@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Album Companion: Wrecking Ball"
+author: "Ken"
+excerpt: "More than a decade on, Bruce’s seventeenth studio album stands as one of his very best–and the strongest E Street Band album to date."
+tags: wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/03/wrecking.jpg
+post_id: 42585
+---
 Editor's Note
 
 With last Sunday's entry, *Wrecking Ball* becomes the fifth Springsteen studio album to receive the complete *Roll of the Dice* treatment.

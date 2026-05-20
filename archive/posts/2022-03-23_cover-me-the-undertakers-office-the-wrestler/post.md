@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Undertaker's Office: The Wrestler"
+author: "Ken"
+excerpt: "Oslo-based The Undertaker’s Office released this lovely, ethereal cover of Bruce’s affecting soundtrack single."
+tags: the-undertakers-office the-wrestler
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/undertaker.jpg
+post_id: 33409
+---
 Continuing our look at rarely-covered Springsteen songs, today we travel to Norway to appreciate this lovely cover of "[The Wrestler](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)" by Oslo based electronic-indie-pop-rock duo Lars Sundt and Kent Roise, otherwise known as The Undertaker's Office.
 
 [Watch on Youtube: The Wrestler Bruce Springsteen Cover](https://www.youtube.com/watch?v=_DvjBUOAaV8)

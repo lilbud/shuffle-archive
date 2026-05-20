@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison and Bruce Springsteen, Oh, Pretty Woman"
+author: "Ken"
+excerpt: "Why does Bruce have so much trouble getting through “Oh, Pretty Woman?” Who knows, but it’s fun to watch him try. Check out a bevy of great performances with Roy Orbison, Elvis Costello, and John Fogerty."
+tags: black-and-white-night elvis-costello john-fogerty rock-and-roll-hall-of-fame roy-orbison spectacle-elvis-costello-with
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/oh_pretty_woman.jpg
+post_id: 11847
+---
 Bruce Springsteen has covered hundreds–many hundreds–of songs in concert, so we count ourselves fortunate if even a single performance of a song was captured on tape or video.
 
 So how lucky are we to have not just one but *five* versions of Roy Orbison's all-time great on video in spectacular quality?
@@ -20,7 +30,7 @@ It took almost twelve more years before we'd get to hear Bruce play "Oh, Pretty 
 
 [Watch on Youtube: Bruce Springsteen - Pretty Woman for Roy Bittan - Munich München 02. Juli 2009 - Happy Birthday](https://www.youtube.com/watch?v=yg1ZA9mrbGA)
 
-Two months later, that moment must have still been on Bruce's mind, because during his taping of a special multi-part appearance on Spectacle: *Elvis Costello With...* Bruce decided in the moment that he and Elvis should give it a go. Did they make it all the way through? See for yourself:
+Two months later, that moment must have still been on Bruce's mind, because during his taping of a special multi-part appearance on Spectacle: *Elvis Costello With…* Bruce decided in the moment that he and Elvis should give it a go. Did they make it all the way through? See for yourself:
 
 [Watch Video Highlight](https://videopress.com/embed/VZBlxGoe)
 

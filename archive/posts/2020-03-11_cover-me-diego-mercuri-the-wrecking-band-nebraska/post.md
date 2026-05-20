@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Diego Mercuri & The Wrecking Band: Nebraska"
+author: "Ken"
+excerpt: "Finally: a rock arrangement of “Nebraska,” courtesy of Italian rockers Diego Mercuri and the Wrecking Band."
+tags: diego-mercuri nebraska the-wrecking-band
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/diego-1.jpg
+post_id: 16833
+---
 Rumors of an electric *Nebraska* album have circulated among Springsteen fans for decades, but proof of its existence (let alone an official release) continues to elude us.
 
 Still, the mystery of what Bruce's famously low-fi acoustic album might sound like if electrified has become considerably less mysterious over time.

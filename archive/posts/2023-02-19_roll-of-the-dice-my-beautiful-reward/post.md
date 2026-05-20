@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Beautiful Reward"
+author: "Ken"
+excerpt: "Bruce closes out Lucky Town by revisiting the narrator who opens Tunnel of Love."
+tags: lucky-town my-beautiful-reward
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/02/raven.jpg
+post_id: 41682
+---
 In the opening notes of his 1987 *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*album, Bruce Springsteen introduces us to a thinly veiled narrator who has it all.
 
 Well, almost all. He's missing just one thing. In "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)," he sings of his fame, success, and worldly wealth–all of which mean nothing to him without the one thing he lacks: love.

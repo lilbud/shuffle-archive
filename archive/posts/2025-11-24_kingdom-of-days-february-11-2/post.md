@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 11"
+author: "Ken"
+excerpt: "Bruce joins Marah in the studio, plays “In Freehold” *outside* Freehold for the first time, and plays three Australian shows (he knows the right time of year to go!) on this day in Springsteen history."
+tags: adelaide australia back-in-your-arms blinded-by-the-light bruce-springsteen-band float-away ghost-of-tom-joad-tour hanging-rock high-hopes-tour human-touch marah prove-it-78 seton-hall sting summertime-blues sydney the-promised-land
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/adel.jpg
+post_id: 55934
+---
 **1972:** The Bruce Springsteen Band headlines at Livingston College in Piscataway, New Jersey.<br>
 
 **1973:** Bruce and his unnamed band play at Seton Hall University.<br>

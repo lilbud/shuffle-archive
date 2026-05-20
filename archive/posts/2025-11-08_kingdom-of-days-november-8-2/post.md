@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 8"
+author: "Ken"
+excerpt: "On this date: Bruce plays a special show at his old elementary school, a complete Stand Up for Heroes performance, and the long-awaited return of “Drive All Night” after a quarter-century absence."
+tags: be-true born-in-the-usa born-in-the-usa-tour canada corpus-christi dallas darkness-tour devils-and-dust-tour drive-all-night fade-away freehold ghost-of-tom-joad-tour hall-and-oates maxs-kansas-city montreal new-york-city philadelphia racing-in-the-street river-tour springsteen-on-broadway stand-up-for-heroes tempe the-river the-ties-that-bind yellow-rose-of-texas
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/freehold.jpg
+post_id: 61316
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the third of a five-night/ten-show stand.<br>

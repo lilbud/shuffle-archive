@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 17"
+author: "Ken"
+excerpt: "On this date: Born to Run hits #1, Bruce debuts his duet with Sting on “Every Breath You Take,” and a tantalizing audio glimpse of a still-unreleased, never-performed original song."
+tags: beneath-the-floodline bobby-bandiera born-in-the-usa-tour born-to-run born-to-run-tour bruce-springsteen-band castiles darkness-tour human-rights-now-tour montreal new-york-city okalahoma patti-scialfa philadelphia ranney-school southside-johnny sting stone-pony student-prince
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/19780917_5_front.jpg
+post_id: 59681
+---
 ***New for 2025:** No updates*<br>
 
 **1966:** The Castiles play the Surf 'n' See Club in Sea Bright, New Jersey.<br>

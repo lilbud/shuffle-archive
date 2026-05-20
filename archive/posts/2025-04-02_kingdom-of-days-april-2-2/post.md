@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 2"
+author: "Ken"
+excerpt: "A fascinating Asbury Park panel and joyous Wonder Bar concert with Nicky Addeo lead the highlights from this date in Bruce history."
+tags: chicken-scratch-tour child im-on-fire louisville love-me-tender nickey-addeo one-step-up river-tour shes-the-one southside-johnny spare-parts steve-van-zandt the-upstage tunnel-of-love-express-tour uniondale wanamassa
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/20110402_front.jpg
+post_id: 56346
+---
 ***New for 2025:** No updates*<br>
 
 **1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.<br>

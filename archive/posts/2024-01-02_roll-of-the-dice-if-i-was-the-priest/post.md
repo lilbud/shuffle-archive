@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: If I Was the Priest"
+author: "Ken"
+excerpt: "One of the very earliest demos Bruce ever recorded, “If I Was the Priest” may have been the song that sealed the deal with John Hammond and launched Bruce on his way to stardom."
+tags: if-i-was-the-priest john-hamond letter-to-you mike-appel
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/priest.jpg
+post_id: 6319
+---
 **Updated 10/23/20:** Well, the first sentence of my original essay sure did age well. As of a few minutes ago, we finally have an officially released version of "If I Was the Priest," and an E Street Band version to boot. I'm going to let my original essay stand unedited–I think the lyrical analysis holds up (the differences between the original and modern versions are minor), and while the tremendous E Street Band performance deserves some discussion (as well as Bruce's vocals–he's in full Dylan mode), I'll save that for another day. For now, it's enough to just rejoice in a terrific song finally realized fifty years after Bruce first played it.<br>
 
 [Watch on Youtube: Bruce Springsteen - If I Was The Priest (Official Audio)](https://www.youtube.com/watch?v=izbq7IUYja0)

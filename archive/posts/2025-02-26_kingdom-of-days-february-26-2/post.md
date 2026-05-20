@@ -1,4 +1,14 @@
-**1966:** The Castiles play the Matawan-Keyport Roller Drome in Matawan, serving as the backup band for The Exciters. Bruce will one day witness a young Patti Scialfa cover The Exciters' biggest hit, "[Tell Him](../2020-03-22_matr-patti-scialfa-and-bruce-springsteen-tell-him/post.md)," and remember it as the night he first fell in love with Patti's voice.<br>
+---
+layout: post
+title: "February 26"
+author: "Ken"
+excerpt: "An insanely eventful day in Bruce history with gigs galore, Grammy Awards, and TV appearances. Check out the highlights, including an amazing cover of “Stayin’ Alive” and a barely-pre-reunion clip from Conan O’Brian."
+tags: amsterdam brisbane bruce-springsteen-band castiles conan-obrien eddie-vedder ghost-of-tom-joad-tour grammy-awards high-hopes-tour indianapolis julianne-phillips lawsuit-tour magic-tour max-weinberg mtv nashville pete-seeger richmond river-tour rolling-stone-magazine stayin-alive the-exciters the-ghost-of-tom-joad the-netherlands the-promised-land tunnel-of-love-express-tour working-on-the-highway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/officiallivedownloads_2014-02-26.jpg
+post_id: 56001
+---
+**1966:** The Castiles play the Matawan-Keyport Roller Drome in Matawan, serving as the backup band for The Exciters. Bruce will one day witness a young Patti Scialfa cover The Exciters’ biggest hit, “[Tell Him](../2020-03-22_matr-patti-scialfa-and-bruce-springsteen-tell-him/post.md),” and remember it as the night he first fell in love with Patti’s voice.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1966-0226.jpg.webp)
 
@@ -26,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1981-0225.jpg.webp)
 
-**1985:** Bruce wins the Grammy for Best Rock Vocal Performance (Male) for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)." (He is also nominated for Record of the Year (for "Dancing in the Dark" and Album of the Year (for *Born in the U.S.A.*) but loses to Tina Turner's "What's Love Got to Do With It" and Lionel Richie's *Can't Slow Down* respectively.) Bruce attends the ceremony with his mother and future-first-wife Julianne Phillips. The camera catches Bruce and Juli several times during the show.<br>
+**1985:** Bruce wins the Grammy for Best Rock Vocal Performance (Male) for “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).” (He is also nominated for Record of the Year (for “Dancing in the Dark” and Album of the Year (for *Born in the U.S.A.*) but loses to Tina Turner’s “What’s Love Got to Do With It” and Lionel Richie’s *Can’t Slow Down* respectively.) Bruce attends the ceremony with his mother and future-first-wife Julianne Phillips. The camera catches Bruce and Juli several times during the show.<br>
 
 [Watch on Youtube: 1985 Grammy Awards - Bruce Springsteen and Julianne Phillips](https://www.youtube.com/watch?v=7ucaXZiaXQ8)
 
@@ -34,13 +44,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1985-0226a.jpg.webp)
 
-**1987:** Bruce makes the cover of *Rolling Stone* and MTV unveils the winners of Rolling Stone Magazine's 1986 Reader's Poll–and in a year in which he did not tour and released no studio albums, Bruce still wins Artist of the Year, Best Live Performer, and Sexiest Male. Jon Bon Jovi is not impressed.<br>
+**1987:** Bruce makes the cover of *Rolling Stone* and MTV unveils the winners of Rolling Stone Magazine’s 1986 Reader’s Poll–and in a year in which he did not tour and released no studio albums, Bruce still wins Artist of the Year, Best Live Performer, and Sexiest Male. Jon Bon Jovi is not impressed.<br>
 
 [Watch on Youtube: Rolling Stone Reader's Poll: Bruce Springsteen - 1987-02-26](https://www.youtube.com/watch?v=k-TPaYJxovw)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/rolling-stone-cover-volume-494-2-26-1987-bruce-springsteen.jpg.webp)
 
-**1996:** Bruce's solo acoustic tour moves on to Amsterdam. The acoustic/percussive arrangement of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" makes its debut and will close the show for the rest of the tour. This show also features the tour debut of "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)."<br>
+**1996:** Bruce’s solo acoustic tour moves on to Amsterdam. The acoustic/percussive arrangement of “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” makes its debut and will close the show for the rest of the tour. This show also features the tour debut of “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/t4RYAYvv)
 
@@ -48,17 +58,17 @@
 
 [Watch on Youtube: Bruce Springsteen Live at the Carré Theater, Amsterdam - 1996 (audience audio recording)](https://www.youtube.com/watch?v=MhgM87h9_ek)
 
-**1997:** Bruce wins the Best Contemporary Folk Album Grammy Award for [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md) but loses his Best Male Rock Vocal Performance nomination for "[Dead Man Walkin'](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md)" to Beck's "Where It's At." Pete Seeger introduces Bruce's performance of his Grammy-winning album's title track below.<br>
+**1997:** Bruce wins the Best Contemporary Folk Album Grammy Award for [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md) but loses his Best Male Rock Vocal Performance nomination for “[Dead Man Walkin’](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md)” to Beck’s “Where It’s At.” Pete Seeger introduces Bruce’s performance of his Grammy-winning album’s title track below.<br>
 
 [Watch on Youtube: Bruce Springsteen - The Ghost of Tom Joad [1997]](https://www.youtube.com/watch?v=55q3F2XGiDk)
 
-**1999:** Bruce stops by *Late Night With Conan O'Brien* to collect Max for the upcoming Reunion Tour and performs a fun "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" with The Max Weinberg 7.<br>
+**1999:** Bruce stops by *Late Night With Conan O’Brien* to collect Max for the upcoming Reunion Tour and performs a fun “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” with The Max Weinberg 7.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/pISaTcTb)
 
 **2008:** Bruce and the band rehearse for the next leg of the Magic Tour at Convention Hall in Asbury Park.<br>
 
-**2014:** The E Street Band wraps up their Australian tour in Brisbane with surprises galore: the show opens with a fantastic cover of "[Stayin' Alive](../2020-09-01_cover-me-stayin-alive/post.md)" by the Bee Gees, featuring a string section. The strings came back later in the show for a rare outing of "New York City Serenade" at the end of a *Wild & Innocent* full album performance. Eddie Vedder joins the band in the encores for "Highway to Hell."<br>
+**2014:** The E Street Band wraps up their Australian tour in Brisbane with surprises galore: the show opens with a fantastic cover of “[Stayin’ Alive](../2020-09-01_cover-me-stayin-alive/post.md)” by the Bee Gees, featuring a string section. The strings came back later in the show for a rare outing of “New York City Serenade” at the end of a *Wild & Innocent* full album performance. Eddie Vedder joins the band in the encores for “Highway to Hell.”<br>
 
 [Watch on Youtube: Bruce Springsteen - Brisbane 26/02/2014 - Full Set](https://www.youtube.com/playlist?list=PLICA5nlm9kbLF-VgnaX--IhS0bCR5aQJA)
 

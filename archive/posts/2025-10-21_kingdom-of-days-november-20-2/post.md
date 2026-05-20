@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: November 20"
+author: "Ken"
+excerpt: "Hear fans sing “Hungry Heart” to Bruce for the first time; watch Bruce give a remarkable interview to Charlie Rose; and catch Adam Sandler’s Bruce impression on SNL. These and more highlights inside, all from this date in history."
+tags: adam-sandler baltimore bobby-bandiera born-in-the-usa bruce-springsteen-band champaign charlie-rose chicago darkness-tour ghost-of-tom-joad-tour green-onions hungry-heart i-wanna-marry-you its-hard-to-be-a-saint-in-the-city louisville richmond river-tour saturday-night-live steel-mill stone-pony student-prince thunder-road working-on-a-dream-tour your-love-keeps-lifting-me-higher-and-higher
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/20091120_booklet2.jpg
+post_id: 62408
+---
 ***New for 2025:** New entry for 2006*<br>
 
 **1969:** Steel Mill headlines at the Free University in Richmond.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/40632756604_6af20d7824_o.jpg.webp)
 
-**1971**: The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
+**1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-11-19.png.webp)
 
@@ -12,9 +22,9 @@
 
 [Watch on Youtube: Bruce Springsteen - "It's Hard to Be a Saint in the City" - Champaign, 1978-11-20](https://www.youtube.com/watch?v=yhJqumucMCY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Daily_Illini_Tue__Nov_28__1978_.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Daily_Illini_Thu__Nov_30__1978_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Daily_Illini_Thu__Nov_30__1978_.jpg.webp)
 
-**1980:** Bruce makes his first appearance at the Rosemont Horizon, where the crowd sings “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” to him for the very first time, and “[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)” gets a unique and funny introduction.<br>
+**1980:** Bruce makes his first appearance at the Rosemont Horizon, where the crowd sings "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" to him for the very first time, and "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" gets a unique and funny introduction.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/orWUOCsG)
 
@@ -22,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46735508144_21f270c05a_o.jpg.webp)
 
-**1987:** Bruce joins Bobby Bandiera on stage at The Stone Pony in Asbury Park for three songs: “[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/),” “[Stand by Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md),” and “[Carol](../2022-02-17_cover-me-carol/post.md).”<br>
+**1987:** Bruce joins Bobby Bandiera on stage at The Stone Pony in Asbury Park for three songs: "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," "[Stand by Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)," and "[Carol](../2022-02-17_cover-me-carol/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen & Bobby Bandiera - Asbury Park 1987-11-20](https://www.youtube.com/watch?v=G1TI_0yZCzA)
 
@@ -30,7 +40,7 @@
 
 [Watch on Youtube: Weekend Update: Bruce Springsteen on Thanksgiving - SNL](https://www.youtube.com/watch?v=1mrbeyWzqxA)
 
-(Okay, so maybe it’s Adam Sandler.)
+(Okay, so maybe it's Adam Sandler.)
 
 **1996:** Bruce plays a solo acoustic show at the Louisville Palace in Kentucky.<br>
 
@@ -38,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1996-11-20.png.webp)
 
-**1998:** Bruce sits down for a remarkable 50-minute television interview with Charlie Rose and performs an acoustic “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” Both are must-watch.<br>
+**1998:** Bruce sits down for a remarkable 50-minute television interview with Charlie Rose and performs an acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Both are must-watch.<br>
 
 [Watch Video](https://charlierose.com/video/player/16872)
 
@@ -56,7 +66,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2007-11-20.png.webp)
 
-**2009:** Bruce and the E Street Band play their penultimate Working on a Dream show at 1st Mariner Arena in Baltimore, where they perform the entire *Born to Run* album in sequence and switch up the sign collection song, playing “[Green Onions](../2019-05-17_cover-me-green-onions/post.md)” for the very first time.<br>
+**2009:** Bruce and the E Street Band play their penultimate Working on a Dream show at 1st Mariner Arena in Baltimore, where they perform the entire *Born to Run* album in sequence and switch up the sign collection song, playing "[Green Onions](../2019-05-17_cover-me-green-onions/post.md)" for the very first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - Green Onions - Baltimore-11/20/09](https://www.youtube.com/watch?v=5WatovRfcHA)
 
@@ -72,6 +82,6 @@
 
 **2019:** Bruce gathers the E Street Band at his home studio in Colts Neck for the third day of a five-day recording session that will yield [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md).<br>
 
-**2023:** Bruce’s scheduled show in Montreal is postponed to the following Halloween due to his peptic ulcer disease. Instead, Bruce releases the last episode (as of this writing) of *From My Home to Yours* on Sirius XM. This episode is entitled “California Sun.”<br>
+**2023:** Bruce's scheduled show in Montreal is postponed to the following Halloween due to his peptic ulcer disease. Instead, Bruce releases the last episode (as of this writing) of *From My Home to Yours* on Sirius XM. This episode is entitled "California Sun."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2024/11/2023-11-20-Bruce-E-Street-Radio-DJ-set-31.mp3](https://estreetshuffle.com/wp-content/uploads/2024/11/2023-11-20-Bruce-E-Street-Radio-DJ-set-31.mp3)

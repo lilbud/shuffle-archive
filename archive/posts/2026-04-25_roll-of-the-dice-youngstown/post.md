@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Youngstown"
+author: "Ken"
+excerpt: "In 1985, Bruce picked up a book on the new American underclass. When he finally opened and read it a decade later, it inspired one of the strongest songs on his next album."
+tags: journey-to-nowhere the-ghost-of-tom-joad youngstown
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2016/01/admin-ajax.jpg
+post_id: 42777
+---
 > "I remember thinkin', well I'm a guy. I know how to do one thing. What would happen if you've done something for thirty years… What would I say to my kids if I came home at night and I couldn't feed them, or if they were hurting? I couldn't help them. I couldn't make them safe or ensure their health… It strikes to such a central part of who you are." *–Bruce Springsteen, 1995*<br>
 
 In 1982, *Sacramento Bee* city editor Bill Moore walked into a bar and met an elderly homeless man. Over a drink, the man told Moore stories of itinerants riding the rails from town to town, searching for work, food, and shelter.

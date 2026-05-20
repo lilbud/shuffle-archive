@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: St. Paul, June 28 – July 2, 1984 (Sandi's story)"
+author: "Ken"
+excerpt: "Guest blogger Sandi Pederson was front and center when Bruce filmed his video for “Dancing in the Dark.” Read her first-hand report and relive it with her!"
+tags: born-in-the-usa-tour brian-de-palma courtney-cox dancing-in-the-dark sandi-pederson st-paul
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Sandi-Bruce-Donna.jpg
+post_id: 10976
+---
 Editor's Note
 
 ***Editor's Note:*** *My* *[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "All I Want to Do Is Dance"
+author: "Ken"
+excerpt: "From way back in The Bruce Springsteen Band era, “All I Want to Do Is Dance” is Bruce at his poppiest."
+tags: all-i-want-to-do-is-dance the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/wannadance.jpg
+post_id: 26260
+---
 One might argue that the Bruce Springsteen Band line-up (Bruce, Steve Van Zandt, Garry Tallent, Vini Lopez, and David Sancious) is basically the core of the original E Street Band, and you'd be correct… technically.
 
 But even with identical players, those two bands had *very* different sounds–the BSB period was bluesier, funkier, and groovier than the E Street Band era that followed, and the few surviving documents of that brief period (the band didn't even make it a full year) are eye-opening for anyone unfamiliar with Bruce's early music.

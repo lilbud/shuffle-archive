@@ -1,20 +1,30 @@
-“Movin’ Out (Anthony’s Song)” was a Top 20 hit (peaking at #17 on the Billboard Hot 100) for Billy Joel when it was released in 1977 as the second single from his breakthrough album, *The Stranger*.
+---
+layout: post
+title: "Movin' Out (Anthony's Song)"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and Billy Joel trade lead vocals on Billy’s 1977 hit, “Movin’ Out (Anthony’s Song).”"
+tags: billy-joel movin-out-anthonys-song
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/admin-ajax-44.jpg
+post_id: 17936
+---
+"Movin' Out (Anthony's Song)" was a Top 20 hit (peaking at #17 on the Billboard Hot 100) for Billy Joel when it was released in 1977 as the second single from his breakthrough album, *The Stranger*.
 
-It’s a song that drives straight down the center of Bruce Springsteen’s songwriting lane, chronicling working-class would-be winners desperate to pull out of a town full of losers.
+It's a song that drives straight down the center of Bruce Springsteen's songwriting lane, chronicling working-class would-be winners desperate to pull out of a town full of losers.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cJtL8vWNZ4o)
 
-So it’s a little surprising that Billy and Bruce never got around to performing it together until they shared a benefit stage at the tail end of the 2008 U.S. presidential campaign.
+So it's a little surprising that Billy and Bruce never got around to performing it together until they shared a benefit stage at the tail end of the 2008 U.S. presidential campaign.
 
-At the *Change Rocks* fundraiser for the Obama campaign, Bruce joined Billy on stage for most of Billy’s set. The very first Billy Joel song they played together? “Movin’ Out (Anthony’s Song),” with Bruce taking the lead vocal on the second verse.
+At the *Change Rocks* fundraiser for the Obama campaign, Bruce joined Billy on stage for most of Billy's set. The very first Billy Joel song they played together? "Movin' Out (Anthony's Song)," with Bruce taking the lead vocal on the second verse.
 
 [Watch Video Highlight](https://videopress.com/embed/HttEHXsi)
 
-That was the first time Billy and Bruce had ever played the song together, but you wouldn’t know it from their tight performance.
+That was the first time Billy and Bruce had ever played the song together, but you wouldn't know it from their tight performance.
 
 Unfortunately, it was also the last time, at least to date–but if the two iconic songwriters ever share a stage again, who knows?
 
-**Movin’ Out (Anthony’s Song)**<br>
+**Movin' Out (Anthony's Song)**<br>
 **First performed:** October 16, 2008 (New York City, NY)<br>
 **Last performed:** October 16, 2008 (New York City, NY)<br>
 

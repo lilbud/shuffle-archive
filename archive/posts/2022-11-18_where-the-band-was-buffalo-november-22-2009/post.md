@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Buffalo, November 22, 2009"
+author: "Ken"
+excerpt: "No one could have known that this was Clarence’s final show. But it almost seems like Bruce did, because it’s hard to imagine a more fitting tribute to their friendship."
+tags: boom-boom buffalo clarence-clemons green-onions greetings-from-asbury-park growin-up hang-up-my-rock-and-roll-shoes ill-work-for-your-love merry-christmas-baby my-love-will-not-let-you-down restless-nights rockin-all-over-the-world santa-claus-is-comin-to-town steve-van-zandt surprise-surprise working-on-a-dream-tour wrecking-ball your-love-keeps-lifting-me-higher-and-higher
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/buffalo09.jpg
+post_id: 5687
+---
 Way, way, up near the top of my favorite shows list lies this one. Certainly one of the least predictable, absolutely one of the most memorable and (especially in retrospect) emotional.
 
 One of the rules of Springsteen tours is that the penultimate show is almost always way better than the final show of the tour. This show was the exception, and over the last nine years it's only grown in stature.

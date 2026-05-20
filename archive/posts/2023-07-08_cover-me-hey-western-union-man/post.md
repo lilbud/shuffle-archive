@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Cover Me: Hey, Western Union Man"
+author: "Ken"
+excerpt: "Springsteen was unfamiliar with Jerry Butler until Jon Landau brought “Hey, Western Union Man” to his attention. He ended up covering several of Butler’s songs."
+tags: hey-western-union-man jerry-butler only-the-strong-survive
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/westernunion.jpg
+post_id: 44059
+---
 Bruce Springsteen's *Only the Strong Survive* is generally considered an album of the singer's youthful favorites, but two of its songs–including the title track–are by an artist that had flown relatively under his radar.
 
-"I wasn't super familiar with Jerry Butler until I went searching for material for this record," Springsteen told *Asbury Park Press* interviewer Chris Jordan last year. "Jon Landau was the huge Jerry Butler fan and he suggested 'Hey, Western Union Man' and I said I don't know."
+"I wasn't super familiar with Jerry Butler until I went searching for material for this record," Springsteen told *Asbury Park Press* interviewer Chris Jordan last year. "Jon Landau was the huge Jerry Butler fan and he suggested ‘Hey, Western Union Man' and I said I don't know."
 
 [Watch on Youtube: Jerry Butler / Hey, Western Union Man](https://www.youtube.com/watch?v=UrlCaXd49AA)
 

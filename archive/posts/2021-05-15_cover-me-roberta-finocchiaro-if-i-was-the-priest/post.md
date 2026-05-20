@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Roberta Finocchiaro: If I Was the Priest"
+author: "Ken"
+excerpt: "Last Year’s Cover Me critics’ prize winner is back for another run at the title–here’s her brand new solo electric cover of “If I Was the Priest.”"
+tags: if-i-was-the-priest roberta-finocchiaro
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/roberta.jpg
+post_id: 27315
+---
 If you're a Springsteen fan, have musical talent, and think you can bring a fresh perspective to one of Bruce's songs, there's still time to enter the s[econd annual Cover Me contest!](https://www.noiespringsteen.com/contest/)
 
 Last June, I featured the Critics' Prize winner from the first edition here on the Shuffle: Light of Day alum Roberta Finnochiaro and her [wonderful cover](../2020-06-07_cover-me-roberta-finocchiaro-new-york-city-serenade/post.md) of "New York City Serenade."

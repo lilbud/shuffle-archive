@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Deja Vu (All Over Again)"
+author: "Ken"
+excerpt: "When America found itself enmeshed in an unpopular foreign war (again), John Fogerty met the moment. On the Vote For Change Tour, the E Street Band backed Fogerty each night for his comeback track."
+tags: deja-vu-all-over-again john-fogerty vote-for-change
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/dejavu.jpg
+post_id: 19493
+---
 > "If you're in my generation and if you grew up in any part of the alternative culture, [activism] was just a part of your birthright… that came as part of those times. [T]he people who we admired and emulated–which for me obviously begins with Dylan–had a very clear political voice. John [Fogerty] did it more subtly, but fabulously also." *–Bruce Springsteen to Christopher Phillips, Backstreets, February 10, 2009*<br>
 
 Bruce Springsteen has been a fan of John Fogerty for as long as he's been playing music, calling Fogerty "the Hank Williams of my generation." As early as his days in Child, Bruce included the music of Creedence Clearwater Revival in his sets. The River Tour famously included covers of "Who'll Stop the Rain" and "Run Through the Jungle," and in 1993 Bruce had the privilege of inducting John into the Rock and Roll Hall of Fame.

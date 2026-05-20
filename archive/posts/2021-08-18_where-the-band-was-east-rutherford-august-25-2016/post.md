@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Where the Band Was: East Rutherford, August 25, 2016"
+author: "Ken"
+excerpt: "MetLife #2 on the River Tour was literally a family affair, and I just happened to be seated right behind it."
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/officiallivedownloads_2016-08-25.jpg
+post_id: 3915
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/metlife2-a_LI.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/metlife2-b.png.webp)

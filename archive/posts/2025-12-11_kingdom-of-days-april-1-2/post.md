@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 1"
+author: "Ken"
+excerpt: "On this date in Springsteen history: watch Bruce’s full Tunnel of Love show in Uniondale, hear his last performance of “Good Eye,” and more."
+tags: athens chicken-scratch-tour new-brunswick san-jose steve-van-zandt the-promise tunnel-of-love-express-tour underground-garage uniondale washington-dc working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/2023-04-01-new-york-ny-msg-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56345
+---
 **1973:** Bruce and his “strange but adept” band headline a show at Rutgers University.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1973-0401.jpg.webp)

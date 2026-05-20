@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 17"
+author: "Ken"
+excerpt: "On this date: Bruce and Joe Grushecky team up on stage for the first time, a rocking tribute to Clarence, the filming of Springsteen on Broadway, and more."
+tags: action-in-the-streets born-in-the-usa-tour castiles chicago child clarence-clemons come-on dublin east-rutherford giants-stadium i-fought-the-law ireland j-t-bowen joe-grushecky madrid magic-tour munich new-york-city rising-tour rosemont savin-up spain springsteen-on-broadway steel-mill stone-pony tunnel-of-love-tour twist-and-shout uk west-germany wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/20120717_booklet2.jpg
+post_id: 57748
+---
 ***New for 2025:** Audio for 1970; new entry for 1979*<br>
 
 **1968:** The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey. Jeannie Clark opens for the band; she will later join Dr. Zoom and the Sonic Boom as a Zoomette.<br>

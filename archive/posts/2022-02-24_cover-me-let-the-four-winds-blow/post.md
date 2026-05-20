@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Let the Four Winds Blow"
+author: "Ken"
+excerpt: "Way back in 1974, Bruce and the E Street Band paid homage to Fats Domino with a mash-up of two singles by the New Orleans rock pioneer."
+tags: fats-domino im-ready let-the-four-winds-blow
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/fourwinds.jpg
+post_id: 32952
+---
 If you're a rock and roll musician in the classic tradition, sooner or later you've got to cover Fats Domino. The New Orleans pianist and singer-songwriter was one of rock's foremost pioneers and is credited with one of the very first rock and roll singles.
 
 So it's a little surprising that Bruce hasn't covered him more than he has–and that we have to go all the way back to 1974 to find the best example.

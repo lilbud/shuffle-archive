@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Brothers Under the Bridge '95"
+author: "Ken"
+excerpt: "Twelve years later, Bruce revisited his narrator from “Brothers Under the Bridges ’83,” now haunted by the war that awaited him."
+tags: brothers-under-the-bridge brothers-under-the-bridge-95 tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/bridge-1.jpg
+post_id: 31074
+---
 In 1983, Bruce Springsteen recorded a song called "[Brothers Under the Bridges '83](../2019-10-21_roll-of-the-dice-brothers-under-the-bridges-83/post.md)" about a pair of fourteen-year-old boys who dream of the freedom and adventure that await them at eighteen.
 
 In 1995, he revisited his fourteen-year-old narrator–now thirty–in a song called "Brothers Under the Bridge '95," and he put both songs on his 1998 box set collection of unreleased songs, *Tracks*.

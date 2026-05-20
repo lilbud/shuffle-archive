@@ -1,3 +1,13 @@
+---
+layout: post
+title: "It's Time to Go Home"
+author: "Ken"
+excerpt: "This dark and lonely song was never recorded and performed only once–but it was captured on tape, and you can hear it inside."
+tags: its-time-to-go-home the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/admin-ajax-62.jpg
+post_id: 2417
+---
 Serving up a true lost gem today: "It's Time to Go Home" is a complete, polished original Bruce Springsteen song, but one that was never recorded and only performed once (that we know of).
 
 On the first day of September 1971, The Bruce Springsteen Band (consisting of Bruce, Stevie, Garry, Vini, and David Sancious) played a free concert in Garfield Park in Long Branch, New Jersey.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Won't Get Fooled Again"
+author: "Ken"
+excerpt: "Bruce joined The Who on their classic “Won’t Get Fooled Again” twice–once in 1990 and again a quarter century later. Watch both of those performances here."
+tags: musicares rock-and-roll-hall-of-fame the-who wont-get-fooled-again
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/admin-ajax-45.jpg
+post_id: 4043
+---
 On May 28, 2015, the MusiCares Foundation honored Pete Townshend at their annual MAP Fund concert, and Townshend's award was presented by Bruce.
 
 Bruce has cited The Who as a major influence on several occasions, most notably in an entertaining and enlightening conversation with Steve Van Zandt on the Underground Garage in 2011:

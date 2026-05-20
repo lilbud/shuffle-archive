@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Rag Mama Rag"
+author: "Ken"
+excerpt: "The Band’s loose, rollicking “Rag Mama Rag” was a perfect candidate for the Sessions Band treatment, and it became an encore favorite during that tour."
+tags: rag-mama-rag the-band
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/ragmama.jpg
+post_id: 9379
+---
 In retrospect, we probably should have expected it.
 
 Bruce once described the Sessions Band as a band that rolls rather than rocks, and that’s also a perfect descriptor for The Band’s 1970 single, “Rag Mama Rag.”

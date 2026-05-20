@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 26"
+author: "Ken"
+excerpt: "The live debuts of “Frankie” and “Ain’t Got You” both happened on this date in history. More highlights inside."
+tags: atlanta australia boston brisbane chicken-scratch-tour e-street-radio frankie lexington melbourne peter-wolf red-headed-woman rising-tour the-ghost-of-tom-joad tunnel-of-love-express-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/19880326_2_front.jpg
+post_id: 56288
+---
 **1976:** At the Fox Theater in Atlanta, Bruce premieres an early version of “Frankie.”<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1976-03-26.png.webp)

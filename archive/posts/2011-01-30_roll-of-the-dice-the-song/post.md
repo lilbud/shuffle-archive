@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Song"
+author: "Ken"
+excerpt: "Known by a few names, “The Song” is an unreleased, unperformed but completely realized early songwriting exercise by Bruce."
+tags: i-heard-the-word the-song the-word
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/thesong-e1528287145688.png
+post_id: 2459
+---
 There's some debate as to the actual name of this unreleased, never-performed Springsteen original composition.
 
 In Bruce's handwritten notes, he refers to it as "I Heard the Word," and certainly that line is oft-repeated. It was eventually copyrighted in 1995 under the title "The Word."
@@ -10,44 +20,44 @@ Regardless of what you call the song, "The Song" is rather typical of Bruce's ea
 
 [Watch on Youtube: Bruce Springsteen the song the word I heard the word](https://www.youtube.com/watch?v=lLKRhwmJz_U)
 
-> *Well you flash your tongue like diamonds*
-> *You tied me to your wildcat schemes*
-> *And you forced me to into a power dive*
-> *And left your mark on my jeans*
-> *And I heard the word on your soldiers*
-> *And I heard the word on Jesus too*
-> *I heard the word on the country*
-> *But I never heard the word on you*
+> *Well you flash your tongue like diamonds*<br>
+> *You tied me to your wildcat schemes*<br>
+> *And you forced me to into a power dive*<br>
+> *And left your mark on my jeans*<br>
+> *And I heard the word on your soldiers*<br>
+> *And I heard the word on Jesus too*<br>
+> *I heard the word on the country*<br>
+> *But I never heard the word on you*<br>
 
-> *Your love was like a machine gun*
-> *I wore your bugle in my belt*
-> *And I was your kid glove lover*
-> *All the cards were yours, you always dealt*
-> *And I stood before your soapbox*
-> *Noiseless and shoeless playing my pantry boy's games*
-> *You had your raised up, you had your hands raised up*
-> *You were raised up to the sky shouting, "Oh Sunday deity*
-> *Oh Big Daddy Longlegs, come down and bless your sister please"*
-> *You were shouting orders about the construction going on down the highway*
-> *Doing the Virginia reel, you were naming names, blaming blames*
-> *And you blamed me*
+> *Your love was like a machine gun*<br>
+> *I wore your bugle in my belt*<br>
+> *And I was your kid glove lover*<br>
+> *All the cards were yours, you always dealt*<br>
+> *And I stood before your soapbox*<br>
+> *Noiseless and shoeless playing my pantry boy's games*<br>
+> *You had your raised up, you had your hands raised up*<br>
+> *You were raised up to the sky shouting, "Oh Sunday deity*<br>
+> *Oh Big Daddy Longlegs, come down and bless your sister please"*<br>
+> *You were shouting orders about the construction going on down the highway*<br>
+> *Doing the Virginia reel, you were naming names, blaming blames*<br>
+> *And you blamed me*<br>
 
-> *You wore your heart like a challenge*
-> *Far and apart for anyone who came*
-> *Open and wide like the river*
-> *With rocks on both sides to keep the water tame*
-> *But I heard the word on your high tides*
-> *And I felt the pain when I tried to rip your floodgates wide*
-> *And pull your body on over to my side where we both could hide*
-> *But you heard about the freedom ride*
-> *And you heard about the highway crew*
-> *Who could cut the light a little bit faster than you*
-> *So you left me just your shoes*
+> *You wore your heart like a challenge*<br>
+> *Far and apart for anyone who came*<br>
+> *Open and wide like the river*<br>
+> *With rocks on both sides to keep the water tame*<br>
+> *But I heard the word on your high tides*<br>
+> *And I felt the pain when I tried to rip your floodgates wide*<br>
+> *And pull your body on over to my side where we both could hide*<br>
+> *But you heard about the freedom ride*<br>
+> *And you heard about the highway crew*<br>
+> *Who could cut the light a little bit faster than you*<br>
+> *So you left me just your shoes*<br>
 
-> *And I heard the word on Jesus*
-> *And I heard the word on his marching troops*
-> *I heard the word on the country*
-> *But I never heard the word on you*
+> *And I heard the word on Jesus*<br>
+> *And I heard the word on his marching troops*<br>
+> *I heard the word on the country*<br>
+> *But I never heard the word on you*<br>
 
 It's not one of Bruce's strongest songs, even when considered just among his early work. It's not surprising it was left off of *[Greetings from Asbury Park](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md).* But it's still a fascinating peek at an artist still developing his voice and his style.
 

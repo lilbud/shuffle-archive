@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Upon This Day (Eurydice)"
+author: "Ken"
+excerpt: "From the pages of his 1968 Notebook comes Bruce’s retelling of the myth of Orpheus and Eurydice."
+tags: 1968-notebook upon-this-day-eurydice
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/EurydiceAndOrpheus.png
+post_id: 27621
+---
 He admits to not being the most engaged student during his high school and college days, but it's clear he was at least paying attention *sometimes*.
 
 We know this thanks to an auctioned [1968 notebook](https://estreetshuffle.com/?s=1968+notebook) of early songwriting, which contains (among other works) a lovely poem/song called "Upon This Day," transcribed on April 30, 1968 by its author, eighteen-year-old Bruce Springsteen.

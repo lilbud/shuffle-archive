@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: All I Wanna Know"
+author: "Ken"
+excerpt: "Never recorded, released, or even performed, “All I Wanna Know” is a fascinating sneak peek at the early, evolving songwriting craft of Bruce Springsteen."
+tags: all-i-wanna-know
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/All-I-Want-To-Know-2.jpg
+post_id: 15196
+---
 It's astonishing how many early Springsteen compositions–even unfinished and abandoned ones–are floating around out there on paper.
 
 I've written about several of the entries in Bruce's "[notebook series](https://estreetshuffle.com/?s=1968+notebook)" before, and it never ceases to astonish me that Bruce was both meticulous and careful enough to record his early work and yet careless enough that so many of them found their way to the public via (presumably) acquaintances close enough to him to have access.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "School Is Out"
+author: "Ken"
+excerpt: "Bruce’s one-and-only performance of “School Is Out” was with its original recording artist back in 1981."
+tags: gary-u-s-bonds school-is-out
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/gary-us-bonds-school-is-out-1961.jpg
+post_id: 4622
+---
 This one's for the completists (like me).
 
 "School Is Out" was Gary U.S. Bonds follow-up to his smash hit (and frequent Springsteen encore) "Quarter to Three."

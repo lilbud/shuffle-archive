@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Alejandro Escovedo and Bruce Springsteen, Faith"
+author: "Ken"
+excerpt: "One time only, in the studio and on stage: Bruce joins Alejandro Escovedo on a hard-rocking Escovedo anthem."
+tags: alejandro-escovedo faith
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/AlejandroEscovedo_Cover_HR_20100421_162441-1024x1024.jpg
+post_id: 14033
+---
 Any time Bruce performs on stage with Alejandro Escovedo, the result is rock and roll gold. So why wouldn't we expect the same result in the studio?
 
 In 2010, Bruce and Alejandro recorded their first studio track together, and yup... faith was rewarded.

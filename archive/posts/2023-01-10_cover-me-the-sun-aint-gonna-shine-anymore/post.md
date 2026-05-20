@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Sun Ain't Gonna Shine Anymore"
+author: "Ken"
+excerpt: "This Walker Brothers wall-of-sound classic features one of Springsteen’s finest vocals on record."
+tags: franki-valli only-the-strong-survive the-sun-aint-gonna-shine-anymore the-walker-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/01/sunaint.jpg
+post_id: 40755
+---
 When "[River Deep – Mountain High](../2021-02-18_matr-tina-turner-bruce-springsteen-little-richard-stevie-wonder-and-more-river-deep-mountain-high/post.md)" tanked in early 1966, Phil Spector retreated (temporarily) from the music industry, and with him went his signature "wall of sound."
 
 Well... not entirely. At the same time "River Deep – Mountain High" barely clawed its way into the Billboard Hot 100, The Walker Brothers' Spector-ian cover of "The Sun Ain't Gonna Shine Anymore" soared past it to peak at #13 in the U.S. and #1 in the U.K.

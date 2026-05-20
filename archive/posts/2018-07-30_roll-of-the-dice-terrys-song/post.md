@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Terry's Song"
+author: "Ken"
+excerpt: "Written less than three days after the passing of its inspiration, “Terry’s Song” is at once intensely personal and universal. It reminds us of the importance of truly knowing the people in our lives."
+tags: magic terry-magovern terrys-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/Bruce-Terry.jpg
+post_id: 3399
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/terryssong_rememberingterrymagovern1-1.jpg.webp)
 
 From the Asbury Park Press, August 1, 2007:

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Iceman"
+author: "Ken"
+excerpt: "If there’s any song in Bruce’s catalog more misunderstood than “Born in the U.S.A.,” it’s this Darkness-era outtake."
+tags: iceman tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/iceman.jpg
+post_id: 32363
+---
 Ask anyone to name Bruce Springsteen's most misunderstood song, and they'll likely answer, "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
 
 But if you ask me, I'll tell you it's "Iceman."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Ghostbusters"
+author: "Ken"
+excerpt: "We now have an Album-by-Album Index for the Roll of the Dice series! Check it out and see if we’ve covered your favorite song yet."
+tags: index roll-of-the-dice
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/c1e7a8-20140806-ghostbusters.jpg
+post_id: 7341
+---
 Lindsey Buckingham passed on it. So did Kenny Loggins and Huey Lewis.
 
 All three are masters at creating memorable songs for movies, but none of them could figure out how to write a song with rhymes for "Ghostbusters."

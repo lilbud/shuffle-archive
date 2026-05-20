@@ -1,20 +1,30 @@
-*Rumble Doll,* Patti Scialfa’s 1993 debut album, revealed a powerful voice paired with songwriting talent at once both brave and vulnerable. Her too-far-apart follow-up albums proved that *Rumble Doll* was no fluke.
+---
+layout: post
+title: "Spanish Dancer"
+author: "Ken"
+excerpt: "During a week of holiday shows in 2001, Patti Scialfa performed her beautiful 1993 ballad with her husband backing her on guitar."
+tags: emmylou-harris patti-scialfa rodney-crowell spanish-dancer
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1988/09/admin-ajax-36.jpg
+post_id: 18560
+---
+*Rumble Doll*, Patti Scialfa's 1993 debut album, revealed a powerful voice paired with songwriting talent at once both brave and vulnerable. Her too-far-apart follow-up albums proved that *Rumble Doll* was no fluke.
 
-That entire first album is wonderful. As Emmylou Harris once put it in a 2013 NPR interview: “[Patti] writes about the female heart, the poetry of being female in a way that it just… every singer-songwriter, female artist that I know loves this record. It never got the attention it should have. I suppose it will always be overshadowed because she's, you know, Bruce Springsteen's wife, but it doesn't take away from the art, her artistry.”
+That entire first album is wonderful. As Emmylou Harris once put it in a 2013 NPR interview: "[Patti] writes about the female heart, the poetry of being female in a way that it just… every singer-songwriter, female artist that I know loves this record. It never got the attention it should have. I suppose it will always be overshadowed because she's, you know, Bruce Springsteen's wife, but it doesn't take away from the art, her artistry."
 
-*Rumble Doll* saves one of its best tracks for last. “Spanish Dancer” is a beautiful ballad about a mesmerizing, unattainable love interest who turns out to be “just a man after all.” It doesn’t require a lot of imagination to suspect who she’s singing about.
+*Rumble Doll* saves one of its best tracks for last. "Spanish Dancer" is a beautiful ballad about a mesmerizing, unattainable love interest who turns out to be "just a man after all." It doesn't require a lot of imagination to suspect who she's singing about.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9jQNUFTjgL4)
 
-While Bruce didn’t play on that particular studio track, he did support his wife on guitar when she performed the song live at Bruce’s Asbury Park holiday shows in December 2001.
+While Bruce didn't play on that particular studio track, he did support his wife on guitar when she performed the song live at Bruce's Asbury Park holiday shows in December 2001.
 
 [Watch Video Highlight](https://videopress.com/embed/VvbHTDM0)
 
-Their live arrangement is even lovelier and more intimate than the album track, thanks to Soozie Tyrell’s lonely violin.
+Their live arrangement is even lovelier and more intimate than the album track, thanks to Soozie Tyrell's lonely violin.
 
-Here’s hoping for another Scialfa album (and some solo shows) sometime soon.
+Here's hoping for another Scialfa album (and some solo shows) sometime soon.
 
-**Bonus:** There’s a reason Emmylou Harris was discussing Patti in that NPR interview: she covered “Spanish Dancer” with Rodney Crowell on their wonderful *Old Yellow Moon* album. Here’s their version, along with a live performance below.<br>
+**Bonus:** There's a reason Emmylou Harris was discussing Patti in that NPR interview: she covered "Spanish Dancer" with Rodney Crowell on their wonderful *Old Yellow Moon* album. Here's their version, along with a live performance below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8Rn6hBjg2SE)
 

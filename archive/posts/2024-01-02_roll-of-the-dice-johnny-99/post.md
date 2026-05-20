@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Johnny 99"
+author: "Ken"
+excerpt: "The tale of “Johnny 99” is an ironic one: on vinyl, it’s one of Bruce’s finest songwriting achievements, but on stage it loses power as it gains relevance."
+tags: jimmie-rodgers johnny-99 nebraska
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/johnny99.jpg
+post_id: 19057
+---
 > "The [*Nebraska*] songs had a lot of detail, so that when the band started to wail away into it, the characters got lost. Like ‘Johnny 99,' I thought, ‘oh, that'd be great if we could do a rock version.' But when you did that, the song disappeared." *–Bruce Springsteen, Hot Press, November 2, 1984*<br>
 
 This is a story of a song that disappeared.

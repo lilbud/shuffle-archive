@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Little Richard, Mick Jagger, Bruce Springsteen & more: I Can't Turn You Loose"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen backs Little Richard and Mick Jagger as they storm their way through Otis Redding’s 1965 classic."
+tags: i-cant-turn-you-loose little-richard mick-jagger otis-redding rock-and-roll-hall-of-fame
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/cantturn.jpg
+post_id: 29033
+---
 "I Can't Turn You Loose" was never intended to be the hit it became.
 
 Otis Redding and co-writer Steve Cropper cobbled it together in minutes, built on the chassis of a now-classic Booker T. and the MGs riff. (You can clearly hear it in their single, "Time Is Tight.")

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Camilla Horn"
+author: "Ken"
+excerpt: "An all-but-forgotten German film actress inspired one of Bruce’s earliest character studies."
+tags: camilla-horn
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/camilla.jpg
+post_id: 35373
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/clip_103307049.jpg.webp)
 
 In 1926, a 23-year-old German ingenue was catapulted from obscurity to stardom when she was cast in the role of Gretchen in the German production of *Faust*, a role originally intended for famous actress Lillian Gish.
@@ -16,14 +26,14 @@ She made an impression on a young singer-songwriter from New Jersey, too. In ear
 
 Bruce's song–entitled simply "Camilla Horn"–focuses on Horn's arrival in the United States, where she was hailed as the next big thing before the industry moved on to the big thing after her.
 
-> *Camilla Horn, she was born a long, long time ago*
-> *She came from Germany to the U.S.A.*
-> *And was acclaimed as the next Garbo*
-> *They came to her on their knees to bless them, caress them*
-> *And tell them what they need*
-> *But oh, she did not know*
-> *And so she took her place at the bar*
-> *Just another fallen star*
+> *Camilla Horn, she was born a long, long time ago*<br>
+> *She came from Germany to the U.S.A.*<br>
+> *And was acclaimed as the next Garbo*<br>
+> *They came to her on their knees to bless them, caress them*<br>
+> *And tell them what they need*<br>
+> *But oh, she did not know*<br>
+> *And so she took her place at the bar*<br>
+> *Just another fallen star*<br>
 
 Bruce imagines Horn as the unsophisticated rural girl she once was, suddenly a celebrity and unable or unwilling to play the part. When Hollywood moves on without her, Bruce's version of Horn becomes a barfly a la "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)," a forgotten movie idol in what would eventually become a long string of them.
 

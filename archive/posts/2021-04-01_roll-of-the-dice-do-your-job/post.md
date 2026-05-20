@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Do Your Job"
+author: "Ken"
+excerpt: "For those of us waiting and wishing for new Springsteen music, today brings a treat: a leaked, unreleased but finished and filmed music video recorded during the Magic era."
+tags: april-fools do-your-job peter-hulne
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/do-your-job.jpg
+post_id: 16723
+---
 Bruce's vaults are filled with unreleased songs.
 
 Every few years, it seems, we're treated to limited releases of outtakes, alternate versions, and ones that got away–sometimes fully-formed and vintage, more often surgically enhanced for tracks that were never finished.

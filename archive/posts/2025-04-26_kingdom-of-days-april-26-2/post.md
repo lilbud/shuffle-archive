@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 26"
+author: "Ken"
+excerpt: "On this date: Bruce releases his Devils & Dust album, debuts “Hello Sunshine,” and more."
+tags: 96-tears atlanta back-in-your-arms belgium brussels california-sun castiles chattanooga devils-and-dust douglas-springsteen hello-sunshine high-hopes-tour joe-grushecky los-angeles pittburgh reunion-tour river-tour seeger-sessions-tour switzerland tom-morello western-stars working-on-a-dream-tour wrecking-ball-tour zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/devils.jpg
+post_id: 56613
+---
 ***New for 2025:** New entry for 1980 and 1982*<br>
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>

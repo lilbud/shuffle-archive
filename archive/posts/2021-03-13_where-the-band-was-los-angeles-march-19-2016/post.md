@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, March 19, 2016"
+author: "Ken"
+excerpt: "A spectacular send-off for the Sports Arena featured a magical “Drive All Night.”"
+tags: crush-on-you drive-all-night jungleland los-angeles river-tour-2016 rosalita sports-arena tougher-than-the-rest wrecking-ball
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/Farewell-Sports-Arena.png
+post_id: 1217
+---
 It was just that kind of night.
 
 The kind of night where you win the pit lottery and find yourself front and center for the longest Springsteen concert in the U.S. since 1980 and the 6th longest show anywhere, ever. (That record would be shattered multiple times by the end of the tour, but we didn’t know it that night.)

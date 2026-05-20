@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sociedade Alternativa"
+author: "Ken"
+excerpt: "Twice only: When Bruce and the E Street Band returned to Brazil after a quarter-century absence, they kicked things off by paying tribute to Brazil’s most famous rock star."
+tags: raul-seixas sociedade-alternativa
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/sociedade.jpg
+post_id: 29796
+---
 Now *this* is how you win over an audience.
 
 Raul Seixas was an immensely popular rock star/songwriter in Brazil until his death in 1989. Known as the father of Brazilian rock with a catalog of 21 albums across 26 years (one more album than Bruce has released in almost twice that time), Seixas produced a massive body of work across multiple genres.

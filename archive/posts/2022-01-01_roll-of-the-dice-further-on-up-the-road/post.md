@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Further On (Up the Road)"
+author: "Ken"
+excerpt: "Debuted without introduction on the Reunion Tour, “Further On (Up the Road)” marked a turning point in Bruce’s songwriting that continues through “I’ll See You in My Dreams.”"
+tags: further-on-up-the-road the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/futheron.jpg
+post_id: 31027
+---
 Are there any words more polarizing at a concert than "We're gonna play something brand new"?
 
 There are people who come to hear their old favorites, and there are people who thrill to hearing a song they've never heard before even on an album.

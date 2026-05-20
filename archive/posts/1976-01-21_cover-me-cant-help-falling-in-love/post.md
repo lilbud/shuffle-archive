@@ -1,4 +1,14 @@
-> "I had a song we were gonna do, but in the end we didn't learn it in time. I wanted to do–what's the song from *Blue Hawaii*? It was his theme song, one which everyone relates to his Las Vegas period: ‘I Can't Help Falling in Love With You.' Which I think is a great song, but everyone relates to it as being Las Vegas-y, but I don't think it is. I wanted to do that one, but we just didn't get a chance to run it down before the show. — *Bruce Springsteen to Ed Sciaky, August 19, 1978*
+---
+layout: post
+title: "Can't Help Falling in Love"
+author: "Ken"
+excerpt: "It dates back to the 18th century and has inspired a slew of genre-crossing covers, but when Bruce covered Elvis’ classic Blue Hawaii ballad, he drew on The King’s original version for inspiration."
+tags: cant-help-falling-in-love elvis-presley
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/canthelpfalling.jpg
+post_id: 26703
+---
+> "I had a song we were gonna do, but in the end we didn't learn it in time. I wanted to do–what's the song from *Blue Hawaii*? It was his theme song, one which everyone relates to his Las Vegas period: ‘I Can't Help Falling in Love With You.' Which I think is a great song, but everyone relates to it as being Las Vegas-y, but I don't think it is. I wanted to do that one, but we just didn't get a chance to run it down before the show. — *Bruce Springsteen to Ed Sciaky, August 19, 1978*<br>
 
 In the 1961 film *Blue Hawaii*, Elvis presents his girlfriend's grandmother (played by Flora K. Hayes, who actually wasn't an actress but rather a congresswoman (fun fact #1)) with a music box that plays a "European love song."
 
@@ -14,13 +24,13 @@ Well, sort of. The lyrics are kind of a downer, but that music box was playing a
 
 The chorus of "Plaisir d'Amour" translates to…
 
-> *Pleasure of love only lasts a moment*
-> *Heartache lasts a lifetime*
+> *Pleasure of love only lasts a moment*<br>
+> *Heartache lasts a lifetime*<br>
 
 …with verses like:
 
-> *I gave up everything for the ungrateful Sylvia*
-> *She left me for another lover*
+> *I gave up everything for the ungrateful Sylvia*<br>
+> *She left me for another lover*<br>
 
 So calling it a "European love song" might have been a bit of a stretch.
 

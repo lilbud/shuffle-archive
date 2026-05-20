@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 22"
+author: "Ken"
+excerpt: "This date in Springsteen history is full of notable events: from the famous MTV “Plugged” show to the infamous “ex-girlfriend’ show, from the very first “A Love So Fine” to the start of the talk show circuit for Bruce’s autobiography–all this and much more from this date."
+tags: book-of-dreams born-in-the-usa-tour born-to-run castiles denver east-rutherford jackson-browne jimmy-cliff late-show-with-stephen-colbert leap-of-faith lynn-goldsmith madison-square-garden mtv-plugged mtv-unplugged muse new-york-city no-nukes pittsburgh quarter-to-three rising-tour rosalita-come-out-tonight rosemary-butler souls-of-the-departed springsteen-on-broadway stone-pony take-it-easy teresa-williams thunder-road tom-petty world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/birthdayshow.jpg
+post_id: 59695
+---
 ***New for 2025:** Audio for 1979; video for 1992*<br>
 
 **1967:** The Castiles play at a rally dance at West Freehold School.<br>

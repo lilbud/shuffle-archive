@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: October 9"
+author: "Ken"
+excerpt: "It’s Bruce’s first show in Indiana and the Ivory Coast, and his last-ever show at Giants Stadium. Both happened on this date–more highlights inside."
+tags: detroit devils-and-dust-tour east-rutherford giants-stadium human-rights-now-tour ivory-coast lawsuit-tour magic-tour notre-dame river-tour south-bend the-last-time thundercrack uniondale working-on-a-dream-tour wrecking-ball
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/20091009_booklet2.jpg
+post_id: 61076
+---
 ***New for 2025:** No updates*<br>
 
-**1973:** Bruce plays at Grendel’s Lair Coffee House in Philadelphia.<br>
+**1973:** Bruce plays at Grendel's Lair Coffee House in Philadelphia.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1973-10-09.png.webp)
 
@@ -10,11 +20,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1976-10-09.jpg.webp)
 
-**1979:** At the Power Station in New York City, Bruce and the E Street Band record “[Where the Bands Are.](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)” The song will remain unreleased for almost 20 years.<br>
+**1979:** At the Power Station in New York City, Bruce and the E Street Band record "[Where the Bands Are.](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)" The song will remain unreleased for almost 20 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Where The Bands Are (Credits) (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=7FrUma-rtZA)
 
-**1980:** The River Tour moves on to Detroit’s Cobo Arena, where Bruce and the boys close with a tour one-off of “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)” (following the first “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” with “I Hear a Train” in it). After the show, Bruce is interviewed for the January 1981 issue of *Creem Magazine.*<br>
+**1980:** The River Tour moves on to Detroit's Cobo Arena, where Bruce and the boys close with a tour one-off of "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)" (following the first "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" with "I Hear a Train" in it). After the show, Bruce is interviewed for the January 1981 issue of *Creem Magazine.*<br>
 
 [Watch Video Highlight](https://videopress.com/embed/nldSXriz)
 
@@ -30,11 +40,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1988-1009.jpg.webp)
 
-**1992:** A scheduled show at Mountain View’s Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.<br>
+**1992:** A scheduled show at Mountain View's Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1992-10-08.jpg.webp)
 
-**2005:** Bruce opens his solo acoustic show at the Nassau Coliseum with a rare “Stolen Car.”<br>
+**2005:** Bruce opens his solo acoustic show at the Nassau Coliseum with a rare "Stolen Car."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/7Uotb7nK)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2005-10-09-scaled.jpg.webp)
 
-**2007:** It’s a standard set at Magic Tour Night One at East Rutherford’s Continental Airlines Arena, but surprises are in store for Night Two.<br>
+**2007:** It's a standard set at Magic Tour Night One at East Rutherford's Continental Airlines Arena, but surprises are in store for Night Two.<br>
 
 [Watch on Youtube: Bruce Springsteen - Thundercrack 9th October 2007](https://www.youtube.com/watch?v=rw8nbrZzYPk)
 
@@ -50,7 +60,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-10-09b.jpg.webp)
 
-**2009:** Bruce and the E Street Band play their last-ever show at Giants Stadium, sending it off in style with a final “[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)” to open and a cover of “[The Last Time](../2020-07-24_cover-me-the-last-time/post.md)” in the encores.<br>
+**2009:** Bruce and the E Street Band play their last-ever show at Giants Stadium, sending it off in style with a final "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" to open and a cover of "[The Last Time](../2020-07-24_cover-me-the-last-time/post.md)" in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen 10-9-09 Last Time, Screen Shot, Giants Stadium](https://www.youtube.com/watch?v=UvtrrLkreH8)
 
@@ -58,6 +68,6 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-10-09b.jpg.webp)
 
-**2023:** After a two-year hiatus, *From My Home to Yours* returns for an encore episode on Sirius XM with Episode 30, with some special guests from Bruce’s high school days along for the ride.<br>
+**2023:** After a two-year hiatus, *From My Home to Yours* returns for an encore episode on Sirius XM with Episode 30, with some special guests from Bruce's high school days along for the ride.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ndFv6eD3)

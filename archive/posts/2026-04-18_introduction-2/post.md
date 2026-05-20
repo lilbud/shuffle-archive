@@ -1,3 +1,11 @@
+---
+layout: post
+title: "ROTD: Born In The U.S.A. Introduction"
+author: "Ken"
+excerpt: "Whenever I completed an entire album’s worth of Roll of the Dice articles, I’d celebrate by writing an Album Companion essay that served both as backstory and…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/04/819qdTNLMxL._UF10001000_QL80_.jpg
+post_id: 68612
+---
 Whenever I completed an entire album's worth of *Roll of the Dice* articles, I'd celebrate by writing an *Album Companion* essay that served both as backstory and review, summing up the underlying themes of the album.
 
 As many readers noticed (and pointed out to me via email), I never published one for *Born in the U.S.A.*

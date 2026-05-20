@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Whiskey Treaty Roadshow: The Rising"
+author: "Ken"
+excerpt: "From their January 2021 “Recovered” benefit comes this wonderful Americana version of Bruce’s 9/11 anthem."
+tags: the-rising the-whiskey-treaty-roadshow
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/recovered.jpg
+post_id: 31161
+---
 Happy accidents can lead to lasting magic.
 
 That's what happened in the summer of 2012, when a local venue called The Arts Block in Greenfield, Massachusetts staged an Americana music festival called The Whiskey Treaty.

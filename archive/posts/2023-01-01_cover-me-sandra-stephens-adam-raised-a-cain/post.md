@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Sandra Stephens: Adam Raised a Cain"
+author: "Ken"
+excerpt: "Sandra Stephens and Lanny Cordola’s simmering, smoky, wonderful cover of “Adam Raised a Cain” dials back the fury and dials up the foreboding. One of my favorite Springsteen covers without question."
+tags: adam-raised-a-cain lanny-cordola made-in-the-u-s-a sandra-stephens
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/tribute.jpg
+post_id: 7981
+---
 Stop what you’re doing and listen to Sandra Stephens’ remarkable cover of “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md).” If you haven’t heard it before, you’ve never heard it performed like this before.
 
 [Watch on Youtube: "Adam Raised a Cain" covered by Sandra Stephens](https://www.youtube.com/watch?v=Tw6P5c-yc_A)

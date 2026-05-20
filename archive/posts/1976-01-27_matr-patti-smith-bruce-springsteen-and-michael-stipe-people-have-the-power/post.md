@@ -1,8 +1,18 @@
+---
+layout: post
+title: "People Have the Power"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and Michael Stipe reprise their Vote for Change “People Have the Power” encore with the iconic protest song’s original recording artist."
+tags: patti-smith people-have-the-power
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/patti_smith-people_have_the_power_s.jpg
+post_id: 15112
+---
 Today it's one of our most iconic protest songs, but Patti Smith's "People Have the Power" didn't start out that way.
 
 Not for lack of intent, though–Patti remembers the inspiration for the song:
 
-> *"We had both protested the Vietnam War when we were young. We had been part of the '60s, where our cultural voice was really strong, and we were trying to write a song that would reintroduce that kind of energy. It's sad for me but quite beautiful. It was really Fred's song – even though I wrote the words, he wrote the music; the concept was his, and he wanted it to be a song that people sang all over the world to inspire them for different causes. And he didn't live to see that happen, but I have. I've seen people. I've walked in marches all over the world where people spontaneously started singing it, you know, whether it's been in Paris or with the Palestinians or, you know, in Spain or New York City, Washington D.C. – and it's so moving for me to see his dream realized."*
+> *"We had both protested the Vietnam War when we were young. We had been part of the '60s, where our cultural voice was really strong, and we were trying to write a song that would reintroduce that kind of energy. It's sad for me but quite beautiful. It was really Fred's song – even though I wrote the words, he wrote the music; the concept was his, and he wanted it to be a song that people sang all over the world to inspire them for different causes. And he didn't live to see that happen, but I have. I've seen people. I've walked in marches all over the world where people spontaneously started singing it, you know, whether it's been in Paris or with the Palestinians or, you know, in Spain or New York City, Washington D.C. – and it's so moving for me to see his dream realized."*<br>
 
 [Watch on Youtube: Patti Smith - People Have The Power (Official Audio)](https://www.youtube.com/watch?v=pPR-HyGj2d0)
 

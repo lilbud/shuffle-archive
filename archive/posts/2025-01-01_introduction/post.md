@@ -1,3 +1,11 @@
+---
+layout: default-post
+title: "Kingdom of Days Volume 1 Introduction"
+author: "Ken"
+excerpt: "Kingdom of Days was never supposed to be a book, let alone a twelve-volume series."
+categories: kingdom-of-days spare-parts uncategorized
+post_id: 15454
+---
 *Kingdom of Days* was never supposed to be a book, let alone a twelve-volume series.
 
 It wasn't supposed to go viral on social media, or get read aloud daily on satellite radio.
@@ -38,7 +46,7 @@ I've tried my best to credit photographers where I'm able to. Some come via boot
 
 For years, I couldn't imagine how *Kingdom of Days* could possibly work in print. Every day's post was chock full of media, and I didn't know how to replicate the blog experience in book form.
 
-As it turned out, I didn't need to. With some light editing, pruning, and layout magic, *Kingdom of Days* is transformed into a living scrapbook, punctuated with scannable QR codes that will transport you back in time to... well, wherever Bruce Springsteen was on that day in history.
+As it turned out, I didn't need to. With some light editing, pruning, and layout magic, *Kingdom of Days* is transformed into a living scrapbook, punctuated with scannable QR codes that will transport you back in time to… well, wherever Bruce Springsteen was on that day in history.
 
 You'll need your camera-equipped mobile device to bring each page to life, but in my opinion the newspaper reviews work much better on the printed page than they do on your device.
 

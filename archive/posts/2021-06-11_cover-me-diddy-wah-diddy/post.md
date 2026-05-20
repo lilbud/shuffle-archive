@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Diddy Wah Diddy"
+author: "Ken"
+excerpt: "Bo Diddley’s ode to the mythical locale of Diddy Wah Diddy became the perfect way to thank fans for a great tour."
+tags: bo-diddley diddy-wah-diddy joe-grushecky-and-the-houserocker
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/diddy.jpg
+post_id: 27715
+---
 It ain't no town, and it ain't no city.
 
 It *was* a place, though, at least in the imaginations of southern African-Americans in the early 20th century–as real as East Jabip was in my white Jewish neighborhood in Philadelphia, or the lovely burg of Bumfuck to my South Jersey friends.
@@ -26,7 +36,7 @@ The second of those two shows was filmed for posterity, and while it remains unr
 
 To this day, it remains one of my all-time favorite official Springsteen videos. If you can't help but smile when singing "Diddy Wah Diddy," just try to stay stoic when you watch Bruce and the band mug their way through Bo Diddley's classic.
 
-[Watch Video Highlight](https://videopress.com/embed/pgo0OErR)
+[Watch Video Highlight](https://videopress.com/embed/pgo0OErR?hd=1&cover=1)
 
 It was an inspired choice–for fans anxious for release in that freshly post-9/11 era, an E Street Band show *felt* like a three-hour visit to Diddy Wah Diddy, something Bruce acknowledged when he changed the words "she lives way down" to "she lives *right here* in Diddy Wah Diddy."
 

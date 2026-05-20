@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Jah Love, One Love/People Get Ready"
+author: "Ken"
+excerpt: "One time only: Bruce joins New Jersey reggae singer Jah Love for a game cover of Bob Marley’s beloved classic, “One Love,” in the summer of 1987."
+tags: bob-marley-the-wailers jah-love one-love-people-get-ready
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/onelove.jpg
+post_id: 14358
+---
 Bob Marley's signature song "One Love" might seem like a strange candidate for a Bruce Springsteen cover, but when Bruce and Clarence joined Jah Love, a local New Jersey-based reggae singer, on stage at a Jersey shore club in the summer of 1987, that's exactly what they performed together.
 
 (At least, until they segued from "One Love" into one of Bruce's own songs. I'll let you figure out which one for yourself–suffice it to say it's just about the last arrangement you'd ever expect to hear for it.)

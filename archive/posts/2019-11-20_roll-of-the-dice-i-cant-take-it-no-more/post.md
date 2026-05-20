@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Can't Take It No More"
+author: "Ken"
+excerpt: "This early Springsteen original features fine vocals from Bruce and Robbin and a typically great Steel Mill guitar jam–but ouch, those lyrics."
+tags: i-cant-take-it-no-more steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/exasperated.jpg
+post_id: 14215
+---
 For at least a few months from the autumn of 1970 through the early weeks of 1971, if you caught Steel Mill in concert, you might have heard this original Springsteen song.
 
 For the vast majority of us who didn't… well, I'd venture to say that we didn't miss out on much when it comes to "I Can't Take It No More."
@@ -14,41 +24,41 @@ But lyrically, the song is essentially just a guy demanding more "respect" from 
 
 Or at least, that's the generous interpretation. More likely, the narrator is projecting his own frustrations onto his girlfriend rather than facing them himself–and we get the sense she's trying to tell him that, but he's in no mood to hear it.
 
-> *I can't take it*<br>
-> *Everything coming down on me*<br>
-> *Gotta make a break for it, oh yeah*<br>
-> *I can't take it oh no more*<br>
+> *I can't take it*
+> *Everything coming down on me*
+> *Gotta make a break for it, oh yeah*
+> *I can't take it oh no more*
 
-> *You know I need my respect, woman I demand it*<br>
-> *Now listen: You got the nerve to say I won't go*<br>
-> *I caught you so many times telling that same old lie*<br>
-> *I can't take it, no more*<br>
+> *You know I need my respect, woman I demand it*
+> *Now listen: You got the nerve to say I won't go*
+> *I caught you so many times telling that same old lie*
+> *I can't take it, no more*
 
-> *You've got the nerve to say I won't go*<br>
-> *Well honey I love you but I, but I told you so*<br>
-> *I can't take it no more, no more*<br>
+> *You've got the nerve to say I won't go*
+> *Well honey I love you but I, but I told you so*
+> *I can't take it no more, no more*
 
 Following the first instrumental break, the vocals build as we get to the heart of our narrator's insecurity: he's down, but his girl makes him feel like he's already out, and if she hasn't already walked away from him, it seems he feels she's about to.
 
-> *You know it's always the same*<br>
-> *Pulling tighter on the rein*<br>
-> *You always make it very plain*<br>
-> *That to count me as a loser*<br>
-> *You count me as a loser*<br>
-> *Before the end of the game*<br>
-> *Ain't it a shame*<br>
-> *Guess I am the one to blame*<br>
+> *You know it's always the same*
+> *Pulling tighter on the rein*
+> *You always make it very plain*
+> *That to count me as a loser*
+> *You count me as a loser*
+> *Before the end of the game*
+> *Ain't it a shame*
+> *Guess I am the one to blame*
 
-> *Because that sweet talk's mine, not hers, whoa whoa*<br>
-> *That sweet talk, baby, oh yeah yeah*<br>
+> *Because that sweet talk's mine, not hers, whoa whoa*
+> *That sweet talk, baby, oh yeah yeah*
 
-> *You've got the nerve to ask me why*<br>
-> *I caught you so many times telling that same old lie*<br>
+> *You've got the nerve to ask me why*
+> *I caught you so many times telling that same old lie*
 
 But just as the song reaches it's climax, Bruce slips in a revealing couplet that tells us that our hero is more bark than bite.
 
-> *I can't take it, can't take it no more*<br>
-> *Guess I'm gonna fake it, no I just can't take it*<br>
+> *I can't take it, can't take it no more*
+> *Guess I'm gonna fake it, no I just can't take it*
 
 For all his "I can't take it" protests, it seems that's exactly what he's going to do.
 

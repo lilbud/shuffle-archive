@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 26"
+author: "Ken"
+excerpt: "On this date: Bruce plays “My Father’s House” for the first time and rehearses in front of a lucky crowd of contest winners. Lots of video inside."
+tags: bilbao born-in-the-usa-tour born-to-run-tour canada carol castiles devils-and-dust-tour east-rutherford giants-stadium greesnboro if-i-should-fall-behind leah light-of-day my-fathers-house new-york-city norway point-blank reunion-tour rising-tour river-tour-2016 spain springsteen-on-broadway the-ghost-of-tom-joad toronto trondheim wholl-stop-the-rain working-on-a-dream-tour working-on-the-highway world-tour-1992 you-never-can-tell
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/toronto.jpg
+post_id: 57814
+---
 ***New for 2025:** Review for 2005; audio for 2009*<br>
 
 **1974:** A planned gig opening for Dr. John in San Diego is cancelled due to low ticket sales.<br>

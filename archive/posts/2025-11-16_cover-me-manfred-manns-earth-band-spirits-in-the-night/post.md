@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Manfred Mann Covers"
+author: "Ken"
+excerpt: "So nice they covered it twice–and both versions made the Top 100."
+tags: manfred-manns-earth-band spirit-in-the-night
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/manfredspirit.jpg
+post_id: 25516
+---
 When it comes to Springsteen covers, Manfred Mann's Earth Band occupies the throne with not one but *three* successfully charting hits–all of which scored higher than Bruce was able to do by himself.
 
 The band is best known for their lyric-mangling version of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)," which to this day remains Bruce's only #1 hit song when Mann took it there in early 1977.

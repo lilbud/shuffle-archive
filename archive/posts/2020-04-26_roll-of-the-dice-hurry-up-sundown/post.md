@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Hurry Up Sundown"
+author: "Ken"
+excerpt: "Hidden away on a barely promoted Record Store Day EP, “Hurry Up Sundown” is a slick (if overproduced) piece of power pop, perfect for an open road on a sunny day."
+tags: american-beauty hurry-up-sundown
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/hurrysundown.jpg
+post_id: 17541
+---
 Remember the days when years would go by between Bruce's album releases?
 
 A notorious perfectionist, Bruce would write and record dozens of songs and tinker with them incessantly while the calendar pages flipped and ripped away. Sometimes entire album sequences would be scrapped, sometimes album concepts would be, too.
@@ -26,32 +36,32 @@ If we strain and listen past the production, however, we hear a beautiful west c
 
 Those lyrics are so effortless, in fact, that one suspects that Bruce tossed this one off in an afternoon, liberally lifting phrases from "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)," "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and the theme from "[Out in the Street](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" *all in the first verse*.
 
-> *It's the end of another working day*
-> *Come on and pack your blues away*
-> *Change your clothes, we'll go for a ride*
-> *To the other side*
+> *It's the end of another working day*<br>
+> *Come on and pack your blues away*<br>
+> *Change your clothes, we'll go for a ride*<br>
+> *To the other side*<br>
 
-> *Hurry up sundown, hurry up sundown*
-> *Hurry up sundown, hurry up sundown*
+> *Hurry up sundown, hurry up sundown*<br>
+> *Hurry up sundown, hurry up sundown*<br>
 
 Seriously, if someone wrote a random Springsteen lyrics generator, there's a good chance it would eventually spit out that verse all on its own.
 
 The rest of the lyrics (really just a few couplets) are more original but no more substantial. (It's fun to play "spot the Springsteen song title/theme" though. How many can you find?)
 
-> *Over here it's easier to breathe*
-> *There's a place for you and me*
-> *And there's no devil here to pay*
-> *And come the light of day we pray*
+> *Over here it's easier to breathe*<br>
+> *There's a place for you and me*<br>
+> *And there's no devil here to pay*<br>
+> *And come the light of day we pray*<br>
 
-> *And together we'll ride to the other side*
-> *We'll feel so free, just you and me*
-> *And I'll pay what is due*
-> *Till the night sees us through*
+> *And together we'll ride to the other side*<br>
+> *We'll feel so free, just you and me*<br>
+> *And I'll pay what is due*<br>
+> *Till the night sees us through*<br>
 
-> *And together we'll ride to the other side*
-> *We'll feel so free, just you and me*
-> *When this long day is through*
-> *Evening dims to blue*
+> *And together we'll ride to the other side*<br>
+> *We'll feel so free, just you and me*<br>
+> *When this long day is through*<br>
+> *Evening dims to blue*<br>
 
 If it sounds like I'm hating on "Hurry Up Sundown," I'm not. I quite like the song and would love to hear it played live with a bit more restraint than on the album. But given that the world seems to have forgotten it exists (Bruce never talks about it, and I've never seen a request sign for it), that seems unlikely.
 

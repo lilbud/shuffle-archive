@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Allan Clarke: Born to Run"
+author: "Ken"
+excerpt: "The strange but true story of how the lead singer of The Hollies covered Bruce’s most famous song before it was even released."
+tags: allan-clarke born-to-run the-hollies
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/btr.jpg
+post_id: 1776
+---
 Strange but true: Allan Clarke was introduced to Bruce's music by a music publisher who had been sent some unreleased tracks (presumably by Mike Appel). Clarke immediately requested recording rights for three of the songs, one of which was Bruce's unreleased recording of "Born to Run."
 
 Clarke promptly recorded it and planned it for immediate release:

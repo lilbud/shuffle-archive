@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Stockton Girls"
+author: "Ken"
+excerpt: "One of the more curious of Bruce’s work-in-progress River-era home demos, “Stockton Girls” offers an inside look at a songwriter striving to bring a theme to life."
+tags: stockton-girls
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/stockton-girl.jpg
+post_id: 16356
+---
 We took a look at Bruce Springsteen's abandoned "[Stockton Boys](../2019-01-10_roll-of-the-dice-stockton-boys/post.md)" home demos a year or so ago; today we'll listen to their sister song.
 
 Truthfully, "Stockton Girls" really shouldn't qualify as a separate song–it's more of a "Stockton Boys" variation than anything else. The melody is identical, as is the theme. If it weren't for the fact that Bruce rewrote the entire set of lyrics, we'd consider it an experiment in gender-fluid songwriting.

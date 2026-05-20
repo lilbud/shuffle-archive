@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Craig Finn: Magic"
+author: "Ken"
+excerpt: "Craig Finn’s obscure cover of a more-relevant-than-ever Springsteen deep cut gives Bruce’s original a run for its money."
+tags: craig-finn magic
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/craigfinn-1.jpg
+post_id: 15405
+---
 
 "" isn't a song that gets covered very often, even though it's only grown in relevance since Bruce first released it in 2007.
 

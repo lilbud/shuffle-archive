@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Forward!"
+author: "Ken"
+excerpt: "Be careful what you wish for when you ask Bruce Springsteen to write your campaign song."
+tags: forward obama
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/forward.jpg
+post_id: 596
+---
 The dice must be obeyed.
 
 And today, the dice have landed on this unreleased, rarely performed Springsteen original: “Forward!”

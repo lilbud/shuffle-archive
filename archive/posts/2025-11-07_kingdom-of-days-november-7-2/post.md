@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 7"
+author: "Ken"
+excerpt: "Bruce plays his second album start-to-finish for the first time, debuts a new arrangement for “Blinded by the Light,” and plays a last-ditch rally for Hillary Clinton on Election Eve."
+tags: antwerp austin belgium blinded-by-the-light carl-derrico darkness-tour devils-arcade hall-and-oates hillary-clinton ithaca john-fogerty maxs-kansas-city new-york-city philadelphia seeger-sessions-tour shes-the-one springsteen-on-broadway stand-up-for-heroes tunnel-of-love
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/msg09.jpg
+post_id: 61315
+---
 ***New for 2025:** New entry for 1977; audio for 2006*<br>
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the second of a five-night/ten-show stand.<br>

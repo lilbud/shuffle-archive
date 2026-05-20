@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I Shall Be Released"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the E Street Band sound check one of Bob Dylan’s greatest songs."
+tags: bob-dylan boz i-shall-be-released the-band
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/band-i-shall-be-released.jpg
+post_id: 32831
+---
 Tracing the lineage of Bob Dylan's "I Shall Be Released" can get confusing, because it had already been covered dozens of times before Dylan finally got around to releasing his own version of his 1967 composition on his *Greatest Hits Volume II* album in 1971.
 
 [Watch on Youtube: Bob Dylan - I Shall Be Released (Official Audio)](https://www.youtube.com/watch?v=E0pkHBVznLA)

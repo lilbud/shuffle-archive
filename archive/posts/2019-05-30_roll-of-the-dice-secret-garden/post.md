@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Secret Garden"
+author: "Ken"
+excerpt: "“Secret Garden” is one of Bruce’s best love songs. It’s also one of his least romantic."
+tags: blood-brothers greatest-hits secret-garden
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/BRUCE_SPRINGSTEEN_SECRETGARDEN-48404.jpg
+post_id: 10187
+---
 Let's just get this out of the way up front: we're not going to discuss that horrendous "Jerry Maguire Mix."
 
 It's not that I have something against the movie. In fact, it's actually one of my top three all-time favorites. And I certainly don't have anything against the song–"Secret Garden" ranks among my favorites as well.
@@ -18,13 +28,13 @@ Let's take a careful listen, and then we'll dig in. In fact, let's start with th
 
 Throughout the song, the phrase "secret garden" applies on two levels: first, as a metaphor for the parts of ourselves we keep hidden, even from those we love, and second as a literary reference to the novel by the same name. In the 1911 novel, the secret garden is a place of both mystery and healing; it rejuvenates a young boy physically and a young girl spiritually. Bruce's lyrics are undoubtedly operating in both the physical and spiritual plane as well:
 
-> *She'll let you in her house*
-> *If you come knocking late at night*
-> *She'll let you in her mouth*
-> *If the words you say are right*
-> *If you pay the price*
-> *She'll let you deep inside*
-> *But there's a secret garden she hides*
+> *She'll let you in her house*<br>
+> *If you come knocking late at night*<br>
+> *She'll let you in her mouth*<br>
+> *If the words you say are right*<br>
+> *If you pay the price*<br>
+> *She'll let you deep inside*<br>
+> *But there's a secret garden she hides*<br>
 
 Honestly, this is really the entire song in one verse. If you never heard the rest of it, you'd still have the gist of it. Whether you interpret the verse sexually or romantically (the "let you in her mouth" line could refer to either a kiss or oral sex, the "let you deep inside" could be meant physically or emotionally), the upshot is the same: there's a limit to our connections. We all keep part of ourselves hidden away, even from those we spend our lives with. And despite the gender-specific lyrics, I'm pretty sure that's true for everyone.
 
@@ -32,20 +42,20 @@ And yet, the secret garden is what we yearn for: something in our partners that 
 
 In the second verse, Bruce underscores his point: intimacy is a matter of degrees, and with time, truth, and persistence, we strengthen and deepen our connections. But some walls remain unbreachable.
 
-> *She'll let you in her car*
-> *To go driving 'round*
-> *She'll let you into the parts of herself*
-> *That'll bring you down*
-> *She'll let you in her heart*
-> *If you got a hammer and a vise*
-> *But into her secret garden, don't think twice*
+> *She'll let you in her car*<br>
+> *To go driving 'round*<br>
+> *She'll let you into the parts of herself*<br>
+> *That'll bring you down*<br>
+> *She'll let you in her heart*<br>
+> *If you got a hammer and a vise*<br>
+> *But into her secret garden, don't think twice*<br>
 
 Like many of Bruce's best songs, there's a killer lyric lying in wait for us. In "Secret Garden" it's in the bridge:
 
-> *You've gone a million miles*
-> *How far'd you get*
-> *To that place where you can't remember*
-> *And you can't forget*
+> *You've gone a million miles*<br>
+> *How far'd you get*<br>
+> *To that place where you can't remember*<br>
+> *And you can't forget*<br>
 
 Oh, how I love that line. It haunts me just as much as the final lines of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" or "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" — the notion of knowing that there's a part of your partner that lies hidden away, unseeable but also unshakable.
 
@@ -55,16 +65,16 @@ Those three notes are on endless repeat, making us feel as if we're always in mo
 
 "Secret Garden" ends with one of Bruce's most beautiful verses, and also one of his most brutal:
 
-> *She'll lead you down the path*
-> *There'll be tenderness in the air*
-> *She'll let you come just far enough*
-> *So you know she's really there*
-> *And she'll look at you and smile*
-> *And her eyes will say*
-> *She's got a secret garden*
-> *Where everything you want*
-> *Where everything you need*
-> *Will always stay a million miles away*
+> *She'll lead you down the path*<br>
+> *There'll be tenderness in the air*<br>
+> *She'll let you come just far enough*<br>
+> *So you know she's really there*<br>
+> *And she'll look at you and smile*<br>
+> *And her eyes will say*<br>
+> *She's got a secret garden*<br>
+> *Where everything you want*<br>
+> *Where everything you need*<br>
+> *Will always stay a million miles away*<br>
 
 It's our wedding day, but even on this day which should represent our most intense and profound connection, we still–*still*–hide a part of ourselves from each other, and our eyes reveal that step we refuse to take. We don't recognize it in the moment, of course, but it's there.
 

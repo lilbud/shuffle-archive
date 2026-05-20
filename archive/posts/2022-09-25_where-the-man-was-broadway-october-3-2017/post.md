@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Broadway, October 3, 2017"
+author: "Ken"
+excerpt: "I was lucky to be in the front row for Springsteen on Broadway on opening night. Here’s how it all went down."
+tags: delta-airlines springsteen-on-broadway
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/36068045030_62bee7f893_z.jpg
+post_id: 4719
+---
 **Note:** A little further down the page, you'l find my original review of the very first night of Springsteen on Broadway, which I originally posted on Backstreets.com. It's presented here unaltered and unedited, except for some typo corrections and the addition of a couple of my photos and in-line insertion of comments I'd added in replies. It therefore has **LOTS OF SPOILERS**. I've scrupulously avoided revealing spoilers all year long for those who have yet to see the show, but one year later, I feel like I can start talking about the show more openly. If you're averse to spoilers, then just stop scrolling after you see the big "*****SPOILERS FOLLOW*****" warning below.<br>
 
 But first let me share my story about how I ended up *in the front row for opening night*, because I am honestly still in shock every time I think about it.

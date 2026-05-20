@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Oh Angelyne"
+author: "Ken"
+excerpt: "The road to “The River” continues with this early, based-on-a-true-story song about a laid-off construction worker longing to escape his hopeless circumstancs."
+tags: oh-angelyne the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/distantriver.jpg
+post_id: 25234
+---
 If you're looking for the inflection point where economic inequality really took off in the United States, the point at which the top one percent started to become the Top One Percent, look to 1979.
 
 Although the U.S. economy didn't officially enter recession until the early days of 1980, the decline began when Paul Volcker was installed as the head of the Federal Reserve, with a mandate to tame the rampant inflation that was ravaging America at the time.

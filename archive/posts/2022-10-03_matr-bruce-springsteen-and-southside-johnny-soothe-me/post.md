@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Southside Johnny: Soothe Me"
+author: "Ken"
+excerpt: "One time only: Bruce and Southside continue the tradition of great male R&B duos performing Sam Cooke’s “Soothe Me.”"
+tags: sam-and-dave sam-cooke simms-twins soothe-me southside-johnny
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/sootheme.jpg
+post_id: 38355
+---
 The Sims Twins (I've also seen their last name spelled Simms) tend to get a footnote at best in the annals of rock history, but their one big hit influenced male duo singing for years to come.
 
 The Sims brothers (they're really twins) were discovered by the great Sam Cooke in 1961. Cooke had written "Soothe Me" and would release his own version the following year, but he decided to let The Sims Twins release it first.

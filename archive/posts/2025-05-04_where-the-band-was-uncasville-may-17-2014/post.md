@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Uncasville, May 17, 2014"
+author: "Ken"
+excerpt: "Bruce gifted us with the most jaw-droppingly unpredictable show I’d ever seen as the High Hopes Tour started its last stand."
+tags: frankie-fell-in-love high-hopes-tour ill-work-for-your-love quarter-to-three racing-in-the-streets-78 stayin-alive uncasville
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/officiallivedownloads_2014-05-17.jpg
+post_id: 2163
+---
 The problem with seeing a lot of Bruce Springsteen shows is that you tend to run out of superlatives after a while. So for this show at the Mohegan Sun Casino(!) in Uncasville, CT (certainly one of the most unusual venues I’ve seen Bruce play)–the penultimate show of the High Hopes tour–I’ll go with… jaw-dropping-est.
 
 Because there’s just no way I could have predicted:

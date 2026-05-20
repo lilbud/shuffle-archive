@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: City of Night"
+author: "Ken"
+excerpt: "Boasting a hypnotic backing track and skillful editing, “City of Night” closes out The Promise with a lost gem."
+tags: city-of-night the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/city-night.jpg
+post_id: 19494
+---
 I can't fault Bruce for leaving "City of Night" off of [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
 
 That album already had two great songs about driving around in cars; a third might have tipped the album over the line from thematic to obsessive.

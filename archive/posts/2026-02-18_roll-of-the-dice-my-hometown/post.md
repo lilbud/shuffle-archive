@@ -1,3 +1,13 @@
+---
+layout: post
+title: "My Hometown"
+author: "Ken"
+excerpt: "Drawn from the headlines of the 1960s, written in the 1980s, “My Hometown” still resonates today in struggling communities everywhere."
+tags: born-in-the-u-s-a my-hometown your-hometown
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1983/01/81QshkbMsfL._SL1500_.jpg
+post_id: 16720
+---
 It was '69 not '65, Monday night rather than Saturday night, and it wasn't his high school.
 
 But it *was* his home town, and when the high-running tensions boiled over into riots and violence, it made a lasting impression on nineteen-year-old Bruce Springsteen.

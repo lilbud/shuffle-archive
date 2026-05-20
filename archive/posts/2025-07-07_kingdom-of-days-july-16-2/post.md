@@ -1,30 +1,40 @@
+---
+layout: post
+title: "Kingdom of Days: July 16"
+author: "Ken"
+excerpt: "On this date: Bruce kicks off a magical show at Circus Maximus with “New York City Serenade” (complete with strings), plays a one-time-only cover of “Honky Tonk,” and makes surprise appearances at Jersey shore bar gigs. More highlights inside."
+tags: albany carhaix child darkness-tour devils-and-dust-tour france honky-tonk italy jon-bon-jovi keep-a-knockin midnight-thunder new-orleans outlaw-pete philadelphia river-2016-tour river-tour rome southside-johnny stone-pony working-on-a-dream working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/rome16.webp
+post_id: 57724
+---
 ***New for 2025:** New entry for 1975 and 1998*<br>
 
 **1969:** Child plays their second of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.<br>
 
 **1974:** Bruce reschedules a planned gig at The Stone Balloon in Newark, Delaware for the following month.<br>
 
-**1975:** Bruce and the E Street Band complete the recording of “Thunder Road” at the Record Plant in New York City.<br>
+**1975:** Bruce and the E Street Band complete the recording of "Thunder Road" at the Record Plant in New York City.<br>
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal Auditorium, where the setlist features Bruce’s one and only cover of “[Honky Tonk](../2019-09-26_cover-me-honky-tonk/post.md).”<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal Auditorium, where the setlist features Bruce's one and only cover of "[Honky Tonk](../2019-09-26_cover-me-honky-tonk/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xE7qS26M)
 
 [Watch on Youtube: Bruce Springsteen New Orleans July 16, 1978](https://www.youtube.com/watch?v=kJCwCcvLG9g)
 
-**1979:** At The Power Station in New York City, Bruce records “[Ricky Wants a Man of Her Own](../2018-11-23_roll-of-the-dice-ricky-wants-a-man-of-her-own/post.md)” and “[Cindy](../2018-08-03_roll-of-the-dice-cindy/post.md).” The former won’t be released for almost twenty years, the latter not for another fifteen years after that.<br>
+**1979:** At The Power Station in New York City, Bruce records "[Ricky Wants a Man of Her Own](../2018-11-23_roll-of-the-dice-ricky-wants-a-man-of-her-own/post.md)" and "[Cindy](../2018-08-03_roll-of-the-dice-cindy/post.md)." The former won't be released for almost twenty years, the latter not for another fifteen years after that.<br>
 
 [Watch on Youtube: Ricky Wants A Man Of Her Own (Studio Outtake - 1979)](https://www.youtube.com/watch?v=xuA_Q9iVyOY)
 
 [Watch on Youtube: Cindy](https://www.youtube.com/watch?v=ZlI-L52KrnY)
 
-**1981:** Bruce’s five-night River stand at The Spectrum in Philly continues.<br>
+**1981:** Bruce's five-night River stand at The Spectrum in Philly continues.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8V1HMlo9)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-16.jpg.webp)
 
-**1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including “[Lucille](../1976-01-07_cover-me-lucille/post.md/),” “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md),” and “[Keep-a-Knockin](../2018-11-09_matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/post.md)‘.”<br>
+**1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including "[Lucille](../1976-01-07_cover-me-lucille/post.md/)," "[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)," and "[Keep-a-Knockin](../2018-11-09_matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/post.md)'."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rSVwCU6r)
 
@@ -32,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-16.png.webp)
 
-**1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including “[I Played the Fool](../2019-04-04_matr-i-played-the-fool/post.md),” “[Funky Broadway,](../2019-10-28_matr-bruce-springsteen-and-the-shots-funky-broadway/post.md)” and “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/).”<br>
+**1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including "[I Played the Fool](../2019-04-04_matr-i-played-the-fool/post.md)," "[Funky Broadway,](../2019-10-28_matr-bruce-springsteen-and-the-shots-funky-broadway/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)."<br>
 
 [Watch on Youtube: I PLAYED THE FOOL (Bruce Springsteen and Southside Johnny and the Asbury Jukes)](https://www.youtube.com/watch?v=ytSVHBMmYqg)
 
@@ -46,7 +56,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/rehearsal.jpg.webp)
 
-**2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres “[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)” for the occasion.<br>
+**2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" for the occasion.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bYjdK3w0)
 
@@ -64,7 +74,7 @@
 
 [Watch on Youtube: Springsteen Live "10th Avenue Freeze Out,I'm Going Down"Carhaix 16-07-2009](https://www.youtube.com/watch?v=RuIcvmViugc)
 
-**2013:** Bruce opens his show in Limerick with the tour premiere of “[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)” and closes it the same way. In between, fans enjoy the tour premiere of “[Ain’t Too Proud to Beg](../2018-10-07-cover-me-aint-too-proud-to-beg/post.md/)” and a full album performance of *Born to Run*. If you count a three-song pre-show, this show also features the live debut of “[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md)” at one of Bruce’s own shows.<br>
+**2013:** Bruce opens his show in Limerick with the tour premiere of "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)" and closes it the same way. In between, fans enjoy the tour premiere of "[Ain't Too Proud to Beg](../2018-10-07-cover-me-aint-too-proud-to-beg/post.md/)" and a full album performance of *Born to Run*. If you count a three-song pre-show, this show also features the live debut of "[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md)" at one of Bruce's own shows.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live In Limerick 2013-07-16 (HD) Documentary](https://www.youtube.com/watch?v=t-dRgoK7cjQ)
 
@@ -76,13 +86,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Ain't too proud to beg (Temptations cover) HD (Thomond Park,Limerick 16.7.13)](https://www.youtube.com/watch?v=wtwIatGvFP4)
 
-**2016:** A stunning opening number at a magical venue: The Roma Sinfonietta strings join the E Street Band for “New York City Serenade” to kick off Bruce’s first show at the ancient Circus Maximus in Rome. “[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)” and “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” also make their tour premieres. For more highlights from this show, see my [*Where the Band Was*](../2018-07-16_where-the-band-was-rome-july-16-2016/post.md)[report](../2018-07-16_where-the-band-was-rome-july-16-2016/post.md) from this night.<br>
+**2016:** A stunning opening number at a magical venue: The Roma Sinfonietta strings join the E Street Band for "New York City Serenade" to kick off Bruce's first show at the ancient Circus Maximus in Rome. "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" also make their tour premieres. For more highlights from this show, see my [*Where the Band Was*](../2018-07-16_where-the-band-was-rome-july-16-2016/post.md)[report](../2018-07-16_where-the-band-was-rome-july-16-2016/post.md) from this night.<br>
 
 [Watch on Youtube: Bruce Springsteen - New York City Serenade - Roma 2016 - multicam mix](https://www.youtube.com/watch?v=R-1v8w69IWo)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band The Ghost of Tom Joad Rome Circus Maximus July 16 2016](https://www.youtube.com/watch?v=_CpGADrcmNU)
 
-[Watch on Youtube: Bruce Springsteen Thunder Road Live in Roma 16.07.2016](https://www.youtube.com/watch?v=uh_QQl1Xm_o)
+[Watch on Youtube: Bruce Springsteen Thunder Road Live in Roma 16.07.2016](https://www.youtube.com/watch?v=uh_QQl1Xm_o?list=PLnbVaK2f4rahacSiMN0m-l7-NLPDM4ah2)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: John Mellencamp and Clark Gayton.<br>
 

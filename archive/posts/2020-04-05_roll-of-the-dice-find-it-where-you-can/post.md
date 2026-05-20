@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Find It Where You Can"
+author: "Ken"
+excerpt: "Missing in action: this early lyrical forerunner to “Tougher Than the Rest” made it all the way to an E Street Band rehearsal but never to the studio."
+tags: find-it-where-you-can
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/mag-glass-1.jpg
+post_id: 17123
+---
 In late 2015, Bruce released an anniversary box set for *The River* called *The Ties That Bind: The River Collection*. Included in the set was a disc of outtakes that had never before seen an official release. While there are some genuine gems among those unreleased outtakes, there are also some headscratchers. ("[Mr. Outside](../2019-06-10_roll-of-the-dice-mr-outside/post.md)," I'm looking at you.)
 
 And then there are the songs from the River sessions that *still* haven't seen the light of day but certainly deserve to. Chief among those missing in action: "Find It Where You Can."
@@ -16,22 +26,22 @@ But luckily we have the early acoustic version below for comparison, and with th
 
 Bruce's lyrics seem to be a forerunner to "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)." In the later song, Bruce sings:
 
-> *Some girls they want a handsome Dan*
-> *Or some good-lookin' Joe, on their arm*
-> *Some girls like a sweet-talkin' Romeo*
-> *Well 'round here baby*
-> *I learned you get what you can get*
-> *So if you're rough enough for love*
-> *Honey I'm tougher than the rest*
+> *Some girls they want a handsome Dan*<br>
+> *Or some good-lookin' Joe, on their arm*<br>
+> *Some girls like a sweet-talkin' Romeo*<br>
+> *Well 'round here baby*<br>
+> *I learned you get what you can get*<br>
+> *So if you're rough enough for love*<br>
+> *Honey I'm tougher than the rest*<br>
 
 In "Find It Where You Can," Bruce strikes a similar pose:
 
-> *I didn't ask for this conversation*
-> *And maybe you don't think I'm nice*
-> *Baby it's just the… situation*
-> *I'm just another desperate man*
-> *In this world you don't pick and choose girl*
-> *You just find it where you can*
+> *I didn't ask for this conversation*<br>
+> *And maybe you don't think I'm nice*<br>
+> *Baby it's just the… situation*<br>
+> *I'm just another desperate man*<br>
+> *In this world you don't pick and choose girl*<br>
+> *You just find it where you can*<br>
 
 Despite the strong rehearsal tapes, there's no record of Bruce ever having recorded "Find It Where You Can" in the studio. That doesn't mean no such version exists, though, so we can always hold out hope.
 

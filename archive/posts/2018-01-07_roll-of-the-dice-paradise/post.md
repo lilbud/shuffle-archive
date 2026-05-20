@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Paradise"
+author: "Ken"
+excerpt: "“Paradise” is one of Bruce Springsteen’s loveliest, most nuanced, and most challenging songs. Let’s break it down."
+tags: paradise the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/paradisecover.jpg
+post_id: 127
+---
 Well. "Paradise" is quite the contrast to last week's "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" installment: where LOHAD is jubilant and optimistic, "Paradise" is quiet and fatalistic. LOHAD features more musicians than I can easily count or discern; "Paradise" features Bruce, and only Bruce. (He plays guitar, keyboard and percussion on this track, although Patti Scialfa's backing vocals can be heard for a few brief monents.) Left to my own devices, I'd have saved "Paradise" for a later installment at a more somber time, but the dice have spoken, so into the breach we go.
 
 "Paradise" requires active listening, so don your headphones or close the door, and soak it in:
@@ -12,28 +22,28 @@ If the message is uncertain, the context is clearer: written in the aftermath of
 
 Paradise begins and ends with a soft but growing, pulsing drone. Keyboards provide an atmospheric accompaniment to Bruce's acoustic guitar and subdued vocals as the first vignette begins:
 
-> *Where the river runs to black*
-> *I take the schoolbooks from your pack*
-> *Plastics and wire and your kiss*
-> *The breath of eternity on your lips*
+> *Where the river runs to black*<br>
+> *I take the schoolbooks from your pack*<br>
+> *Plastics and wire and your kiss*<br>
+> *The breath of eternity on your lips*<br>
 
-> *In the crowded marketplace*
-> *I drift from face to face*
-> *I hold my breath and close my eyes*
-> *I hold my breath and close my eyes*
-> *And I wait for paradise*
-> *And I wait for paradise*
+> *In the crowded marketplace*<br>
+> *I drift from face to face*<br>
+> *I hold my breath and close my eyes*<br>
+> *I hold my breath and close my eyes*<br>
+> *And I wait for paradise*<br>
+> *And I wait for paradise*<br>
 
 The narrator appears to be a parent and a suicide bomber, most likely in the middle east ("where the riven runs to black" strikes me as a reference to an oil-rich region). He takes his child's school backpack, replaces the textbooks with a plastic and wire bomb, finds a crowded marketplace, and waits for paradise to claim him, presumably detonating the bomb.
 
 The scene now shifts to the United States:
 
-> *The Virginia hills have gone to brown*
+> *The Virginia hills have gone to brown*<br>
 > *Another day another sun going down*
 > *I visit you in another dream*
 > *I visit you in another dream*
 
-> *I reach and feel your hair*
+> *I reach and feel your hair*<br>
 > *Your smell lingers in the air*
 > *I brush your cheek with my fingertips*
 > *I taste the void upon your lips*
@@ -46,12 +56,12 @@ In this verse, color is lacking in her life; each day is just "another day," eac
 
 The scene shifts a final time:
 
-> *I search for you on the other side*
+> *I search for you on the other side*<br>
 > *Where the river runs clean and wide*
 > *Up to my heart the waters rise*
 > *Up to my heart the waters rise*
 
-> *I sink ‘neath the water cool and clear*
+> *I sink ‘neath the water cool and clear*<br>
 > *Drifting down I disappear*
 > *I see you on the other side*
 > *I search for the peace in your eyes*
@@ -64,7 +74,7 @@ In the cold darkness of the river (one of Bruce's favorite and most frequent met
 
 And when things are about as dark as they can get, Bruce tacks on two final, orphaned lines:
 
-> *I break above the waves*
+> *I break above the waves*<br>
 > *I feel the sun upon my face*
 
 …making it clear that this final narrator does not succumb to paradise, but instead rises once again to the surface and feels sunlight on his face, a sign of acceptance and moving forward.

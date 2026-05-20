@@ -1,4 +1,12 @@
-Shhh.... I'll let you in on a secret, but you can't tell anyone.
+---
+layout: default-post
+title: "Cover Me Book Introduction"
+author: "Ken"
+excerpt: "Shhh.... I'll let you in on a secret, but you can't tell anyone. *Cover Me* is my favorite."
+categories: uncategorized
+post_id: 8825
+---
+Shhh…. I'll let you in on a secret, but you can't tell anyone.
 
 *Cover Me* is my favorite.
 
@@ -6,7 +14,7 @@ I know, I know. Parents aren't supposed to have favorites, so please don't tell 
 
 It didn't start out that way, though. For the first few months, it was almost an afterthought.
 
-I was determined to work my way through every song Bruce Springsteen had written, performed, gifted, etc. and that included a ton of covers. I knew there would be some that warranted close attention and analysis, but others... well, I thought if I could at least catalog Bruce's cover performances and compare them with the original, I'd have some kind of reference site like I hoped *Kingdom of Days* would become.
+I was determined to work my way through every song Bruce Springsteen had written, performed, gifted, etc. and that included a ton of covers. I knew there would be some that warranted close attention and analysis, but others… well, I thought if I could at least catalog Bruce's cover performances and compare them with the original, I'd have some kind of reference site like I hoped *Kingdom of Days* would become.
 
 When I reviewed the hundreds of *Cover Me* entries to select the ones for this inaugural volume, I couldn't help cringing at some of the earliest entries. They're not worth collecting in print, and if I ever decide to, I'll likely re-write them first. Even a couple of the early essays I did include in these pages are formulaic in a way I would thankfully soon abandon.
 

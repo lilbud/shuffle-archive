@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You Gotta Be Kind"
+author: "Ken"
+excerpt: "An unfinished, unreleased demo that would resonate particularly well these days."
+tags: you-gotta-be-kind
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/acoustic.jpg
+post_id: 819
+---
 "You Gotta Be Kind" is an unfinished demo, recorded by Bruce at home in early 1980.
 
 The song features a reggae beat paired with roughed-in lyrics that dance around the need to go out of your way to help someone in need. To be kind, in other words.

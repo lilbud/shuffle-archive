@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 1"
+author: "Ken"
+excerpt: "On this date: Bruce guest stars with Bob Seger, serves as temporary front-man for U2, joins Robert Gordon in the studio and more."
+tags: a-secret-history arnhem austin bob-seger born-to-run-book darkness-tour darlington-county fire i-still-havent-found-what-im-looking-for magic-tour norman old-time-rock-and-roll pittsburgh prove-it-all-night river-tour robert-gordon the-netherlands the-price-you-pay u2 where-the-streets-have-no-name
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/bruceu2.jpg
+post_id: 55215
+---
 ***New for 2024:** Video for 2011*<br>
 
 **1973:** Bruce cancels a scheduled show at Quinnipiac University in Hamden, Connecticut.<br>

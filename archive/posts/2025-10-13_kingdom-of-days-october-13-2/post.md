@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 13"
+author: "Ken"
+excerpt: "Happy birthday, Charlie Giordano and The River! Also on this date: Bruce plays an acoustic set at the first Bridge School Benefit, an epic E Street Band performance of “Better Man” with Bruce and Eddie Vedder, and much more."
+tags: better-man bridge-school-benefit charlie-giordano chicago crosby-still-nash-and-young danny-federici devils-and-dust-tour don-henley eddie-vedder factory from-my-home-to-yours jackson-browne kansas-city lawsuit-tour little-bit-o-soul long-time-comin max-weinberg-7 neil-young nils-lofgren patti-scialfa philadelphia river-tour rotterdam seaside-bar-song seeger-sessions-tour seven-nights-to-rock southside-johnny springsteen-on-broadway st-paul stone-pony tacoma the-fever the-netherlands the-river tom-petty vote-for-change-tour working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/river.jpg
+post_id: 61112
+---
 ***New for 2025:** Video for 1980; audio for 2006; new entry for 2024*<br>
 
 **1954:** Future Seeger Sessions Band member and E Streeter Charlie Giordano is born in Brooklyn.<br>

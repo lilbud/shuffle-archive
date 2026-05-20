@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: What Love Can Do"
+author: "Ken"
+excerpt: "“What Love Can Do” is a reminder that while love can’t solve society’s ills, it can give us the strength to face them. It’s more timely now than when Bruce wrote it."
+tags: magic what-love-can-do working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/whatlovecando_sin-us-07i.jpg
+post_id: 5749
+---
 "What Love Can Do" was the first song written for *Working on a Dream*, and the fourth single released from that album. Yet it labors in obscurity, buried deep within an underappreciated album and performed live exactly once.
 
 What's to explain the ambivalence from both fans and artist?

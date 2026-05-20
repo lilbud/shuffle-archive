@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Hudson Falcons: Take 'Em as They Come"
+author: "Ken"
+excerpt: "New Jersey legends The Hudson Falcons unleash the inner punk in Bruce’s 1980 power pop outtake."
+tags: hudson-falcons take-em-as-they-come
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/hudson.jpg
+post_id: 15481
+---
 Take Bruce’s 1980 power pop outtake, pass directly through garage rock, and stop just an inch shy of punk, and what do you get?
 
 You get this fantastic cover of “[Take ‘Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)” from New Jersey legends the Hudson Falcons. Take a listen, but first turn the volume up *loud.*

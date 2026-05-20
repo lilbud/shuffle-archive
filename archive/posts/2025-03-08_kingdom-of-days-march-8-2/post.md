@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 8"
+author: "Ken"
+excerpt: "It’s a behind-the-scenes day: listen to the backstory of Ernest “Boom” Carter’s first show, watch local news coverage of the Tunnel of Love Express tour, and spy on Bruce getting ready for sound check with The Wallflowers."
+tags: donna-summer houston philadelphia protection ranney-school reunion-tour the-wallflowers tim-mcloone tunnel-of-love-express-tour washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/19880308_front.jpg
+post_id: 56113
+---
 ***New for 2025:** No updates*<br>
 
 **1974:** Bruce stops by KLOL-FM in Houston in the afternoon for an interview with DJ Ed Beauchamp.<br>

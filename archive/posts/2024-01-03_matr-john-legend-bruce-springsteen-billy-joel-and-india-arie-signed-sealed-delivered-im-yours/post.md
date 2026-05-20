@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: John Legend, Bruce Springsteen, Billy Joel, and India Arie: Signed, Sealed, Delivered I'm Yours"
+author: "Ken"
+excerpt: "One time only: John Legend, India Arie, Billy Joel, and Bruce Springsteen join forces on an anticipatory, celebratory cover of Stevie Wonder’s 1970 classic."
+tags: barack-obama billy-joel india-arie john-legend michelle-obama signed-sealed-delivered-im-yours stevie-wonder
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/signedsealed.jpg
+post_id: 31070
+---
 Stevie Wonder’s “Signed, Sealed, Delivered I’m Yours” was a smash hit from the beginning, topping the U.S. R&B chart for six weeks and peaking at #3 on the Hot 100 in 1970.
 
 [Watch on Youtube: Stevie Wonder - Signed, Sealed, Delivered I'm Yours](https://www.youtube.com/watch?v=pUj9frKY46E)

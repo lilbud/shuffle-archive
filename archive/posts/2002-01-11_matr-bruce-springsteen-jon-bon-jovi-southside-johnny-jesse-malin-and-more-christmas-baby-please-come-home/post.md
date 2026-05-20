@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Christmas (Baby Please Come Home)"
+author: "Ken"
+excerpt: "What else could Bruce close his holiday show sets with but the greatest rock and roll Christmas song of all time?"
+tags: christmas-baby-please-come-home darlene-love garland-jeffreys jesse-malin jon-bon-jovi lisa-lowell nils-lofgren southside-johnny
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/christmas.jpg
+post_id: 30868
+---
 *Rolling Stone* named it the Greatest Rock and Roll Christmas Song of all time.
 
 It didn't start out that way, though.
@@ -30,7 +40,7 @@ With each year, the performance grew in power, arrangement, orchestration, and c
 
 Love sang her song for Letterman's audience every single year for 29 years–and then when Letterman's show left the airwaves, Love took her annual performance and moved to *The View.*
 
-With such dependable annual exposure, "Christmas (Baby Please Come Home)" finally found an audience, but hit single status still proved elusive. But in December 2014–more than 50 years after its initial release, it *finally* entered Billboard's annual Holiday 100 chart... at #99.
+With such dependable annual exposure, "Christmas (Baby Please Come Home)" finally found an audience, but hit single status still proved elusive. But in December 2014–more than 50 years after its initial release, it *finally* entered Billboard's annual Holiday 100 chart… at #99.
 
 Four years later, "Christmas (Baby Please Come Home)" cracked the Hot 100 itself, peaking at #50.
 

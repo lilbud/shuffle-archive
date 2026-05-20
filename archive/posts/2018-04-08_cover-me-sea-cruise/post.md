@@ -1,8 +1,18 @@
-On a wet summer night at Red Rocks in 1981, Bruce playfully covered the Frankie Ford novelty song "Sea Cruise," complete with bell and horn sound effects.
+---
+layout: post
+title: "Cover Me: Sea Cruise"
+author: "Ken"
+excerpt: "A rainy evening prompts Bruce to cover Frankie Ford’s classic novelty song."
+tags: frankie-ford sea-cruise
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/seacruise.jpg
+post_id: 1465
+---
+On a wet summer night at Red Rocks in 1981, Bruce playfully covered the Frankie Ford novelty song “Sea Cruise,” complete with bell and horn sound effects.
 
 [Watch on Youtube: Bruce Springsteen - SEA CRUISE 1981 (audio)](https://www.youtube.com/watch?v=yMelZDKYN28)
 
-This was close to a one-off cover–the only other times Bruce performed "Sea Cruise" were at the Naval Academy in Annapolis and in a 1977 guest appearance at the Stone Pony.
+This was close to a one-off cover–the only other times Bruce performed “Sea Cruise” were at the Naval Academy in Annapolis and in a 1977 guest appearance at the Stone Pony.
 
 Originally written and recorded by Huey Smith, it became a hit when Frankie Ford lifted the instrumental track, recorded his own vocals, and released it in 1959. It went gold and became his biggest hit. Here he is lip-syncing to it on The Dick Clark show that year.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Living on the Edge of the World"
+author: "Ken"
+excerpt: "“Living on the Edge” is a glorious hot mess of a song. An unreleased outtake until 1998, it nevertheless spawned no less than three officially released Springsteen originals along the way."
+tags: living-on-the-edge-of-the-world open-all-night state-trooper the-ties-that-bind-the-river-collection this-hard-land tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/edgeworld.jpg
+post_id: 4788
+---
 This is one of the essays I've been dreading, but I knew the dice would turn it up eventually.
 
 It's not that I don't like the song–in fact, it's such a gloriously hot mess that I can't help but love it.

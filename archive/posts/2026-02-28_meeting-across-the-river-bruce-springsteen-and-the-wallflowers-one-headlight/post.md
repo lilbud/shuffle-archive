@@ -1,3 +1,13 @@
+---
+layout: post
+title: "One Headlight"
+author: "Ken"
+excerpt: "One time only: Bruce teams up with “The New Dylan” and his band on the MTV Video Awards."
+tags: jakob-dylan mtv-vmas one-headlight the-wallflowers
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/71ym7xRqE0L._SL1280_.jpg
+post_id: 3900
+---
 "You know your career is going well when Bruce Springsteen asks if he can sing a few lines from your song."
 
 So said Adam Sandler at the 1997 MTV Video Music Awards, shortly after Bruce and The Wallflowers teamed up to rock the house on "One Headlight," the first song to hit Number One on the Alternative, Adult Alternative, and Mainstream Rock charts.

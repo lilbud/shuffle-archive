@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Men Without Women"
+author: "Ken"
+excerpt: "Bruce was working on what would become Nebraska in the autumn of 1981, but he still found time to contribute vocals to the title track of Little Steven’s debut album."
+tags: little-steven-and-the-disciples-of-soul men-without-women
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/mww.jpg
+post_id: 15482
+---
 *Men Without Women* was Little Steven's first Disciples of Soul album, but at least for three of its tracks, it might be more accurate to call it a Little Steven-fronted E Street Band project.
 
 We took a listen to "Angel Eyes" and "Until the Good is Gone" a couple of years ago; now we round out the trilogy with the album's title track, "Men Without Women." (All three tracks were recorded with Little Steven's E Street Band and Asbury Jukes mates before he recruited his Disciples.)

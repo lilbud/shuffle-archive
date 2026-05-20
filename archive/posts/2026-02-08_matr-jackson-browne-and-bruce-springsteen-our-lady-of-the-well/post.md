@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Our Lady of the Well"
+author: "Ken"
+excerpt: "At the Laid Back Festival in 2017, Bruce joined Jackson Browne on stage for a show-closing “Our Lady of the Well.” Watch that lovely performance inside."
+tags: jackson-browne our-lady-of-the-well
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/1035x1035-jacksonbrownie-1800-1399647433.jpg
+post_id: 8272
+---
 Jackson Browne's "Our Lady of the Well" was never a hit, and it's not even a stand-alone album track–Jackson segues right into it from the album-opening "Take It Easy" on his 1973 album, *For Everyman*.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NtSu_VlGfCo)

@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Kingdom of Days: September 29"
+author: "Ken"
+excerpt: "Bruce plays with Pete Seeger for the first time, holds a rehearsal show for the Magic Tour, and gives a Philly schoolboy a great absence note."
+tags: billy-rancher birmingham born-in-the-usa-tour born-to-run-book candys-room cleveland darkness-tour john-fogerty lawsuit-tour los-angeles magic-tour pete-seeger philadelphia phoenix san-diego santa-monica springsteen-on-broadway the-promise world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/1996-0929.jpg
+post_id: 59734
+---
 ***New for 2025:** New entry for 1977 and 1987*<br>
 
 **1973:** Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in Pennsylvania.<br>
 
-**1976:** “The Promise” makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.<br>
+**1976:** "The Promise" makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.<br>
 
 [Watch on Youtube: Bruce Springsteen - THE PROMISE 1976 (audio)](https://www.youtube.com/watch?v=Q4pJ5hDqxTA)
 
@@ -12,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1976-09-29.jpg.webp)
 
-**1977:** Bruce records “[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)” and “[Someday (We’ll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)” at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.<br>
+**1977:** Bruce records "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)" and "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)" at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.<br>
 
 [Watch on Youtube: Rendezvous](https://www.youtube.com/watch?v=0ena3tWYo-g)
 
@@ -28,7 +38,7 @@
 
 **1982:** Bruce plays two songs (although this is up for debate) with Billy Rancher & The Unreal Gods on stage at On Broadway in Westwood, New Jersey.<br>
 
-**1985:** Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television’s *Growing Pains*.<br>
+**1985:** Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television's *Growing Pains*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Tu2dlnHp)
 
@@ -36,7 +46,7 @@
 
 **1987:** Bruce rehearses with Roy Orbison at the Cocoanut Grove in Los Angeles for the filming of *Black & White Night* the following day.<br>
 
-**1989:** Bruce makes a pit-stop at Matt’s Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.<br>
+**1989:** Bruce makes a pit-stop at Matt's Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.<br>
 
 [Watch on Youtube: The Time Bruce Springsteen Paid Off an Arizona Bartender's $160,000 in Medical Bills](https://www.youtube.com/watch?v=ordKJO1_Rxg)
 
@@ -64,11 +74,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1996-09-29.jpg.webp)
 
-**2002:** Bruce tour premieres “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” when the Rising Tour stops at the Fargodome in North Dakota.<br>
+**2002:** Bruce tour premieres "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" when the Rising Tour stops at the Fargodome in North Dakota.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VydrrUiL)
 
-**2004:** Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park’s Convention Hall for their upcoming Vote for Change Tour.<br>
+**2004:** Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park's Convention Hall for their upcoming Vote for Change Tour.<br>
 
 **2016:** Bruce makes a book tour appearance at the Free Library of Philadelphia to promote his new autobiography, *Born to Run*. A local schoolboy skips class to meet Bruce and convinces Bruce to sign his absence note, which he duly hands to his teacher the next day.<br>
 
@@ -84,19 +94,19 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2017-09-29.jpg.webp)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of “This Hard Land” in place of his duet of “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” with Patti. In attendance tonight: Hozier.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" with Patti. In attendance tonight: Hozier.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2018-09-29.jpg.webp)
 
-**2022:** Bruce announces his twenty-first studio album, *Only the Strong Survive*, and releases a video for the album’s lead single, “Do I Love You (Indeed I Do).”<br>
+**2022:** Bruce announces his twenty-first studio album, *Only the Strong Survive*, and releases a video for the album's lead single, "Do I Love You (Indeed I Do)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Do I Love You (Indeed I Do) (Official Video)](https://www.youtube.com/watch?v=O0jBwk71Qcw)
 
-That evening, Bruce and Patti perform “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
+That evening, Bruce and Patti perform "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
 > View this post on Instagram
 >
 > [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)
 
 [Watch on Youtube: Oscar Isaac Bruce Springsteen take their wives to Albie Awards NYC! #brucespringsteen #oscarisaac](https://www.youtube.com/watch?v=yhCl8la_aeU)
 
-**2023:** Bruce’s scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.<br>
+**2023:** Bruce's scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.<br>

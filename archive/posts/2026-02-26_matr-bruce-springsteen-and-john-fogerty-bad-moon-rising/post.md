@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Bad Moon Rising"
+author: "Ken"
+excerpt: "Springsteen has covered John Fogerty’s signature song seven times over the years. Check them all out here."
+tags: bad-moon-rising creedence-clearwater-revival john-fogerty
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/01/badmoon.jpg
+post_id: 40929
+---
 It wasn't their only single to fall victim to the Creedence curse, but given its lyrics, it's amazing "Bad Moon Rising" made it onto the Billboard Hot 100 at all.
 
 John Fogerty paired his foreboding words with a rollicking melody, and the result is a track so bright you have to concentrate to recognize it's pretty nihilistic.

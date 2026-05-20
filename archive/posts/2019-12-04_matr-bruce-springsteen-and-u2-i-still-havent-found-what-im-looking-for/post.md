@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and U2, I Still Haven't Found What I'm Looking For"
+author: "Ken"
+excerpt: "It’s a veritable lovefest every time Bruce joins U2 on their iconic anthem, “I Still Haven’t Found What I’m Looking For.”"
+tags: i-still-havent-found-what-im-looking-for rock-and-roll-hall-of-fame u2
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/u2still.jpg
+post_id: 7435
+---
 It's one of the most iconic songs from one of rock's most iconic bands.
 
 Upon release in 1987, it topped the Billboard Hot 100 chart. A quarter-century later, it was firmly lodged in Rolling Stone Magazine's 100 Greatest Songs of All Time.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 14"
+author: "Ken"
+excerpt: "On this date: Bruce assembles his new band for the first time and “Terry’s Song” gets its first public performance. Plus: Bob Seger, Alejandro Escovedo, Joe Ely, Tom Waits and others join Bruce on-stage."
+tags: alejandro-escovedo always-a-friend auburn-hills bob-seger canada edmonton elvis-presley-the-searcher frankfurt germany houston joe-ely karla-bonoff magic-tour magic-tour-highlights new-york-city rising-tour river-tour river-tour-2016 shout springsteen-on-broadway tenth-avenue-freeze-out terrys-song tom-waits
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2016-04-14-The-Palace-Of-Auburn-Hills-Auburn-Hills-MI-cover.jpg
+post_id: 56453
+---
 ***New for 2025:** Video for 2023*<br>
 
 **1981:** The River Tour returns to Germany for a show at Festhalle in Frankfurt. What a deal you were offered if you lived in the U.K. at the time! Guest blogger Dan French made the journey for the show–read his adventure in [today's *Where the Band Was* report](../2021-04-14_where-the-band-was-frankfurt-april-141981-dans-story/post.md).<br>

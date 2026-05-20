@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: December 2"
+author: "Ken"
+excerpt: "On this date: Bruce teams up with Joe Grushecky, Robert Gordon, Dion, and Marah. Plus: the earliest recorded “Santa Claus is Comin’ to Town,” and more."
+tags: all-along-the-watchtower atlanta badlands baton-rouge born-in-the-usa-tour born-to-run-book born-to-run-tour boston brendan-obrien code-of-silence dallas dion-dimucci exit-105 flood-aid germany ghost-of-tom-joad-tour heartbreak-hotel if-i-should-fall-behind into-the-fire joe-grushecky land-of-hope-and-dreams light-of-day link-wray magic-tour mannheim marah pittsburgh rising-tour river-tour robert-gordon rochester santa-claus-is-comin-to-town sunrise world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/19801202_2_front.jpg
+post_id: 55216
+---
 ***New for 2024:** Article for 1984; review for 2002; new entry for 2023*<br>
 
-**1975:** Bruce and the E Street Band usher in the holiday season with their first of two shows at Boston’s Music Hall. On the set list: Bruce’s very first performance of “[Party Lights](../2022-06-01_cover-me-party-lights/post.md),” and the earliest captured performance of “[Santa Claus is Comin’ to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md).”<br>
+**1975:** Bruce and the E Street Band usher in the holiday season with their first of two shows at Boston's Music Hall. On the set list: Bruce's very first performance of "[Party Lights](../2022-06-01_cover-me-party-lights/post.md)," and the earliest captured performance of "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - PARTY LIGHTS 1975 (audio)](https://www.youtube.com/watch?v=_CqYpjOqG80)
 
@@ -12,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/33929295148_2d852ea582_o.jpg.webp)
 
-**1977:** Bruce joins Robert Gordon and Link Wray on stage at NYU for a cover of “[Heartbreak Hotel.](../2021-04-11_matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/post.md)”<br>
+**1977:** Bruce joins Robert Gordon and Link Wray on stage at NYU for a cover of "[Heartbreak Hotel.](../2021-04-11_matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/post.md)"<br>
 
 [Watch on Youtube: Robert Gordon & Bruce Springsteen duet '77](https://www.youtube.com/watch?v=LBkx1AWpJ-8)
 
@@ -34,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Leesville_Daily_Leader_1984_12_04_3.jpg.webp)
 
-**1992:** Dallas fans celebrate the arrival of the holiday season when Bruce closes his World Tour 1992 show at the Reunion Arena with the tour premiere of “Santa Claus is Comin’ to Town.” Reviewers are not impressed.<br>
+**1992:** Dallas fans celebrate the arrival of the holiday season when Bruce closes his World Tour 1992 show at the Reunion Arena with the tour premiere of "Santa Claus is Comin' to Town." Reviewers are not impressed.<br>
 
 [Watch on Youtube: Bruce Springsteen "Santa Claus is Comin' to Town" - Dallas, 1992-12-02](https://www.youtube.com/watch?v=LS8uGiazRAc)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-02b.png.webp)
 
-**1996:** Dion DiMucci guest stars on “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” when Bruce plays his first of two solo acoustic shows at the Sunrise Musical Theater in Florida.<br>
+**1996:** Dion DiMucci guest stars on "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" when Bruce plays his first of two solo acoustic shows at the Sunrise Musical Theater in Florida.<br>
 
 [Watch on Youtube: Bruce Springsteen and Dion, "If I Should Fall Behind" - Sunrise, FL, 1996-12-02](https://www.youtube.com/watch?v=Pi5wsCgXMhw)
 
@@ -52,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1996-12-02c.png.webp)
 
-**2002:** “[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)” makes its Rising Tour premiere at Philips Arena in Atlanta, and Brendan O’Brien joins Bruce and the Band for “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)” and “Born to Run.”<br>
+**2002:** "[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)" makes its Rising Tour premiere at Philips Arena in Atlanta, and Brendan O'Brien joins Bruce and the Band for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" and "Born to Run."<br>
 
 [Watch on Youtube: Bruce Springsteen - GLORY DAYS + BORN TO RUN 2002 - live](https://www.youtube.com/watch?v=H1mWL7ktCnY)
 
@@ -64,7 +74,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Atlanta_Constitution_2002_12_03_B3.jpg.webp)
 
-**2004:** Bruce joins Joe Grushecky and The Houserockers for a special Flood Aid concert in Pittsburgh, benefiting local residents impacted by Hurricane Ivan. Bruce joins opening act Exit 105 for “[All Along the Watchtower](../2020-08-13_matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/post.md)” before playing a brief acoustic set and finally joining Joe and the Band for their set. Jesse Malin makes a guest appearance on the show-closing “Santa Claus is Comin’ to Town.”<br>
+**2004:** Bruce joins Joe Grushecky and The Houserockers for a special Flood Aid concert in Pittsburgh, benefiting local residents impacted by Hurricane Ivan. Bruce joins opening act Exit 105 for "[All Along the Watchtower](../2020-08-13_matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/post.md)" before playing a brief acoustic set and finally joining Joe and the Band for their set. Jesse Malin makes a guest appearance on the show-closing "Santa Claus is Comin' to Town."<br>
 
 [Watch on Youtube: All Along the Watchtower w/Bruce Springsteen (rehearsal)](https://www.youtube.com/watch?v=-rywffsiwsw)
 
@@ -98,4 +108,4 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2016-12-02b.png.webp)
 
-**2023:** Bruce’s scheduled show in San Diego is postponed to the following March due to his peptic ulcer disease.<br>
+**2023:** Bruce's scheduled show in San Diego is postponed to the following March due to his peptic ulcer disease.<br>

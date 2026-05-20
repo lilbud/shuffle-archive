@@ -1,11 +1,21 @@
-Because of course you've always wondered what a chiptuned Bruce Springsteen song sounds like. Right?
+---
+layout: post
+title: "Cover Me, 8-Bit Arcade: Western Stars"
+author: "Ken"
+excerpt: "Here’s one for all you retro-gaming Springsteen fans out there: an 8-bit cover of “Western Stars” that’s way more impressive than you’d ever imagine."
+tags: 8-bit-arcade chiptune western-stars
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/8bit-1.jpg
+post_id: 16450
+---
+Because of course you’ve always wondered what a chiptuned Bruce Springsteen song sounds like. Right?
 
-Actually, chiptune adaptations of Bruce's catalog have been floating around the Internet for many years. But until now, every one I've come across is a novelty at best–certainly not worth a repeat listen.
+Actually, chiptune adaptations of Bruce’s catalog have been floating around the Internet for many years. But until now, every one I’ve come across is a novelty at best–certainly not worth a repeat listen.
 
 Until now.
 
-The 8-Bit Arcade team gets points for the sheer audaciousness of even *attempting* to adapt and cover such a lush and layered song as "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)." But to actually pull it off so superbly? That is a super-impressive feat. They even nailed the pedal steel!
+The 8-Bit Arcade team gets points for the sheer audaciousness of even *attempting* to adapt and cover such a lush and layered song as “[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md).” But to actually pull it off so superbly? That is a super-impressive feat. They even nailed the pedal steel!
 
-So without further ado, take a listen to the 8-Bit Arcade cover of "Western Stars," and prepare to be impressed.
+So without further ado, take a listen to the 8-Bit Arcade cover of “Western Stars,” and prepare to be impressed.
 
 [Watch on Youtube: 8-BIT ARCADE - Western Stars (8-Bit Bruce Springsteen Emulation)](https://www.youtube.com/watch?v=u-1C6RRF1No)

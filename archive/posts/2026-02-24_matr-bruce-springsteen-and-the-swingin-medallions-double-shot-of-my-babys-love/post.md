@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Double Shot (Of My Baby's Love)"
+author: "Ken"
+excerpt: "One time only: The E Street Band teams up with beach music legends The Swingin’ Medallions to cover one of rock’s enduring party classics."
+tags: dick-holler-the-holidays double-shot-of-my-babys-love the-swingin-medallions
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/doubleshot.jpg
+post_id: 33904
+---
 If you lived in or around Columbia, South Carolina in the early 1960s, you were likely among the first to experience the earworm that is "Double Shot (Of My Baby's Love)."
 
 Local band Dick Holler and The Holidays recorded it in 1963 and established it as a local hit the following year.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Darlene Love, Bette Midler, and Bruce Springsteen: He's a Rebel"
+author: "Ken"
+excerpt: "One time only: Watch Bruce Springsteen back Darlene Love and Bette Midler on Love’s greatest (yet uncredited) hit."
+tags: bette-midler darlene-love hes-a-rebel the-blossoms the-crystals
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/hesarebel.jpg
+post_id: 29804
+---
 I usually start these pieces off with a bit of background on the singer and the song, but given the circumstances it seems more appropriate to let Bette Midler do the talking.
 
 Let's watch her induction speech for Darlene Love at the 2011 Rock and Roll Hall of Fame Induction. (Keep an eye out for an E Street Band cameo!)

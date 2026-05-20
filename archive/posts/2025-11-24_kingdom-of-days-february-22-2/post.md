@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 22"
+author: "Ken"
+excerpt: "Bruce’s parents marry, Steel Mill records in the studio, and Bruce and the band play a fun Australian winery show. Plus: Friday Night Videos airs a private reel on Bruce."
+tags: australia chapter-and-verse child columbia drinkin-wine france friday-night-videos friday-on-my-mind ghost-of-tom-joad-tour high-hopes-tour hunter-valley lawsuit-tour milwaukee paris river-tour steel-mill the-honeymooners the-wish trapped
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/hunter.jpg
+post_id: 55973
+---
 **1948:** Douglas Springsteen and Adele Zerilli marry at the St. Rose of Lima Church in Freehold, New Jersey. Later the following year, they’ll become the proud parents of a baby boy destined to become one of the world’s most famous, respected, and beloved rock stars, but tonight they enjoy their wedding reception at the Blue Moon Inn in Farmingdale. Long, long after, their son will write one of his finest songs about the indelibility of young love. Is “[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)” a loving nod to his parents’ wedding? Only Bruce knows.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/Asbury_Park_Press_1948_02_27_Page_12-scaled.jpg.webp)

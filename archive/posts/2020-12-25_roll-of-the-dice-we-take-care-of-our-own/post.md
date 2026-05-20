@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: We Take Care of Our Own"
+author: "Ken"
+excerpt: "More urgent and more relevant with each passing year, “We Take Care of Our Own” is Bruce’s reminder to his countrymen: We are better than this."
+tags: we-take-care-of-our-own wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/wetakecare-1.jpg
+post_id: 23379
+---
 > With his new single, "We Take Care of Our Own," Springsteen seems to be throwing up a gauntlet: Misunderstand me. Go on, I dare you." *— Chris Willman, Reuters, January 19, 2012*<br>
 
 The *New York Times* took that dare, and they weren't the only ones.

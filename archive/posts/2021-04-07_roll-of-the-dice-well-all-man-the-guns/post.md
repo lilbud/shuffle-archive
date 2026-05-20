@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: We'll All Man the Guns"
+author: "Ken"
+excerpt: "One time only: Bruce and Steel Mill reveal a new song about a solider at war buoyed by the thought of his love waiting for him. (Or was she?)"
+tags: all-man-the-guns steel-mill well-all-man-the-guns
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/allman.jpg
+post_id: 25935
+---
 > "I wanna do a song we just got together. This is a song called ‘All Man the Guns' and it's about a guy heading off to war… and he's talking to his girl and saying ‘wait for me cause I'll be back, you know, and everything will be fine.' And they never do!'" *–Bruce Springsteen, August 14, 1970*
 
 If there was ever an early Springsteen song that we *don't* need an explanation for, it's "We'll All Man the Guns" (also known as "All Man the Guns"). Or do we?

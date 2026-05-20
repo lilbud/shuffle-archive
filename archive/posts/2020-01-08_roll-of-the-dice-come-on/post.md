@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Come On"
+author: "Ken"
+excerpt: "In the summer of 1970, Steel Mill (featuring a young Bruce Springsteen) performed one of Bruce’s early galvanizing anthems. Take a listen inside."
+tags: come-on steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/comeon.jpg
+post_id: 15200
+---
 > "It's all happening out there in the street… so what are we all doing in here?" *–Bruce Springsteen, July 17, 1970*<br>
 
 In the summer of 1970, Bruce Springsteen was 21 years old, fronting a red-hot band, and cultivating a reputation and a fervent following at the Jersey Shore and in Richmond, Virginia. (If New Jerseyans can claim to be the first to realize Bruce's potential, Richmonders can rightfully claim to be second.)

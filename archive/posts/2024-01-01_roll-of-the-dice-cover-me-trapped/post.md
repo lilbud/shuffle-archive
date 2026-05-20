@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Trapped"
+author: "Ken"
+excerpt: "A chance find in an airport duty-free store led to a new Bruce arrangement of an obscure Jimmy Cliff song–and an instant fan favorite."
+tags: jimmy-cliff the-essential-bruce-springsteen trapped we-are-the-world
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/trapped.jpg
+post_id: 3569
+---
 There's a sub-genre of Springsteen staples that are simultaneously covers and not-quite-covers, and "Trapped" is one of the best-known and most-loved ones.
 
 On the European leg of the original River Tour, Bruce walked into an airport duty-free store in Amsterdam, picked up a Jimmy Cliff cassette and was knocked out by a particular song that–much like some of Bruce's best work–paired an optimistic, upbeat melody with more sober lyrics.

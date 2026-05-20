@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Over the Rise"
+author: "Ken"
+excerpt: "Mining similar earth as some of his earlier classics without offering anything new, “Over the Rise” still manages to position itself as one of Bruce’s more revealing songs."
+tags: over-the-rise tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/overrise.jpg
+post_id: 19327
+---
 For such an obscure track, "Over the Rise" has fascinating callbacks to several of Bruce's best songs.
 
 We can hear echoes of both "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" (both of which immediately pre-date "Over the Rise"), along with a direct reference to "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)" It also mines similar earth as "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)." It's almost certainly not a coincidence that every one of those songs is a "relationship" song.

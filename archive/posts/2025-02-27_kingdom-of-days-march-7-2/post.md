@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 7"
+author: "Ken"
+excerpt: "“We Are the World” was released on this date in 1985. More highlights from this date in Springsteen history inside, including Bruce’s first-ever shows in Houston and Atlantic City."
+tags: atlantic-city buffalo carole-king detroit-medley houston magic-tour new-york-city owings-mills rising-tour springsteen-on-broadway we-are-the-world
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/weareworld.jpg
+post_id: 56112
+---
 ***New for 2025:** Review for 1975; audio for 2003; video for 2023*<br>
 
 **1974:** Bruce plays his first-ever show in Texas, at Houston’s Liberty Hall–the first of seven shows at this venue in four days. Photographer Nicki Germaine is on hand to photograph the band, but it will be almost a half-century before fans can enjoy her wonderful photos. Order her book, *Springsteen: Liberty Hall* [here](https://springsteenlibertyhall.com/).<br>

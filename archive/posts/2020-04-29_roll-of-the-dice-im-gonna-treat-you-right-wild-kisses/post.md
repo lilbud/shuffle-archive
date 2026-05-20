@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'm Gonna Treat You Right (Wild Kisses)"
+author: "Ken"
+excerpt: "A true flash in the wild: the E Street Band rehearses a one-time-only performance of a lost, light Springsteen original."
+tags: im-gonna-treat-you-right-wild-kisses
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/wildkisses.jpg
+post_id: 17743
+---
 My goodness, where did *this* come from? And where did it go?
 
 [Watch Video Highlight](https://videopress.com/embed/WBsxIZZu)

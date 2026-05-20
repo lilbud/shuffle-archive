@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Cover Me, Jeff Stevens and the Bullets: Darlington County"
+author: "Ken"
+excerpt: "In 1987, “Darlington County” became the eighth song from Born in the U.S.A. to hit the Billboard charts, but it wasn’t Bruce who took it there."
+tags: darlington-county jeff-stevens-and-the-bullets
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/bullets.jpg
+post_id: 21176
+---
 The next time you're playing Springsteen trivia and you get this old softball:
 
 How many *Born in the U.S.A.* songs charted as singles?
 
-...stump your questioner by answering eight instead of seven.
+…stump your questioner by answering eight instead of seven.
 
 Because in addition to "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)," "[Born in the U.S.A.,](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "Glory Days," "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)," and "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," one other song made a brief appearance on the Billboard charts.
 

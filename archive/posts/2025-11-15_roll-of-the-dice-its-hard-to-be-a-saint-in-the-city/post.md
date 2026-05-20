@@ -1,3 +1,13 @@
+---
+layout: post
+title: "It's Hard to Be a Saint in the City"
+author: "Ken"
+excerpt: "“It’s Hard to Be Saint in the City” played an important role in Bruce’s rise to stardom, but the lesser-known acoustic version is the definitive take."
+tags: greetings-from-asbury-park its-hard-to-be-a-saint-in-the-city john-hamond mike-appel tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/saintcity-e1539745496380.jpg
+post_id: 4780
+---
 True fact: the last song on Bruce's debut album, "It's Hard to Be a Saint in the City," fades out before it's over.
 
 I'm not talking about the demo version from *Tracks–*I mean the actual *Greetings* version ends too soon. If that's the only version you've heard, then you've never heard how Bruce finished the song.

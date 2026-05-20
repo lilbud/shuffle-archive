@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me Round-Up: I'm on Fire (Part 5)"
+author: "Ken"
+excerpt: "Six more fresh takes on Bruce Springsteen’s most-covered song."
+tags: cookhouse emmeline-gracie-rae im-on-fire lara-lark leon-of-athens mick-stender tavana
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/laralark.jpg
+post_id: 33402
+---
 It's time for another edition of *Cover Me Round-Up*, featuring six fresh takes on Bruce Springsteen's most covered song, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."
 
 Today's cover crop is our most stylistically diverse one yet, with artists from around the globe translating "I'm on Fire" into genres and arrangements far afield from Bruce's original Top 10 single.

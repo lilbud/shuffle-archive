@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: December 13"
+author: "Ken"
+excerpt: "On this date: Bruce joins Paul Simon and an all-star line-up to combat homelessness, the E Street Band plays the entire Darkness album to an empty theater, and more."
+tags: a-teenager-in-love albany around-and-around asbury-park badlands billy-joel bobby-jean born-in-the-usa-tour boston brilliant-disguise cologne darkness-on-the-edge-of-town darkness-tour dion-dimucci germany ghost-of-tom-joad-tour james-taylor joe-grushecky lou-reed magic-tour memphis new-york-city patti-scialfa paul-simon racing-in-the-street rising-tour santa-claus-is-comin-to-town shes-the-one something-in-the-night springsteen-on-broadway the-promise-the-darkness-on-the-edge-of-town-story tucson wolfgang-niedecken world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/boston92.jpg
+post_id: 63005
+---
 ***New for 2025:** Audio for 1992 and 2007*<br>
 
 **1973:** Newly discovered contemporaneous press coverage (dated December 26 1973) suggests Bruce played a show (or at least was scheduled to) at the Shaboo Inn in Willimantic Connecticut.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/Valley_Advocate_Amherst_Wed__Dec_26__1973_.jpg.webp)
 
-**1978:** Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Center Arena. Before the show, Bruce gives an interview to San Francisco radio station KSAN-FM. It will be aired two days later during what will prove to be one of Bruce’s most legendary shows.<br>
+**1978:** Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Center Arena. Before the show, Bruce gives an interview to San Francisco radio station KSAN-FM. It will be aired two days later during what will prove to be one of Bruce's most legendary shows.<br>
 
 [Watch on Youtube: Bruce Springsteen - Interview with KSAN-FM, 1978-12-13](https://www.youtube.com/watch?v=JX5nlFu8oBE)
 
@@ -22,9 +32,9 @@
 
 [Watch on Youtube: Bruce Springsteen - "Bobby Jean" - Memphis, 1984-12-13](https://www.youtube.com/watch?v=UzMaKpyptz4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Commercial_Appeal_1984_12_14_25.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg.webp)
 
-**1987:** Bruce appears at the All Star Benefit for the Homeless Children at Madison Square Garden. Like the name suggests, the talent line-up is stellar, making for some amazing moments: Bruce, Paul Simon, James Taylor, Billy Joel, Ruben Blades, and Lou Reed all back Dion DiMucci for “[A Teenager in Love](../2020-08-16_matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/post.md);” Bruce plays a solo acoustic “Born to Run;” Paul Shaffer’s World’s Most Dangerous Band tackles “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)” with Bruce, Paul, and Billy. Check out highlights and news coverage from this amazing show below.<br>
+**1987:** Bruce appears at the All Star Benefit for the Homeless Children at Madison Square Garden. Like the name suggests, the talent line-up is stellar, making for some amazing moments: Bruce, Paul Simon, James Taylor, Billy Joel, Ruben Blades, and Lou Reed all back Dion DiMucci for "[A Teenager in Love](../2020-08-16_matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/post.md);" Bruce plays a solo acoustic "Born to Run;" Paul Shaffer's World's Most Dangerous Band tackles "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" with Bruce, Paul, and Billy. Check out highlights and news coverage from this amazing show below.<br>
 
 [Watch on Youtube: Teenager in love - Dion - homeless benefit concert, 13-12-87](https://www.youtube.com/watch?v=9hJOwe0vH_s)
 
@@ -38,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1987-12-13.png.webp)
 
-**1992:** Patti makes a guest appearance when World Tour 1992 stops in Boston for the first of two nights at the Garden. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26415/Bruce-Springsteen-mp3-flac-download-12-13-1992-Boston-Garden-Boston-MA.html).<br>
+**1992:** Patti makes a guest appearance when World Tour 1992 stops in Boston for the first of two nights at the Garden. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26415/Bruce-Springsteen-mp3-flac-download-12-13-1992-Boston-Garden-Boston-MA.html).<br>
 
 [Watch on Youtube: Better Days (Live at Boston Garden, Boston, MA - 12/13/1992)](https://www.youtube.com/watch?v=XfnPYggW35o)
 
@@ -60,7 +70,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "Murder Incorporated" - New York City, 1995-12-13](https://www.youtube.com/watch?v=4-ut6-51V8A)
 
-**1997:** Bruce makes a guest appearance at Joe Grushecky’s acoustic show at Cheers in Long Branch, New Jersey.<br>
+**1997:** Bruce makes a guest appearance at Joe Grushecky's acoustic show at Cheers in Long Branch, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1997-12-13.jpg.webp)
 
@@ -68,7 +78,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Star_Ledger_1997_12_15_27-scaled.jpg.webp)
 
-**2002:** Bruce and the E Street Band take the Rising Tour to the Pepsi Arena in Albany, where they close the show with “[Around and Around,](../2020-02-26_cover-me-around-and-around/post.md)” not played in 24 years.<br>
+**2002:** Bruce and the E Street Band take the Rising Tour to the Pepsi Arena in Albany, where they close the show with "[Around and Around,](../2020-02-26_cover-me-around-and-around/post.md)" not played in 24 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Around and Around" - Albany, 2002-12-13](https://www.youtube.com/watch?v=tt79jPObtjs)
 
@@ -76,7 +86,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2002-12-13b.png.webp)
 
-**2007:** Wolfgang Niedecken joins Bruce and the band for a show-closing “[Santa Claus is Comin’ to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)” when the Magic Tour stops in Cologne.<br>
+**2007:** Wolfgang Niedecken joins Bruce and the band for a show-closing "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" when the Magic Tour stops in Cologne.<br>
 
 [Watch on Youtube: Bruce Springsteen Köln 2007 Santa Claus is Coming to Town](https://www.youtube.com/watch?v=MAw1ay2rJrI)
 
@@ -84,11 +94,11 @@
 
 [Watch on Youtube: Cologne 13/12/2007](https://www.youtube.com/playlist?list=PLJTyL9twk3zDSL8ngmVycL0CCnIFMpxRP)
 
-**2009:** Bruce gathers the E Street Band at the Paramount Theater in Asbury Park, where they film a live performance of every track from [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)to an empty room. The performance will be released the following year as part of the box set for *The Promise: The Darkness on the Edge of Town Story* but can also be viewed on Bruce’s official YouTube channel.<br>
+**2009:** Bruce gathers the E Street Band at the Paramount Theater in Asbury Park, where they film a live performance of every track from [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)to an empty room. The performance will be released the following year as part of the box set for *The Promise: The Darkness on the Edge of Town Story* but can also be viewed on Bruce's official YouTube channel.<br>
 
 [Watch on Youtube: Darkness on the Edge of Town: Paramount Theatre, Asbury Park](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5paxewLf5pnXs4v7Dx4vjCiM)
 
-Also today: the release of *The People Speak*, a documentary featuring a contribution from Bruce playing over the credits–a beautiful, acoustic “[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md).”
+Also today: the release of *The People Speak*, a documentary featuring a contribution from Bruce playing over the credits–a beautiful, acoustic "[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)."
 
 [Watch on Youtube: This Land is Your Land - Bruce Springsteen (The People Speak 2009)](https://www.youtube.com/watch?v=H7J-8uTaQS0)
 
@@ -100,12 +110,12 @@ Also today: the release of *The People Speak*, a documentary featuring a contrib
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3)
 
-**2021:** Bruce performs a rare post-pandemic electric set at Steve Earle’s annual John Henry’s Friends Benefit, including team-ups with Willie Nile on “Glory Days,” “[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)” with Steve Earle, and a finale ensemble on “[Teach Your Children](../2018-04-14_matr-crosby-stills-nash-young-and-springsteen-teach-your-children/post.md).”<br>
+**2021:** Bruce performs a rare post-pandemic electric set at Steve Earle's annual John Henry's Friends Benefit, including team-ups with Willie Nile on "Glory Days," "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" with Steve Earle, and a finale ensemble on "[Teach Your Children](../2018-04-14_matr-crosby-stills-nash-young-and-springsteen-teach-your-children/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and The Dukes Darkness on The Edge of Town NYC 12/13/2021](https://www.youtube.com/watch?v=VRJDIQz1yi4)
 
 [Watch on Youtube: Bruce Springsteen The Mastersons,The Dukes, Willie Nile Glory Days Town Hall NYC 12-13-21](https://www.youtube.com/watch?v=Wr-8Gs3n23k)
 
-[Watch on Youtube: Bruce Springsteen, Steve Earle and The Dukes](https://www.youtube.com/watch?v=FngXWtIZ24k)
+[Watch on Youtube: Bruce Springsteen, Steve Earle and The Dukes "Pink Cadillac" 12-13-21 Town Hall NYC](https://www.youtube.com/watch?v=FngXWtIZ24k)
 
 [Watch on Youtube: Bruce Springsteen/ Steve Earle / Roseanne Cash / Teach Your Children Well](https://www.youtube.com/watch?v=fl58pogusgU)

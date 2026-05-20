@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Knock on Wood"
+author: "Ken"
+excerpt: "Twice only: Bruce and the E Street Band tackle the immortal Stax classic, “Knock on Wood.”"
+tags: eddie-floyd knock-on-wood
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/knockwood.jpg
+post_id: 26259
+---
 Bruce loves Stax Records, and it's hard to get more Stax than Eddie Floyd's "Knock on Wood."
 
 Killer horn riff? Check.

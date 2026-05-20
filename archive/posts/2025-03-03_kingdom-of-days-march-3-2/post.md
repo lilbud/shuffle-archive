@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 3"
+author: "Ken"
+excerpt: "On this date: Bruce films one of his very best videos, and Barack Obama takes in Springsteen on Broadway."
+tags: barack-obama bruce-springsteen-band canada chapel-hill dancing-in-the-dark edinburgh ghost-of-tom-joad-tour hamilton im-on-fire john-salyes magic-tour meet-me-in-the-city milwaukee radio-nowhere river-tour-2016 santa-monica scotland sherry-darling springsteen-on-broadway the-price-you-pay tunnel-of-love-express-tour uk washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/39336717750_e2d9b16ed1_o.jpg
+post_id: 56072
+---
 ***New for 2025:** Review for 1988 and 1996*<br>
 
 **1973:** Bruce and the band open for Blood, Sweat and Tears in Santa Monica.<br>

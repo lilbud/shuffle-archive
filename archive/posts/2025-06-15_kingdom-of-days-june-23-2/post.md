@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 23"
+author: "Ken"
+excerpt: "On this date: Bruce and the Sessions Band stop by Late Night with Conan O’Brien, the first “Fade Away” in almost a quarter-century, and more."
+tags: antwerp belgium born-in-the-usa-tour brendan-obrien conan-obrien devils-and-dust-tour fade-away france gothenburg im-a-rocker madison-square-garden magic-tour montpellier new-york-city pay-me-my-money-down portland reunion-tour springsteen-on-broadway stockholm sweden warren-zevon
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Art-Front.jpg
+post_id: 57178
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1973:** Bruce and his band play their second of three consecutive nights at Fat City in Seaside Heights, New Jersey.<br>
@@ -8,9 +18,9 @@
 
 **1974:** Bruce and the E Street Band play two shows on their third of three consecutive nights at Le Garage on Long Beach Island.<br>
 
-**1977:** Bruce and the E Street Band work on “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” at Atlantic Studios in New York City.<br>
+**1977:** Bruce and the E Street Band work on "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" at Atlantic Studios in New York City.<br>
 
-**1978:** In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon’s performance. He joins Zevon for “I’ll Sleep When I’m Dead,” the final encore of the evening.<br>
+**1978:** In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon's performance. He joins Zevon for "I'll Sleep When I'm Dead," the final encore of the evening.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/1978-06-23-scaled.jpg.webp)
 
@@ -34,7 +44,7 @@
 
 [Watch on Youtube: Bruce Springsteen: live footage Stockholm 1999](https://www.youtube.com/watch?v=HmDVXvxXtkA)
 
-**2000:** Night Six of Ten at Madison Square Garden features a rare “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/),” as the Reunion Tour’s last stand continues.<br>
+**2000:** Night Six of Ten at Madison Square Garden features a rare "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)," as the Reunion Tour's last stand continues.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uLYj1uhJ)
 
@@ -42,19 +52,19 @@
 
 [Watch on Youtube: Meeting Across The River (Live at Madison Square Garden, New York, NY - June 2000)](https://www.youtube.com/watch?v=D3vUmI_08jo)
 
-**2005:** Bruce plays “[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)” for the first time in 24 years at his Devils & Dust show in Gothenburg.<br>
+**2005:** Bruce plays "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)" for the first time in 24 years at his Devils & Dust show in Gothenburg.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9KTxtENW)
 
 [Watch on Youtube: Bruce Springsteen - State trooper Gothenburg, Sweden, June 23, 2005.](https://www.youtube.com/watch?v=jolZKmU3SbM)
 
-**2006:** Conan O’Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)” on *Late Night with Conan O’Brien.* Bruce also performs “[Bring ’em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md).”<br>
+**2006:** Conan O'Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" on *Late Night with Conan O'Brien.* Bruce also performs "[Bring 'em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down [Conan O'Brien]](https://www.youtube.com/watch?v=fSt22GEPQGg)
 
 [Watch on Youtube: Bring 'Em Home - Bruce Springsteen (live on Late Night with Conan O'Brien 2006)](https://www.youtube.com/watch?v=wXUiV6SwOBw)
 
-**2008:** Bruce tour premieres “[I’m a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)” as an encore during his Magic Tour stop in Antwerp.<br>
+**2008:** Bruce tour premieres "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" as an encore during his Magic Tour stop in Antwerp.<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm A Rocker](https://www.youtube.com/watch?v=RuV3LKuwNw8)
 

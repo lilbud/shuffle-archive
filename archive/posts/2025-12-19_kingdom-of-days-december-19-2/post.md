@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 19"
+author: "Ken"
+excerpt: "A holiday SNL appearance, Bruce’s first-ever Canadian show, and two raucous holiday shows lead off today’s highlights."
+tags: amy-poehler asbury-park born-to-run-tour bruce-springsteen-band canada darkness-tour england holiday-shows london madison-square-garden magic-tour max-weinberg meet-me-in-the-city montreal new-york-city patti-scialfa paul-mccartney portland river-tour santa-claus-is-comin-to-town saturday-night-live southside-johnny springsteen-on-broadway student-prince the-ties-that-bind tina-fey uk willie-nile
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/SNL1692_Bumper_Photos06.jpg
+post_id: 63384
+---
 ***New for 2025:** No updates*<br>
 
 **1971:** The Bruce Springsteen Band completes their residency at the Student Prince in Asbury Park. Following this show, Bruce will drive out to California to visit his parents, with no clear return date in mind. The band will continue on without him for a time, reverting to The Sundance Blues Band.<br>

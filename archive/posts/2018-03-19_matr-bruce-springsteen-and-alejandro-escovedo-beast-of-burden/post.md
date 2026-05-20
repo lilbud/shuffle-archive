@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Alejandro Escovedo – Beast of Burden"
+author: "Ken"
+excerpt: "Bruce dropped by Alejandro Escovedo’s gig at the Stone Pony on July 23, 2010 and joined him for The Rolling Stone’s “Beast of Burden.”"
+tags: alejandro-escovedo beast-of-burden rolling-stones
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/Beastofburden.gif
+post_id: 1021
+---
 Bruce dropped by Alejandro Escovedo's gig at the Stone Pony on July 23, 2010 and joined him for The Rolling Stones' "Beast of Burden." Bruce has only performed this classic twice in his career–both times with Escovedo.
 
 [Watch on Youtube: Escovedo & Springsteen - Beast of Burden (23-07-2010)](https://www.youtube.com/watch?v=sWu1xn3OKHM)

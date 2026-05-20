@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Letter to You"
+author: "Ken"
+excerpt: "Love the song, hate the track: “Letter to You” is my new “Real World.”"
+tags: letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/lty.jpg
+post_id: 22281
+---
 I had to completely re-write this essay.
 
 I had it written, prepped and ready to go before the holidays, but I dreaded publishing it. So I punted, hoping I'd feel better about it in a week or two. Or at least less guilty.

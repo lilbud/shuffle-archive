@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: (Your Love Keeps Lifting Me) Higher and Higher"
+author: "Ken"
+excerpt: "In which I send thanks to the brilliant fan who requested and restored Jackie Wilson’s eternal classic to its rightful place in Bruce’s encore set."
+tags: jackie-wilson pretenders rock-and-roll-hall-of-fame the-dells your-love-keeps-lifting-me-higher-and-higher
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/higher.jpg
+post_id: 4536
+---
 I guess everyone has that one song, right?
 
 You know the one I mean: the one that comes on the radio, and you stop in your tracks, turn the volume *way* up, and no matter who else is in the room, you're dancing and singing full-throatedly.

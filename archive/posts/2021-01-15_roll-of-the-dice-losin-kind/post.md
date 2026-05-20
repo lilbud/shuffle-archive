@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Losin' Kind"
+author: "Ken"
+excerpt: "“Losin’ Kind” is one of only two original Nebraska demos left in the vault, but its imprint can be found across Bruce’s catalog."
+tags: highway-29 loose-change losin-kind
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/losinkind.jpg
+post_id: 24354
+---
 If Bruce hadn't rewritten "Losin' Kind" as "Highway 29," this essay would be a lot longer than it is. (I'd also be calling it an artistic crime to keep this beautiful *Nebraska* outtake locked away in the vault.)
 
 But so strong are the lyrical similarities between Bruce's 1982 outtake and his superior 1995 deep cut that I'm left with little to add after comparing the two songs in my essay on "[Highway 29](../2018-03-23_roll-of-the-dice-highway-29/post.md)," other than the remarkable number of connections to "Losin' Kind" to be found across Bruce's catalog.

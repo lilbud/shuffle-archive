@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Amy Ray: Racing in the Street"
+author: "Ken"
+excerpt: "Long-time Springsteen fan Amy Ray loves “Racing in the Street” so much that she almost never covers it (out of reverence for the original). But she covered it last year, and you can watch her gorgeous performance inside."
+tags: amy-ray racing-in-the-street
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/amy_ray.jpg
+post_id: 15414
+---
 How much of a Springsteen fan is Amy Ray?
 
 Enough that for years, she sang "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" in the studio to warm up but rarely dared to cover it in public out of reverence for the original.
@@ -6,9 +16,9 @@ Enough that she actually learned the song from the bootleg of Bruce's Atlanta '7
 
 And enough that she proves that there's an exception to my cover rule: sometimes you *don't* have to do it better or do it differently–you just have to love the song.
 
-And watching this Amy Ray Band performance from last spring... there's no question that Amy loves this song.
+And watching this Amy Ray Band performance from last spring… there's no question that Amy loves this song.
 
-[Watch on Youtube: Amy Ray Band covering Bruce Springsteen's "Racing in the Street"](https://www.youtube.com/watch?v=7LNH5vJ2DHg)
+[Watch on Youtube: Amy Ray Band covering Bruce Springsteen's](https://www.youtube.com/watch?v=7LNH5vJ2DHg)
 
 In a radio interview last year, Amy zeroed in on a particular line of "Racing in the Street" and placed Bruce's song in a new context:
 

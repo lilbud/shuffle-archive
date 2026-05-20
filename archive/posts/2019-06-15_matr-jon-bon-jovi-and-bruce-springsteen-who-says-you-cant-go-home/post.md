@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Jon Bon Jovi and Bruce Springsteen: Who Says You Can't Go Home"
+author: "Ken"
+excerpt: "One time only: Bruce joins Jon Bon Jovi on “Who Says You Can’t Go Home,” a song that sounds like Bruce could have written it himself."
+tags: jennifer-nettles jon-bon-jovi who-says-you-cant-go-home
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/whosays.jpg
+post_id: 10640
+---
 I'm not a big Bon Jovi fan, but I do love their song, "Who Says You Can't Go Home," from their 2005 *Have a Nice Day* album. That's probably because it sounds just like a Bruce Springsteen song.
 
 Seriously, just listen to the lyrics and tell me that Jon wasn't channeling Bruce when he wrote it:

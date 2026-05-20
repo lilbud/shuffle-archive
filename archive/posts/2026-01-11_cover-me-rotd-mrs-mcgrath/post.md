@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Mrs. McGrath"
+author: "Ken"
+excerpt: "In 2006, Bruce resurrected and revised an anti-war song from the Napoleonic era, filling it with resonance for the modern era."
+tags: burl-ives mrs-mcgrath we-shall-overcome-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/wounded.jpeg
+post_id: 9735
+---
 Bruce has recorded his share of anti-war songs, some original and some covered. Most are commentaries on the wars of his lifetime or the World Wars that preceded it.
 
 But one in particular dates back much farther: "Mrs. McGrath" is a sardonic condemnation of the Napoleonic Wars of the early 19th century, told from the perspective of a proud Irish mother who all but loses her son when he enlists in the British Army.

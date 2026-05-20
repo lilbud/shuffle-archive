@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 20"
+author: "Ken"
+excerpt: "An appearance on Italian television, a one-off acoustic show with Q&A in Somerville, and a bar gig with Beaver Brown highlight this day in Bruce history."
+tags: aint-that-a-shame beaver-brown big-mans-west hollywood ida-rose-no-one-knows itay john-cafferty madison money pittsburgh river-tour san-remo somerville the-ghost-of-tom-joad upstage
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/20030220_3_front.jpg
+post_id: 55971
+---
 **1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.<br>
 
 **1972:** The Bruce Springsteen Band plays their sixth of nine shows this month at The Back Door in Richmond, Virginia.<br>

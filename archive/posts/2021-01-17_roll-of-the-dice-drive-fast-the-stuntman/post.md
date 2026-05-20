@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Drive Fast (The Stuntman)"
+author: "Ken"
+excerpt: "My favorite song on Western Stars is arguably the most romantic and (literally) cinematic song in Bruce’s entire catalog."
+tags: drive-fast-the-stuntman western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/stunt.jpg
+post_id: 23950
+---
 > In "Drive Fast," I had that metaphor of the stuntman (which is always a metaphor of risk) and this idea that we all have our broken pieces. What frightens and what exhilarates and inspires us are often very close together. Those feelings are the essence of what drives us to risk, in life and in love.
 >
 > Everybody's broken in some way–physically, emotionally, spiritually. In this life, nobody gets away unhurt. I wrote a song about a guy not just finding the fearlessness to do his job, but the fearlessness to risk being with somebody that you love. We're always trying to find somebody whose broken pieces fit with our broken pieces, and something whole emerges. — Bruce Springsteen, *Western Stars*<br>

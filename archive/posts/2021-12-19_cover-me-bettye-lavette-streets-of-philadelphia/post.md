@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Bettye LaVette: Streets of Philadelphia"
+author: "Ken"
+excerpt: "What can possibly be more powerful than Bettye LaVette’s 2007 cover of “Streets of Philadelphia?” A live performance from a decade later. Both are required listening."
+tags: bettye-lavette streets-of-philadelphia
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/song-of-america.jpg
+post_id: 13703
+---
 Wow.
 
 Just… wow.

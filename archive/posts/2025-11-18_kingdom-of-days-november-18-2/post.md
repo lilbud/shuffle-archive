@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 18"
+author: "Ken"
+excerpt: "On this date: Bruce duets with John Legend, the legendary Hammersmith Odeon ’75 show, the release of Live in Barcelona, and more."
+tags: atlantic-city bobby-jean born-in-the-usa-tour born-to-run-tour boston charlotte darkness-tour dublin england gypsy-biker hammersmith-odeon highway-patrolman ireland jackson-cage john-legend johnny-99 jungleland letter-to-you lincoln live-in-barcelona live-in-dublin london lost-in-the-flood magic-tour nashville nebraska oxford pbs-exclusive ring-of-fire seeger-sessions-tour shenandoah springsteen-on-broadway sugarland thunder-road uk working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/hammersmith.jpg
+post_id: 62387
+---
 ***New for 2025:** No updates*<br>
 
 **1975:** Bruce plays his first-ever show in Europe, a historic concert at the Hammersmith Odeon in London. The hype precedes him. Bruce famously reacts to it by tearing down posters that read "Finally, London is ready for Bruce Springsteen and The E Street Band," but despite later reports that he considered the show itself to be substandard, for those there (and for those who hear and watch it decades later via an official release) the show is intense and electric.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 20"
+author: "Ken"
+excerpt: "On this date: Bruce plays Red Rocks for the first time, guest stars abound, and the legendary ten-night MSG Reunion stand continues. More highlights inside."
+tags: 23rd-street-lullaby arnhem better-days bobby-bandiera camden cats-on-a-smooth-surface coventry darkness-tour devils-and-dust-tour france glorias-eyes i-fought-the-law i-wish-i-were-blind im-shipping-up-to-boston italy joe-grushecky long-time-comin madison-square-garden milan my-city-of-ruins new-york-city paris patti-scialfa red-rocks reunion-tour richmond seeger-sessions-tour soozie-tyrell southside-johnny springsteen-on-broadway steel-mill stone-pony sundance-blues-band the-netherlands trapped uk world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/june-20th-2024-barcelona-es-bruce-springsteen-and-the-e-street-band-review-2.jpg
+post_id: 57120
+---
 ***New for 2025:** New entry for 1977, 1979 and 2024*<br>
 
 **1970:** Steel Mill plays their second of two nights at The String Factory in Richmond.<br>
@@ -8,27 +18,27 @@
 
 **1977:** Bruce and the E Street Band record for what will become *Darkness on the Edge of Town* at Atlantic Studios in New York City.<br>
 
-**1978:** Bruce and the E Street Band play Red Rocks for the first time at this Darkness Tour stop. This show also notches two additional firsts: Bruce’s first-ever show in Colorado and his first-ever cover of “[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md).”<br>
+**1978:** Bruce and the E Street Band play Red Rocks for the first time at this Darkness Tour stop. This show also notches two additional firsts: Bruce's first-ever show in Colorado and his first-ever cover of "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/602P8E1i)
 
-**1979:** Bruce and the E Street Band work on “Stolen Car” at The Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on "Stolen Car" at The Power Station in New York City.<br>
 
-**1982:** Bruce makes his by now customary “surprise” appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of “[Come On, Let’s Go](../2018-10-19_cover-me-come-on-lets-go/post.md),” “[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/),” “[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md),” “[Lucille](../1976-01-07_cover-me-lucille/post.md/),” and more.<br>
+**1982:** Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of "[Come On, Let's Go](../2018-10-19_cover-me-come-on-lets-go/post.md)," "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," "[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)," "[Lucille](../1976-01-07_cover-me-lucille/post.md/)," and more.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1982-0620.jpg.webp)
 
-**1989:** Bruce makes a guest appearance with Bobby Bandiera at Martell’s Sea Breeze in Point Pleasant Beach, New Jersey.<br>
+**1989:** Bruce makes a guest appearance with Bobby Bandiera at Martell's Sea Breeze in Point Pleasant Beach, New Jersey.<br>
 
 **1992:** World Tour 1992 moves on from Stockholm to Milan, with this first of two nights at Forum di Assago.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Sx92iRWL)
 
-**1999:** Bruce and the reunited E Street Band play their second of two nights in Arnhem, The Netherlands, where they tour premiere “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md).”<br>
+**1999:** Bruce and the reunited E Street Band play their second of two nights in Arnhem, The Netherlands, where they tour premiere "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uOIqfM0v)
 
-**2000:** Night Four of ten at Madison Square Garden, as the Reunion Tour’s last stand continues. Highlights include the last “New York City Serenade” of the tour, “[Take ’em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md),” and a Soozie Tyrell guest appearance for “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md).” In attendance tonight: Michael J. Fox and Tracey Pollan.<br>
+**2000:** Night Four of ten at Madison Square Garden, as the Reunion Tour's last stand continues. Highlights include the last "New York City Serenade" of the tour, "[Take 'em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)," and a Soozie Tyrell guest appearance for "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)." In attendance tonight: Michael J. Fox and Tracey Pollan.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/sdgFdg9s)
 
@@ -38,13 +48,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/w2CqZvlc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Daily_News_Thu__Jun_22__2000_-1-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Daily_News_Thu__Jun_22__2000_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Daily_News_Thu__Jun_22__2000_-scaled.jpg.webp)
 
 **2004:** CBS *Sunday Morning* airs a terrific profile of and interview with Patti Scialfa as part of her promotional tour for *23rd Street Lullaby*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Hi4z7lS4)
 
-**2005:** Elliott Murphy makes a guest appearance on “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)” when Bruce tour premieres it (along with “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)“) at his solo acoustic show in Paris.<br>
+**2005:** Elliott Murphy makes a guest appearance on "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)" when Bruce tour premieres it (along with "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)") at his solo acoustic show in Paris.<br>
 
 [Watch on Youtube: Bruce Springsteen My Beautiful Reward 20 Juin 2005 Paris Bercy Solo Acoustic Soundboard](https://www.youtube.com/watch?v=6DNpb_i2V7U)
 
@@ -54,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dream Baby Dream 20 Juin 2005 Paris Bercy Solo Acoustic Soundboard](https://www.youtube.com/watch?v=tQ3_Fy5nd10)
 
-**2006:** Bruce and the Sessions Band deliver a great show at the Tweeter Center in Camden, tour premiering a full-band “[Maria’s Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md).” Southside Johnny and Joe Grushecky join Bruce for “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md).”<br>
+**2006:** Bruce and the Sessions Band deliver a great show at the Tweeter Center in Camden, tour premiering a full-band "[Maria's Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md)." Southside Johnny and Joe Grushecky join Bruce for "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen & Seeger Sessions - My city of ruins - Live from Camden, NJ - 2006-06-20](https://www.youtube.com/watch?v=yoq1or7rtS0)
 
@@ -66,7 +76,7 @@
 
 [Watch on Youtube: Saying Goodbye to Clarence Clemons "The Big Man" - NBC Nightly News (June 20, 2011)](https://www.youtube.com/watch?v=456baiiyLcs)
 
-**2013:** Bruce and the E Street Band perform *Born to Run* from start to finish during their Wrecking Ball show at Coventry’s Ricoh Arena. This show also features the first full-band (E Street Band, at least) performance of “[Long Time Comin’.](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)”<br>
+**2013:** Bruce and the E Street Band perform *Born to Run* from start to finish during their Wrecking Ball show at Coventry's Ricoh Arena. This show also features the first full-band (E Street Band, at least) performance of "[Long Time Comin'.](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen 2013-06-20 Coventry - Long Time Comin' (first full E Street performance)](https://www.youtube.com/watch?v=78eZDLRf1aI)
 
@@ -74,10 +84,10 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2019:** Bruce and Patti attend a celebration of life at The Stone Pony for the late Kerry Layton, Patti’s life-long friend.<br>
+**2019:** Bruce and Patti attend a celebration of life at The Stone Pony for the late Kerry Layton, Patti's life-long friend.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/brucepattipony.jpeg.webp)
 
-**2024:** World Tour 2024 arrives in Barcelona for the first of two nights. This night features the tour premiere of “[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md).” Purchase or stream this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-estadi-ol%C3%ADmpic-barcelona-spain-06-20-2024-mp3-flac-or-online-music-streaming/35852.html).<br>
+**2024:** World Tour 2024 arrives in Barcelona for the first of two nights. This night features the tour premiere of "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)." Purchase or stream this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-estadi-ol%C3%ADmpic-barcelona-spain-06-20-2024-mp3-flac-or-online-music-streaming/35852.html).<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Radio Nowhere - Barcelona 20/06/2024](https://www.youtube.com/watch?v=74XJN6XUdpA)

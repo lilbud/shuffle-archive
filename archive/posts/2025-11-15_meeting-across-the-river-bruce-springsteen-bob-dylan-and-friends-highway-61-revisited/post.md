@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Highway 61 Revisited"
+author: "Ken"
+excerpt: "When Bruce covers “Highway 61 Revisited,” it’s always a group effort. Watch and listen to all four team-ups on Dylan’s classic rocker."
+tags: bob-dylan bonnie-raitt christic-concerts highway-61-revisted jackson-browne rising-tour wolfgang-niedecken
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/DYLANBOBHIGHWAY61R_2019-11-06_13-19-30_D2GTDgkuYq_2048x.webp
+post_id: 5524
+---
 When Bob Dylan released *Highway 61 Revisited* in 1965, it was the first time he'd recorded with rock musicians–or really, with anything other than his guitar.
 
 So perhaps it's fitting that each and every one of the five times Bruce performed the album's title track was in the company of other notable musicians.

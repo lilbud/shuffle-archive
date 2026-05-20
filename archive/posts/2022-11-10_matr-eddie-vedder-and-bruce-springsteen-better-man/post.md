@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Eddie Vedder and Bruce Springsteen: Better Man"
+author: "Ken"
+excerpt: "One time only: Bruce and Eddie Vedder team up on one of Eddie’s oldest and most beloved songs."
+tags: betterman eddie-vedder pearl-jam vote-for-change
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/betterman.webp
+post_id: 39221
+---
 Even though it was Bruce's stage and he'd never played it before, "Better Man" was recognizable from its opening notes. Released on their *Vitalogy* album in 1994, the song was a smash hit for Pearl Jam despite never being issued as a single.
 
 [Watch on Youtube: Pearl Jam - Better Man (Official Audio)](https://www.youtube.com/watch?v=nDK-wsdEhNE)

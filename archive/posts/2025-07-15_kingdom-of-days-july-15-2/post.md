@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 15"
+author: "Ken"
+excerpt: "On this date in Springsteen history: Bruce launches the U.S. leg of the Reunion Tour, kicks off a ten-night Rising stand at Giants Stadium, and releases his Magic Tour Highlights EP. Video, audio (including a 1978 radio interview) and more inside."
+tags: born-in-the-usa-tour child darkness-tour east-rutherford giants-stadium houston in-freehold incident-on-57th-street magic-tour magic-tour-highlights my-love-will-not-let-you-down philadelphia reunion-tour rising-tour river-tour rosemont san-sebastian spain springsteen-on-broadway the-promised-land x-men
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/mbid-c811130f-e85c-4d3d-9381-eeffcf325155-37584434812-min.jpg
+post_id: 57723
+---
 ***New for 2025:** New entry for 1975 and 2024*<br>
 
 **1969:** Child plays several sets at the Pandemonium in Wanamassa, New Jersey.<br>

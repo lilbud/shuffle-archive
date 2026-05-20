@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 7"
+author: "Ken"
+excerpt: "Bruce kicks off the Rising Tour, plays the first “Don’t Look Back” in 22 years, debuts a work-in-progress “On the Prowl,” and more."
+tags: all-the-way-home beaver-brown born-in-the-usa-tour bruce-springsteen-band cleveland darkness-tour devils-and-dust-tour east-rutherford for-you janey-dont-you-lose-heart kalamazoo largo lawsuit-tour milwaukee on-the-prowl racing-in-the-street red-bank rising-tour river-tour shut-out-the-light soozie-tyrell southside-johnny world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/20020807_8_front.jpg
+post_id: 57927
+---
 **1971:** The Bruce Springsteen Band headlines at Asbury Park's Sunshine In.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1971-08-07.png.webp)

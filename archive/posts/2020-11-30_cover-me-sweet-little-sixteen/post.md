@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sweet Little Sixteen"
+author: "Ken"
+excerpt: "Watch a great pro-shot video of Bruce covering Chuck Berry’s classic 20 years after its release."
+tags: check-berry darkness-tour largo sweet-little-sixteen
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/berrychuck-sweet.jpg
+post_id: 2611
+---
 “Sweet Little Sixteen” was one of Chuck Berry’s greatest hits, peaking at #2 on the Billboard Hot 100 chart. It also served as the music for another of rock’s most influential songs, “[Surfin’ U.S.A.](../2019-06-03_matr-brian-wilson-and-bruce-springsteen-surfin-u-s-a/post.md)”
 
 With that level of cultural influence, it’s no surprise that Bruce covered the song frequently during the seventies and eighties. Here’s one of the best, captured clearly on video, from Bruce’s Darkness show in Largo, MD on August 15, 1978.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "None But the Brave"
+author: "Ken"
+excerpt: "There are two versions of “None But the Brave,” differing only by one line. But that line and its contemporary context matter."
+tags: born-in-the-usa none-but-the-brave the-essential-bruce-springsteen
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/MV5BNGEwZTVmMzQtNGRmZi00NzU2LTkxZDctYzUwNjk1MzM1NDk3XkEyXkFqcGc@._V1_FMjpg_UX1000_.jpg
+post_id: 4617
+---
 Bear with me, please–I'm going to take some license .
 
 I usually feel like I'm on pretty solid ground in my analyses of Bruce's work, but I readily acknowledge I'm stepping out on a limb when it comes to "None But the Brave."

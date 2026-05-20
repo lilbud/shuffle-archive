@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Scialfa and Bruce Springsteen: Love (Stand Up)"
+author: "Ken"
+excerpt: "Start your Valentine’s Day off right with Patti’s gorgeous centerpiece from her 2004 album, 23rd Street Lullaby."
+tags: 23rd-street-lullaby love-stand-up patti-scialfa
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/love-stand-up.jpg
+post_id: 25188
+---
 On an episode of *From My Home to Yours* dedicated exclusively to her music, Patti owned up to what her fans realized long ago: her *Rumble Doll* album was entirely a love letter to her husband.
 
 But there are a couple of love notes on her follow-up album, too, and a standout is "Love (Stand Up)."

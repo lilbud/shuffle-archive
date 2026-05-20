@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Year Five: Complete!"
+author: "Ken"
+excerpt: "A note of thanks for your readership this past year and a look ahead to the next one!"
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/01/high5.jpg
+post_id: 40635
+---
 Today marks the end of Year Five of this site's daily mission to document every song Bruce Springsteen has ever written, recorded, or performed in concert!
 
 Five years of daily publishing feels like a marathon with no end in sight, but when I stop and consider that today *also* marks the end of Year Fifty of Bruce's professional career as a major label artist, I think I can take inspiration and keep this going for a while.

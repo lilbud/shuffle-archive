@@ -1,3 +1,13 @@
+---
+layout: post
+title: "You Give Love a Bad Name"
+author: "Ken"
+excerpt: "One time only: Bruce and Jon Bon Jovi team up at a benefit show to cover Bon Jovi’s first number one hit."
+tags: bon-jovi come-together jon-bon-jovi you-give-love-a-bad-name
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/admin-ajax-31.jpg
+post_id: 5130
+---
 On January 31, 1998, Bruce joined Jon Bon Jovi on stage at the Count Basie Theater in Red Bank at a benefit concert for the memorial fund of a slain local police officer.
 
 Together they played a one-time-only rendition of Bon Jovi's first number one hit, "You Give Love a Bad Name," with Bruce taking lead vocals on the second verse.

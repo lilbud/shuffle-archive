@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Nebraska"
+author: "Ken"
+excerpt: "“Nebraska” is a song of disconnection and alienation. It’s one of Bruce’s most powerful compositions."
+tags: nebraska
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/ROCK_805-2.jpg
+post_id: 1646
+---
 When I started this blog, I knew there would be certain songs that would be tough to write about. "Nebraska" is one of them.
 
 Not because it's cryptic or inaccessible or a bad song–it's none of those things–but because so much as already been written about it. In any book (and there are many) on Bruce and his work, you're guaranteed to find a chapter on at least the *Nebraska* album if not its title track.
@@ -31,7 +41,7 @@ I listen intently every time, noticing a different catch in his voice, feeling a
 And I never, ever sing along.
 
 **Nebraska**<br>
-**Recorded:** December 1981-January 1982**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)**First performed:** July 1, 1984 (St. Paul, MN)<br>
+**Recorded** December 1981-January 1982**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)**First performed:** July 1, 1984 (St. Paul, MN)<br>
 **Last performed:** October 27, 2020 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

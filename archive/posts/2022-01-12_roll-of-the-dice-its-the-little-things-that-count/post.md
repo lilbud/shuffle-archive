@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: It's the Little Things That Count"
+author: "Ken"
+excerpt: "Recorded twice, performed dozens of times, yet it still flies under the radar for most fans."
+tags: its-the-little-things-that-count
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/littlethings.jpeg
+post_id: 32110
+---
 This is a song about little things that lead to big things. Small choices that lead to consequential moments. Or as Bruce put it one night, it's about "not knowing what you're gonna do until you do it."
 
 Sometimes he'd introduce it with a story about a girl who did a body shot of tequila off of him. Other times he regaled the audience with a tale of a barmaid who exchanged a ride home for a quarter he needed for the payphone.

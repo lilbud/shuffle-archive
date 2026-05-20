@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Leavin' Train"
+author: "Ken"
+excerpt: "This retread of “Brilliant Disguise” (with a bit of “I’m Goin’ Down”) adds nothing original to Bruce’s catalog. Cool backing track, though."
+tags: brilliant-disguise leavin-train tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/94845279_m.jpg
+post_id: 26516
+---
 For any other artist, "Leavin' Train" might earn a more favorable review.
 
 I mean, it's not like it's a bad song.

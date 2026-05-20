@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky and Bruce Springsteen, Gimme Shelter"
+author: "Ken"
+excerpt: "One time only: Bruce joins Joe Grushecky and The Houserockers on a blistering cover of The Rolling Stones’ anthem “Gimme Shelter.”"
+tags: gimme-shelter joe-grushecky the-rolling-stones
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/gimme-shelter-single.jpg
+post_id: 12100
+---
 It's shocking that it took Bruce until 1995 to cover what is arguably The Rolling Stones' greatest song (*Rolling Stone* and *Ultimate Classic Rock* certainly think so, at least); it's even more surprising that he hasn't covered it since.
 
 Or properly, for that matter, since his one and only stab at it (other than quoting it nightly in "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" on the Tunnel of Love Express Tour) was with Joe Grushecky on backing vocals and guitar only.

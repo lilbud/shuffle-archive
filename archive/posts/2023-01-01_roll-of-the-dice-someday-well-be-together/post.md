@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Someday (We'll Be Together)"
+author: "Ken"
+excerpt: "“Someday (We’ll Be Together)” is the Darkness outtake that really isn’t an outtake at all–the official track bears little resemblance to its 1977 inspiration. Listen to both inside."
+tags: someday-tonight someday-well-be-together
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/Someday-Well-Be-Together-bm723.jpg
+post_id: 12916
+---
 When is a *Darkness* outtake not a *Darkness* outtake?
 
 Well, I'm not sure *exactly* where the line is, but when the song includes contributions from Patti Scialfa, Soozie Tyrell, and the Alliance Singers, when the backing track is slowed down so much that it adds a full minute to the song, when the original track didn't even have a vocal until Bruce added it in 2010… well, wherever the line is, I'm pretty sure it's been crossed.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 18"
+author: "Ken"
+excerpt: "Rest in peace, Clarence “Big Man” Clemons. Clarence passed away on this date in 2011, but watch his magical performance with Bruce–just the two of them–from this date in 1988."
+tags: amsterdam born-in-the-usa-tour castiles clarence-clemons france germany glasgow john-wesley-harding magic-tour munich paris rosalita santa-monica scotland stone-pony summertime-blues sundance-blues-band the-diamonds the-netherlands uk we-take-care-of-our-own wreck-on-the-highway wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/bigman.jpg
+post_id: 57109
+---
 **1968:** The Castiles serve as guest judges and provide the closing performance at the Long Branch YMCA Battle of the Bands.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1968-0618.gif)

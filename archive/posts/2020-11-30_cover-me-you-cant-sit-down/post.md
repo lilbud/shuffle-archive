@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Cover Me: You Can't Sit Down"
+author: "Ken"
+excerpt: "“You Can’t Sit Down” is a Philly favorite, made famous by local boys The Dovells. But its origins trace back farther."
+tags: bim-bam-boos darkness-tour houston philip-upchurch-combo the-dovells you-cant-sit-down
+categories: cover-me cover-you
+post_id: 2694
+---
 Whenever Bruce visits Philly, odds are pretty good that he'll break out "You Can't Sit Down" in the encores.
 
 Made famous by local group The Dovells, this encore cover favorite goes back a ways farther. It was originally released as an instrumental in 1959 by The Bim Bam Boos. Take a listen to that first incarnation–it's certainly recognizable, but it swings more than rocks:

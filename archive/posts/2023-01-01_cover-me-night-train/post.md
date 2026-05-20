@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Night Train"
+author: "Ken"
+excerpt: "One time only: To buy time for his clean-up crew, Bruce and the band vamp their way through Jimmy Forrest’s “Night Train.”"
+tags: jimmy-forrest night-train
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/nighttrain.jpg
+post_id: 14847
+---
 Jimmy Forrest recorded “Night Train” in 1952 as a sultry, earthy R&B instrumental.
 
 [Watch on Youtube: 1st RECORDING OF: Night Train - Jimmy Forrest (1952) (#1 R&B hit)](https://www.youtube.com/watch?v=jaFWKYqGrP0)

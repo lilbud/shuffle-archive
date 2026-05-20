@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: For What It's Worth"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and Steel Mill debut a rocking arrangement of Stephen Stills’ classic protest song “For What It’s Worth.”"
+tags: buffalo-springfield for-what-its-worth steel-mill
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/buffalo-springfield.png
+post_id: 15623
+---
 Although many would be hard pressed to name the song correctly, "For What It's Worth" has been one of our most popular protest songs since its original release by Buffalo Springfield at the tail end of 1966. (It would peak at #7 on the Billboard Hot 100 the following year.)
 
 [Watch on Youtube: Buffalo Springfield - For What It's Worth 1967](https://www.youtube.com/watch?v=gp5JCrSXkJY)

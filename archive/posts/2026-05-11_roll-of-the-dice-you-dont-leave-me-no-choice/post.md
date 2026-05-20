@@ -1,3 +1,13 @@
+---
+layout: post
+title: "You Don't Leave Me No Choice"
+author: "Ken"
+excerpt: "Bruce Springsteen Band backing vocalist Barbara Dinkins takes the lead on her original wronged-woman scorcher, but Bruce turns in a scorching performance of his own."
+tags: barbara-dinkins david-sancious the-bruce-springsteen-band you-dont-leave-me-no-choice
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/nochoice.jpeg
+post_id: 22587
+---
 In the early winter days of 1971, a classified ad in the *Asbury Park Press* caught the eye and interest of nineteen-year-old Barbara Dinkins.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/1972/01/The_Daily_Register_1971_01_19_12-scaled.jpg.webp)

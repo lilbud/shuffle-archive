@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Brokenhearted"
+author: "Ken"
+excerpt: "“The Brokenhearted” is Roy Orbison meets The Drifters, and 1977 Bruce meets 2010 Bruce. The style mash-up works, the vocal graft not so much."
+tags: the-brokenhearted the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/brokenhearted.jpg
+post_id: 3760
+---
 Among the many things I'm grateful to Bruce for: he wears his influences on his sleeve.
 
 Over the years, interviewers have covered most of Bruce's catalog with him, so there's a pretty good historical record to draw from when I write these essays. But every once in a while, the dice assign me a relative obscurity and I'm on my own.

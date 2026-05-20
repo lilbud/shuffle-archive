@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 28"
+author: "Ken"
+excerpt: "On this date: the kick-off of the Wild & Innocent Tour, an early morning Magic performance on the Today show, and more."
+tags: albee-tellone born-to-run-book born-to-run-tour chicago danny-federici kansas-city los-angeles magic-tour reunion-tour today-show wild-innocent-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/20070928_front.jpg
+post_id: 59733
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1968:** Bruce headlines at the Off Broad Street Coffee House in Red Bank, performing two acoustic solo set.<br>

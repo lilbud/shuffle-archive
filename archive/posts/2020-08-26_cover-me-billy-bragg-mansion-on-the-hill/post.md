@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Billy Bragg: Mansion on the Hill"
+author: "Ken"
+excerpt: "From the wonderful 2003 Light of Day tribute album comes this wonderfully fresh perfectly suited arrangement of “Mansion on the Hill.”"
+tags: billy-bragg-and-the-blokes light-of-day mansion-on-the-hill
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/light-of-day.jpg
+post_id: 20489
+---
 It's been a while since we've featured a cover from the wonderful 2003 Springsteen tribute compilation, *Light of Day.*
 
 *Light of Day* features a host of names and voices that will be familiar to anyone who's attended the Asbury Park music festival that goes by the same name, each covering a tune from the Springsteen songbook–some well-known, others obscure.

@@ -1,4 +1,12 @@
-> "As much as it is the writer's job to write well, it is the listener's job to listen well." — *Bruce Springsteen, New York Times, October 18, 2020*
+---
+layout: default-post
+title: "Roll of the Dice Volume 1 Introduction"
+author: "Ken"
+excerpt: ""Why don't you start a blog?" my wife asked."
+categories: uncategorized
+post_id: 28453
+---
+> "As much as it is the writer's job to write well, it is the listener's job to listen well." — *Bruce Springsteen, New York Times, October 18, 2020*<br>
 
 "Why don't you start a blog?" my wife asked.
 
@@ -8,11 +16,11 @@ Looking back on it, I'm not entirely sure she meant it as helpfully and encourag
 
 [Watch on Youtube: Back to the Future - Mayor](https://www.youtube.com/watch?v=6rvVPqdl2iw)
 
-*A blogger...* I thought. *I like the sound of that!*
+*A blogger…* I thought. *I like the sound of that!*
 
 Now if you know me at all in real life, you know that ideas like this fly through my head on a fairly regular basis. And by *through* I mean: into and then out of. I have enough self-awareness to know that any seemingly great idea that holds my enthusiasm captive today is 99% likely to be forgotten within a day or two.
 
-But every once in a while... it sticks.
+But every once in a while… it sticks.
 
 Starting a blog was one of the ones that stuck. Starting this book series is another. (I hope, anyway. We'll see.)
 
@@ -24,7 +32,7 @@ I eventually slowed down. I wrote most days in Year 4, many days in Year 5, and 
 
 But when I recently and serendipitously discovered a publishing partner who shared my vision for what a true blog-based book should both look and feel like, that engine was suddenly refueled.
 
-And within a matter of days... here we are.
+And within a matter of days… here we are.
 
 Volume One of *The E Street Shuffle Bookshelf Collection*.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 3"
+author: "Ken"
+excerpt: "The original River Tour kicks off with a Bob Seger duet, Bruce releases an American Land Edition of his Seeger Sessions album, and Springsteen on Broadway makes its debut. Many, many more highlights inside."
+tags: al-franken ann-arbor athens bob-seger born-to-run-book brilliant-disguise bruce-springsteen-band cats-on-a-smooth-surface detroit detroit-medley dixie-chicks gary-u-s-bonds ghost-of-tom-joad-tour giants-stadium greece human-rights-now-tour if-i-should-fall-behind jersey-girl kittys-back lawsuit-tour los-angeles minneapolis new-york-city open-all-night phoenix r-e-m rising-tour river-tour santa-clara shea-stadium springsteen-on-broadway stone-pony student-prince thunder-road vote-for-change-tour we-shall-overcome-the-seeger-sessions-american-land-edition willie-nile working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/american-land-edition.jpg
+post_id: 59752
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
@@ -14,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1976-1003.jpg.webp)
 
-**1980:** The original River Tour kicks off at the University of Michigan in Ann Arbor, with “Born to Run” opening the show for the first time ever. Bruce is clearly a bit rusty, as he forgets the lyrics to his most well-known song. “Thunder Road” is played twice, the first time mid-set and the second as a final encore with Bob Seger.<br>
+**1980:** The original River Tour kicks off at the University of Michigan in Ann Arbor, with "Born to Run" opening the show for the first time ever. Bruce is clearly a bit rusty, as he forgets the lyrics to his most well-known song. "Thunder Road" is played twice, the first time mid-set and the second as a final encore with Bob Seger.<br>
 
 [Watch on Youtube: RARE Bruce Springsteen AND Bob Seger—Thunder Road](https://www.youtube.com/watch?v=e8rcWIHfxeI)
 
@@ -28,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1980-10-03b.jpg.webp)
 
-**1982:** Bruce plays “[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)” for the very first time, not solo or with the E Street Band, but with Cats on a Smooth Surface at The Stone Pony.<br>
+**1982:** Bruce plays "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" for the very first time, not solo or with the E Street Band, but with Cats on a Smooth Surface at The Stone Pony.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qjfJIaLw)
 
@@ -36,15 +46,15 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN : ROCK BABY ROCK ( with the cats on a smooth surface )](https://www.youtube.com/watch?v=vJg4g-kUrbs)
 
-**1987:** A couple of days ahead of the album it comes from, the first single from *Tunnel of Love* is released: “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/).”<br>
+**1987:** A couple of days ahead of the album it comes from, the first single from *Tunnel of Love* is released: "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
-**1988:** Bruce plays his first and only show ever in Greece when the Human Rights Now! Tour stops at Athens’ Olympic Stadium.<br>
+**1988:** Bruce plays his first and only show ever in Greece when the Human Rights Now! Tour stops at Athens' Olympic Stadium.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E-Street Band - (Full Set, Audio Only) @ OAKA, Athens Greece 03/10/1988](https://www.youtube.com/watch?v=SXX55npP284)
 
-**1992:** Bruce and his new touring band play their second of two World Tour 1992 nights at Phoenix’s America West Arena.<br>
+**1992:** Bruce and his new touring band play their second of two World Tour 1992 nights at Phoenix's America West Arena.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0dyy3mhN)
 
@@ -56,7 +66,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1996-10-03b.jpg.webp)
 
-**2003:** A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md),” plays another double-header of tour premieres mid-set (“[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)” and “Another Thin Line”), along with rare outings for “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)” and “New York City Serenade” (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.<br>
+**2003:** A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)," plays another double-header of tour premieres mid-set ("[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)" and "Another Thin Line"), along with rare outings for "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" and "New York City Serenade" (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/J1syuhbU)
 
@@ -66,7 +76,7 @@
 
 [Watch on Youtube: New York City Serenade Bruce Springsteen 10/3/2003 NYC](https://www.youtube.com/watch?v=l8eEFuw_SMU)
 
-**2004:** The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)” and “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” replace “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)” in the set, and “Travelin’ Band” makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my [Where the Band Was report](../2018-10-03_where-the-band-was-detroit-october-3-2004/post.md).<br>
+**2004:** The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" and "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" replace "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" in the set, and "Travelin' Band" makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my [Where the Band Was report](../2018-10-03_where-the-band-was-detroit-october-3-2004/post.md).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1wwST4YS)
 
@@ -74,13 +84,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2004-10-03b.jpg.webp)
 
-**2005:** While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, [“If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md),” will be released on a promotional CD for pledging members.<br>
+**2005:** While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, ["If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)," will be released on a promotional CD for pledging members.<br>
 
 [Watch on Youtube: Bruce Springsteen - "If I Should Fall Behind" WBJB-FM Radio Appearance, 2005-10-03](https://www.youtube.com/watch?v=RWCr-vhU6V4)
 
 **2006:** In an unusual move, Bruce re-releases *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)* in the same year as its original release, but this time as an *American Land Edition*, featuring five additional tracks and new videos.<br>
 
-[Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU)
+[Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU?list=OLAK5uy_kLnnZP0WkflWP_7pxkwgEnpQcwdOoEE1o)
 
 **2007:** *Live in Dublin* (the video release, not the album) is certified gold by the Recording Industry Association of America.<br>
 
@@ -88,7 +98,7 @@
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - This Little Light of Mine (Live In Dublin)](https://www.youtube.com/watch?v=R0qAYq1GVec)
 
-**2009:** Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire *Born in the U.S.A.* album along with the tour premiere of “Last to Die” and a by-request “[Jersey Girl.](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” Jeremy Chatzky joins the band and Curt Ramm for “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md),” and the set list continues to benefit from the presence of Curt and his trumpet.<br>
+**2009:** Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire *Born in the U.S.A.* album along with the tour premiere of "Last to Die" and a by-request "[Jersey Girl.](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" Jeremy Chatzky joins the band and Curt Ramm for "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)," and the set list continues to benefit from the presence of Curt and his trumpet.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Long Walk Home - 10/03/09 - Giants Stadium](https://www.youtube.com/watch?v=UwyN4OLL0mk)
 
@@ -98,7 +108,7 @@
 
 [Watch on Youtube: KTLA Bruce Springsteen at The Grove October 3, 2016](https://www.youtube.com/watch?v=odKtPqBfo-U)
 
-**2017:** Bruce makes his official Broadway debut when *Springsteen on Broadway* opens in its first public preview performance at the Walter Kerr Theater in New York City. Bruce dedicates this first show to Tom Petty, who passed away the day before. The show itself is an emotional tour through Bruce’s life and work, stunning those present with its power, poignancy, heart and humor–all of which will grow throughout its long run. I’m in the front row for this historic performance–read my account of the evening in my *[Where the Band Was report](../2018-10-03_where-the-man-was-broadway-october-3-2017/post.md)*. Also in attendance tonight: Little Steven, Bruce’s mom, and Bruce’s sister Pam.<br>
+**2017:** Bruce makes his official Broadway debut when *Springsteen on Broadway* opens in its first public preview performance at the Walter Kerr Theater in New York City. Bruce dedicates this first show to Tom Petty, who passed away the day before. The show itself is an emotional tour through Bruce's life and work, stunning those present with its power, poignancy, heart and humor–all of which will grow throughout its long run. I'm in the front row for this historic performance–read my account of the evening in my *[Where the Band Was report](../2018-10-03_where-the-man-was-broadway-october-3-2017/post.md)*. Also in attendance tonight: Little Steven, Bruce's mom, and Bruce's sister Pam.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/2017-1003.jpg.webp)
 
@@ -106,12 +116,12 @@
 
 **2018:** *Springsteen on Broadway* celebrates the one-year anniversary of its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2022:** Bruce films videos for “Nightshift” and “[Turn Back the Hands of Time](../2024-07-04_cover-me-turn-back-the-hands-of-time/post.md)” at Samson Stages in Brooklyn.<br>
+**2022:** Bruce films videos for "Nightshift" and "[Turn Back the Hands of Time](../2024-07-04_cover-me-turn-back-the-hands-of-time/post.md)" at Samson Stages in Brooklyn.<br>
 
 [Watch on Youtube: Bruce Springsteen - Nightshift (Official Video)](https://www.youtube.com/watch?v=GsTKEQzLkmw)
 
 [Watch on Youtube: Bruce Springsteen - Turn Back the Hands of Time (Official Video)](https://www.youtube.com/watch?v=lTRS-dNAgvA)
 
-**2024:** On social media, Bruce publishes his endorsement of Vice President Kamala Harris in the 2024 U.S. presidential election campaign. Although the endorsement itself was unsurprising, the passion and urgency of Bruce’s plea sustains for days through the news cycle.<br>
+**2024:** On social media, Bruce publishes his endorsement of Vice President Kamala Harris in the 2024 U.S. presidential election campaign. Although the endorsement itself was unsurprising, the passion and urgency of Bruce's plea sustains for days through the news cycle.<br>
 
 [Watch on Youtube: Springsteen endorse Kamala Harris for President](https://www.youtube.com/watch?v=7FDFj5SgDYc)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 28"
+author: "Ken"
+excerpt: "On this date: Bruce drafts Mumford & Sons at Pinkpop, films a pro-shot show in Stockholm, plays a new song for John Fogerty’s birthday, and gets the green light to start recording again when he settles his legal dispute with Mike Appel."
+tags: child devils-and-dust-tour garland-jeffreys germany glory-days hanover hungry-heart john-sayles london magic-tour main-point manchester mike-appel mumford-and-sons my-generation pete-townshend pinkpop roll-of-the-dice roy-bittan sea-cruise seeger-sessions-tour stockholm student-prince sundance-blues-band sweden the-netherlands the-rising uk world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/Bruce-Springsteen-2012.05.28-Pinkpop-Festival-Cover-Fold.jpg
+post_id: 56857
+---
 ***New for 2025:** New entry for 1975 and 2024; audio for 2005*<br>
 
 **1969:** Child opens for the James Cotton Band for three shows in one day at the Pandemonium in Wanamassa, New Jersey.<br>
@@ -16,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1974-0528.jpg.webp)
 
-**1975:** Randy Brecker joins Bruce in the studio at The Record Plant in New York City, where he records his trumpet part for “The Heist,” which will eventually be known as “[Meeting Across the Rive](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)r.”<br>
+**1975:** Randy Brecker joins Bruce in the studio at The Record Plant in New York City, where he records his trumpet part for "The Heist," which will eventually be known as "[Meeting Across the Rive](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)r."<br>
 
 [Watch on Youtube: Bruce Springsteen - The Heist (V1) - Studio Demo (May 28, 1975)](https://www.youtube.com/watch?v=saVNAWWYNIg)
 
@@ -24,7 +34,7 @@
 
 [Watch on Youtube: Bruce Springsteen - THE HEIST (1975) Audio](https://www.youtube.com/watch?v=DE5zChT4-4E)
 
-**1976:** Bruce and the band close out their Chicken Scratch Tour with a show for the U.S. Naval Academy at Annapolis, where they play Frankie Ford’s “[Sea Cruise](../2018-04-08_cover-me-sea-cruise/post.md)” for the first time.<br>
+**1976:** Bruce and the band close out their Chicken Scratch Tour with a show for the U.S. Naval Academy at Annapolis, where they play Frankie Ford's "[Sea Cruise](../2018-04-08_cover-me-sea-cruise/post.md)" for the first time.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1976-0528.gif)
 
@@ -32,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1977-0528.jpg.webp)
 
-**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell’s in Hoboken for the second day of filming for the video for “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md).”<br>
+**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the second day of filming for the video for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 
@@ -44,11 +54,11 @@
 
 [Watch on Youtube: The Album Collection: Lucky Town](https://www.youtube.com/watch?v=FrFfK0Gx0-U)
 
-**1993:** Bruce’s World Tour 1993 arrives in Stockholm, where the show is filmed for a never-released television event.<br>
+**1993:** Bruce's World Tour 1993 arrives in Stockholm, where the show is filmed for a never-released television event.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/zl73V5tn)
 
-**1995:** It’s John Fogerty’s 50th birthday, and Bruce Springsteen entertains at a party in John’s living room (on or around this date). The set list features a one-off performance of what appears to be a previously unknown Springsteen composition called “[Detail Man](../2022-05-18_roll-of-the-dice-im-your-detail-man/post.md).” It hasn’t been released as of this writing, but that may be about to change.<br>
+**1995:** It's John Fogerty's 50th birthday, and Bruce Springsteen entertains at a party in John's living room (on or around this date). The set list features a one-off performance of what appears to be a previously unknown Springsteen composition called "[Detail Man](../2022-05-18_roll-of-the-dice-im-your-detail-man/post.md)." It hasn't been released as of this writing, but that may be about to change.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NBTpKUzm)
 
@@ -68,7 +78,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2008-05-28.jpg.webp)
 
-**2012:** Bruce headlines Pinkpop for the second time, playing a festival set with a Garland Jeffreys guest appearance for “[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md)” and Mumford & Sons for “[Hungry Heart.](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” The Mumford appearance is not pre-arranged, though–the band is shocked when Bruce beckons them on stage, and Marcus Mumford clearly doesn’t know the words to the song (which he’ll completely own up to with Jimmy Fallon years later–you can watch that below, too).<br>
+**2012:** Bruce headlines Pinkpop for the second time, playing a festival set with a Garland Jeffreys guest appearance for "[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md)" and Mumford & Sons for "[Hungry Heart.](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" The Mumford appearance is not pre-arranged, though–the band is shocked when Bruce beckons them on stage, and Marcus Mumford clearly doesn't know the words to the song (which he'll completely own up to with Jimmy Fallon years later–you can watch that below, too).<br>
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart [with Mumford and Sons]](https://www.youtube.com/watch?v=LNsrRseQG80)
 
@@ -84,7 +94,7 @@
 
 [Watch on Youtube: shackled & drawn ( pinkpop 2012 ) bruce springsteen](https://www.youtube.com/watch?v=yYRN-T-el_M)
 
-**2013:** The Wrecking Ball Tour moves to Hanover, Germany, where “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)” makes its tour premiere (in a rare acoustic arrangement) and “[Drift Away](../1976-01-16_cover-me-drift-away/post.md/)” gets a rare outing.<br>
+**2013:** The Wrecking Ball Tour moves to Hanover, Germany, where "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)" makes its tour premiere (in a rare acoustic arrangement) and "[Drift Away](../1976-01-16_cover-me-drift-away/post.md/)" gets a rare outing.<br>
 
 [Watch on Youtube: Bruce Springsteen - Drift away -MULTICAM HD - Hannover (28-05-2013)](https://www.youtube.com/watch?v=u9U8Le7hz5Q)
 
@@ -94,7 +104,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Born To Run (Best of Hannover 28.05.2013 - the pink carpet sessions)](https://www.youtube.com/watch?v=4kATUppwtEM)
 
-**2015:** Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for his work supporting the foundation’s efforts. Later, he joins Townshend and Roger Daltrey on stage for “[My Generation](../2018-03-27_matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/post.md)” and “[Won’t Get Fooled Again.](../2018-08-30_meeting-across-the-river-bruce-springsteen-and-the-who-wont-get-fooled-again/post.md)”<br>
+**2015:** Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for his work supporting the foundation's efforts. Later, he joins Townshend and Roger Daltrey on stage for "[My Generation](../2018-03-27_matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/post.md)" and "[Won't Get Fooled Again.](../2018-08-30_meeting-across-the-river-bruce-springsteen-and-the-who-wont-get-fooled-again/post.md)"<br>
 
 [Watch on Youtube: Springsteen Presents Pete Townshend w/Musicares Map Fund Award - 5-28-15 - Best Buy Theater - NYC](https://www.youtube.com/watch?v=tRF_BKq5xTk)
 

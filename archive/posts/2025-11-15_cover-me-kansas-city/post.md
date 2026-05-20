@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kansas City"
+author: "Ken"
+excerpt: "One of rock’s most covered songs produced some memorable Springsteen on-stage performances."
+tags: cats-on-a-smooth-surface james-brown john-bon-jovi k-c-loving kasnsas-city little-willie-littlefield max-weinberg-7 the-beatles wilbert-harrison
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/02/little-willie-littlefield-k-c-loving-uk-vinyl-lp-album-record-k-c-101-498224_1000x994.webp
+post_id: 24352
+---
 Even among frequently-covered songs, "Kansas City" stands out. Not only has pretty much everybody performed it on stage at one point or another, but there are more than three hundred *recorded* versions as well.
 
 "Kansas City" was only the second hit song from famed songwriters Jerry Leiber and Mike Stoller, although it took a couple of tries to catch fire. When first recorded and released by Little Willie Littlefield in 1952 under the name "K.C. Loving" it attracted little notice.

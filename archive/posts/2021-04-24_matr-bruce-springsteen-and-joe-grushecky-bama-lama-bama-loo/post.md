@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Joe Grushecky: Bama Lama Bama Loo"
+author: "Ken"
+excerpt: "In the summer of ’94, Bruce improvised his way through a cover of Little Richard’s “Bama Lama Bama Loo” with Joe Grushecky and The Houserockers. It went great… if you didn’t pay attention to the lyrics."
+tags: bama-lama-bama-loo joe-grushecky-and-the-houserockers little-richard
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/bamalama.jpg
+post_id: 26512
+---
 There's something to be said for teleprompters.
 
 Bruce Springsteen is far from the only artist who relies on the device, but for some reason he's frequently called out for it.

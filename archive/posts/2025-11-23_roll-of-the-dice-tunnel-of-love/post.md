@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Tunnel of Love"
+author: "Ken"
+excerpt: "The most mature and intimate song on Tunnel of Love cloaks itself in carnival imagery and telegraphs things to come."
+tags: tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1987/01/B1TWyfD0s5S._SL1500_.jpg
+post_id: 27454
+---
 > Julie was already sleeping one evening as I came to bed. There, in the darkness, the bedside lamp caught a glint of my wedding ring… . I'd never taken it off; something inside of me told me I never would, never should. I sat on the edge of the bed, gave it a light tug and watched as it slid off my finger. An ocean of despair swept over me and I felt faint. My pulse leapt and I could feel my heart threatening to push through my chest. I got up, made my way to the bathroom, ran cold water over my face and neck, then, gathering myself, beneath the bathroom's fluorescent light, I slipped my ring back on. I walked back into the shadows of our bedroom, a room containing all my mysteries and fears, where my lovely wife lay in bed, her body just an outline, a dark, gentle ridge of tousled covers. I placed my hand upon her shoulders, moved my palm over her cheek, breathed in, felt the air return to my lungs, pulled back the sheets, climbed in and went to sleep. – *Bruce Springsteen, Born to Run (2016)*<br>
 
 Even today, it sounds unlike anything else Bruce has ever recorded. It stands apart, both from the album it lent its title to and from the rest of Bruce's catalog.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Leah"
+author: "Ken"
+excerpt: "For at least a moment, for at least a song, Bruce settles his inner struggle between building and burning."
+tags: devils-dust leah
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/leah.jpg
+post_id: 14567
+---
 Duality: it's one of many recurring themes in Bruce's catalog.
 
 In recent years, Bruce has allowed us some insight as to why; he's revealed his internal struggle to us in print, on stage, and on film. For a long time, he told us, "if I loved you, I'd hurt you if I could."

@@ -1,14 +1,24 @@
+---
+layout: post
+title: "Where the Band Was: Verona, October 5, 2006"
+author: "Ken"
+excerpt: "My all-time favorite show–under a full moon, in an ancient arena, Bruce breathed new life into a collection of American folk songs and shared them with a raucous but respectful Italian crowd."
+tags: bobby-jean fire italy samson-and-delilah seeger-sessions-tour valerie verona
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/20061005_3_front.jpg
+post_id: 4782
+---
 Sitting on those ancient stone steps under a full moon on a gorgeous October night, I had to marvel: how in the world did I end up here?
 
 By luck and circumstance, as it turned out. I had business in Milan the day of the show, and there was just enough time that afternoon to catch a train across the northern Italian countryside to storied Verona.
 
-I had never been, and I was charmed immediately. Sure, the Romeo and Juliet "historical sites" might have been a bit over the top, but oh, that arena...
+I had never been, and I was charmed immediately. Sure, the Romeo and Juliet "historical sites" might have been a bit over the top, but oh, that arena…
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/verona.jpg.webp)
 
 It was stunning from the outside. From the inside, it was magical. But it would be a few hours before I'd get to go inside, so in the meantime I sat outside in the piazza, had a pizza and a glass of wine, and listened to the soundcheck, which carried out in to the square with crystal clarity.
 
-It seemed we would be in for an eventful night... perhaps. Bruce is known to soundcheck songs that get performed a few nights later (or perhaps never) rather than that night. But "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" sounded spot on, too perfect not to play. And there was a song I didn't recognize at all but that made reference to Samson and Delilah, and I knew that one had to be a Verona special.
+It seemed we would be in for an eventful night… perhaps. Bruce is known to soundcheck songs that get performed a few nights later (or perhaps never) rather than that night. But "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" sounded spot on, too perfect not to play. And there was a song I didn't recognize at all but that made reference to Samson and Delilah, and I knew that one had to be a Verona special.
 
 When the gates opened, I found a seat. If I recall correctly, the entire arena was GA by section, and I was seated at the far end of the arena on the stone steps. That was fine by me–I was glad just to be there. But by the time the show started (very late in the evening by American standards), I'd realized the downside of an ancient stone arena: I was sitting on ancient stone. No chairs, just rock, and my butt and my back were not happy after my long journey.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sun Time"
+author: "Ken"
+excerpt: "One of the final entries in Bruce’s 1968 Notebook is a tender (bordering on sappy) love song he never recorded."
+tags: 1968-notebook sun-time
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/suntime.jpg
+post_id: 36532
+---
 We're almost finished working our way through Bruce Springsteen's "[1968 Notebook](https://estreetshuffle.com/?s=1968+notebook)," a remarkably early collection of material written (but not recorded) by a budding eighteen-year-old singer-songwriter destined for rock and roll stardom.
 
 The notebook contains twenty unreleased songs. We know of its existence only because it was sold in a 2006 public auction with scans made available for potential bidders.

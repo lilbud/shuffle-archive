@@ -1,3 +1,11 @@
+---
+layout: default-post
+title: "ROTD Tunnel of Love Preface"
+author: "Ken"
+excerpt: "A little note to explain the new posting schedule."
+categories: uncategorized
+post_id: 34500
+---
 For the most part, I made it through years of daily blogging without confronting my earlier writing. But curating these volumes requires revisiting everything I've written since 2018.
 
 It's an uncomfortable exercise at times.

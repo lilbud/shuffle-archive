@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: A Winter's Revelation (In 9 Illusions)"
+author: "Ken"
+excerpt: "Let’s take another trip back to Bruce’s 1968 Notebook, where an 18-year-old Bruce Springsteen aims a bit too high this time."
+tags: 1968-notebook a-winters-revelation-in-9-illusions
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/barren.jpg
+post_id: 11846
+---
 It's time for another dip into the "[1968 Notebook,](https://estreetshuffle.com/?s=notebook)" a compendium of early, unrecorded song drafts by an eighteen-year-old Bruce Springsteen(!)
 
 Somehow, the notebook survived through the years until it was auctioned by one of Bruce's former roadies in the late 1980s, fetching $57,706.61. Because it was auctioned publicly, fans and collectors were able to get a peek at it. Here's the table of contents:

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Detroit Medley"
+author: "Ken"
+excerpt: "Bruce Springsteen’s “Detroit Medley” is a glorious mash-up, homage, and rock and roll history lesson. It’s also a ton of fun. Let’s trace the lineage of this encore favorite and watch some classic performances inside."
+tags: c-c-rider detroit-medley devil-with-the-blue-dress good-golly-miss-molly jenny-jenny mitch-ryder-and-the-detroit-wheels no-nukes
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/ryder.jpg
+post_id: 12293
+---
 One of Bruce Springsteen's most popular cover songs is a actually a mash-up of two different cover medleys, each of which covers two *other* classic rock-and-roll and R&B songs. It's also a musical history lesson dating back to the early days of the blues era.
 
 Got that?
@@ -44,11 +54,11 @@ By a decade later, the song was now known as "C. C. Rider," with a notable recor
 
 [Watch on Youtube: Big Bill Broonzy-See See Rider](https://www.youtube.com/watch?v=3hIcF_1DTFg)
 
-The song went to #1 twice on the Billboard charts, first in 1943 by Bea Booze (whose version topped Billboard's "Harlem Hit Parade" chart)...
+The song went to #1 twice on the Billboard charts, first in 1943 by Bea Booze (whose version topped Billboard's "Harlem Hit Parade" chart)…
 
 [Watch on Youtube: Bea Booze - See See Rider Blues](https://www.youtube.com/watch?v=JBC2C-nB738)
 
-...and again in 1957 by Chuck Willis, who topped the Billboard R&B chart with his version.
+…and again in 1957 by Chuck Willis, who topped the Billboard R&B chart with his version.
 
 [Watch on Youtube: CHUCK WILLIS C C Rider Mar '57](https://www.youtube.com/watch?v=ACpeuOQP1nw)
 
@@ -72,13 +82,13 @@ Two years later, Bruce had traded up to arenas, and "Detroit Medley" proved even
 
 [Watch on Youtube: Detroit Medley: Devil with the Blue Dress On / Good Golly Miss Molly / C.C. Rider / Jen...](https://www.youtube.com/watch?v=FN0wMm50hzs)
 
-With each passing tour, the medley grew in scope (Bruce would often incorporate local tributes) and antics...
+With each passing tour, the medley grew in scope (Bruce would often incorporate local tributes) and antics…
 
 [Watch on Youtube: Live in Toronto 1984 14-detroit medley part1](https://www.youtube.com/watch?v=mQ87aXPIj9U)
 
 [Watch on Youtube: Bruce Springsteen Incredible Detroit Medley](https://www.youtube.com/watch?v=lHa2LmcJUz4)
 
-...and while it's seen a lot less often during the post-Reunion era, "Detroit Medley" is a virtual lock to appear at least a few times on any given E Street Band tour.
+…and while it's seen a lot less often during the post-Reunion era, "Detroit Medley" is a virtual lock to appear at least a few times on any given E Street Band tour.
 
 [Watch on Youtube: SPRINGSTEEN, DETROIT MEDLEY, LONDON, 27/5/03 TAKEN OFF FULL CONCERT DVD](https://www.youtube.com/watch?v=beopLM5tK-4)
 

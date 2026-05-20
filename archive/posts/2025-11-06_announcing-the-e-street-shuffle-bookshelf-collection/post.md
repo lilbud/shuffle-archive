@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Announcing: The E Street Shuffle Bookshelf Collection"
+author: "Ken"
+excerpt: "The blog is (almost) dead, long live the books!"
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/Gemini_Generated_Image_dd5vj9dd5vj9dd5v.png
+post_id: 62701
+---
 As I announced last month, this site will cease publication on January 5th, 2026.
 
 But from its digital ashes rises....

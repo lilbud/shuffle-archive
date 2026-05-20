@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 8"
+author: "Ken"
+excerpt: "On this date: Bruce announces the reunion of the E Street Band! Plus: Watch Bruce improv a new “song” when nature calls during a show, catch two holiday shows, and more."
+tags: asbury-park backstreets because-the-night bruce-hornsby burlington charlotte columbia-records-radio-hour copenhagen darkness-tour denmark elvis-costello frank-bruno ghost-of-tom-joad-tour ginny-springsteen holiday-shows houston im-a-rocker im-gonna-rock-all-night-long jesse-malin john-lennon magic-tour max-weinberg-7 new-york-city new-york-city-serenade nils-lofgren patti-scialfa philadelphia rising-tour river-tour sam-moore santa-claus-is-comin-to-town soozie-tyrell springsteen-on-broadway stockholm straight-time sweden the-river washington-dc where-the-bands-are willie-nile world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/summit.png
+post_id: 62972
+---
 ***New for 2025:** Audio for 1974; review for 1978; video for 2002*<br>
 
 **1950:** Bruce's younger sister Ginny is born in Freehold, New Jersey. Decades later, she will inspire Bruce's timeless classic, "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)."<br>

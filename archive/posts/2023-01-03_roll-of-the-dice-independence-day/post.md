@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Independence Day"
+author: "Ken"
+excerpt: "Bruce’s Darkness and River albums are bridged by this stealthy and extraordinarily empathetic love song."
+tags: independence-day the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/IndyDay.jpg
+post_id: 32833
+---
 > "I grew up in this little town, and as I got older, I started looking around me and it didn´t seem like there was any way I was gonna get out of there. Because I looked back at my father, and the only time he´d ever gotten out of that town was to go to World War II. And then when he came out of the army, he got married and he settled down and went to work in a plastics factory. And his father had done the same thing.
 >
 > It seemed that the one thing that we had in common was that we didn't have enough information. We didn't have enough knowledge about the things and the forces that were controlling our lives. And I watched my old man end up a victim and he didn´t even know it." — **Bruce Springsteen, May 7, 1981**<br>

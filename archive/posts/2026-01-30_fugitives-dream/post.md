@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Fugitive's Dream"
+author: "Ken"
+excerpt: "Things are about to get confusing again. “Fugitive’s Dream” is one of three very closely related songs on L.A. Garage Sessions ’83, and it’s virtually impossible…"
+post_id: 65854
+---
 Things are about to get confusing again.
 
 "Fugitive's Dream" is one of three *very* closely related songs on *L.A. Garage Sessions '83*, and it's virtually impossible to discuss one without referencing the others.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Night They Drove Old Dixie Down"
+author: "Ken"
+excerpt: "One time only: The Bruce Springsteen Band covers The Band’s classic chronicle of the human cost of war."
+tags: dobie-gray joan-baez the-band the-bruce-springsteen-band the-night-the-drove-old-dixie-down
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/dixiedown.jpg
+post_id: 19064
+---
 When the dice turned up this song as my assignment for today, I gave serious consideration to throwing it back.
 
 I'm well aware that The Band's 1969 song is occasionally co-opted by those who believe the song glorifies the confederacy by giving a voice to a fictional defeated rebel soldier, and I have no wish to stoke those fires further, especially at a moment like this.

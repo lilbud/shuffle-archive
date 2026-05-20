@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: December 5"
+author: "Ken"
+excerpt: "President Obama and an all-star line-up of musicians pay tribute to Bruce at the Kennedy Center Honors. Video and more highlights from this date in Springsteen history inside."
+tags: alliance-singers asbury-park barack-obama baton-rouge bethesda birmingham bobby-bandiera born-in-the-usa born-to-run-tour bruce-springsteen-band canada cats-on-a-smooth-surface countin-on-a-miracle darkness-tour eddie-vedder garland-jeffreys ghost-of-tom-joad-tour holiday-shows indianapolis jesse-malin john-mellencamp kennedy-center-honors lisa-lowell max-weinberg-7 my-city-of-ruins new-york-city nils-lofgren patti-scialfa pretty-flamingo rising-tour ron-kovic sam-moore soozie-tyrell southside-johnny springsteen-on-broadway steve-van-zandt stone-pony student-prince the-rising toronto washington-dc whfs world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/bruceobama.jpg
+post_id: 62960
+---
 ***New for 2025:** New entry for 1979*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-12-04.png.webp)
 
-**1972:** Bruce and his band kick off a six-night, two-shows-nightly stand at Kenny’s Castaways in New York City. Bruce starts each show with a brief solo set before bringing out the band.<br>
+**1972:** Bruce and his band kick off a six-night, two-shows-nightly stand at Kenny's Castaways in New York City. Bruce starts each show with a brief solo set before bringing out the band.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1972-12-05.jpg.webp)
 
@@ -18,9 +28,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1978-12-05.png.webp)
 
-**1979:** At a recording session at The Power Station in New York City, Bruce and the E Street Band work on “Take ’em as They Come.”<br>
+**1979:** At a recording session at The Power Station in New York City, Bruce and the E Street Band work on "Take 'em as They Come."<br>
 
-**1987:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, including “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)” and “[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/).”<br>
+**1987:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, including "[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)" and "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen & Cats on a Smooth Surface - Asbury Park, 1987-12-05](https://www.youtube.com/watch?v=aXcPqvpqdos)
 
@@ -66,7 +76,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2002-12-05b.png.webp)
 
-**2003:** After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury Park holiday show tradition, holding the first of three benefit concerts at Convention Hall in support of local charities. The Max Weinberg 7 once again serves as the house band, and this year guests include the Victorious Gospel Choir, Bobby Bandiera, Soozie Tyrell, Patti Scialfa, Jesse Malin, Garland Jeffreys, Steve Van Zandt, Southside Johnny, Sam Moore, the Alliance Singers, Lisa Lowell, and Nils Lofgren. Lots of gems in the setlist, including the world premiere of “[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md).”<br>
+**2003:** After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury Park holiday show tradition, holding the first of three benefit concerts at Convention Hall in support of local charities. The Max Weinberg 7 once again serves as the house band, and this year guests include the Victorious Gospel Choir, Bobby Bandiera, Soozie Tyrell, Patti Scialfa, Jesse Malin, Garland Jeffreys, Steve Van Zandt, Southside Johnny, Sam Moore, the Alliance Singers, Lisa Lowell, and Nils Lofgren. Lots of gems in the setlist, including the world premiere of "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Xz5q8X5g)
 
@@ -86,7 +96,7 @@
 
 [Watch on Youtube: Jennifer Nettles - Glory Days - Kennedy Center Honors](https://www.youtube.com/watch?v=ozFtHdn4ZDQ)
 
-[Watch on Youtube: Eddie Vedder - My City Of Ruins (D.C. '09) HD](https://www.youtube.com/watch?v=CvMFdAtsRTg)
+[Watch on Youtube: Eddie Vedder - My City Of Ruins (D.C. '09) HD](https://www.youtube.com/watch?v=CvMFdAtsRTg?list=PLF3BB2EA2DA4CE536)
 
 [Watch on Youtube: Sting - "The Rising" (Bruce Springsteen Tribute) | 2009 Kennedy Center Honors](https://www.youtube.com/watch?v=tmWYg4W9CaY)
 
@@ -98,4 +108,4 @@
 
 **2017:** Bruce returns to the stage after more than a week off to continue his theatrical run at the Walter Kerr Theater in New York.<br>
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce treats audiences to the show’s rare alternate set list.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce treats audiences to the show's rare alternate set list.<br>

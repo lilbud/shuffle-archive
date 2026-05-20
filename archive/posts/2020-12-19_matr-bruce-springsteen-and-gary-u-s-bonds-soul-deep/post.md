@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Gary U.S. Bonds: Soul Deep"
+author: "Ken"
+excerpt: "Did he or didn’t he? Bruce and Gary U.S. Bonds played “Soul Deep” on stage together in 2003, but the jury’s out on whether that was really Bruce’s first time singing the 1969 blue-eyed soul classic with Gary."
+tags: gary-u-s-bonds robbie-lane-and-the-disciples soul-deep the-box-tops
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/the-box-tops-soul-deep-bell-8.jpg
+post_id: 15412
+---
 "Soul Deep" has a curious history.
 
 It was first recorded in 1966 by Robbie Lane and the Disciples, a Canadian rock band that peaked that same year with their third Canadian Top 40 single.

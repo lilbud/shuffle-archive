@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: March 16"
+author: "Ken"
+excerpt: "On this date: the live debut of “High Hopes,” a guest appearance with Jackson Browne, and more."
+tags: austin australia boston brisbane copenhagen darkness-on-the-edge-of-town denmark ghost-of-tom-joad-tour high-hopes jackson-browne magic-tour new-york-city rosemont springsteen-on-broadway st-paul take-it-easy tunnel-of-love-express-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-16-philadelphia-pa-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56176
+---
 ***New for 2025:** Video for 2023*<br>
 
-**1973:** Bruce and the (not yet named) E Street Band play a gig at Oliver’s in Boston, their fifth of seven straight nights.<br>
+**1973:** Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1973-0316.jpg.webp)
 
@@ -18,7 +28,7 @@
 
 [Watch on Youtube: Bruce Springsten, news report, interview and live from Copenhagen, Denmark 1996](https://www.youtube.com/watch?v=_p690qQT8L0)
 
-**2004:** Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on “[Take It Easy](../2018-01-18_cover-me-take-it-easy/post.md).”<br>
+**2004:** Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on "[Take It Easy](../2018-01-18_cover-me-take-it-easy/post.md)."<br>
 
 [Watch on Youtube: Jackson Browne and Bruce Springsteen - "Take It Easy" - 2004-03-16](https://www.youtube.com/watch?v=b7y7zEisP1k)
 
@@ -34,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2008-03-16.jpg.webp)
 
-**2013:** Night Two in Brisbane opens with the live debut of “[High Hopes](../2021-08-25_cover-me-high-hopes/post.md).”<br>
+**2013:** Night Two in Brisbane opens with the live debut of "[High Hopes](../2021-08-25_cover-me-high-hopes/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - High Hopes - Brisbane March 16](https://www.youtube.com/watch?v=Z7ksWwv3GtQ)
 
@@ -48,12 +58,12 @@
 
 **2023:** Bruce returns to the stage at Wells Fargo Center in Philadelphia, recovered from an illness that forced the cancellation of three shows the previous week.<br>
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=r6p-giPN5qI)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + "No Surrender" - Philadelphia, PA - 3-16-2023](https://www.youtube.com/watch?v=r6p-giPN5qI)
 
 [Watch on Youtube: Trapped - Springsteen - Philadelphia March 16, 2023](https://www.youtube.com/watch?v=G_bAlbzUkVk)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Rosalita - Philadelphia 3/16/23](https://www.youtube.com/watch?v=HKtD_bzCU9E)
 
-[Watch on Youtube: Bruce Springsteen Philadelphia 3/16/23 clips from behind the stage, great view of the crowd and pit](https://www.youtube.com/watch?v=vpM5M6nBrtk)
+[Watch on Youtube: Bruce Springsteen Philadelphia 3/16/23 clips from behind the stage, great view of the crowd and pit](https://www.youtube.com/watch?v=vpM5M6nBrtk?start=1868)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg.webp)

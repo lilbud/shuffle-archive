@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Little Steven and Bruce Springsteen, Native American"
+author: "Ken"
+excerpt: "At the peak of Little Steven’s political period, Steve and Bruce collaborated on the well-intentioned (if lyrically awkward) “Native American.” Watch them give it their best on-stage shot inside."
+tags: freedom-no-compromise little-steven native-american steve-van-zandt
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/littlesteven-native.jpg
+post_id: 13194
+---
 In 1987, Little Steven released his third solo album, *Freedom–No Compromise.* Heavier in both content and production, the album continued the political journey he began in *Voice of America.*
 
 *Freedom–No Compromise* also features Bruce prominently in a track called "Native American."

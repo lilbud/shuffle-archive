@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Then (S)he Kissed Me"
+author: "Ken"
+excerpt: "Bruce first covered The Crystals’ 1963 hit around the same time he recorded “Born to Run.” That’s almost certainly not a coincidence."
+tags: the-crystals then-he-kissed-me then-she-kissed-me
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/thenhekissedme.jpg
+post_id: 23377
+---
 Bruce first covered "Then He Kissed Me" in concert during the summer of 1974, which is also when he recorded "Born to Run."
 
 I don't think that's a coincidence.
@@ -24,7 +34,7 @@ Then again, he wasn't the first cover artist who felt the need to invert "Then H
 
 "Then She Kissed Me" was an early highlight each time it appeared in Bruce's set, and yet it was gone from his set lists by the time Labor Day rolled around.
 
-Bruce didn't perform it again for thirty-three years... to the day. Whether he knew it or not (probably not), Bruce chose the anniversary of the day he'd last played "Then She Kissed Me" to perform it again, opening his instantly legendary Magic Tour show in St. Louis with it on [August 23, 2008](../2018-08-23_where-the-band-was-st-louis-august-23-2008/post.md).
+Bruce didn't perform it again for thirty-three years… to the day. Whether he knew it or not (probably not), Bruce chose the anniversary of the day he'd last played "Then She Kissed Me" to perform it again, opening his instantly legendary Magic Tour show in St. Louis with it on [August 23, 2008](../2018-08-23_where-the-band-was-st-louis-august-23-2008/post.md).
 
 [Watch on Youtube: Bruce Springsteen--Then She Kissed Me (Scottrade Center, St. Louis, August 23, 2008)](https://www.youtube.com/watch?v=hUzP8DQyBD0)
 

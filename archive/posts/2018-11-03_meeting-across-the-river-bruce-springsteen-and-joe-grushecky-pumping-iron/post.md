@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Joe Grushecky, Pumping Iron"
+author: "Ken"
+excerpt: "As much an anthem for Pittsburgh as anything Bruce ever wrote for New Jersey, “Pumping Iron” is a surefire setlist bet any time Joe Grushecky and Bruce play together."
+tags: iron-city-houserockers joe-grushecky pumping-iron steve-van-zandt
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/pumping.jpg
+post_id: 5413
+---
 In 1980, Joe Grushecky's band, the Iron City Houserockers, were recording their second album, [*Have a Good Time But Get Out Alive*](../2020-05-22_have-a-good-time-but-get-out-alive/post.md).
 
 Steve Van Zandt produced and arranged five of the songs on that album (and played guitar on one), all while still working in the studio with the E Street Band on *The River.* One night, Steve invited Joe to tag along and introduced him to Bruce. That, as they say, was the beginning of a long and beautiful friendship.
@@ -18,9 +28,9 @@ Bruce joined Joe and The Houserockers throughout their American Babylon Tour (ot
 
 **Bonus:** Bruce and Joe would reprise it many times over the years that followed–although only in Pittsburgh or Asbury Park. Their last performances (to date, at least) were at the Wonder Bar on July 18, 2015, and at Light of Day in January 2020, and fortunately they were captured from close-up.<br>
 
-[Watch on Youtube: Bruce Springsteen live at Wonder Bar Atlantic City into Pumping Iron 07/18/2015](https://www.youtube.com/watch?v=SN5QnT6WOp4?start=124)
+[Watch on Youtube: Bruce Springsteen live at Wonder Bar Atlantic City into Pumping Iron 07/18/2015](https://www.youtube.com/watch?v=SN5QnT6WOp4)
 
-[Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen "Pumping Iron" LOD20 ~ Rose A Montana Video](https://www.youtube.com/watch?v=5TrjyioI4IQ)
+[Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen](https://www.youtube.com/watch?v=5TrjyioI4IQ)
 
 **Pumping Iron**<br>
 **First performed:** July 22, 1995 (Sea Bright, NJ)<br>

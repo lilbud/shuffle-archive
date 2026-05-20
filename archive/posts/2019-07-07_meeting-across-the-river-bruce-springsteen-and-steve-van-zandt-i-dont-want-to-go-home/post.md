@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Steve Van Zandt, I Don't Want to Go Home"
+author: "Ken"
+excerpt: "One time only: a unique arrangement of this Steve Van Zandt classic when Stevie joins Bruce at his “solo” acoustic show in 1996."
+tags: i-dont-want-to-go-home steve-van-zandt
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/dontwanna.jpg
+post_id: 1280
+---
 For a brief shining moment, it felt like the E Street Band had reunited.
 
 Toward the tail end of Bruce’s 1996 solo acoustic tour, Bruce played three shows at Asbury Park’s Paramount Theatre. While the shows were acoustic as advertised, the solo part… not so much.

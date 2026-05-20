@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You Better Be Nice to Me, Baby"
+author: "Ken"
+excerpt: "From the Bruce Springsteen Band era comes a braggadocious, light-on-its feet number that’s as close to jazz as you’ll ever hear Bruce get."
+tags: the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/benice.png
+post_id: 27894
+---
 Special treat today, folks! We're taking another trip back to the Bruce Springsteen Band era, and this one's a personal favorite.
 
 Presented here for your listening pleasure: a fifty-year-old never-recorded, extremely rare (performed only once that we know of) lost Springsteen original, "You Better Be Nice to Me, Baby."

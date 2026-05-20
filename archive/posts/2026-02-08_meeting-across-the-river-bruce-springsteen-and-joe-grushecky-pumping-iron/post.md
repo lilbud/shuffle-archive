@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Pumping Iron"
+author: "Ken"
+excerpt: "As much an anthem for Pittsburgh as anything Bruce ever wrote for New Jersey, “Pumping Iron” is a surefire setlist bet any time Joe Grushecky and Bruce play together."
+tags: iron-city-houserockers joe-grushecky pumping-iron steve-van-zandt
+categories: cover-me meeting-across-the-river
+post_id: 5413
+---
 In 1980, Joe Grushecky's band, the Iron City Houserockers, were recording their second album, *Have a Good Time But Get Out Alive*.
 
 Steven Van Zandt produced and arranged five of the songs on that album (and played guitar on one), all while still working in the studio with the E Street Band on *The River.* One night, Steve invited Joe to tag along and introduced him to Bruce. That, as they say, was the beginning of a long and beautiful friendship.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Katee Cross: Tougher Than the Rest"
+author: "Ken"
+excerpt: "Katie Cross brightens up Bruce’s world-weary love song, and it’s just as wonderfully romantic."
+tags: katee-cross tougher-than-the-rest
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/katee-1.jpg
+post_id: 30790
+---
 Katee Cross is a country singer-songwriter from Scotland with four well-received albums to her credit. She's also a great cover artist, able to find and feed the heart of a song while bringing something fresh and new to it.
 
 Here's a perfect example: her 2016 performance of Bruce Springsteen's "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."

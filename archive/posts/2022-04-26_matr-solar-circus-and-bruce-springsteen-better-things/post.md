@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Solar Circus and Bruce Springsteen: Better Things"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen joins local band Solar Circus to pay tribute to the late Jerry Garcia."
+tags: better-things jerry-garcia solar-circus
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/betterthings-1.jpg
+post_id: 31938
+---
 > "In the 1970s I went to a Grateful Dead show at a community college. I watched the crowd swaying and doing its trance-dance thing and I stood very outside of it. To me—sober, nonmystical, only half hippie, if that, me—they sounded like a not-very-talented bar band. I went home gently mystified. I don't know if the Grateful Dead were great but I know they did something great. Years later, when I came to appreciate their subtle musicality, Jerry Garcia's beautifully lyrical guitar playing and the folk purity of their voices, I understood that I'd missed it. They had a unique ability to build community and sometimes, it ain't what you're doing but what happens while you're doing it that counts." — Bruce Springsteen, *Born to Run* (2016)
 
 Sometimes you need to step back from something to get the perspective required to understand it.

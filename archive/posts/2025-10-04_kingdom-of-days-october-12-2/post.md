@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 12"
+author: "Ken"
+excerpt: "Bruce is officially a Broadway star when his show opens at long last. Plus: Bruce plays in Brazil for the first time and is inducted into the American Academy of Arts and Sciences. More highlights inside."
+tags: brazil devils-and-dust-tour germany hamburg human-rights-now-tour lawsuit-tour minneapolis princeton-university rutgers-university sao-paolo seeger-sessions-tour springsteen-on-broadway thunder-road
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/s-l1000.jpg
+post_id: 61100
+---
 ***New for 2025:** New entry for 1979; audio for 1988 and 2006; review for 2005*<br>
 
 **1974:** Bruce and the E Street Band play two shows at Princeton University.<br>
@@ -12,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1976-10-12.jpg.webp)
 
-**1979:** Bruce records “[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)” with the E Street Band at The Power Station in New York City.<br>
+**1979:** Bruce records "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" with the E Street Band at The Power Station in New York City.<br>
 
 [Watch on Youtube: Crush on You](https://www.youtube.com/watch?v=zDN8pvyKYkU)
 
@@ -22,11 +32,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-10-12.jpg.webp)
 
-**2005:** Bruce tour premieres “Thunder Road” (in its only tour performance) and “[The New Timer](../2018-07-13_roll-of-the-dice-the-new-timer/post.md)” (on autoharp), at his solo acoustic show in Minneapolis.<br>
+**2005:** Bruce tour premieres "Thunder Road" (in its only tour performance) and "[The New Timer](../2018-07-13_roll-of-the-dice-the-new-timer/post.md)" (on autoharp), at his solo acoustic show in Minneapolis.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/OSxHcFEA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/10/Star_Tribune_2005_10_23_F2-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/10/Star_Tribune_2005_10_13_B5.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/10/Star_Tribune_2005_10_13_B5.jpg.webp)
 
 **2006:** The Seeger Sessions Tour moves on from Italy to Germany, stopping in Hamburg for a show at the Color Line Arena.<br>
 
@@ -34,7 +44,7 @@
 
 **2013:** In Cambridge, Massachusetts, the American Academy of Arts and Sciences inducts Bruce into their ranks, along with Pete Seeger, Herbie Hancock, Sally Field, and Robert De Niro.<br>
 
-**2017:** It’s officially opening night for *Springsteen on Broadway* at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.<br>
+**2017:** It's officially opening night for *Springsteen on Broadway* at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.<br>
 
 [Watch on Youtube: 'The Boss' Takes The Stage On Broadway](https://www.youtube.com/watch?v=xCn3Ffh0qjk)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Tumbling Dice"
+author: "Ken"
+excerpt: "Twice only: Bruce joins The Rolling Stones on stage for a duet with Mick Jagger on “Tumbling Dice.”"
+tags: the-rolling-stones tumbling-dice
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/tumbling.jpg
+post_id: 37037
+---
 It sounds so loose and effortless that you'd be forgiven for believing it so.
 
 In reality, though, it took weeks of recording in 120 degree heat and brutal humidity and reportedly as many as 150 takes to finally capture the basic track to the band's satisfaction. (Based on interviews decades later, it's not clear they ever did.)

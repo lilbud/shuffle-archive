@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Portland, March 22, 2016"
+author: "Ken"
+excerpt: "A short but sizzling show kicks off the Pacific Northwest swing of the River (2016) Tour."
+tags: hungry-heart im-a-rocker portland river-2016-tour stolen-car tenth-avenue-freeze-out
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/bs160322_01.jpg
+post_id: 1149
+---
 Leave it to Portland:
 
 An awesome venue, an energized crowd, but the roomiest, most spacious pit I’ve ever seen. It was awesome to have so much elbow/dancing room, but there were ridiculously few people for such a large space. It was dicey whether we could mass enough concentrated crowd for Bruce’s crowdsurf–but surf he did, and my friend Tjeerd and I were in prime position for it. (You can see the back of our heads front and center at 3:40 below, just before Bruce falls right on us.)

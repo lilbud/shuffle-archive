@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Tougher Than the Rest"
+author: "Ken"
+excerpt: "Easily one of Bruce’s best songs and most universally resonant, “Tougher Than the Rest” celebrates resilience and second chances–and we all need a little bit of both."
+tags: chimes-of-freedom springsteen-on-broadway tougher-than-the-rest tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/tougher.jpg
+post_id: 19667
+---
 Not all of us were born in the U.S.A. We don't all get to that place where we really wanna go.
 
 But we've all been around a time or two, and somehow we still manage to get out on the dance floor again.

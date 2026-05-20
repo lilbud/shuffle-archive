@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, David Gray: Mansion on the Hill"
+author: "Ken"
+excerpt: "On his 2007 live album and at a 2019 Sirius XM studio appearance, David Gray covered Bruce’s 1982 Nebraska deep cut."
+tags: a-thousand-miles-behind david-gray mansion-on-the-hill
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/davidgray.jpg
+post_id: 35903
+---
 How big of a Springsteen fan is David Gray?
 
 Big enough that on his 2007 live album, *A Thousand Miles Behind*, he included not one but *two* covers of Bruce's songs.

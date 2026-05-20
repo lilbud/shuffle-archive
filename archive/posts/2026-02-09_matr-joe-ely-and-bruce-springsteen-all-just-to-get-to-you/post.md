@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "All Just to Get to You"
+author: "Ken"
+excerpt: "Bruce lent his vocal and keyboard talents to Joe Ely for Joe’s 1995 classic, “All Just to Get to You.”"
+tags: all-just-to-get-to-you joe-ely letter-to-laredo
+categories: cover-me meeting-across-the-river
+post_id: 32878
+---
 Critics compared Joe Ely with Bruce Springsteen from the beginning.
 
 In 2001, *The Chicago Tribune* opined, "Like Bruce Springsteen, Texas songwriter Joe Ely crafts brawny, epic song-stories about good-hearted crooks, blue-collar heroes and enduring lovers. In fact, the primary difference between Springsteen and Ely comes down to accent."

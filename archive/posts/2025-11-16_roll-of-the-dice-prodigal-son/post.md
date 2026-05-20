@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Prodigal Son"
+author: "Ken"
+excerpt: "This early demo, influenced if not shaped by Bruce’s 1971-72 family reunion, points the way to “Lost in the Flood” and other saga songs to come."
+tags: prodigal-son
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2011/01/bootleg_pscc.jpg
+post_id: 7885
+---
 A couple of weeks ago, we examined "[Family Song,](../2020-02-23_roll-of-the-dice-family-song/post.md)" an original Springsteen song that Bruce wrote in the aftermath (or maybe even during) his West Coast reunion with his family in the winter of 1971-72.
 
 Because we now know so much about Bruce's early life, when we listen to "Family Song" we focus primarily on its autobiographical content–it's such an intimate song that it almost sounds like a therapy assignment.

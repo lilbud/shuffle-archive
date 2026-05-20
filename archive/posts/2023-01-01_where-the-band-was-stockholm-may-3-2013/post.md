@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Stockholm, May 3, 2013"
+author: "Ken"
+excerpt: "Introducing our first guest blogger: Stray Bullet’s Anna Lind shares her first-hand report from Bruce’s Wrecking Ball show in Stockholm."
+tags: anna-lind out-in-the-street stockholm sweden we-take-care-of-our-own wrecking-ball wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/20130503_2_booklet2.jpg
+post_id: 9779
+---
 Editor's Note
 
 ***Editor's Note:*** *My favorite thing about writing my* *[Kingdom of Days](https://estreetshuffle.com/index.php/category/kingdom-of-days/)* *articles is the "I was there!" discussion they generate with readers. My* *[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*<br>

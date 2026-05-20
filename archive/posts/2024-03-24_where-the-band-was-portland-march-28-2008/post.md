@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Portland, March 28, 2008"
+author: "Ken"
+excerpt: "A short, taut opener for the Magic Tour’s swing through the Pacific Northwest."
+tags: for-you lonesome-day magic-tour night portland radio-nowhere
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/20080328_2_front.jpg
+post_id: 1329
+---
 Bruce doesn’t make it up to the Pacific Northwest that often, so when he does, I try to catch the entire Portland-Seattle-Vancouver swing (almost always in that order).
 
 Portland usually gets the Night One honors, which typically means a short, predictable show–and this night on the Magic tour was no exception.

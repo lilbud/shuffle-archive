@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Sam Moore: When Something Is Wrong With My Baby"
+author: "Ken"
+excerpt: "When Bruce finally got the chance to perform with one of his idols, the both brought their full power to bear on this 1966 soul classic."
+tags: sam-and-dave sam-moore when-something-is-wrong-with-my-baby
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/somethingwrong.jpg
+post_id: 27451
+---
 Bruce nailed it when he explained Sam and Dave's appeal on Elvis Costello's late, lamented *Spectacle* series:
 
 [Watch Video Highlight](https://videopress.com/embed/2K7gfajm?hd=1&cover=1)

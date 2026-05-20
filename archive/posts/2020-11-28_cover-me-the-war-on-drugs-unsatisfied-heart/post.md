@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The War on Drugs: Unsatisfied Heart"
+author: "Ken"
+excerpt: "Talk about an obscure cover–“Unsatisfied Heart” has never been released or performed, but The War on Drugs nailed it last month in San Diego."
+tags: the-war-on-drugs unsatisfied-heart
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/TheWaronDrugs_1300x620_NEW-2c9d59a076.jpg
+post_id: 2078
+---
 
 I try to steer clear of current events on this blog, even Bruce-related ones–the vault of past treasures is deep enough to keep me busy for years.
 

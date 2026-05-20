@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Spare Parts"
+author: "Ken"
+excerpt: "The rocking arrangement and blunt language of “Spare Parts” overwhelms the dilemma at its center its moral of redemptive self-empowerment. Like “Born in the U.S.A.,” its true power emerges when it’s performed quietly."
+tags: devils-and-dust-tour ghost-of-tom-joad-tour spare-parts tunnel-of-love tunnel-of-love-express-tour
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/spareparts_ep-at-cd3.jpg
+post_id: 6810
+---
 Bruce captured "Spare Parts" on the second take of the very first day of recording for the album that would become [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md). Wham, bam, thank you, ma'am.
 
 And that's as apt a metaphor as any for a song that's otherwise devoid of it.
@@ -28,10 +38,10 @@ It's actually a strange decision, if you think about it: arguably, "Spare Parts"
 
 But maybe that's the problem: we're so used to hearing Bruce craft his songs with layered melodies and thoughtful metaphor that "Spare Parts" hits us like the assault that arguably takes place in its first line. And the characters are either so despairing (Janey) or shameful (Bobby) that if you don't make the effort to really listen to the song, you might miss the fact that it's ultimately a tale of female empowerment. Bruce wasn't about to take the chance.
 
-> *Bobby said he'd pull out, Bobby stayed in*
-> *Janey had a baby wasn't any sin*
-> *They were set to marry on a summer day*
-> *Bobby got scared and he ran away*
+> *Bobby said he'd pull out, Bobby stayed in*<br>
+> *Janey had a baby wasn't any sin*<br>
+> *They were set to marry on a summer day*<br>
+> *Bobby got scared and he ran away*<br>
 
 That, dear reader, is a master class in setting up a song. Bruce has just told us that this is a story about Janey, a single mother, but not by choice. She placed her trust in the wrong man, because Bobby not only betrayed her in the heat of the moment, he broke his life promise to her as well, leaving town and leaving Janey behind.
 
@@ -39,43 +49,43 @@ Bruce established all that *in thirty words*. Try doing that in prose, let alone
 
 There's another key piece of information in that verse as well: Bruce takes pains to point out that Janey having the baby wasn't considered (at least by her) to be a sin. He didn't do that for the sake of rhyme; nor is it to establish Janey as a victim. Bruce is doing two other things with that one short phrase: 1) he's subtly introducing a biblical term, setting up the expectation that the story will have a religious climax (it won't, but Bruce will fake us out before we realize it), and 2) he's immediately establishing and telegraphing Janey's strength of character. She's having a child out of wedlock, and back then (and even now) in certain parts that would be looked down upon. But Janey refuses to accept the notion that she's done anything wrong, and we'll see that inner strength carry her even through times of self-doubt.
 
-> *Jane moved in with her ma out on Shawnee Lake*
-> *She sighed, "Ma, sometimes my whole life feels like one big mistake"*
-> *She settled in in a back room, time passed on*
-> *Later that winter a son came along*
+> *Jane moved in with her ma out on Shawnee Lake*<br>
+> *She sighed, "Ma, sometimes my whole life feels like one big mistake"*<br>
+> *She settled in in a back room, time passed on*<br>
+> *Later that winter a son came along*<br>
 
 In this verse, Bruce establishes the life-altering consequences of that one act. And again, there are a couple of subtle but important pieces of information being conveyed: 1) the timeline is coming into view–Bobby ran away before his son was born. Does he even know? and 2) by feeling like her life was one big mistake, Janey tells us something about her character: she's someone who holds herself accountable for her decisions. Bobby may own the betrayal, but it was Janey's judgment that led her to trust him to begin with. That's important insight.
 
 With all of that setup leading us into the chorus, it's surprising when we realize the entire chorus is just a single line:
 
-> *Spare parts and broken hearts keep the world turning around*
+> *Spare parts and broken hearts keep the world turning around*<br>
 
 There are at least two possible meanings here as well: "spare parts" can be almost literal–if Janey doesn't live in poverty, she's at least close to it and relying on spare parts to keep the elements of her life in working order. But there may also be a more oblique reference in play, with Janey's son perhaps cast in the titular role. There's also a third and probably most intended interpretation, but Bruce slyly waits until the end of the song before giving us the information we need to realize it.
 
 Regardless, the implication is clear: the best laid schemes gang aft agley.
 
-> *Now Janey walked that baby across the floor night after night*
-> *But she was a young girl and she missed the party lights*
-> *Meanwhile in South Texas in a dirty oil patch*
-> *Bobby heard 'bout his son being born and swore he wasn't ever going back*
+> *Now Janey walked that baby across the floor night after night*<br>
+> *But she was a young girl and she missed the party lights*<br>
+> *Meanwhile in South Texas in a dirty oil patch*<br>
+> *Bobby heard 'bout his son being born and swore he wasn't ever going back*<br>
 
 Well, now we know the measure of Bobby. And now we also know the price that Janey is paying on her own: she's forfeited her youth to take care of her son, and Bobby's. The difference in their characters couldn't be more starkly drawn.
 
 We're now two-thirds of the way through the song, and only now are we through the exposition. And this is where Bruce's curve ball comes:
 
-> *Janey heard about a woman over in Calverton*
-> *Put her baby in the river, let the river roll on*
-> *She looked at her boy in the crib where he lay*
-> *Got down on her knees cried till she prayed*
+> *Janey heard about a woman over in Calverton*<br>
+> *Put her baby in the river, let the river roll on*<br>
+> *She looked at her boy in the crib where he lay*<br>
+> *Got down on her knees cried till she prayed*<br>
 
 Janey is sorely tempted. She's heard about a woman who killed her own baby. Presumably, at least, which is why the thought is so seductive: maybe the baby would be rescued downstream, found and adopted by a loving family. Who knows? She wouldn't, and that's the key–she could take refuge in the uncertainty, even though she knows darn well the likely outcome.
 
 And still, she's tempted. How unwanted her role is, let alone her child. And that "wasn't any sin" reference in the first verse–now we know what Bruce was setting us up for. Having the baby wasn't the sin, but discarding it certainly would be. And she's torn, so torn… Bruce tells us that she "cried till she prayed," and that's a significant turn of phrase. Janey is asking God for a sign, some kind of divine intervention. But it never comes.
 
-> *Mist was on the water, low run the tide*
-> *Janey held her son down at the riverside*
-> *Waist deep in the water how bright the sun shone*
-> *She lifted him in her arms and carried him home*
+> *Mist was on the water, low run the tide*<br>
+> *Janey held her son down at the riverside*<br>
+> *Waist deep in the water how bright the sun shone*<br>
+> *She lifted him in her arms and carried him home*<br>
 
 If there's a criticism to be laid at Bruce's feet regarding "Spare Parts," it's that the song barrels along so fast that we don't have a chance to pause and experience the dilemma that Janey must have been shouldering at that moment.
 
@@ -85,10 +95,10 @@ The key thing is what *doesn't* happen. God doesn't intervene. There's no epipha
 
 But that's still not the true climax of the song. What the song is *really* about is what comes next:
 
-> *As he lay sleeping in her bed Janey took a look around at everything*
-> *Went to a drawer in her bureau and got out her old engagement ring*
-> *Took out her wedding dress tied that ring up in its sash*
-> *Went straight down to the pawn shop man and walked out with some good cold cash*
+> *As he lay sleeping in her bed Janey took a look around at everything*<br>
+> *Went to a drawer in her bureau and got out her old engagement ring*<br>
+> *Took out her wedding dress tied that ring up in its sash*<br>
+> *Went straight down to the pawn shop man and walked out with some good cold cash*<br>
 
 Janey takes "a look around at everything." Not just at what's in her small room, but at her life, and what she's made of it. And she digs up the two physical, material artifacts of her old, would-have-been, should-have-been life, and *that's* what she chooses to discard. And now, finally, we truly understand the chorus of the song.
 
@@ -96,7 +106,7 @@ She keeps the baby, discards the symbols of false promises, and takes control of
 
 After all:
 
-> *Spare parts and broken hearts keep the world turning around*
+> *Spare parts and broken hearts keep the world turning around*<br>
 
 —
 

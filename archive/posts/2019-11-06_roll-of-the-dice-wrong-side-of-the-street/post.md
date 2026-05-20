@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Wrong Side of the Street"
+author: "Ken"
+excerpt: "“Wrong Side of the Street” is a lyrical lightweight, but it features a great E Street Band backing track that went unreleased for more than 30 years after it was recorded."
+tags: the-promise wrong-side-of-the-street
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/cycle6.png
+post_id: 13440
+---
 Bruce's penchant for tinkering with old recordings and grafting modern elements has accelerated in recent years, and sometimes the seams are more noticeable than others. (I'm looking at you, "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md).")
 
 *The Promise* is full of such hybrid creations, but "Wrong Side of the Street" is one of the subtler ones: a vintage 1977 backing track paired with modern 2010-ish vocals.

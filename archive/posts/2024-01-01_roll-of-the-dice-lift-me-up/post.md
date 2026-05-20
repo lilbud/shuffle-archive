@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lift Me Up"
+author: "Ken"
+excerpt: "“Lift Me Up” is a delicate, ethereal coda to Limbo, John Sayles’ brilliant film."
+tags: essential-bruce-springsteen john-sayles lift-me-up limbo video-anthology
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/liftmeup.jpg
+post_id: 2181
+---
 First off: If you haven't seen John Sayles' brilliant film *Limbo*, go find it and watch it.
 
 *Limbo* is a brilliant and challenging movie. I won't spoil it for you, but I'll argue that Bruce's song "Lift Me Up," which plays over the end credits of the film, has both everything and nothing to do with the film. It's a perfectly haunting melodic exit for an unsettling piece of visual art.

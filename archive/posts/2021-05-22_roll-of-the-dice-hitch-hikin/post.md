@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Hitch Hikin'"
+author: "Ken"
+excerpt: "Western Stars is a travelogue, and it opens with a song that’s all about the ride."
+tags: hitch-hikin western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/hitch.png
+post_id: 25808
+---
 > All through the summers of '64, '65, '66 and '67 I'd hitchhiked the twenty miles from Freehold to Manasquan and back almost every day. I'd ridden with concerned moms, drunk drivers, truckers, street racers eager to show off what they had under the hood, traveling businessmen, and only one middle-aged salesman who was a little too interested in me. I'd hopped in with guys who had souped-up sound systems with echo chambers connected to their AM radios, "in-car" 45 record players set on springs under the dash near the shifter. Every sort of rube, redneck, responsible citizen and hell-raiser the Jersey Shore had to offer, I rode with 'em. I loved hitchhiking and meeting people. I miss it today. — *Bruce Springsteen, Born to Run*<br>
 
 There's an argument to be made (and I would make it) that *Western Stars* is Bruce Springsteen's most cinematic album. If so, "Hitch Hikin'" is its overture.

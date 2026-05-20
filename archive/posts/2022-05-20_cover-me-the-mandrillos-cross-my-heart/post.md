@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Mandrillos: Cross My Heart"
+author: "Ken"
+excerpt: "“Cross My Heart” always had more potential than its album arrangement allowed for, and this three-man combo proves it."
+tags: cross-my-heart the-mandrillos
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/mandrillos.jpg
+post_id: 34840
+---
 When it comes to covers, the rule here on the Shuffle is: Do it different, or do it better.
 
 Given that the covered artist is Bruce Springsteen, pretty much every *Cover Me* entry leans toward the "different" end of the spectrum. Rarely do I encounter a cover that I actually like *better* than Bruce's original.

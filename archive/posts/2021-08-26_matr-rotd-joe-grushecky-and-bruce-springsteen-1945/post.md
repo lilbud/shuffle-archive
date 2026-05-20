@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR/RotD: Joe Grushecky and Bruce Springsteen: 1945"
+author: "Ken"
+excerpt: "Bruce’s musical assist helped Joe Grushecky preserve his parents’ story in this sweet, romantic and true ballad."
+tags: 1945 coming-home joe-grushecky
+categories: meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1945.jpg
+post_id: 27712
+---
 September 2, 1995 marked fifty years since the end of World War II.
 
 Fiftieth anniversaries tend to command attention, and a Pittsburgh school teacher found himself one of many reflecting on the significance of the events. His intent was to pique his students' interest in the war, but he deepened his own fascination along the way.

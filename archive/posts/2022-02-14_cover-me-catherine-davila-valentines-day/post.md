@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Catherine Davila: Valentine's Day"
+author: "Ken"
+excerpt: "Here’s a lovely and timely cover of one of Bruce’s best love songs from a mystery artist."
+tags: catherine-davila valentines-day
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/dark-foggy-road-wallpaper.jpg
+post_id: 32475
+---
 Here's another cover by an artist I've given up trying to find information about. It's too lovely and too timely to keep this on the "maybe someday" list any longer.
 
 I know nothing about Catherine Davila–and I mean *nothing*. I can't find any trace of her on the Web or on social media, and her YouTube channel only has three videos, all of which were uploaded years ago.

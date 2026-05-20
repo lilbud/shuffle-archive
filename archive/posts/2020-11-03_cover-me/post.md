@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sólo Le Pido A Dios (I Only Ask God)"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen records and shares a beautiful cover of León Gieco’s classic protest song for his Argentinian fans."
+tags: leon-gieco solo-le-pido-a-dios
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/sololepido.jpg
+post_id: 22425
+---
 > "In 1988, I came to Buenos Aires on the Amnesty International Tour. My memories of that time are very much alive. We came to Argentina when the country was going through a hard time and was struggling for a future. For a foreigner, Argentina was alive and promising, so it's a big inspiration for me to be back. I want to dedicate this song to the people of Argentina." *–Bruce Springsteen, September 14, 2013*
 
 With those words delivered in Spanish to his Argentinian fans, Bruce sang a tender, earnest cover of León Gieco's 1978 protest song, "Sólo Le Pido A Dios."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Whole Lotta Love"
+author: "Ken"
+excerpt: "One time only: At a 1978 sound check, Bruce Springsteen reminds us why he was once considered one of greatest guitarists on the Jersey Shore."
+tags: led-zeppelin whole-lotta-love
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/wholelottalove.jpg
+post_id: 36169
+---
 If you only knew Bruce Springsteen from his official studio recordings, you'd probably raise an eyebrow at the notion of him covering a song like "Whole Lotta Love."
 
 It's a classic, of course, the first hit single for Led Zeppelin in the U.S. It peaked at #4 on the Billboard Hot 100 and reached #1 in Australia and Germany.

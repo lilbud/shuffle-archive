@@ -1,3 +1,11 @@
+---
+layout: default-post
+title: "Kingdom of Days Preface"
+author: "Ken"
+excerpt: "The shows were the easy part. Thankfully, the good folks at Brucebase have them cataloged from top to bottom, so I know exactly what to…"
+categories: uncategorized
+post_id: 7627
+---
 The shows were the easy part.
 
 Thankfully, the good folks at Brucebase have them cataloged from top to bottom, so I know exactly what to look for in YouTube, newspaper archives, and the like.

@@ -1,10 +1,20 @@
-Bruce has been covering Little Richard's "Lucille" in concert for decades, but you'd be forgiven for not knowing it: believe it or not, he performed it more than *forty times* in bar and club shows between the 35 years that separated his first two E Street Band performances.
+---
+layout: post
+title: "Lucille"
+author: "Ken"
+excerpt: "Bruce has played Little Richard’s “Lucille” dozens of times in bars and clubs over the years, but exceedingly rarely with the E Street Band. Check out some great performances of this early rock classic inside."
+tags: beaver-brown levon-helm little-richard lucille
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/lucille.webp
+post_id: 5815
+---
+Bruce has been covering Little Richard's "Lucille" in concert for decades, but you'd be forgiven for not knowing it: believe it or not, he performed it more than *forty times* in bar and club shows between the 35 years that separated his first two E Street Band performances.*
 
 Here's one of the earliest times: Bruce with Beaver Brown on stage at Big Man's West in Red Bank in the summer of 1982.
 
 [Watch Video Highlight](https://videopress.com/embed/hmhLdie1)
 
-...and video of Bruce with Cats on a Smooth Surface from 1987:
+…and video of Bruce with Cats on a Smooth Surface from 1987:
 
 [Watch on Youtube: Bruce Springsteen - Lucille - Stone Pony-1987](https://www.youtube.com/watch?v=P2BeqctxkEU)
 
@@ -18,7 +28,7 @@ By the time the E Street Band performed it in Paris, "Lucille" was already more 
 
 So it's no surprise to learn that Bruce covers it frequently during cover sets with other artists at bars and clubs–it's one of those songs that *every* rock musician knows, a safe bet for an impromptu guest appearance.
 
-One could argue that Bruce actually did play "Lucille" more frequently with the E Street Band during the early years, as the song periodically turned up in encore medleys. But those performances ranged from snippets at least to abbreviated at best; full E Street performances of "Lucille" have been exceedingly rare. Here's the first time Bruce and the band played the song as part of a medley (with "[Carol](../2022-02-17_cover-me-carol/post.md)"), in the summer of 1975.
+*One could argue that Bruce actually did play "Lucille" more frequently with the E Street Band during the early years, as the song periodically turned up in encore medleys. But those performances ranged from snippets at least to abbreviated at best; full E Street performances of "Lucille" have been exceedingly rare. Here's the first time Bruce and the band played the song as part of a medley (with "[Carol](../2022-02-17_cover-me-carol/post.md)"), in the summer of 1975.
 
 [https://estreetshuffle.com/wp-content/uploads/2018/11/Bruce-Springsteen-16-Carol-Lucille-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/11/Bruce-Springsteen-16-Carol-Lucille-online-audio-converter.com_.mp3)
 

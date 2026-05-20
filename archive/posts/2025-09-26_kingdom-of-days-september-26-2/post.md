@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 26"
+author: "Ken"
+excerpt: "On this date: Bruce debuts “Meeting Across the River,” the Lawsuit Tour kicks off, River Tour rehearsals are filmed, and more."
+tags: ann-arbor bobby-bandiera born-in-the-usa-tour born-to-run-tour bruce-springsteen-band ghost-of-tom-joad-tour iowa-city its-my-life lawsuit-tour los-angeles meeting-across-the-river miami-horns morristown new-york-city phoenix plane-wreck-at-los-gatos-deportee river-tour something-in-the-night southside-johnny springsteen-on-broadway stone-pony student-prince
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/19750926_3_front.jpg
+post_id: 59722
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 26"
+author: "Ken"
+excerpt: "On this date: Bruce makes a guest appearance with Patti Smith, debuts “Hearts of Stone,” and records a Christmas greeting for Ed Sciaky. Plus: a very crowded “solo” stage in Asbury Park and much more."
+tags: asbury-park bilbao born-in-the-usa-tour bruce-springsteen-band canada castiles dallas danny-federici dead-man-walkin ed-sciaky ghost-of-tom-joad-tour kittys-back last-to-die los-angeles magic-tour new-york-city patti-scialfa patti-smith philadelphia san-francisco shackled-and-drawn slowly-walking-down-by-the-river soozie-tyrell southside-johnny spain springsteen-on-broadway steve-van-zandt student-prince vancouver vini-lopez wmmr wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/asbury96.jpg
+post_id: 62432
+---
 ***New for 2025:** Audio for 1996; new entry for 2024*<br>
 
 **1966:** The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.<br>

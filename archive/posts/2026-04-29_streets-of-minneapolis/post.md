@@ -1,3 +1,11 @@
+---
+layout: post
+title: "Streets of Minneapolis"
+author: "Ken"
+excerpt: "“Tomorrow, do as Renée did. Find a way to take aggressive, peaceful action to defend our country’s ideals… Say something! Do something! Hell.. sing something!…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/04/BRUCE_MINN_10x10.v2-1024x1024-1.jpg
+post_id: 68709
+---
 > "Tomorrow, do as Renée did. Find a way to take aggressive, peaceful action to defend our country's ideals… Say something! Do something! Hell.. *sing* something! " *–Bruce Springsteen, March 31, 2026*<br>
 
 What would the famously fastidious Bruce Springsteen say if we told him in 1975 it would take another fifty years to notch his first Number One hit, and that it would be a song that topped the charts only ten days after the events that inspired it?

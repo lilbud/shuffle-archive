@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Light of Day"
+author: "Ken"
+excerpt: "The twisty tale of a hit cover of an unreleased outtake by an imaginary band that evolved into a barnburning, set-closing showcase."
+tags: born-in-the-usa cats-on-a-smooth-surface in-concert-mtv-plugged joan-jett light-of-day live-in-new-york-city michael-j-fox paul-schrader the-barbusters
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/LOD.jpg
+post_id: 6181
+---
 In the pantheon of Springsteen songs, "Light of Day" is a song unlike any other. Which is saying a lot for a song that's pretty much a Springsteen stereotype.
 
 Stay close to me, because we're about to go off-road.
@@ -28,26 +38,26 @@ Let's be honest, though: the song's surprising staying power is more due to it's
 
 The story itself (such as it is) is simply the desperate drive of a newly unemployed young man eager to get laid, racing to Galveston, Texas, where his brother works and assures him that the girls are pretty hot.
 
-> *Well I've been out of the woods for six days and nights now*
-> *Well I'm a little hot wired, but I'm feeling alright*
-> *I got some money in my pocket and a long lean ride*
-> *I got to make it down to Galveston by Saturday night, now*
+> *Well I've been out of the woods for six days and nights now*<br>
+> *Well I'm a little hot wired, but I'm feeling alright*<br>
+> *I got some money in my pocket and a long lean ride*<br>
+> *I got to make it down to Galveston by Saturday night, now*<br>
 
-> *Been driving five hundred miles, got five hundred to go, yeah*
-> *I got rock and roll music on the radio*
-> *I got a brother on a rig just off the gulf coast*
-> *He says the girls down there, well they're really the most, man*
+> *Been driving five hundred miles, got five hundred to go, yeah*<br>
+> *I got rock and roll music on the radio*<br>
+> *I got a brother on a rig just off the gulf coast*<br>
+> *He says the girls down there, well they're really the most, man*<br>
 
 Our hero has had a bad run of luck lately, but he's optimistic about the future–or about Saturday night, at least. He's not even 100% sure whether his brother was serious about the girls, but he doesn't care–at this point, it's the only thing he has to look forward to:
 
-> *Well I got thrown out of work on the Kokomo*
-> *Don't ask me what I'm doing, I don't know*
-> *I hope he wasn't joking when he wrote me that letter*
-> *Things can't get any worse, they got to get better*
+> *Well I got thrown out of work on the Kokomo*<br>
+> *Don't ask me what I'm doing, I don't know*<br>
+> *I hope he wasn't joking when he wrote me that letter*<br>
+> *Things can't get any worse, they got to get better*<br>
 
-> *Well I'm a little down under, but I'm feeling O.K.*
-> *I got a little lost along the way*
-> *I'm just around the corner to the light of day*
+> *Well I'm a little down under, but I'm feeling O.K.*<br>
+> *I got a little lost along the way*<br>
+> *I'm just around the corner to the light of day*<br>
 
 (Note: there several Kokomos in the U.S., but I did the math, and the only one that appears to be 1,000 miles away (or even close to it) is in Indiana. You're welcome.)
 

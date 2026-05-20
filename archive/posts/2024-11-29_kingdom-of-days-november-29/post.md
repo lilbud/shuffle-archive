@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 29"
+author: "Ken"
+excerpt: "On this date: Bruce releases the video for “War,” gets his first opening act in 20 years, and plays his last show of the 20th century. More highlights inside."
+tags: backstreets berkeley born-in-the-usa-tour born-to-run-book cincinnati darkness-tour ghost-of-tom-joad-tour houston john-wesley-harding live-1975-85 minneapolis murder-incorporated my-love-will-not-let-you-down new-york-city reunion-tour springsteen-on-broadway st-paul toni-cornell trenton war
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/19991129_front.jpg
+post_id: 55134
+---
 ***New for 2024:** Audio for 1974*<br>
 
 **1974:** Bruce and the E Street Band perform their first of two shows at the War Memorial Theater in Trenton.<br>

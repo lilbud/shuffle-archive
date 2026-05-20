@@ -1,32 +1,42 @@
-I don't second guess Bruce's choices very often. He's the artist, and I'm not even a musician.
+---
+layout: post
+title: "Cover Me: Dancing in the Street"
+author: "Ken"
+excerpt: "Bruce Springsteen has given us hundreds of fantastic covers over the years. This isn’t one of them. (But it’s worth a listen anyway.)"
+tags: dancing-in-the-street martha-and-the-vandellas robbin-thompson steel-mill
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/Martha-Reeves-The-Vandellas-–-Dancing-in-the-street.jpg
+post_id: 20932
+---
+I don’t second guess Bruce’s choices very often. He’s the artist, and I’m not even a musician.
 
-Still, I shake my head in wonder and that he ever thought it was a good idea to arrange "Dancing in the Street" as a Steel Mill guitar jam.
+Still, I shake my head in wonder and that he ever thought it was a good idea to arrange “Dancing in the Street” as a Steel Mill guitar jam.
 
-I'm not sure it's possible to improve on the original, which peaked at #2 on the Billboard Hot 100 when Martha and the Vandellas rode the charts with it in the summer of 1964. Goodness knows some great artists have tried, from The Mamas & The Papas to The Kinks to Van Halen to David Bowie and Mick Jagger.
+I’m not sure it’s possible to improve on the original, which peaked at #2 on the Billboard Hot 100 when Martha and the Vandellas rode the charts with it in the summer of 1964. Goodness knows some great artists have tried, from The Mamas & The Papas to The Kinks to Van Halen to David Bowie and Mick Jagger.
 
-But the original remains the standard, becoming one of Motown's signature songs, preserved by the Library of Congress in the United States National Recording Registry.
+But the original remains the standard, becoming one of Motown’s signature songs, preserved by the Library of Congress in the United States National Recording Registry.
 
 [Watch on Youtube: Martha & The Vandellas "Dancing in the Streets"](https://www.youtube.com/watch?v=CdvITn5cAVc)
 
-Bruce first took a crack at "Dancing in the Street" at the tender age of 20, opening Steel Mill shows with it throughout 1970. Here's the first instance of it to be captured on audio, from the band's legendary show at a Richmond, Virginia parking deck.
+Bruce first took a crack at “Dancing in the Street” at the tender age of 20, opening Steel Mill shows with it throughout 1970. Here’s the first instance of it to be captured on audio, from the band’s legendary show at a Richmond, Virginia parking deck.
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3)
 
-In theory, "Dancing in the Street" makes for a great show opener... if you're a dance band. Steel Mill was many things, but a dance band wasn't one of them.
+In theory, “Dancing in the Street” makes for a great show opener… if you’re a dance band. Steel Mill was many things, but a dance band wasn’t one of them.
 
-Steel Mill was, however, a pretty darn impressive jam band, which is why any individual song performance ("Dancing in the Street" included) could easily and often did stretch well beyond ten minutes.
+Steel Mill was, however, a pretty darn impressive jam band, which is why any individual song performance (“Dancing in the Street” included) could easily and often did stretch well beyond ten minutes.
 
-Shortly after that parking deck performance, Bruce invited local singer Robbin Thompson to join the band as a co-vocalist. Steel Mill would only last a few more months, though, and during those final gigs, the band would often mash up "Dancing in the Street" with "Honky Tonk Women" and "Proud Mary."
+Shortly after that parking deck performance, Bruce invited local singer Robbin Thompson to join the band as a co-vocalist. Steel Mill would only last a few more months, though, and during those final gigs, the band would often mash up “Dancing in the Street” with “Honky Tonk Women” and “Proud Mary.”
 
-In the clips below (much clearer than the one above), you'll hear Bruce and Robbin trading lead vocals in an almost thirteen-minute epic jam, featuring some terrific (but not very danceable) lead guitar by Bruce.
+In the clips below (much clearer than the one above), you’ll hear Bruce and Robbin trading lead vocals in an almost thirteen-minute epic jam, featuring some terrific (but not very danceable) lead guitar by Bruce.
 
 [Watch on Youtube: Bruce Springsteen and Steel Mill: Dancing in the Street with Honky Tonk Women 1971 South Amboy, NJ](https://www.youtube.com/watch?v=ChmsOg816d0)
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3)
 
-When Steel Mill folded in January 1971, "Dancing in the Street" vanished from Bruce's set lists as well.
+When Steel Mill folded in January 1971, “Dancing in the Street” vanished from Bruce’s set lists as well.
 
-Well, *almost* completely. Bruce has often teased a few lines of "Dancing in the Street" mid-song, and if you go back and listen closely around the 10:30 mark in the above clip, you'll hear some familiar guitar chords that Bruce would one day resurrect for his version of "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" –a classic Motown cover done right.
+Well, *almost* completely. Bruce has often teased a few lines of “Dancing in the Street” mid-song, and if you go back and listen closely around the 10:30 mark in the above clip, you’ll hear some familiar guitar chords that Bruce would one day resurrect for his version of “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” –a classic Motown cover done right.
 
 **Dancing in the Street**<br>
 **First performed:** December 31, 1969 (Big Sur, CA)<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Raise Your Hand"
+author: "Ken"
+excerpt: "Eddie Floyd contributed more than just a song to Bruce’s sets. Let’s take a look at how one of Bruce’ great musical influences inspired Bruce’s on-stage presence as well."
+tags: eddie-floyd raise-your-hand
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/raisehand.jpg
+post_id: 25696
+---
 > "I met Bruce in Memphis and he wanted me to come to his show, and I did go, and I went on stage, but I sung both of the songs, and he didn't really sing them with me. But after, I saw his version [of "Raise Your Hand"] is *so close* to mine as far as performance… I see Bruce's version of it doing it the very same way, dropping down on his knees and all the way up. Back in Memphis, I didn't know he did all that." — *Eddie Floyd, American Songwriter Spotlight on Songwriters, Episode 148 (2020)*<br>
 > "Mr. Eddie Floyd! The great Eddie Floyd! That's the man that wrote the book! Oh yeah, goddamn, that's the man that wrote the book!" *— Bruce Springsteen, Memphis, Tennessee, April 29, 1976*<br>
 

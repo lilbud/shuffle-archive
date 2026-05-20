@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Something's Gotta Break"
+author: "Ken"
+excerpt: "Let’s go way back to the Steel Mill era and see what we can make of this elusive Springsteen original."
+tags: somethings-gotta-break steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/gottabreak-1.png
+post_id: 12715
+---
 Now here's a maddening one.
 
 We know that "Something's Gotta Break" is an original Springsteen song from the Steel Mill era, and we know that the band performed it least twice way back in 1970–because we have surviving recordings of both performances.

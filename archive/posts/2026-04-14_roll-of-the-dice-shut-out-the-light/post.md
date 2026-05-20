@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Epilogue: Shut Out the Light"
+author: "Ken"
+excerpt: "It’s not nearly as well-known as its famous A-side, but “Shut Out the Light” is every bit as powerful (and even more harrowing) than “Born in the U.S.A.”"
+tags: shut-out-the-light tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/shutout-1.png
+post_id: 21387
+---
 As Bruce wrote "Vietnam," he gradually realized he had two stories to tell, one external and one internal. The external one dealt with the way American society recognized (or more accurately, failed to recognize) the sacrifices made by its veterans in Vietnam and their mistreatment upon returning home. That song became one of Bruce's all-time greatest hits: "Born in the U.S.A."
 
 The internal one dealt with the lasting psychological effects caused by the horror and trauma our veterans experienced in Vietnam. That song served as the B-side to "Born in the U.S.A.," a paring so perfect that I'm compelled to clarify that I'm speaking literally about Bruce's 1984 single and not merely metaphorically.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 18"
+author: "Ken"
+excerpt: "Bruce Springsteen performs at President Obama’s inaugural concert, a truly all-star Hall of Fame jam, the debut performance of “Frankie Fell in Love,” and much more on this day in history."
+tags: barack-obama born-in-the-usa-tour crying frenkie-fell-in-love gary-u-s-bonds ghost-of-tom-joad-tour greensboro hearts-of-stone i-cant-get-no-satisfaction jesse-malin joe-grushecky light-of-day my-fathers-place robbin-thompson rock-and-roll-hall-of-fame roy-orbison springsteen-on-broadway st-luis steel-mill the-rising willie-nile
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/inauguration.jpg
+post_id: 55606
+---
 **1971:** Steel Mill headlines at D’Scene in South Amboy, New Jersey.<br>
 
 [Watch on Youtube: Bruce Springsteen/ Steel Mill](https://www.youtube.com/watch?v=Xv4k7Bxs96U)

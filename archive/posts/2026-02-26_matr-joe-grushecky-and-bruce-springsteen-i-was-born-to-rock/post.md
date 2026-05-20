@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I Was Born to Rock"
+author: "Ken"
+excerpt: "One time only: Bruce joins Joe Grushecky on stage for a ferocious performance of Joe’s “I Was Born to Rock.”"
+tags: i-was-born-to-rock joe-grushecky somewhere-east-of-eden
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/borntorock.jpg
+post_id: 32113
+---
 If every rocker needs a mission statement, for Joe Grushecky, "I Was Born to Rock" is a pretty great candidate.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GNbJlqlWVCI)

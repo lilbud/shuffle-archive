@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Kansas City, August 24, 2008"
+author: "Ken"
+excerpt: "A night of surprises closes out the Magic Tour in Kansas City."
+tags: boys cadillac-ranch cynthia dancing-in-the-dark devils-and-dust its-all-over-now kansas-city magic-tour max-weinberg ricky-wants-a-man-of-her-own rockin-all-over-the-world save-the-last-dance-for-me soozie-tyrell
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/20080824_front-1.jpg
+post_id: 3911
+---
 If you want surprises, go to a tour closer and you'll get plenty.
 
 It's the last chance for the band to tick off items on their own bucket lists as well as their fans', and you're bound to get a loose, unpredictable show.
@@ -10,7 +20,7 @@ Some surprises were jaw-dropping, like opening the show with the world premiere 
 
 [Watch on Youtube: Bruce Springsteen - Ricky Wants A Man Of Her Own (2008-08-24)](https://www.youtube.com/watch?v=CTGny12oHMo)
 
-...and some were comical, like following up that "[Ricky Wants a Man of Her Own](../2018-11-23_roll-of-the-dice-ricky-wants-a-man-of-her-own/post.md)" open with "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)," establishing an early Farfisa mini-theme.
+…and some were comical, like following up that "[Ricky Wants a Man of Her Own](../2018-11-23_roll-of-the-dice-ricky-wants-a-man-of-her-own/post.md)" open with "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)," establishing an early Farfisa mini-theme.
 
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "Cynthia"](https://www.youtube.com/watch?v=H2tykCqqUK8)
 
@@ -26,7 +36,7 @@ Some surprises were poignant, like the full band premiere (sort of, anyway: Bruc
 
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "Devils and Dust"](https://www.youtube.com/watch?v=lxumJ3w2EWE)
 
-...and some were intimate: Bruce's almost-final encore of "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)" was quiet, soulful, and a genuine love note to E Street Nation... right up to the surprise pay-off, a perfect segue into "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."
+…and some were intimate: Bruce's almost-final encore of "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)" was quiet, soulful, and a genuine love note to E Street Nation… right up to the surprise pay-off, a perfect segue into "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "Save the Last Dance/DiTD"](https://www.youtube.com/watch?v=2i9bNACWIE0)
 

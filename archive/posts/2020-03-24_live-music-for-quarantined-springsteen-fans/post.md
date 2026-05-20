@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Live Music for Quarantined Springsteen Fans"
+author: "Ken"
+excerpt: "Missing live music during the great quarantine of 2020? Check out these great upcoming live concerts that you can stream from home!"
+tags: covid-19 joe-grushecky stay-at-home
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/stayhome.jpg
+post_id: 17218
+---
 I've never used this blog to promote events before, but we're all together in uncharted territory at the moment.
 
 So if you're doing the responsible thing and staying home to halt the spread of the global pandemic, first of all: *thank you*. I know it's hard, and the costs vary for each of us, but we're all saving lives.

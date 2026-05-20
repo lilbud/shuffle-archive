@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Coming Home"
+author: "Ken"
+excerpt: "“Coming Home” is a rare studio recording from the Bruce Springsteen Band era and an early precursor to one of Bruce’s greatest hits."
+tags: coming-home the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/cominghome.jpg
+post_id: 19669
+---
 Steel Mill played its last gig in the early weeks of 1971.
 
 Six months later (following a brief stint in the Sundance Blues Band), Bruce had formed his own eponymous band with Steel Mill holdovers Vini Lopez and Steve Van Zandt, and new members Garry Tallent and David Sancious.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Loves Glory"
+author: "Ken"
+excerpt: "One time only: Patti Scialfa performs one of her most beautiful and unabashedly romantic songs, with her husband backing her on guitar."
+tags: loves-glory patti-scialfa rumble-doll
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/6840_01.jpg
+post_id: 16170
+---
 Let's get this out of the way first: the typo is Patti's, not mine. Every time I see "Loves Glory" without an apostrophe, on the album cover or anywhere else in print, it drives me nuts. But hey, she's the artist, so she can name her songs however she likes.
 
 Okay, I feel better now. Onward:

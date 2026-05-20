@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Rebel Rebel"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the E Street Band paid tribute to the late David Bowie with a searing cover of Bowie’s 1974 single, “Rebel Rebel.”"
+tags: david-bowie rebel-rebel
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/rebel.jpg
+post_id: 31028
+---
 David Bowie was the original Springsteen cover artist.
 
 In the summer of 1973, mere months after the release of Bruce's debut album, Bowie recorded [a cover of "Growin' Up"](../2011-02-01_cover-me-david-bowie-growin-up/post.md/) for his *Pin Ups* album. It didn't make the final cut, though, and it would remain in Bowie's vault for another seventeen years.

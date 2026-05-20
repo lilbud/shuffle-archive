@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Red River Rock"
+author: "Ken"
+excerpt: "One time only (sorta): Bruce records a one-man acoustic cover of the early instrumental rock hit, “Red River Rock.”"
+tags: johnny-marks red-river-rock red-river-valley
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/redriver.jpg
+post_id: 18299
+---
 Okay, hang with me while we unspool this thread.
 
 Way back in the 19th century, a folk song made the rounds of several Canadian provinces. Over the years that followed, it would go by several different names, but the most common (or at least the most enduring) was "Red River Valley" (possibly in reference to the area by that name in Manitoba).

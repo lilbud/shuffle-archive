@@ -1,20 +1,30 @@
-We know Bruce is a Jimmy Cliff fan–his cover of Jimmy's "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" has been a fan favorite since its debut.
+---
+layout: post
+title: "Cover Me: Many Rivers to Cross"
+author: "Ken"
+excerpt: "“Many Rivers to Cross” may not be Bruce’s most well-known Jimmy Cliff cover, but it may be his most faithful."
+tags: jimmy-cliff many-rivers-to-cross sxsw world-tour-1993
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/riverstocross.jpg
+post_id: 3252
+---
+We know Bruce is a Jimmy Cliff fan–his cover of Jimmy’s “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” has been a fan favorite since its debut.
 
-But "Trapped" isn't the only Jimmy Cliff song Bruce has covered over the years–during World Tour 1993, Bruce frequently covered "Many Rivers to Cross" as well. And while Bruce's "Trapped" cover was a departure from the original, for "Many Rivers to Cross," Bruce chose a more faithful arrangement.
+But “Trapped” isn’t the only Jimmy Cliff song Bruce has covered over the years–during World Tour 1993, Bruce frequently covered “Many Rivers to Cross” as well. And while Bruce’s “Trapped” cover was a departure from the original, for “Many Rivers to Cross,” Bruce chose a more faithful arrangement.
 
-Here's Jimmy's original 1969 version, written and recorded at the age of 21. It's the song of a frustrated would-be artist striving to keep his faith in himself and his will to persist, even when those around him abandon him and basic subsistence becomes a struggle.
+Here’s Jimmy’s original 1969 version, written and recorded at the age of 21. It’s the song of a frustrated would-be artist striving to keep his faith in himself and his will to persist, even when those around him abandon him and basic subsistence becomes a struggle.
 
 [Watch on Youtube: Jimmy Cliff - Many Rivers To Cross (Lyrics on screen)](https://www.youtube.com/watch?v=QvBEpwcGM2o)
 
-Bruce's version retains the soulfulness of Jimmy's original arrangement–if anything, he ratchets it up, adding a gospel element with his backing singers.
+Bruce’s version retains the soulfulness of Jimmy’s original arrangement–if anything, he ratchets it up, adding a gospel element with his backing singers.
 
-Interestingly, though, Bruce alters the lyrics–most notably by completely dropping the final verse in which the protagonist is so desperate that he's tempted into "committing some dreadful crime." Bruce also changes the narrator's reaction to his woman leaving him from "Well, I guess I have to try" to "All I can do now is cry."
+Interestingly, though, Bruce alters the lyrics–most notably by completely dropping the final verse in which the protagonist is so desperate that he’s tempted into “committing some dreadful crime.” Bruce also changes the narrator’s reaction to his woman leaving him from “Well, I guess I have to try” to “All I can do now is cry.”
 
 [Watch on Youtube: Many Rivers To Cross - Bruce Springsteen con subtítulos en español](https://www.youtube.com/watch?v=UuCzgtKoqos)
 
-The result of the lyrical changes: a more traditional ballad of lost love than a down-on-his-luck musician. Why make the change? Who knows–maybe it was more in keeping with the relationships theme of the 1992-93 tour; maybe Bruce felt he'd have more authenticity this way. Or maybe this aspect of the song resonated more with him.
+The result of the lyrical changes: a more traditional ballad of lost love than a down-on-his-luck musician. Why make the change? Who knows–maybe it was more in keeping with the relationships theme of the 1992-93 tour; maybe Bruce felt he’d have more authenticity this way. Or maybe this aspect of the song resonated more with him.
 
-Regardless, it remains a World Tour 1993 highlight. Bruce played it only one time since, at SxSW in 2012 with the original artist. Here's Bruce and Jimmy performing it together (with the original lyrics) for the first and only time.
+Regardless, it remains a World Tour 1993 highlight. Bruce played it only one time since, at SxSW in 2012 with the original artist. Here’s Bruce and Jimmy performing it together (with the original lyrics) for the first and only time.
 
 [Watch on Youtube: Bruce Springsteen and Jimmy Cliff - Many Rivers to Cross 03/15/2012](https://www.youtube.com/watch?v=zEMwQVGIcW0)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Come On (Let's Go Tonight)"
+author: "Ken"
+excerpt: "This early draft of “Factory” has a surprising and somber depth all its own."
+tags: come-on-lets-go-tonight factory the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/comeon.jpg
+post_id: 23071
+---
 It's always fun (for me, at least) when the dice turn up a mini-theme.
 
 For the second time this week, we're examining an officially released song that shares a whole lot of DNA with another released song. The other day, we looked at lyrical twins "[Be True](../2019-04-03_roll-of-the-dice-mary-lou/post.md)" and "[Mary Lou](../2019-04-03_roll-of-the-dice-mary-lou/post.md);" today, we take a look at "Come On (Let's Go Tonight)," the musical twin of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."

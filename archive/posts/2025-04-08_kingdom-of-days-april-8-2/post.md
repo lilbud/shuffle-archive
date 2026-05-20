@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 8"
+author: "Ken"
+excerpt: "Out of work during the pandemic, Bruce takes a side gig as a radio DJ. Plus: controversy ensues when Bruce cancels a Greensboro show in protest over discrimination in North Carolina,"
+tags: anaheim barcelona cats-on-a-smooth-surface chicken-scratch-tour cincinnati cleveland dancing-in-the-dark dream-baby-dream greensboro high-hopes-tour houston lost-in-the-flood magic-tour pay-me-my-money-down reunion-tour river-tour-2016 rockin-all-over-the-world spain st-louis steve-van-zandt stone-pony switzerland tom-morello working-on-a-dream-tour world-tour-1993 zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/myhomeyours.jpg
+post_id: 56403
+---
 ***New for 2025:** Video for 2014*<br>
 
 **1976:** The second of two nights in Cleveland on the Chicken Scratch Tour features the last "[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)" for 33 years.<br>

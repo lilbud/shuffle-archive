@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 18"
+author: "Ken"
+excerpt: "On this date: Bruce plays his first-ever stadium concert in his home state, brings back “Crush on You” and “Drift Away” after 28 years, makes an unintentionally comical Asbury Park surprise appearance and more."
+tags: asbury-park auburn-hills born-in-the-usa-tour boston clearwater-festival crush-on-you darkness-tour detroit drift-away foxboro gary-busey giants-stadium john-eddie jungleland las-vegas magic-tour my-love-will-not-let-you-down new-york-city nils-lofgren philadelphia ramblin-gamblin-man richmond rising-tour springsteen-on-broadway viva-las-vegas world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/bs240818_01.jpg
+post_id: 59370
+---
 **1978:** Bruce and the E Street Band bring the Darkness Tour to Philadelphia for the first of two nights at The Spectrum. Gary Busey joins the band for the final two encores of "Rave On" and "Quarter to Three."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=O0Lao3wtYhk)

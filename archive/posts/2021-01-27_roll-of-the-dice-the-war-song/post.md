@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The War Song"
+author: "Ken"
+excerpt: "Nineteen-year-old Bruce Springsteen grappled with the horrors of the Vietnam War in one of his earliest compositions."
+tags: 1968-notebook the-war-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/warsong.jpg
+post_id: 24471
+---
 Once again, we delve into Bruce Springsteen's [1968 songwriting notebook](https://estreetshuffle.com/?s=1968+notebook), which surfaced for auction and public preview in 2006.
 
 One of the earliest entries in the notebook is simply entitled "The War Song," and like other entries in the notebook, nineteen-year-old Bruce Springsteen is thought to have actually performed it that year during his acoustic gigs at the Off Broad Street Coffee House.

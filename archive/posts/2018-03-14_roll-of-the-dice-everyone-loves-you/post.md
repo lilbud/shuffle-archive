@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Everyone Loves You"
+author: "Ken"
+excerpt: "“Everyone Loves You” is an unfinished (or more accurately, barely started) cast-off from Bruce’s 1979 home demo recordings."
+tags: everyone-loves-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1140-01-8-moments-springsteen-memoir-portrait.imgcache.rev4373670e79bc19d726e6dbb03d3e5b7c.web_.945.544.jpg
+post_id: 1011
+---
 In case you haven't figure it out yet, I'm a completist. So when I established that the scope of this blog spans Bruce's entire catalog of originals and covers, that definition is a bit, um, liberal at times.
 
 Witness today's dice roll: an unreleased, unfinished (heck, it's barely started) tune called "Everyone Loves You" in the session notes from Bruce's home demo recordings, back in early 1979.

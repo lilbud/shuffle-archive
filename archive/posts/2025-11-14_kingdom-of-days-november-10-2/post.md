@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 10"
+author: "Ken"
+excerpt: "Not one but *two* Springsteen box sets were released on this date: Live 1975-85 and Tracks. Plus: a Billy Joel guest appearance, a Daily Show interview, and more."
+tags: billy-joel born-to-run-tour cross-my-heart daily-show darkness-tour england frank-caruso glory-days hall-and-oates indianapolis jon-stewart joy live-1975-85 london louie-louie lucinda-willaims madison-square-garden maxs-kansas-city new-york-city outlaw-pete reunion-tour springsteen-on-broadway st-bonaventure stand-up-for-heroes tampa tracks uk uniondale working-on-the-highway world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/trackslive.jpg
+post_id: 61328
+---
 ***New for 2025:** New entry for 1977 and 2021; video for 1999*<br>
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the last of a five-night/ten-show stand.<br>

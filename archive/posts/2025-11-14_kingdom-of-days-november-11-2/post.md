@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 11"
+author: "Ken"
+excerpt: "Only the Strong Survive and The Essential Bruce Springsteen celebrate anniversaries today. Plus: special Veterans Day shows, the one-time-only original version of “Long Walk Home,” and more."
+tags: across-the-border baton-rouge born-in-the-usa born-in-the-usa-tour born-to-run-tour bruce-hornsby concert-for-valor crazy-horse dave-grohl denver devils-and-dust-tour england essential-bruce-springsteen fortunate-son frank-bruno growin-up london long-walk-home magic-tour miami mtv mustang-sally norfolk river-tour savin-up seeger-sessions-tour springsteen-on-broadway st-paul stolen-car timepiece tunnel-of-love uk washington-dc wrecking-ball-tour zac-brown-band
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/11/springsteen-only-strong-front2.jpg
+post_id: 61329
+---
 ***New for 2025:** New entry for 1977 and 2024; review for 1984*<br>
 
 **1972:** Bruce and the as-yet-unnamed E Street band open for Crazy Horse at York College of Pennsylvania.<br>

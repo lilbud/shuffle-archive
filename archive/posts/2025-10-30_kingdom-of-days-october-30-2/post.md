@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 30"
+author: "Ken"
+excerpt: "Patti Smith makes her one and only guest appearance on an E Street stage, the debuts of “Born in the U.S.A.” (the single) and “Brilliant Disguise” (the video), and more."
+tags: ames back-in-your-arms bart-haynes because-the-night born-in-the-usa boston brilliant-disguise bruce-springsteen-band camryn-sherer castiles devils-and-dust-tour dirty-water flo-and-eddie hungry-heart hurricane-sandy kittys-back lawsuit-tour los-angeles magic-tour new-york-city patti-smith richmond river-tour rochester rock-and-roll-hall-of-fame seeger-sessions-tour stockholm sweden the-main-point u2 world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/19761030_2_front.jpg
+post_id: 61249
+---
 ***New for 2025:** No updates*<br>
 
 **1965:** Castiles drummer Bart Haynes quits the band. A year later, Bart will join the Marines and ship out to Vietnam, where he will be killed in action. Bruce will remember Bart often–in his shows, in print, and on Broadway.<br>

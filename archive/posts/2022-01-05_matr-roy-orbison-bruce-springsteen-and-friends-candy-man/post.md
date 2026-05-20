@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison, Bruce Springsteen, and Friends: Candy Man"
+author: "Ken"
+excerpt: "One time only: Bruce joins Roy Orbison and an all-star backing band for a great cover of Roy’s 1961 B-side."
+tags: black-and-white-night candy-man roy-orbison
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/candyman.jpg
+post_id: 30867
+---
 It may not have enjoyed quite the success that its A-side did, but Roy Orbison's 1961 B-side "Candy Man" still managed to claw its way to #25 on the Billboard Hot 100.
 
 [Watch on Youtube: Candy Man](https://www.youtube.com/watch?v=VWoA74YyDWY)
@@ -6,7 +16,7 @@ It may not have enjoyed quite the success that its A-side did, but Roy Orbison's
 
 The song was co-written by Beverly Ross, who'd had a previous candy-themed hit with "Lollipop" for The Chordettes, which may or may not have been about oral sex depending on who you ask.
 
-Her follow-up, however, definitely carried a sexual connotation: "It was [co-writer] Fred [Neil's] idea," she wrote in her memoir. "He wanted to write a candy song with me since I'd had such success with my hit 'Lollipop'. He told me that in New Orleans all the prostitutes called their pimps their 'Candy Man.' I finally agreed to write the title with him, and it's still a hit all these years later!"
+Her follow-up, however, definitely carried a sexual connotation: "It was [co-writer] Fred [Neil's] idea," she wrote in her memoir. "He wanted to write a candy song with me since I'd had such success with my hit ‘Lollipop'. He told me that in New Orleans all the prostitutes called their pimps their ‘Candy Man.' I finally agreed to write the title with him, and it's still a hit all these years later!"
 
 (Not even five days into the new year, and I've already ruined two of your favorite childhood songs. You're welcome.)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 3"
+author: "Ken"
+excerpt: "On this date: Bruce announces his participation in the Human Rights Now Tour during a worldwide broadcast of his Tunnel of Love show in Stockholm, and Italian fans surprise Bruce when he takes the stage in Milan. More highlights inside."
+tags: amnesty-tour barcelona born-in-the-usa born-in-the-usa-tour chimes-of-freedom east-rutherford factory frankfurt gary-u-s-bonds geneva germany italy london milan river-tour river-tour-2016 rolling-stones seeds spain steve-van-zandt stockholm sundance-blues-band sweden switzerland the-promise tunnel-of-love-tour working-on-a-dream-tour world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/stockholm.png
+post_id: 57560
+---
 ***New for 2025:** New entry for 1978*<br>
 
 **1971:** The Sundance Blues Band plays two gigs–first at the Student Prince from 9:30pm to 1:00am, and then at the Upstage from 2am to 5am.<br>

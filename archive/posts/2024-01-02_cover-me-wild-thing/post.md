@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Wild Thing"
+author: "Ken"
+excerpt: "The E Street Band refuses to be stumped when a fan requests The Troggs’ bar band classic."
+tags: jordan-christopher-and-the-wild-ones the-troggs wild-thing
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/wildthing.jpg
+post_id: 16063
+---
 Chip Taylor (brother to Jon Voight and uncle to Angelina Jolie) wrote "Wild Thing" in the span of a few minutes, and it shows.
 
 It's not particularly substantive in either lyrics or music, and Taylor himself considered it a throwaway, but The Wild Ones needed a single and were willing to pay Taylor for one, and… well, a gig's a gig. And as for the vocals on that original recording… well, they were pretty cringeworthy, too.

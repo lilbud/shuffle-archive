@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 27"
+author: "Ken"
+excerpt: "The Born in the U.S.A. Tour starts its last stand, and Bruce becomes a published author. More highlights and lots of video inside."
+tags: beer-barrel-polka born-in-the-usa-tour born-to-run-book born-to-run-tour cadillac-ranch candys-room chicago danny-federici human-rights-now-tour janey-dont-you-lose-heart japan los-angeles milwaukee reunion-tour rising-tour river-tour st-louis stand-on-it tokyo two-hearts war
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/sept85.jpg_large.jpg
+post_id: 59732
+---
 ***New for 2025:** Audio for 1975, 1985, and 1988*<br>
 
 **1975:** Bruce and the "East Side Band" play their first-ever show in Missouri when the Born to Run Tour stops at the Ambassador Theater in St. Louis. The set list features a 27-minute(!) "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)."<br>

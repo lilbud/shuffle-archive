@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Long Walk Home"
+author: "Ken"
+excerpt: "“Long Walk Home” lost its way in the studio, but in its original and acoustic arrangements, it’s one of Bruce’s finest and most relevant 21st century songs."
+tags: long-walk-home magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/longwalk.jpg
+post_id: 16552
+---
 Because I write this blog on a long lead, this entry was written before the global COVID-19 pandemic of 2020. As I prep it for publication now, it's impossible for me to listen to "Long Walk Home" and not hear it in a completely different context than Bruce could ever have imagined.
 
 I gave thought to a last-minute re-write to make it more timely and relevant, but I ultimately decided against it. Like all great art, Bruce's best songs transcend their original context and take on new meaning when their listeners need them to. But really, at its core, "Long Walk Home" has never been a song about politics but rather about civics–about measuring the distance between our values and our behavior and doing our best to close the gap.

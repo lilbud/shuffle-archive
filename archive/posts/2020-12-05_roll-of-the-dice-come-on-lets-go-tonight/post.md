@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Come On (Let's Go Tonight)"
+author: "Ken"
+excerpt: "This early draft of “Factory” has a surprising and somber depth all its own."
+tags: come-on-lets-go-tonight factory the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/comeon.jpg
+post_id: 23071
+---
 It's always fun (for me, at least) when the dice turn up a mini-theme.
 
 For the second time this week, we're examining an officially released song that shares a whole lot of DNA with another released song. The other day, we looked at lyrical twins "[Be True](../2019-04-03_roll-of-the-dice-mary-lou/post.md)" and "[Mary Lou](../2019-04-03_roll-of-the-dice-mary-lou/post.md);" today, we take a look at "Come On (Let's Go Tonight)," the musical twin of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."
@@ -18,23 +28,23 @@ In the clip above, we can clearly hear that this is a song where the music prece
 
 Lyrically, though, this is definitely an early draft. There's a lot of bluffing going on, but there's at least one gem of a line that Bruce ultimately discarded but which truly deserved to be adopted elsewhere:
 
-> *Everybody wants heaven, but nobody wants to die."*
+> *Everybody wants heaven, but nobody wants to die."*<br>
 
 Man, that's a great line.
 
 By autumn, Bruce would evolve his lyrics to focus on his father, and "Come On (Let's Go Tonight)" morphed into "The Factory Song" and finally "Factory." During the summer, though, it remained a song focused on the brevity of life and the opportunity cost of living (which is actually not that far removed from what "Factory" is about).
 
-> *Put on your black dress baby, and put your hair up right*
-> *There's a party way down in Factory Town tonight*
-> *I'll be going down there if you need a ride*
-> *Come on, come on, let's go tonight*
+> *Put on your black dress baby, and put your hair up right*<br>
+> *There's a party way down in Factory Town tonight*<br>
+> *I'll be going down there if you need a ride*<br>
+> *Come on, come on, let's go tonight*<br>
 
 Let's acknowledge the obvious: the first couplet eventually made it to "Out in the Street," and the second one to "Johnny Bye Bye." But taken on its own, we have an introductory verse that sets the scene: there's a "party" going down, but the black dress implies that "party " is a euphemism. We're about to find out what for.
 
-> *How many men fail, their dreams denied*
-> *They walk through these streets with death in their eyes*
-> *Now the man on the radio says "Elvis Presley died"*
-> *Come on, come on, let's go tonight*
+> *How many men fail, their dreams denied*<br>
+> *They walk through these streets with death in their eyes*<br>
+> *Now the man on the radio says "Elvis Presley died"*<br>
+> *Come on, come on, let's go tonight*<br>
 
 As with "Johnny Bye Bye," our song is set on the night that Elvis died. That was an event that hit Bruce hard, both because of the loss of an idol and the reinforcement of a lesson: success doesn't necessarily breed contentment.
 
@@ -46,10 +56,10 @@ And yet like the best of Bruce's songs, "Come On (Let's Go Tonight)" operates on
 
 But then the music died, and with it went the escapism. If even Elvis could be haunted by demons, what hope did common folk have?
 
-> *Well now some came to witness, now some came to weep*
-> *Drawn by death's strange glory, they stood in the street*
-> *Drawn together forever in the promise of an endless sleep*
-> *Come on, come on, let's go tonight*
+> *Well now some came to witness, now some came to weep*<br>
+> *Drawn by death's strange glory, they stood in the street*<br>
+> *Drawn together forever in the promise of an endless sleep*<br>
+> *Come on, come on, let's go tonight*<br>
 
 There's something about death that reminds us of life. We gather, in part to remember the departed, but in part to remind ourselves that *we are still here*. There is indeed a strange glory in death–as Bruce wrote earlier, *everybody wants heaven, but nobody wants to die*. We miss the fallen, but celebrate their escape to the afterlife.
 

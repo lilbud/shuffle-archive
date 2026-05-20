@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Album Companion: We Shall Overcome"
+author: "Ken"
+excerpt: "The true, winding road from a backyard birthday party to a critically acclaimed, Grammy-winning album."
+tags: we-shall-overcome-the-seeger-sessions
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/5sonlph83439-large__05930.jpg
+post_id: 36318
+---
 Editor's Note
 
 With last Friday's entry, *We Shall Overcome: The Seeger Sessions* becomes the second Springsteen studio album to receive the complete *Roll of the Dice* treatment–although in this exceptional case, it's actually the *Cover Me* treatment, since the album is comprised entirely of covers except for one track on the *American Land Edition*.

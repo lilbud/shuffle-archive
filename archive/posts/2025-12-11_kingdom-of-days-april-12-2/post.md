@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 12"
+author: "Ken"
+excerpt: "On this busy date: the release of In Concert/MTV Plugged, the debut of “Light of Day,” an all-star Elvis-themed benefit at Carnegie Hall, and so much more!"
+tags: auburn-hills billy-joel boston carol-dennis cats-on-a-smooth-surface child columbus elton-john growin-up high-hopes-tour houston in-concert-mtv-plugged incident-on-57th-street james-taylor jon-bon-jovi kansas-city lucille may-i nashville new-york-city paul-simon rainforest-foundation reunion-tour river-tour-2016 springsteen-on-broadway steve-van-zandt sting the-stone-pony tunnel-of-love-express-tour underground-garage virginia-beach wooly-bully wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/In_Concert_MTV_Plugged_Live.jpg
+post_id: 56433
+---
 **1954:** Carol Dennis, back-up singer for Bruce’s 1992-1993 World Tour, is born.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/carol.jpg.webp)

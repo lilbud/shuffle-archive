@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Book of Dreams"
+author: "Ken"
+excerpt: "The second time’s the charm: Bruce takes another crack at writing about wedding days, and this time he captures the life lessons he learned since the first time."
+tags: book-of-dreams lucky-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/book.jpeg
+post_id: 9986
+---
 > "This is a song about wedding days. (I say ‘days' plural, unfortunately.) But you know, it's a funny day. It's a day when everything counts ten times more." — Bruce Springsteen, Glendale Arizona, April 30, 2005
 
 It's more accurate to say that "Book of Dreams" is a song about wedding eves than wedding days, but that's a nit not worth picking with the songwriter.
@@ -18,10 +28,10 @@ In "Book of Dreams," however, recorded mere months if not weeks after Bruce's se
 
 "Book of Dreams" chronicles the lead-up to the singer's wedding. Most of the "action" takes place the night before, as the groom steps out from his rehearsal dinner for a few moments of quiet reflection.
 
-> *I'm standing in the backyard listening to the party inside*
-> *Tonight I'm drinking in the forgiveness this life provides*
-> *The scars we carry remain but the pain slips away it seems*
-> *Oh won't you baby be in my book of dreams*
+> *I'm standing in the backyard listening to the party inside*<br>
+> *Tonight I'm drinking in the forgiveness this life provides*<br>
+> *The scars we carry remain but the pain slips away it seems*<br>
+> *Oh won't you baby be in my book of dreams*<br>
 
 That's a remarkable opening verse–in fact, it's the high point of the entire song, and that is unusual in and of itself. Most of Bruce's songs impart a lesson over the course of their arc, but in "Book of Dreams," Bruce lays it all out at the beginning.
 
@@ -29,15 +39,15 @@ And that's the point of "Book of Dreams," and of second weddings in general: the
 
 Bruce's new story begins in verse number two, and it begins very similarly to "The Honeymooners," with the observations of a key player who sounds instead like a detached observer. But that detachment doesn't last long.
 
-> *I'm watching you through the window with your girlfriends from back home*
-> *You're showing off your dress, there's laughter and a toast*
-> *From your daddy to the prettiest bride he's ever seen*
-> *Oh won't you baby be in my book of dreams*
+> *I'm watching you through the window with your girlfriends from back home*<br>
+> *You're showing off your dress, there's laughter and a toast*<br>
+> *From your daddy to the prettiest bride he's ever seen*<br>
+> *Oh won't you baby be in my book of dreams*<br>
 
-> *In the darkness my fingers slip across your skin, I feel your sweet reply*
-> *The room fades away and suddenly I'm way up high*
-> *Yeah just holding you to me as through the window the moonlight streams*
-> *Oh won't you baby be in my book of dreams*
+> *In the darkness my fingers slip across your skin, I feel your sweet reply*<br>
+> *The room fades away and suddenly I'm way up high*<br>
+> *Yeah just holding you to me as through the window the moonlight streams*<br>
+> *Oh won't you baby be in my book of dreams*<br>
 
 That third verse is important. Taking place after the guests have gone home and the lovers retire to the bedroom, the singer is no longer an observer. He is both physically and emotionally connected to his bride-to-be, and the fact that he suddenly loses his vivid powers of observation that characterized the song up until this point is very, very significant. The groom is all in, Bruce is telling us, and his journey from here on out takes us places the eye can't see.
 
@@ -45,10 +55,10 @@ In the final verse, the wedding day has arrived, and Bruce fully recognizes its 
 
 The penultimate lines of the song are a callback to "If I Should Fall Behind" (if you can call it a callback when the preceding song is on the flip side of the same album), further cementing the notion that both songs are about the same characters:
 
-> *Now the ritual begins and ‘neath the wedding garland we meet as strangers*
-> *Well the dance floor is alive with beauty, mystery and danger*
-> *We dance out ‘neath the stars' ancient light into the darkening trees*
-> *Oh won't you baby be in my book of dreams*
+> *Now the ritual begins and ‘neath the wedding garland we meet as strangers*<br>
+> *Well the dance floor is alive with beauty, mystery and danger*<br>
+> *We dance out ‘neath the stars' ancient light into the darkening trees*<br>
+> *Oh won't you baby be in my book of dreams*<br>
 
 "Book of Dreams" is a deceptively simple song. Very little happens, but so much is said. Overlooked and underplayed, it's a hallmark of the newly mature songwriter introduced to us on *Tunnel of Love*, cemented on *Lucky Town*, and who's been with us ever since.
 

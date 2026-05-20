@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Philadelphia, February 12, 2016"
+author: "Ken"
+excerpt: "My second show of the River Tour (2016 version) was a scorcher inside even if it was freezing outside–a talkative Bruce and a couple of great setlist wild cards make this the strongest and longest show of the tour to date."
+tags: drive-all-night meet-me-in-the-city my-love-will-not-let-your-down philadelphia river-tour-2016 rosalita
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/phily0216.jpg
+post_id: 689
+---
 Once my toes defrosted, it was a great night.
 
 I’ve learned to think twice before buying a GA ticket and trying for the pit in the middle of winter, but there’s nothing like being up close and personal at a Springsteen show in Philadelphia. There’s never been anything resembling a “standard set” in Philly (at least not in this century), so when I was looking for a second River show to follow up from the amazing Pittsburgh opener, Philly was an easy choice.

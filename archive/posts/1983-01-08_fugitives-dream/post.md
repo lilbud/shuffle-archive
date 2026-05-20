@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Fugitive's Dream"
+author: "Ken"
+excerpt: "Things are about to get confusing again. “Fugitive’s Dream” is one of three very closely related songs on L.A. Garage Sessions ’83, and it’s virtually impossible…"
+post_id: 65854
+---
 Things are about to get confusing again.
 
 "Fugitive's Dream" is one of three *very* closely related songs on *L.A. Garage Sessions '83*, and it's virtually impossible to discuss one without referencing the others.
@@ -16,13 +23,13 @@ Got all that? Good. Let's take a listen to "Fugitive's Dream" the second install
 
 The plot and opening lines are the same across all three songs: a stranger comes to down and reminds our narrator of a long-buried sin.
 
-> *Sir I'm a pilgrim and a stranger in this land*
-> *Once I had a home here and my salvation was at hand*
-> *I lived in a fine home on a far hillside*
-> *I had two beautiful children and a kind and loving wife*
+> *Sir I'm a pilgrim and a stranger in this land*<br>
+> *Once I had a home here and my salvation was at hand*<br>
+> *I lived in a fine home on a far hillside*<br>
+> *I had two beautiful children and a kind and loving wife*<br>
 
-> *One day a man came to town with nothing and nowhere to go*
-> *He came to me and he mentioned something I'd done a long time ago*
+> *One day a man came to town with nothing and nowhere to go*<br>
+> *He came to me and he mentioned something I'd done a long time ago*<br>
 
 (Those last two lines will appear on yet another *Lost Albums* track, in a most unlikely place: the magnificent *High Sierra*, recorded decades later. One wonders if Bruce was already at work compiling this collection when he wrote that song.)
 
@@ -30,23 +37,23 @@ From here, the songs diverge, although the general plot remains the same. In "Fu
 
 But here in "Fugitive's Dream," Joe is simply haunted by his past, unable to shake a memory (or is it an urge?) once awakened.
 
-> *I allowed him into my home on his vow our secret would never see the light*
-> *At night I'd lay awake in my wife's arms, she sighed, "Joe, are you alright?"*
+> *I allowed him into my home on his vow our secret would never see the light*<br>
+> *At night I'd lay awake in my wife's arms, she sighed, "Joe, are you alright?"*<br>
 
-> *I thought I could hold on, my vows I tried to keep*
-> *Day after day I felt myself grow weak*
-> *One night I dressed by moonlight and kissed my wife on the cheek*
-> *And I fled into the darkness of Union Street*
+> *I thought I could hold on, my vows I tried to keep*<br>
+> *Day after day I felt myself grow weak*<br>
+> *One night I dressed by moonlight and kissed my wife on the cheek*<br>
+> *And I fled into the darkness of Union Street*<br>
 
-> *And night after night the same dream keeps coming 'round*
-> *I'm standing high in the green hills on the outskirts of town*
-> *The night air fills my lungs and rustles my shirt*
-> *In the distance I can see the building where I used to work*
+> *And night after night the same dream keeps coming 'round*<br>
+> *I'm standing high in the green hills on the outskirts of town*<br>
+> *The night air fills my lungs and rustles my shirt*<br>
+> *In the distance I can see the building where I used to work*<br>
 
-> *I break through the open fields and out onto Old Town Road*
-> *I run faster and faster 'til I feel like my chest will explode*
-> *As I draw near the town's lit by a red summer moon*
-> *I feel your arms around me, I wake up in this room*
+> *I break through the open fields and out onto Old Town Road*<br>
+> *I run faster and faster 'til I feel like my chest will explode*<br>
+> *As I draw near the town's lit by a red summer moon*<br>
+> *I feel your arms around me, I wake up in this room*<br>
 
 Although this version lacks the moment of intimacy between Joe and his houseguest that heightens "Fugitive's Dream (Ballad)," Bruce uses the word "vows" in a different context here that strongly implies he's referring to marital ones.
 

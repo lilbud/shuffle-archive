@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Float Away"
+author: "Ken"
+excerpt: "The story of how a Philly garage rock band landed a Bruce Springsteen cameo on their breakthrough album."
+tags: float-away marah
+categories: meeting-across-the-river
+post_id: 20376
+---
 Marah could have made it big. They *should* have made it big.
 
 The Kids in Philly had a great garage sound (they literally recorded in an auto garage), tons of street cred, and some pretty big-name boosters, including a guy from across the river on the Jersey side.
@@ -6,11 +15,11 @@ Marah first came to Bruce's attention during the Reunion Tour. The boys were get
 
 Halfway through the show, Dave Marsh found Serge and friend at their seats and invited them to attend the afterparty later that night. They accepted that offer too, of course, and when they reached the party, Marsh offered to introduce the boys to Bruce. We'll let Serge pick it up from here, from his recent Conshystuff interview:
 
-> *He leads us upstairs. This small room is dark, Christmas lights, smoky people could still smoke, and he pushes us through the packed crowd dancing, and I see Matt Damon.*
+> *He leads us upstairs. This small room is dark, Christmas lights, smoky people could still smoke, and he pushes us through the packed crowd dancing, and I see Matt Damon.*<br>
 
-> *Then the crowd parts like the Red Sea and I see Bruce. On a stool, smiling and drinking a beer. Marsh introduces us and the Motown music is so loud that I know Bruce can't hear what he says, but whatever. He smiles at me, reaches out his hand. I smile back, shake his hand tight, feel an electric shock that I still feel to this day, and mumble things right into his ear that he does not hear.*
+> *Then the crowd parts like the Red Sea and I see Bruce. On a stool, smiling and drinking a beer. Marsh introduces us and the Motown music is so loud that I know Bruce can't hear what he says, but whatever. He smiles at me, reaches out his hand. I smile back, shake his hand tight, feel an electric shock that I still feel to this day, and mumble things right into his ear that he does not hear.*<br>
 
-> *I want to hang on, hang out, but that's not how this works and me and Ed are being sucked back into the crowd; the tides are moving; the Godfather has other people to attend to. But just as we're passing Matt Damon again…no lie…a hand grabs my shoulder and spins me around gently. It's Bruce. And he leans in hard and says, real loud so I can't miss it, "Hey man, I really like your band a lot! Let's get together when you're in Jersey."*
+> *I want to hang on, hang out, but that's not how this works and me and Ed are being sucked back into the crowd; the tides are moving; the Godfather has other people to attend to. But just as we're passing Matt Damon again…no lie…a hand grabs my shoulder and spins me around gently. It's Bruce. And he leans in hard and says, real loud so I can't miss it, "Hey man, I really like your band a lot! Let's get together when you're in Jersey."*<br>
 
 They did indeed get together in Jersey–twice in fact, just a few months later, at Light of Day in November and again at Bruce's Asbury Park holiday shows in December.
 
@@ -28,7 +37,6 @@ Marah never really went away–they just soldiered on with different line-ups (I
 
 **Float Away**<br>
 **Recorded** February 11, 2002<br>
-**Released:** *Float Away With the Friday Night Gods* (2002)<br>
-**Never performed**<br>
+**Released:** *Float Away With the Friday Night Gods* (2002)**Never performed**<br>
 
 © August 11, 2020

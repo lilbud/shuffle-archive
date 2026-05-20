@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Carson McKee and Skylar McKee: Nebraska"
+author: "Ken"
+excerpt: "Carson McKee and his brother Skylar transform Bruce’s 1982 murder ballad into a thing of beauty."
+tags: carson-mckee im-on-fire nebraska
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/carson.jpg
+post_id: 29739
+---
 It feels weird to describe a murder ballad as beautiful, but I can't help it: Carson and Skylar McKee's sibling harmonies and acoustic/electric arrangement transform Bruce's haunting 1982 [title track](../2018-04-16_roll-of-the-dice-nebraska/post.md) into something absolutely lovely.
 
 [Watch on Youtube: Nebraska (Bruce Springsteen cover feat. Skylar McKee)](https://www.youtube.com/watch?v=_1rqxXVb3SQ)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Elvis Costello, Bruce Springsteen, and Nils Lofgren: Black Ladder"
+author: "Ken"
+excerpt: "One time only: Bruce and Nils accompany Elvis Costello in a tender reading of Patti Scialfa’s gorgeous “Black Ladder.”"
+tags: black-ladder elvis-costello nils-lofgren patti-scialfa
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/spectacle.png
+post_id: 22422
+---
 Only years after the release of Patti Scialfa's superb third album, *Play It As It Lays*, would the strength, stamina, devotion, and deep abiding love in the album's final two-minute track snap into focus.
 
 "Black Ladder" is one of Patti's bravest songs, and one of her most telling.

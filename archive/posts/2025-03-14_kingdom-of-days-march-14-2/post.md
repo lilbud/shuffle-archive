@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 14"
+author: "Ken"
+excerpt: "What’s the big highlight on a day like this? Hall of Fame performances with U2 and Darlene Love? Guest appearances with Robert Gordon and Conor Oberst? A pristinely recorded 1972 rehearsal? You decide–there’s too many to chose from."
+tags: alejandro-escovedo always-a-friend austin australia beast-of-burden blowing-down-the-road boston brisbane bruce-springsteen-band connor-oberst darlene-love emmylou-harris garland-jeffreys ghost-of-tom-joad-tour i-still-havent-found-what-im-looking-for joe-ely lawsuit-tour little-rock magic-tour midnight-train norway omaha oslo poughkeepsie reunion-tour richfield robert-gordon rock-and-roll-hall-of-fame sirius-xm springsteen-on-broadway thunder-road tom-morello tunnel-of-love-express-tour u2 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/The-Early-Uber-Collection-Front.jpg
+post_id: 56174
+---
 ***New for 2025:** New entry for 1978; video for 2013*<br>
 
 **1972:** The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include "[When You Dance](../2018-08-12_roll-of-the-dice-when-you-dance/post.md)," "[Look Toward the Land,](../2018-12-10_roll-of-the-dice-look-towards-the-land/post.md)" "[Funk Song,](../2018-05-02_roll-of-the-dice-funk-song/post.md)" and an absolutely stunning must-hear cover of "[It's All Over Now, Baby Blue.](../2019-01-12_cover-me-its-all-over-now-baby-blue/post.md)" Take a listen:<br>

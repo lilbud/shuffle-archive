@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sitting on Top of the World"
+author: "Ken"
+excerpt: "One time only (that we can listen to, at least): Listen to The Bruce Springsteen Band at their bluesiest, as they cover Howlin’ Wolf’s Chicago blues classic."
+tags: howlin-wolf sitting-on-top-of-the-world the-mississippi-sheiks
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/sitting.jpg
+post_id: 25697
+---
 If you are a fan of the blues, then today's entry is for you, because trust me: you will never hear Bruce Springsteen any bluesier than this.
 
 If you've been following my five-year odyssey through Bruce's recording and performance history for at least a few months, you've probably already figured out we're about to take another trip back to the Bruce Springsteen Band era.

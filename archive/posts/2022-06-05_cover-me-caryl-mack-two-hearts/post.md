@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Caryl Mack: Two Hearts"
+author: "Ken"
+excerpt: "Singer-songwriter Caryl Mack finds the soul of “Two Hearts” in her gorgeous acoustic cover."
+tags: caryl-mack two-hearts
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/carylmack.jpg
+post_id: 35354
+---
 "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" didn't really do anything for me in its original arrangement.
 
 I recognized the beauty of Bruce's lyrics right away, and I wanted to like the song, but the album track barrels along so quickly that it left me out of breath when all I wanted to do was just *feel*.
@@ -8,7 +18,7 @@ Every once in a while another artist hears that same tucked-away tenderness and 
 
 Like with today's entry. You may remember Caryl Mack from the late 1990s, when she had a couple singles on the Billboard Country chart. She's remained an accomplished, award-winning country singer-songwriter ever since, and recently she's developed a fondness for the music of a New Jersey rock and roll icon.
 
-"A few years ago, I did a deep dive into the music of Bruce Springsteen," she wrote on her Facebook page, "and discovered this little gem called 'Two Hearts.' I love the message: We need each other."
+"A few years ago, I did a deep dive into the music of Bruce Springsteen," she wrote on her Facebook page, "and discovered this little gem called ‘Two Hearts.' I love the message: We need each other."
 
 Although she'd covered it solo during the early lockdown phase of the pandemic, a song called "Two Hearts" calls for some collaborators. So just recently, she assembled her Live from the Firepit band and turned in an absolutely gorgeous performance that's on heavy rotation for me at the moment.
 

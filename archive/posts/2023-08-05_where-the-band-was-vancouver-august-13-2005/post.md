@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Vancouver, August 13, 2005"
+author: "Ken"
+excerpt: "Bruce wraps up the summer leg of his solo acoustic tour in the Pacific Northwest and gives one of his best performances of the tour."
+tags: 4th-of-july-asbury-park-sandy because-the-night blinded-by-the-light canada devils-and-dust-tour janey-dont-you-lose-heart living-proof lonesome-day state-trooper vancouver
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/20050813_front.jpg
+post_id: 3640
+---
 Ah, Vancouver… I love that city.
 
 It's not my favorite city to see a Springsteen concert, though, because the Vancouver audiences are too darn quiet and respectful–the energy level there is never quite what it is in other cities, even in the usually sedate Pacific Northwest.

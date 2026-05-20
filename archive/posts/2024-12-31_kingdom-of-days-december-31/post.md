@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 31"
+author: "Ken"
+excerpt: "Highlights from New Years Eve shows across the years, including the earliest known prototype of “Drive All Night.”"
+tags: archive-series big-sur born-to-run-tour darkness-tour drive-all-night firecrackers new-years-eve passaic philadelphia richard-blackwell richfield river-tour southside-johnny steve-van-zandt uniondale
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/1989-12-31.jpg
+post_id: 55450
+---
 ***New for 2024:** No updates*<br>
 
 **1969:** Bruce plays his first ever show in California, at the Esalen Institute in Big Sur. He unexpectedly encounters a Freehold friend, Richard Blackwell, who sits in with the band during their New Years Eve gig.<br>

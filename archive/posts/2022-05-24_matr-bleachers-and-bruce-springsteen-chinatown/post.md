@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bleachers and Bruce Springsteen: Chinatown"
+author: "Ken"
+excerpt: "At the height of the pandemic, Bruce came out of lockdown to appear on Jack Antonoff’s album track, video, and live rooftop performance."
+tags: bleachers chinatown jack-antonoff
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/china.webp
+post_id: 34692
+---
 At the height of the Great Pandemic, when pleasant surprises were in short supply and even the smallest of delights were few and far between, Jack Antonoff surprised fans with a surprise Bleachers album.
 
 And not just his own fans, but E Street Nation as well–because the lead single from the album featured a very special guest star who hadn't been seen in public much since the start of lockdown.
@@ -8,7 +18,7 @@ And not just his own fans, but E Street Nation as well–because the lead single
 
 Getting Bruce to appear on your track is a tall order under normal circumstances; during a global quarantine, it might seem nigh impossible. Antonoff had an advantage, though: he was already working with Patti Scialfa and Ron Aniello on at least one track for Patti's upcoming album.
 
-One day, Antonoff brought the track with him to Bruce's home studio, and... well, let's let him tell us what happened next in this clip from an NPR interview from last year.
+One day, Antonoff brought the track with him to Bruce's home studio, and… well, let's let him tell us what happened next in this clip from an NPR interview from last year.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3)
 

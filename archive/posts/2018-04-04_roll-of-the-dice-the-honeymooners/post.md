@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Roll of the Dice: The Honeymooners"
+author: "Ken"
+excerpt: "“The Honeymooners,” like “County Fair,” chronicles a single perfect day, time-out-of-time, through a delicate series of fleeting wedding day impressions."
+tags: the-honeymooners tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/Honeymooners.jpg
+post_id: 1412
+---
 A month or so ago, I wrote about "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)," and called it a perfect song about a perfect day.
 
-> *"There's no plot to "County Fair," no character development, transformation, or revelation. It's just a song about being young and in love, in a small town on a perfect day."*
+> *"There's no plot to "County Fair," no character development, transformation, or revelation. It's just a song about being young and in love, in a small town on a perfect day."*<br>
 
 That description applies just as well to "The Honeymooners," a [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)outtake released more than a decade after it was recorded, as part of the *Tracks* collection.
 
@@ -12,31 +22,31 @@ Whereas "County Fair" takes care to paint a full picture, "The Honeymooners" cap
 
 The first verse hurtles us through the ceremony itself:
 
-> *Two kids get married, same old thing*
-> *Folks congratulate you, church bells ring*
-> *Who's got the ring, who's gonna pay the priest*
-> *Get your name in the paper, picture or two at least*
+> *Two kids get married, same old thing*<br>
+> *Folks congratulate you, church bells ring*<br>
+> *Who's got the ring, who's gonna pay the priest*<br>
+> *Get your name in the paper, picture or two at least*<br>
 
 …and the second immerses us in the reception, while the enormity of what we just committed to starts to sink in:
 
-> *And at the reception all the old records play*
-> *"Where you gonna live, are you gonna taker her away?"*
-> *In a corner my new nephew's showin' me his knife*
-> *You swore that you'd love her for the rest of your life*
+> *And at the reception all the old records play*<br>
+> *"Where you gonna live, are you gonna taker her away?"*<br>
+> *In a corner my new nephew's showin' me his knife*<br>
+> *You swore that you'd love her for the rest of your life*<br>
 
 In verse three, we're alone with our new spouse, reliving and laughing about the events of the day:
 
-> *Went to kiss you at the altar we bumped heads*
-> *Honeymoon night we figured we best shake on it instead*
-> *Dressed kinda funny, laughin' we hop in bed*
-> *You can wear it on your feet, you can swear it on your head*
+> *Went to kiss you at the altar we bumped heads*<br>
+> *Honeymoon night we figured we best shake on it instead*<br>
+> *Dressed kinda funny, laughin' we hop in bed*<br>
+> *You can wear it on your feet, you can swear it on your head*<br>
 
 …and finally, we wake up the next morning to our new normal:
 
-> *Come mornin' my new famlily's sitting on the front porch swing*
-> *Smilin' kinda funny, nobody says a thing*
-> *My new brother-in-law's throwin' a football, he tosses me a pass*
-> *We all sit down on the front stoop, everybody happy at last*
+> *Come mornin' my new famlily's sitting on the front porch swing*<br>
+> *Smilin' kinda funny, nobody says a thing*<br>
+> *My new brother-in-law's throwin' a football, he tosses me a pass*<br>
+> *We all sit down on the front stoop, everybody happy at last*<br>
 
 It's a magical moment, full of contentment. Of course, it's fleeting. Or at least it will be, and the narrator probably knows it. But that's not the point. The point is that in life, we have moments where everything else–our jobs, our fears, our sources of stress and strife–all fade into the background, and we are gifted with calm, peace, joy, and contentment.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 6"
+author: "Ken"
+excerpt: "Bruce films the video for “Streets of Philadelphia,” Sam Moore makes an E Street cameo, and the Asbury Park holiday shows are in full swing. These and more highlights inside."
+tags: apollo-medley birmingham born-in-the-usa-tour born-to-run-tour downbound-train garland-jeffreys glendale holiday-shows jonathan-demme max-weinberg-7 new-brunswick new-york-city new-york-city-serenade nils-lofgren patti-scialfa philadelphia reason-to-believe river-tour sam-moore santa-claus-is-comin-to-town springsteen-on-broadway streets-of-philadelphia surprise-surprise the-river thunder-road washington-dc wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/evidenza_bruce_springsteen_streets_of_philadelphia_1.jpg
+post_id: 62961
+---
 ***'New for 2025:** New entry for 1977, 1979, and 1990*<br>
 
 **1972:** Bruce and his unnamed Band play their second night of a six-night, two-shows-nightly stand at Kenny's Castaways In New York City.<br>

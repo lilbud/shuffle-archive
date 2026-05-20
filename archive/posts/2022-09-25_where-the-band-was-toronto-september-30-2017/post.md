@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Toronto, September 30, 2017"
+author: "Ken"
+excerpt: "Bruce makes an unusual appearance at the Invictus Games closing ceremony, playing a short acoustic set and joining Bryan Adams for two rockers."
+tags: badlands bryan-adams canada cuts-like-a-knife dancing-in-the-dark invictus-games the-promised-land toronto working-on-the-highway
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/invictus.jpg
+post_id: 4624
+---
 I suppose if I can count [Bruce’s four-song guest appearance at the Laid Back Festival](../2018-09-21_where-the-band-was-holmdel-september-21-2016/post.md) the week before as a show, I can count Bruce’s five songs at the Invictus Games closing ceremonies as one, too.
 
 I was fortunate enough to be be able to tack on side-trip to Toronto on the end of a work trip, and even through Bruce was billed as a headliner, I wasn’t sure what to expect. Would he play solo? With a band? Which band? A full set or a few numbers? It was a genuine mystery to me, and since his Broadway debut was only a few days away (and I was planning to be there), I was avoiding any and all on-line speculation to avoid Broadway spoilers.

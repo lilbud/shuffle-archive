@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Weight"
+author: "Ken"
+excerpt: "One time only: Bruce paid tribute to the late, great Levon Helm shortly after Helm’s passing, opening his encores in Newark with “The Weight.”"
+tags: the-band the-weight
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/weight.jpg
+post_id: 8267
+---
 Considering how well-known, -loved, -covered and -esteemed "The Weight" is, it's surprising that it took Levon Helm's death to inspire Bruce to cover it in concert.
 
 You know the original, of course. It was never a hit single (at least not in the U.S., although it did crack the Top 40 in Canada and the U.K.), but it's enshrined in the Rock and Roll Hall of Fame as one of the 500 Songs that Shaped Rock and Roll, and it ranks pretty high (#41) on Rolling Stone's 500 Greatest Songs of All Time list.

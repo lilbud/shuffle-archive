@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Wish"
+author: "Ken"
+excerpt: "“The Wish” is Bruce’s most autobiographical song, and it’s more resonant and poignantly powerful today than ever."
+tags: springsteen-on-broadway the-wish tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/thewish-2.jpg
+post_id: 2879
+---
 I'm about to break my own rules–three of them, in fact:
 
 - I'm ignoring the randomizer and choosing the song I want to write about, something I haven't done since my very first post.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Balboa Park"
+author: "Ken"
+excerpt: "A heartbreaking L.A. Times article inspires one of Bruce’s most harrowing narratives–the tale of young lost boys in Balboa Park."
+tags: balboa-park the-ghost-of-tom-joad
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/balboa.jpg
+post_id: 16915
+---
 > *After the Border Patrol van departed carrying the boys who did not run fast enough, Carlitos whistled, the sound echoing in the park beneath sun-glazed downtown office towers.*<br>
 >
 > *"They're gone!" he shouted in Spanish, inhaling a blast of Octane Booster–a gasoline additive and makeshift drug–from a Coke can. "I chased them off."*<br>

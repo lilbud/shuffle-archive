@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Street Fighting Man"
+author: "Ken"
+excerpt: "“Street Fighting Man” was a regular encore during the early days of the Born in the U.S.A. Tour. Listen to great performances of the Rolling Stones’ anthem inside."
+tags: street-fighting-man the-rolling-stones
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/streetgight.webp
+post_id: 11841
+---
 Mick Jagger may not be a big fan of "Street Fighting Man," (he's admitted as much in interviews), but Bruce Springsteen surely is.
 
 Not only has Bruce labelled the song's signature line ("What can a poor boy do but sing in a rock and roll band?") one of the greatest lines of all time, he paid homage to it in his own "[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)." (What's a poor boy to do but keep singing his song?)

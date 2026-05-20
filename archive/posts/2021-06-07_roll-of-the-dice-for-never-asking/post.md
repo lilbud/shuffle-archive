@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: For Never Asking"
+author: "Ken"
+excerpt: "Bruce grappled with depression through song as early as 1968, as this unreleased entry from his notebook demonstrates."
+tags: 1968-notebook for-never-asking
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1968_lyricsnotebook-1.jpg
+post_id: 3909
+---
 It's time for another visit to the "[1968 Notebook](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)," where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don't appear on any bootlegs.
 
 (Previous entries: "[Turn Around,](../2018-07-09_roll-of-the-dice-turn-around/post.md)" "[Crystal](../2018-05-11_roll-of-the-dice-crystal/post.md),' and "[Until the Rain Comes](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 1"
+author: "Ken"
+excerpt: "Step back from the guacamole dip, put the chicken fingers down, and turn your television ALL the way up: Bruce Springsteen and the E Street Band play the Super Bowl! Watch Bruce’s video journal, full performance, and more highlights from this date inside."
+tags: cleveland growin-up high-hopes-tour ill-work-for-your-love johannesburg maxs-kansas-city new-york-city river-tour south-africa springsteen-on-broadway st-paul super-bowl working-on-a-dream
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/02/bruce-springsteen-superbowl-90ee8cc829324babb4dc1ab17ef7b8aa.webp
+post_id: 55844
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-01.png.webp)
 
 **1973:** Bruce and his band play their second of six nights (with two shows each night) at Max’s Kansas City in New York, opening for Biff Rose.<br>

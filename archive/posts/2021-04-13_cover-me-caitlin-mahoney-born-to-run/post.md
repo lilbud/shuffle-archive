@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Caitlin Mahoney: Born to Run"
+author: "Ken"
+excerpt: "Singer-songwriter Caitlin Mahoney does justice to her “spirit animal” in her cover of Bruce Springsteen’s classic anthem."
+tags: born-to-run caitlin-mahoney
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/caitlin.jpg
+post_id: 26513
+---
 New York City-based singer-songwriter Caitlin Mahoney is a big Bruce Springsteen fan.
 
 Like, *seriously* big. If you read or watch any interview with her, Bruce is bound to come up within the the first couple paragraphs.

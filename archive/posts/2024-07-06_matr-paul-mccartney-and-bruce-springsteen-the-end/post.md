@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Paul McCartney and Bruce Springsteen: The End"
+author: "Ken"
+excerpt: "Not just once but three times: Bruce Springsteen plays guitar hero with Paul McCartney in live performances of The Beatles’ legendary final track."
+tags: dave-grohl joe-walsh paul-mccartney the-beatles the-end
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/maxresdefault.jpg
+post_id: 52383
+---
 > *And in the end, the love you take*<br>
 > *Is equal to the love you make*<br>
 

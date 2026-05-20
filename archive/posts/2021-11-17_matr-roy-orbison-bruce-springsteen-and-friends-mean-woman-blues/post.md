@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison, Bruce Springsteen, and Friends: Mean Woman Blues"
+author: "Ken"
+excerpt: "One time only: Bruce backs Roy Orbison and an all-star band on an Elvis cover that one-ups The King."
+tags: black-and-white-night elvis-presley roy-orbison
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/mean.jpg
+post_id: 28461
+---
 It takes guts to cover an Elvis Presley song and think you can one-up The King, but that's exactly what Roy Orbison did when he covered "Mean Woman Blues," which Elvis took to #11 in 1957 in the soundtrack for his film *Loving You.*
 
 [Watch on Youtube: Elvis Presley - Mean Woman Blues ( HD)](https://www.youtube.com/watch?v=9UBQmvTUqHg)

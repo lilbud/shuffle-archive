@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Part Man, Part Monkey"
+author: "Ken"
+excerpt: "It may have been inspired by a famous trial, but this Human Touch outtake is more sly than substantive."
+tags: part-man-part-monkey tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/partman.jpg
+post_id: 32476
+---
 Okay, let's get this part out of the way:
 
 In 1925, the Tennessee state legislature passed The Butler Act, which made it a crime to teach evolution in public schools. It didn't take long for a young science teacher named John Thomas Scopes to challenge the law by flagrantly violating it and inviting prosecution, which came swiftly and with much notoriety.

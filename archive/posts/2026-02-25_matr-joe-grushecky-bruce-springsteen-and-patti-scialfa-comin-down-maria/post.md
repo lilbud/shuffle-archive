@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Comin' Down Maria"
+author: "Ken"
+excerpt: "Now it can be told: the secret Springsteen studio performance kept under wraps for a quarter century."
+tags: american-babylon comin-down-maria joe-grushecky patti-scialfa
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/New-Promo-IMG_11241.jpg
+post_id: 29031
+---
 Two COVID summers ago, Joe Grushecky and I had a long, detailed conversation about his milestone *American Babylon* album, which celebrated its 25th anniversary last year. And in the middle of our conversation, he dropped a bombshell on me.
 
 I'd asked him how Patti Scialfa's vocal contributions to "Comin' Down Maria," one of the album's lovelier tracks, had come about. Obviously I knew she'd been in close proximity, since her husband was producing the album, but Bruce himself wasn't involved with that particular track.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Stewart Francke and Bruce Springsteen: Summer Solider (Holler If Ya Hear Me)"
+author: "Ken"
+excerpt: "Ask and ye shall receive (sometimes, at least): Stewart Francke wrote a song with Bruce Springsteen in mind and wound up scoring his participation on the studio track."
+tags: stewart-francke summer-soldier-holler-if-ya-hear-me
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/StewartFrancke-Album-Cover_20110502_171424.jpg
+post_id: 17545
+---
 It must be Michigan week here on the Shuffle, because this is our second spotlight on a Wolverine State artist in the last few days.
 
 This time the spotlight is on Detroit singer/songwriter Stewart Francke. He may not be as well known as Bob Seger, but he can one-up Bob when it comes to studio collaborations with Bruce Springsteen.

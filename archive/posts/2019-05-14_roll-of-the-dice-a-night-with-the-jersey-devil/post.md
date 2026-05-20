@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: A Night with the Jersey Devil"
+author: "Ken"
+excerpt: "A curiosity of a song with an unusual release history. “A Night with the Jersey Devil” is an exercise in clever misdirection, and a sly wink from Bruce."
+tags: a-night-with-the-jersey-devil baby-blue gene-vincent
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/bruce-springsteen-a-night-with-the-jersey-devil-columbia.jpg
+post_id: 9991
+---
 [Watch on Youtube: Bruce Springsteen - A Night with the Jersey Devil (Video Version)](https://www.youtube.com/watch?v=l6leNRGhOqA)
 
 I'm not entirely sure what to make of "A Night with the Jersey Devil."

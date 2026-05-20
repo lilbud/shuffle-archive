@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Santa Ana"
+author: "Ken"
+excerpt: "Visit the vividly painted streetscape of “Santa Ana,” featuring a lost Clarence Clemons flute performance and dreamlike imagery."
+tags: santa-ana tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/Santa-Ana-800x800.jpg
+post_id: 970
+---
 "Santa Ana" is typical early-Bruce tapestry–full of larger-than-life characters, colorful metaphors, and some liberal dips into the rhyming dictionary a la "Blinded by the Light." Written in 1972 and recorded in early 1973, it wouldn't see the light of day (officially, anyway) for a full quarter century thereafter.
 
 There's not much in the way of plot in "Santa Ana"–as Bruce said in a 1998 interview for Mojo, "Santa Ana is just a series of images, but it works."

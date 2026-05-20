@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Dancing in the Street"
+author: "Ken"
+excerpt: "Bruce Springsteen has given us hundreds of fantastic covers over the years. This isn’t one of them. (But it’s worth a listen anyway.)"
+tags: dancing-in-the-street martha-and-the-vandellas robbin-thompson steel-mill
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/Martha-Reeves-The-Vandellas-–-Dancing-in-the-street.jpg
+post_id: 20932
+---
 I don’t second guess Bruce’s choices very often. He’s the artist, and I’m not even a musician.
 
 Still, I shake my head in wonder and that he ever thought it was a good idea to arrange “Dancing in the Street” as a Steel Mill guitar jam.

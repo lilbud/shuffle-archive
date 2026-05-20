@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Maria's Bed"
+author: "Ken"
+excerpt: "Sister song to “Reno” and cousin to “Further On (Up the Road),” “Maria’s Bed” is a carefree jaunt with surprising depth and hidden poignancy–it’s one of Bruce’s best 21st-century songs."
+tags: devils-and-dust further-on-up-the-road marias-bed reno working-on-the-highway
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/maria.jpeg
+post_id: 5733
+---
 In the micro-genre of *Bruce Springsteen Songs About Sexual Obsession, Possibly Concerning a Prostitute*, "Maria's Bed" looms large.
 
 I learned long ago that my tastes are no arbiter of whether a song becomes a hit or flies under the radar, but *come on*: "Maria's Bed" is easily one of Bruce's best 21st-century songs. (Except that I'm not entirely convinced he wrote it in this century. More on that later.)

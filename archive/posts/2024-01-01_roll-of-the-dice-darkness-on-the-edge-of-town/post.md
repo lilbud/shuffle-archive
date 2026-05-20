@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Darkness on the Edge of Town"
+author: "Ken"
+excerpt: "“Darkness on the Edge of Town” is one of Bruce’s most enduring classics. But is it a song about heroic defiance or defeat and addiction?"
+tags: darkness-on-the-edge-of-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/darkness.jpg
+post_id: 1469
+---
 I've gone on record a few times confessing my (relative) lack of appreciation for the [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)album, and I usually find myself embroiled in animated debate whenever I do. I find it heavy-handed: many of the songs are thematically so similar that they seem to be almost identical in their pairing of obsessive defiance and defeatedness, and while I can appreciate the craftsmanship, I don't find the album enjoyable to listen to.
 
 That said, there are some absolutely stellar standout tracks on the album, and the title track is one of them. If I have to choose the one song that best accomplishes what the entire album is reaching for, it's "Darkness on the Edge of Town."

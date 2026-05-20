@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'm on Fire"
+author: "Ken"
+excerpt: "It’s one of the great Springsteen mysteries: what exactly makes “I’m on Fire” so freaking popular?"
+tags: born-in-the-u-s-a im-on-fire
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/imonfire.jpg
+post_id: 29026
+---
 At long last, the dice force us to confront one of the great enduring Springsteenian mysteries, namely:
 
 Why is "I'm on Fire" so freaking popular?

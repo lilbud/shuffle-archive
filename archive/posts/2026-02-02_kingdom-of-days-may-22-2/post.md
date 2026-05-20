@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 22"
+author: "Ken"
+excerpt: "Bruce serenades and conducts a sing-along from an Italian balcony, Joe Grushecky joins Bruce for a wildly unpredictable show in Pittsburgh, and more."
+tags: adam-raised-a-cain anaheim bruce-springsteen-and-the-hot-mammas dublin frankie-fell-in-love gelsenkirchen germany ghost-of-tom-joad-tour incident-on-57th-street italy joe-grushecky land-of-hope-and-dreams leavin-train lonely-teardrops madison-square-garden magic-tour milton-keynes naples new-york-city reunion-tour rising-tour roll-of-the-dice springsteen-on-broadway sundance-blues-band the-river thunder-road tunnel-of-love-express-tour two-for-the-road uk waitin-on-a-sunny-day world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/anaheim2000.webp
+post_id: 56799
+---
 **1971:** Three–count ’em–*three* Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a *fourth* show at 1am, but that’s technically the following day.)<br>
 
 **1979:** Bruce and the E Street Band work on “Jackson Cage” at the Power Station in New York City.<br>

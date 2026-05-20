@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tom Morello, Roger Waters, and the Wounded Warriors Band: The Ghost of Tom Joad"
+author: "Ken"
+excerpt: "One time only: Tom Morello teams up with Roger Waters and the Wounded Warriors Band for “The Ghost of Tom Joad.”"
+tags: roger-waters the-ghost-of-tom-joad tom-morello wounded-warriors-band
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/waters.jpg
+post_id: 16772
+---
 On October 16, 2015, Roger Waters staged a benefit concert for MusiCorps, a non-profit that teaches music to wounded warriors.
 
 Five songs into Waters' nineteen-song set, Roger invited Tom Morello to join him. Roger, Tom, and the Wounded Warriors Band played several classic Pink Floyd songs together, but they made room in the middle of the set for a very special cover.

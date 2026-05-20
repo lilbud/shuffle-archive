@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Greetings From Asbury Park, N.J. Album Companion"
+author: "Ken"
+excerpt: "A half-century ago today, Bruce Springsteen sent the world Greetings from Asbury Park, and rock and roll has never been the same."
+tags: greetings-from-asbury-park
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/greetings.jpg
+post_id: 40499
+---
 On January 5, 1973, Columbia Records introduced their hot new up-and-coming singer-songwriter to the world.
 
 Or to 25,000 people at least. That’s how many people (at most) bought *Greetings From Asbury Park, N.J.* in 1973. As debuts go, it wasn’t the most auspicious.

@@ -1,10 +1,20 @@
+---
+layout: post
+title: "A Very Springsteen Christmas"
+author: "Ken"
+excerpt: "Happy Holidays from E Street Shuffle! Enjoy this guided tour through Bruce’s best Christmas-themed performances."
+tags: blue-christmas christmas-baby-please-come-home christmas-day do-you-hear-what-i-hear its-gonna-be-a-bruce-springsteen-christmas jingle-bell-rock joy-to-the-world merry-christmas-baby pilgrim-in-the-temple-of-love run-rudolph-run santa-claus-baby santa-claus-is-comin-to-town
+categories: cover-me meeting-across-the-river spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/xmas.jpg
+post_id: 39854
+---
 You'd think the guy with one of the best-selling Christmas singles of all time would have released at least one Christmas album by now. And yet, here we are: fifty holiday seasons into his recording career, and we're still waiting for a Bruce Springsteen Christmas album.
 
 As it turns out, there's a reason for that. Bruce was refreshingly candid about it when he spoke with Jimmy Fallon on *The Tonight Show* in 2020:
 
 [Watch Video Highlight](https://videopress.com/embed/EDabM958)
 
-But if we have to keep waiting and wishing for a Springsteen holiday album, at least there's no shortage of live Springsteen performances of holiday classics... if you know where to look for them.
+But if we have to keep waiting and wishing for a Springsteen holiday album, at least there's no shortage of live Springsteen performances of holiday classics… if you know where to look for them.
 
 As it turns out, you can look right here.
 

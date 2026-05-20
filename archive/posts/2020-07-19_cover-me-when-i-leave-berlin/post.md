@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: When I Leave Berlin"
+author: "Ken"
+excerpt: "Almost a quarter-century after Bruce’s legendary show in East Germany, Bruce honored his Berlin audience’s history by opening his Wrecking Ball show with Wizz Jones’ 1973 classic."
+tags: when-i-leave-berlin wizz-jones
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/whenileaveberlin_original_alb.jpg
+post_id: 19328
+---
 > "Once in a while you play a place, a show that ends up staying inside of you, living with you for the rest of your life. East Berlin in 1988 was certainly one of them." — *Bruce Springsteen, May 30, 2012*
 
 In 1988, Bruce Springsteen played to about 160,000 East Germans (and by some estimates up to 300,000)–roughly one percent of East Germany's entire population.

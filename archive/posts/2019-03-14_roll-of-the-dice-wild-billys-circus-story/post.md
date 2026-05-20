@@ -1,4 +1,14 @@
-> "…I think when you're a kid, the things you notice about the circus aren't the things you're meant to notice. But those are the things that are fascinating to you. You know what you're watching, that right underneath it… you'd walk down the midway, but I was always interested in what's going on down that side alley back by that trailer. And then late at night, if you happened to be stranded there at 11:30, midnight, after it had shut down, it was the province of local hoodlums at the time, and it was really scary for a little boy."–*Bruce Springsteen to Elvis Costello, Spectacle, September 25, 2009*
+---
+layout: post
+title: "Roll of the Dice: Wild Billy's Circus Story"
+author: "Ken"
+excerpt: "More an impressionistic scene than a story, “Wild Billy’s Circus Story” is one of Bruce’s most carefully crafted early songs, full of delightful musical and lyrical detail. Insights, backstory, and some remarkable early performances inside."
+tags: circus-song wild-billys-circus-story
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/circus.jpg
+post_id: 7877
+---
+> "…I think when you're a kid, the things you notice about the circus aren't the things you're meant to notice. But those are the things that are fascinating to you. You know what you're watching, that right underneath it… you'd walk down the midway, but I was always interested in what's going on down that side alley back by that trailer. And then late at night, if you happened to be stranded there at 11:30, midnight, after it had shut down, it was the province of local hoodlums at the time, and it was really scary for a little boy."–*Bruce Springsteen to Elvis Costello, Spectacle, September 25, 2009*<br>
 
 "Wild Billy's Circus Story" is a stand-out track on Bruce's second album, but not in a good/bad way. It stands out because it sounds like a holdover from [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md), or even earlier, if you're familiar with his pre-Columbia recordings.
 
@@ -14,59 +24,59 @@ We don't even need the lyrics to tell us where we are. Anyone who's ever been to
 
 As Bruce begins to tell his tale, it's early, and the circus is quiet. Bruce's guitar is the only instrumentation we hear as we experience the stillness of a circus with no audience.
 
-> *The machinist climbs his Ferris wheel like a brave*
-> *And the fire eater's lyin' in a pool of sweat, victim of the heat wave*
-> *Behind the tent, the hired hand tightens his legs on the sword swallower's blade*
-> *And circus town's on the shortwave*
+> *The machinist climbs his Ferris wheel like a brave*<br>
+> *And the fire eater's lyin' in a pool of sweat, victim of the heat wave*<br>
+> *Behind the tent, the hired hand tightens his legs on the sword swallower's blade*<br>
+> *And circus town's on the shortwave*<br>
 
-> *Well, the runway lies ahead like a great false dawn*
-> *Whoa, Fat Lady, Big Mama, Missy Bimbo sits in her chair and yawns*
+> *Well, the runway lies ahead like a great false dawn*<br>
+> *Whoa, Fat Lady, Big Mama, Missy Bimbo sits in her chair and yawns*<br>
 
 At this point, the details start to shift from the mundane to the interesting, and as the scene becomes more vivid, Bruce adds a mandolin (yes, that's him on the mandolin) to signal us that it's time to pay attention.
 
-> *And the man-beast lies in his cage sniffing popcorn*
-> *Yeah, the midget licks his fingers and suffers Missy Bimbo's scorn*
-> *The circus town's been born*
+> *And the man-beast lies in his cage sniffing popcorn*<br>
+> *Yeah, the midget licks his fingers and suffers Missy Bimbo's scorn*<br>
+> *The circus town's been born*<br>
 
 The circus town's been born. That's Bruce telling us that there are people here now, an audience, and the circus has come to life before its audience. The action picks up now, and Garry's elephant and Danny's calliope return to the fore:
 
-> *Whoa, and a press roll, drummer go, ballerina to-and-fro*
-> *Cartwheelin' up on that tightrope with a cannon blast, lightnin' flash*
-> *Movin' fast, through the tent, Mars bent, he's gonna miss his fall*
-> *Oh, God save the human cannonball*
-> *And the flying Zambinis watch Margarita do her neck twist*
-> *And the ringmaster gets the crowd to count along: "Ninety-five, ninety-six, ninety-seven"*
+> *Whoa, and a press roll, drummer go, ballerina to-and-fro*<br>
+> *Cartwheelin' up on that tightrope with a cannon blast, lightnin' flash*<br>
+> *Movin' fast, through the tent, Mars bent, he's gonna miss his fall*<br>
+> *Oh, God save the human cannonball*<br>
+> *And the flying Zambinis watch Margarita do her neck twist*<br>
+> *And the ringmaster gets the crowd to count along: "Ninety-five, ninety-six, ninety-seven"*<br>
 
 Shout out to Vini Lopez here: his drumroll (his sole contribution to the song) is perfectly placed, and we are now there under the big top watching Margarita whirl.
 
 And next–so subtle you might completely miss it–the story (such as it is) actually begins, as the circus loses its clown:
 
-> *A ragged suitcase in his hand, he steals silently away from the circus grounds*
-> *And the highway's haunted by the carnival sounds*
-> *They dance like a great greasepaint ghost on the wind*
-> *A man in baggy pants, a lonely face, a crazy grin*
-> *Runnin' home to some small Ohio town*
-> *Jesus, send some good women to save all your clowns*
+> *A ragged suitcase in his hand, he steals silently away from the circus grounds*<br>
+> *And the highway's haunted by the carnival sounds*<br>
+> *They dance like a great greasepaint ghost on the wind*<br>
+> *A man in baggy pants, a lonely face, a crazy grin*<br>
+> *Runnin' home to some small Ohio town*<br>
+> *Jesus, send some good women to save all your clowns*<br>
 
 Bruce's guitar work is particularly lovely here, almost Latin-tinged and increasingly far-removed from both the circus and observer's theme as our runaway clown hits the road, abandons the circus life and heads for wherever he remembers as home, hoping to find ties that bind–the one thing circus life can never provide.
 
 We return to the circus now, and as the familiar circus theme resumes, a new player enters the scene–a young man, perhaps even a boy, whose wide-eyed part is played by Bruce's harmonica.
 
-> *And circus boy dances like a monkey on barbed wire*
-> *And the barker romances with a junkie, she's got a flat tire*
-> *And now the elephants dance real funky, and the band play like a jungle fire*
-> *Circus town's on the live wire*
+> *And circus boy dances like a monkey on barbed wire*<br>
+> *And the barker romances with a junkie, she's got a flat tire*<br>
+> *And now the elephants dance real funky, and the band play like a jungle fire*<br>
+> *Circus town's on the live wire*<br>
 
 Circus Boy is enamored by the scene. New to it, every detail stands out, nothing is missed. The elephants that seemed plodding to us before are now funky, and even the seedy side of the circus offers romance. And Circus Boy himself seems to have talent.
 
 He watches the scene play out as the evening ages. It's late now. The crowds are gone, but Circus Boy remains. And the ring master takes note of his fascination.
 
-> *And the strong man, Sampson, lifts the midget, little Tiny Tim, way up on his shoulders, way up*
-> *And carries him on down the midway*
-> *Past the kids, past the sailors, to his dimly lit trailer*
-> *And the Ferris wheel turns and turns like it ain't ever gonna stop*
-> *And the circus boss leans over, whispers in the little boy's ear, "Hey son, you wanna try the big top?"*
-> *All aboard, Nebraska's our next stop*
+> *And the strong man, Sampson, lifts the midget, little Tiny Tim, way up on his shoulders, way up*<br>
+> *And carries him on down the midway*<br>
+> *Past the kids, past the sailors, to his dimly lit trailer*<br>
+> *And the Ferris wheel turns and turns like it ain't ever gonna stop*<br>
+> *And the circus boss leans over, whispers in the little boy's ear, "Hey son, you wanna try the big top?"*<br>
+> *All aboard, Nebraska's our next stop*<br>
 
 Caught up in the mystique, the transient yet endless *now* of the circus, the Circus Boy is hooked. He joins the circus and our tale ends where it really begins.
 

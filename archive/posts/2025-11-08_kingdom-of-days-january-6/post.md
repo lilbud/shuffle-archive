@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 6"
+author: "Ken"
+excerpt: "On this date: Seven-year-old Bruce stays up late to watch Elvis, gorgeous soundboard recordings from a 1974 show and rehearsal, and more."
+tags: boston bryn-mawr cambridge does-this-bus-stop-at-82nd-street elvis if-i-should-fall-behind main-point the-main-point zero-and-blind-terry
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/19740106_3_front.jpg
+post_id: 55545
+---
 **1957**: As he will recount decades later in *Springsteen on Broadway*, seven-year-old Bruce Springsteen stays up late to watch Elvis Presley perform on the Ed Sullivan show.<br>
 
 [Watch on Youtube: Elvis Presley "Hound Dog, Love Me Tender & Heartbreak Hotel" on The Ed Sullivan Show](https://www.youtube.com/watch?v=54rUaRSGCCU)

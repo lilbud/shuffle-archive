@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Life Size Models: I'm on Fire"
+author: "Ken"
+excerpt: "Life Size Models rises above a sea of “I’m on Fire” covers with their daring, rocking arrangement of Bruce’s 1984 classic."
+tags: im-on-fire life-size-models
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/imonfire.jpg
+post_id: 17742
+---
 Meet Life Size Models.
 
 An indie band with a sound both fresh and retro, Life Size Models is a band to watch. Their brand-new single, "Cusack, 1984" is fantastic–easily my favorite new song debut during this quarantine, and if you came of age in the 1980s like me, you're going to love it.

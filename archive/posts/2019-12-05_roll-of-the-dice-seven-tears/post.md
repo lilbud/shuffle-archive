@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Seven Tears"
+author: "Ken"
+excerpt: "A finished but unreleased home recording from the Born in the U.S.A. sessions, “Seven Tears” is a beautifully sad song and a masterful example of songwriting economy."
+tags: seven-tears
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/SEVEN-TEARS-Cover.jpg
+post_id: 7819
+---
 Here's another diamond in the rough from Bruce's home studio recording sessions in early 1983–a short, tight lament called "Seven Tears."
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Seven Tears (outtake, '83)](https://www.youtube.com/watch?v=6DNs1enmtNM)

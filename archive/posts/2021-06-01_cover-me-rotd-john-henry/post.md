@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me/RotD: John Henry"
+author: "Ken"
+excerpt: "One of the all-time great American folk heroes made a nightly appearance on the Seeger Sessions Tour."
+tags: john-henry we-shall-overcome-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/john-henry.jpg
+post_id: 27148
+---
 "John Henry" is one of the most-recorded American folk songs, and for good reason: there's so much going on in it.
 
 It's a story of man vs. machine and African-American empowerment, as presumably Black railroad worker John Henry races a steam drill to prove that humans could (at least at the time) outperform technology.
@@ -8,7 +18,7 @@ It's a love story and a feminist story, as John Henry's fallen hammer is taken u
 
 And it appears to be based at least in part on a real person and real events. In fact, while the site of John Henry's famous race is up for debate (a West Virginia railroad lays claim with a memorial statue, however), John Henry himself may have been a New Jerseyan born exactly a century before the state's most famous current citizen–so says researcher Scott Reynolds Nelson, at least.
 
-The ballad of "John Henry" changes and grows as all great legends do, from the first known recording in 1924 by Fiddlin' John Carson...
+The ballad of "John Henry" changes and grows as all great legends do, from the first known recording in 1924 by Fiddlin' John Carson…
 
 [Watch on Youtube: John Henry Blues](https://www.youtube.com/watch?v=N8a-d-GAwKA)
 

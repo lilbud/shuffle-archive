@@ -1,3 +1,12 @@
+---
+layout: post
+title: "MatR/RotD: Bruce Springsteen and Jimmy Fallon: Gov. Christie Traffic Jam"
+author: "Ken"
+excerpt: "At the height of the Bridgegate scandal, Bruce reprised his 80s-era team-up with Jimmy Fallon to throw some shade Governor Christie’s way."
+categories: meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/Bruce-Springsteen-Jimmy-Fallon.jpg
+post_id: 37344
+---
 > "Time for some traffic problems in Fort Lee." — *Email from Bridget Ann Kelly to David Wildstein, August 13, 2013*<br>
 
 On the first day of school in 2013, the world's busiest bridge came to a halt.

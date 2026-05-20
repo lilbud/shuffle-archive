@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 24"
+author: "Ken"
+excerpt: "Patti Scialfa tries out for the E Street Band, Bruce plays host to a ton of guests for a special Concert to Fight Hunger, and much more on this eventful date in Springsteen history."
+tags: bobby-bandiera born-in-the-usa-tour clarence-clemons concert-to-fight-hunger darkness-tour holmdel isle-of-wight joe-ely other-band patti-scialfa portland reunion-tour seeger-sessions-tour shackled-and-drawn southside-johnny steve-van-zandt stockholm stone-pony sweden twist-and-shout under-the-boardwalk wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/bba.png
+post_id: 57179
+---
 **1973:** Bruce and the E Street Band play their third consecutive night at Fat City in Seaside Heights, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1973-0624.jpg.webp)

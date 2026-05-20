@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Wilson Pickett and Bruce Springsteen: In the Midnight Hour"
+author: "Ken"
+excerpt: "One time only: Bruce joins forces with the legendary Wilson Pickett on Pickett’s iconic hit, “In the Midnight Hour.”"
+tags: in-the-midnight-hour wilson-pickett
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/midnight.jpg
+post_id: 20933
+---
 Forty years ago tonight, Bruce Springsteen said goodbye to 1980 with an appropriate cover for its final minutes.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Midnight Hour](https://www.youtube.com/watch?v=tvQIxIQMB0g)

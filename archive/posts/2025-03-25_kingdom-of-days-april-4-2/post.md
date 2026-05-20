@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 4"
+author: "Ken"
+excerpt: "A one-off cover of “Oh, What a Beautiful Mornin” and the taping of VH1 Storytellers leads the highlights from this date in Bruce history. Watch two full shows, rare clips, and more highlights inside."
+tags: australia candys-room child dortmund east-rutherford germany largo magic-tour martin-luther-king melbourne michigan new-york-city oprah-winfrey reunion-tour sacramento seattle spirit-in-the-night springsteen-on-broadway tacoma the-promised-land tony-goldwyn tunnel-of-love-express vh1-storytellers what-a-beautiful-mornin working-on-the-highway world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/storytell.jpg
+post_id: 56368
+---
 ***New for 2025:** New entry for 1979, 1980, and 2024; video for 1993*<br>
 
 **1969:** Child continues their opening stand at the Pandemonium in Wanamassa, New Jersey. The band will play here for much of April. Red Bank's *Daily Register* spotlights the band in today's paper.<br>
@@ -62,7 +72,7 @@
 
 **2005:** Bruce tapes an episode of VH1 Storytellers before a live audience in Red Bank, where he debuts "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)" and "[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md)." Following the show, Bruce holds a rare Q&A session. Watch the show below, including the Q&A session.<br>
 
-[Watch on Youtube: Bruce Springsteen - Show Introduction (From VH1 Storytellers)](https://www.youtube.com/watch?v=uHTKQsExS8Y)
+[Watch on Youtube: Bruce Springsteen - Show Introduction (From VH1 Storytellers)](https://www.youtube.com/watch?v=uHTKQsExS8Y?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu)
 
 [Watch Video Highlight](https://videopress.com/embed/4tpSy6cv)
 
@@ -96,7 +106,7 @@ Meanwhile, *Springsteen on Broadway* continues its theatrical run at the Walter 
 
 **2024:** Bruce shakes things up in Inglewood with a setlist inspired by the return of Patti Scialfa to the E Street stage. Four tour debuts tonight, including the show-opening cover of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)," "[Tougher Than the Rest,](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)."<br>
 
-[Watch on Youtube: Bruce Springsteen & the E Street Band live](https://www.youtube.com/watch?v=rvg0VODMBYc)
+[Watch on Youtube: Bruce Springsteen & the E Street Band live "Boom Boom" Kia Forum Inglewood CA April 4, 2024](https://www.youtube.com/watch?v=rvg0VODMBYc)
 
 [Watch on Youtube: Bruce Springsteen & Patti Scialfa - "Fire" - Los Angeles, The Forum - April 4, 2024](https://www.youtube.com/watch?v=-PfWBrq46IM)
 

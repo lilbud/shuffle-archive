@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Detroit Medley"
+author: "Ken"
+excerpt: "Bruce Springsteen’s “Detroit Medley” is a glorious mash-up, homage, and rock and roll history lesson. It’s also a ton of fun. Let’s trace the lineage of this encore favorite and watch some classic performances inside."
+tags: c-c-rider detroit-medley devil-with-the-blue-dress good-golly-miss-molly jenny-jenny mitch-ryder-and-the-detroit-wheels no-nukes
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/ryder.jpg
+post_id: 12293
+---
 One of Bruce Springsteen's most popular cover songs is a actually a mash-up of two different cover medleys, each of which covers two *other* classic rock-and-roll and R&B songs. It's also a musical history lesson dating back to the early days of the blues era.
 
 Got that?

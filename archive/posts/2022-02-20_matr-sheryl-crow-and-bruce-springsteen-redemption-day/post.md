@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Sheryl Crow and Bruce Springsteen: Redemption Day"
+author: "Ken"
+excerpt: "One time only: At Stand Up for Heroes in 2019, Bruce made a surprise appearance with Sheryl Crow to perform one of her earliest songs."
+tags: redemption-day sheryl-crow
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/crow.jpg
+post_id: 32950
+---
 In March 1995, singer-songwriter Sheryl Crow accompanied First Lady Hillary Clinton to war-torn Bosnia. Crow was relatively new to the popular music scene at the time, her debut album less than two years old. But the album was a hit, and it earned her an invitation to tour with the USO.
 
 The trip deeply affected her.

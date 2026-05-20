@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Winter Blanket: Darkness on the Edge of Town"
+author: "Ken"
+excerpt: "The Winter Blanket gives us a quiet, introspective take of “Darkness on the Edge of Town” that conveys the resignation and defeat lurking at the heart of the song."
+tags: darkness-on-the-edge-of-town the-winter-blanket
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/winterblank-1.jpg
+post_id: 7879
+---
 On one level, this cover has no business working as well as it does.
 
 "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" is an angry song–anger born out of frustration.

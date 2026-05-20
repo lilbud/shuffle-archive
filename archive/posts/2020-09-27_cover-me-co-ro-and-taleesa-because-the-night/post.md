@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, CO.RO. and Taleesa: Because the Night"
+author: "Ken"
+excerpt: "This Springsteen/Depeche Mode mash-up took the European charts by storm in 1992-93."
+tags: because-the-night keel
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/coro.jpg
+post_id: 21250
+---
 Earlier this year, I introduced a *Cover Me* entry with the question: *Who had the highest charting success with Bruce Springsteen and Patti Smith's "Because the Night?"*
 
 The answer was the subject of[that entry](../2020-03-15_cover-me-10000-maniacs-because-the-night/post.md): 10,000 Maniacs. But I included a parenthetical qualifier: "in the U.S., at least."

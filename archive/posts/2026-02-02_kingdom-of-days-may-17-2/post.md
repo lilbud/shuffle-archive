@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 17"
+author: "Ken"
+excerpt: "The live debut of “Iceman,” the looooong-awaited return of “Prove It ’78,” and an epic final High Hopes stand lead the highlights from this date in Springsteen history."
+tags: barcelona devils-and-dust-tour edinburgh frankfurt germany high-hopes-tour iceman johnny-bye-bye mannheim mike-ness philadelphia prove-it-78 rising-tour river-tour river-tour-2016 san-sebastian scotland seeger-sessions-tour spain stone-pony the-ties-that-bind uncasville wolfgang-niedecken world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/469121901_1113867226762236_5258017110196717532_n.jpg
+post_id: 56781
+---
 **1981:** Bruce and the E Street Band play their second River Tour show in Edinburgh, Scotland, with “The Ties That Bind” in the opening spot for the first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - JOHNNY BYE BYE 1981 (audio)](https://www.youtube.com/watch?v=m4LeZxuFzvY)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 3"
+author: "Ken"
+excerpt: "On this date: Bruce gives a revealing radio interview, plays “Prove It ’78” for the last time for 32 years, and makes the first of many Light of Day appearances. More highlights and tons of video inside."
+tags: bill-clinton born-to-run born-to-run-tour castiles charlotte dallas dancing-in-the-dark detroit-medley don-henley ed-sciaky fire flo-and-eddie frank-bruno glory-days growin-up i-fought-the-law jackson-browne joe-grushecky kittys-back land-of-hope-and-dreams lawsuit-tour light-of-day los-angeles louisville maine max-weinberg-7 milwaukee new-york-city open-all-night pittsburgh rising-tour river-tour springsteen-on-broadway stand-up-for-heroes stone-pony streets-of-philadelphia tempe the-composure wmmr working-on-a-dream-tour world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/bs241103_02.jpg
+post_id: 61269
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1966:** The Castiles play a show at the Hullabaloo in Middletown, New Jersey.<br>

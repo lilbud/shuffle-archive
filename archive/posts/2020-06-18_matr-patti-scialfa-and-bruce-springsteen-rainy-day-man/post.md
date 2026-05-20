@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Scialfa and Bruce Springsteen: Rainy Day Man"
+author: "Ken"
+excerpt: "Smoky and sultry, “Rainy Day Man” is one of Patti Scialfa’s best tracks, brimming with breezy confidence and boasting a fantastically funky backing track."
+tags: patti-scialfa play-it-as-it-lays rainy-day-man
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/rainday.jpg
+post_id: 19060
+---
 Why, why, *why* did Patti Scialfa not release "Rainy Day Man" as the lead single (or any single) off her magnificent 2007 album *Play It As It Lays?*
 
 She was robbed, I tell you, *robbed.* "Rainy Day Man" has hit single written all over it: it's breezily funky, confidently sexy, and probably my favorite track from her three wonderful albums. How can anyone resist that "sugar sugar sugar baby bang bang touch"? That's pure pop brilliance.

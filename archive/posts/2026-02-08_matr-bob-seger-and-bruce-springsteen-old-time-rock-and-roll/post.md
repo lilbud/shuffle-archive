@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Old Time Rock and Roll"
+author: "Ken"
+excerpt: "Bruce has played Bob Seger’s “Old Time Rock and Roll” in concert twice: once in 2011 with Seger himself, and once way back in a 1980s club appearance. Catch both fun performances inside."
+tags: bob-seger cats-on-a-smooth-surface old-time-rock-and-roll
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/bob-seger-and-the-silver-bullet-band-sunspot-baby-capitol.jpg
+post_id: 15415
+---
 There's no official video for the studio version of Bob Seger's "Old Time Rock and Roll."
 
 That's just as well, because come on: how could any video compete with the iconic movie scene it's most associated with?

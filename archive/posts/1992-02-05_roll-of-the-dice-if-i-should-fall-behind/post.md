@@ -1,3 +1,13 @@
+---
+layout: post
+title: "If I Should Fall Behind"
+author: "Ken"
+excerpt: "“If I Should Fall Behind” is an enduring favorite that continuously grows, changes, and evolves like the best and strongest of relationships."
+tags: if-i-should-fall-behind live-in-dublin live-in-new-york-city lucky-town stand-up-for-heroes tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/MV5BOTY4ODllMDktMjM0OS00ZjY2LWJiNDMtYTYwZWM2MjQwZDgxXkEyXkFqcGc@._V1_FMjpg_UX1000_.jpg
+post_id: 2415
+---
 A truly great song can be re-arranged, re-recorded, re-invented, and covered many times over without ever losing its power or beauty.
 
 "If I Should Fall Behind" is one of those songs, with seemingly infinite elasticity that lends itself to constant tinkering. It's hard to keep track of all of the many different versions that Bruce has performed–some subtle, some bold–but I can't think of a single clunker among them.
@@ -12,24 +22,24 @@ What makes this song so enduringly endearing to fans is its recognition that (in
 
 (In fact, "If I Should Fall Behind" serves as a great sequel to "Tunnel of Love." It's very easy to imagine that the same narrator sings both songs–"Tunnel of Love" at the beginning of a relationship and "If I Should Fall Behind" at their wedding.)
 
-> *We said we'd walk together, baby, come what may*
-> *That come the twilight should we lose our way*
-> *If as we're walking a hand should slip free*
-> *I'll wait for you, should I fall behind wait for me*
+> *We said we'd walk together, baby, come what may*<br>
+> *That come the twilight should we lose our way*<br>
+> *If as we're walking a hand should slip free*<br>
+> *I'll wait for you, should I fall behind wait for me*<br>
 
-> *We swore we'd travel, darling, side by side*
-> *We'd help each other stay in stride*
-> *But each lover's steps fall so differently*
-> *But I'll wait for you, and if I should fall behind wait for me*
+> *We swore we'd travel, darling, side by side*<br>
+> *We'd help each other stay in stride*<br>
+> *But each lover's steps fall so differently*<br>
+> *But I'll wait for you, and if I should fall behind wait for me*<br>
 
 These first two verses establish and recognize a near-universal truth: that no matter how much in sync we may be with our chosen life companion in the beginning, that synchrony is almost impossible to maintain over years and decades without interruption.
 
 The twilight in the song represents years advancing, and as we go through life together, we grow closer in some ways and independently in others. Sometimes we focus more on ourselves, sometimes on our jobs, or our families. Sometimes we lose our connection to each other and let our hands slip free.
 
-> *Now everyone dreams of love lasting and true*
-> *Oh but you and I know what this world can do*
-> *So let's make our steps clear that the other may see*
-> *And I'll wait for you, and if I should fall behind wait for me*
+> *Now everyone dreams of love lasting and true*<br>
+> *Oh but you and I know what this world can do*<br>
+> *So let's make our steps clear that the other may see*<br>
+> *And I'll wait for you, and if I should fall behind wait for me*<br>
 
 The narrator of this song–and although I always to separate the writer from the character, it's almost impossible to do so in this case–doesn't try to promise otherwise. In fact, he pretty much predicts the bumps in the road ahead. He knows they're coming, in fact, because he's already done some walking down his that road alone: Bruce has revealed that the narrator "If I Should Fall Behind" may be the same man who sang "Darkness on the Edge of Town."
 
@@ -41,11 +51,11 @@ And that's about as much as we can ever ask of anyone.
 
 In the final verse, the lovers' wedding is nigh, and the imagery that makes for such a beautiful setting literally foreshadow the challenges that lie in store:
 
-> *Now there's a beautiful river in the valley ahead*
-> *There ‘neath the oak's bough soon we will be wed*
-> *Should we lose each other in the shadow of the evening trees*
-> *I'll wait for you, should I fall behind wait for me*
-> *Darling, I'll wait for you, and should I fall behind wait for me*
+> *Now there's a beautiful river in the valley ahead*<br>
+> *There ‘neath the oak's bough soon we will be wed*<br>
+> *Should we lose each other in the shadow of the evening trees*<br>
+> *I'll wait for you, should I fall behind wait for me*<br>
+> *Darling, I'll wait for you, and should I fall behind wait for me*<br>
 
 There's no stronger wedding vow than that.
 

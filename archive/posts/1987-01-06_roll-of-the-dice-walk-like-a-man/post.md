@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Walk Like a Man"
+author: "Ken"
+excerpt: "“Walk Like a Man” is the conclusion to Bruce’s “Daddy Trilogy,” an underplayed and under-recognized masterpiece of songwriting."
+tags: adam-raised-a-cain daddy-trilogy independence-day tunnel-of-love walk-like-a-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/footsteps.jpg
+post_id: 3216
+---
 For sheer, raw emotional power in song, I'm not sure it's possible to top the gut-punch of Bruce's "Daddy Trilogy."
 
 In 1978, Episode One–"[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)"–introduces us to a young man who feels the gravitational pull of his father's fate and rages against it, feeling resentfully trapped and predestined to follow in his father's footsteps.
@@ -12,10 +22,10 @@ Unlike the previous two chapters, there's no musical introduction to set the sta
 
 Time and place don't matter in this song, because we're listening to the son years later, reflecting back on his wedding day. Most of us (if we've been married) remember our wedding days in vivid detail, but it's notable that this day looms large in our narrator's heart more because of its significance to his relationship with his father than to his bride:
 
-> *I remember how rough your hand felt on mine on my wedding day*
-> *And the tears cried on my shoulder… I couldn't turn away*
-> *Well, so much has happened to me that I don't understand*
-> *All I can think of is being five years old following behind you at the beach, tracing your footprints in the sand… trying to walk like a man*
+> *I remember how rough your hand felt on mine on my wedding day*<br>
+> *And the tears cried on my shoulder… I couldn't turn away*<br>
+> *Well, so much has happened to me that I don't understand*<br>
+> *All I can think of is being five years old following behind you at the beach, tracing your footprints in the sand… trying to walk like a man*<br>
 
 Our parents loom large in our lives, never more so than on the days that mark a transition in our own.
 
@@ -23,34 +33,31 @@ In that first verse, the son is struck by the juxtaposition of the roughness of 
 
 As he flashes back to his boyhood, Max's percussion kicks in like a metronome, and the son begins a lifetime of walking in his father's footsteps, first literally, then figuratively.
 
-> *Well, by Our Lady of the Roses we lived in the shadow of the elms*
-> *I remember ma dragging me and my sister up the street to the church whenever she heard those wedding bells*
-> *Well, would they ever look so happy again, yeah the handsome groom and his bride*
-> *As they stepped into that long black limousine for their mystery ride*
-> *Well tonight you step away from me, and alone at the altar I stand*
-> *As I watch my bride coming down the aisle I pray for the strength to walk like a man*
+> *Well, by Our Lady of the Roses we lived in the shadow of the elms*<br>
+> *I remember ma dragging me and my sister up the street to the church whenever she heard those wedding bells*<br>
+> *Well, would they ever look so happy again, yeah the handsome groom and his bride*<br>
+> *As they stepped into that long black limousine for their mystery ride*<br>
+> *Well tonight you step away from me, and alone at the altar I stand*<br>
+> *As I watch my bride coming down the aisle I pray for the strength to walk like a man*<br>
 
 I'm not sure if Bruce has ever written a verse that packs so much nostalgia, foreboding, wonder, awe, fear, strength, and love into a single verse as this one: the mother, captivated by the glimpse of love at its peak; the son, mystified and frightened by the unknown journey of marriage; the father, fully aware of the significance of the moment and surrendering his child to it; and the bride, who will test her new husband's readiness for a shared life.
 
 And if there were any doubts about whether our narrator is indeed the same son of "Adam Raised a Cain" and "Independence Day" the last verse erases them:
 
-> *Well, now the years have gone and I've grown, yeah, from that seed you've sown*
-> *But I didn't think there'd been so many steps I'd have to learn on my own*
-> *Well I was young and I didn't know what to do when I saw your best steps stolen away from you*
-> *Now I'll do what I can, I'll walk like a man*
+> *Well, now the years have gone and I've grown, yeah, from that seed you've sown*<br>
+> *But I didn't think there'd been so many steps I'd have to learn on my own*<br>
+> *Well I was young and I didn't know what to do when I saw your best steps stolen away from you*<br>
+> *Now I'll do what I can, I'll walk like a man*<br>
 
 It's years later, and the son hints that his father may not be around any more–not physically at least, but his influence lives on, and the son does his best to honor his father.
 
 Each episode of the Daddy Trilogy builds in power and culminates in a killer couplet. Traced across time, they form an arc that we all play out with our parents and our children.
 
-**Adam Raised a Cain:**<br>
-> *Daddy worked his whole life for nothing but the pain; Now he walks these empty rooms looking for something to blame.*
+**Adam Raised a Cain:** *Daddy worked his whole life for nothing but the pain; Now he walks these empty rooms looking for something to blame.*<br>
 
-**Independence Day:**<br>
-> *Papa, now I know the things you wanted that you could not say; I swear I never meant to take those things away.*
+**Independence Day:** *Papa, now I know the things you wanted that you could not say; I swear I never meant to take those things away.*<br>
 
-and finally, **Walk Like a Man:**
-> *I was young and I didn't know what to do when I saw your best steps stolen away from you.*
+and finally, **Walk Like a Man:** *I was young and I didn't know what to do when I saw your best steps stolen away from you.*
 
 When we first start to realize that our parents have their own lives and their own dreams–both realized and unattained–it's a frightening and bewildering awakening, particularly if our parents haven't fully come to terms with their choices and sacrifices yet. We sense their anguish and frustration–their search for "something to blame," and we internalize it. We feel guilt, even though we "never meant to take those things away."
 

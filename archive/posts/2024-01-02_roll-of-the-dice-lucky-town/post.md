@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lucky Town"
+author: "Ken"
+excerpt: "“Lucky Town” is an intimate song of personal affirmation and professional re-dedication, one of the strongest tracks on a strong but under-rated album."
+tags: lucky-town mtv-unplugged saturday-night-live
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/lucky-town.jpg
+post_id: 9378
+---
 On first listen, "Lucky Town" sounds like a latter-day retelling of "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)." Our narrator feels the need to escape the confines of his home and his life, so he starts walking.
 
 But by the time the song is over, we realize that Bruce has turned "Hungry Heart" on its head: he's not running *from*, he's running *toward.*

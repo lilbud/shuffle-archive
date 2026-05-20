@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: November 9"
+author: "Ken"
+excerpt: "“Santa Ana” returns after more than three decades away, Nils steals the stage at a Seeger Sessions show in Birmingham, and Bruce debuts a brand new song: “Yankees Win.”"
+tags: austin bernie-williams birmingham devils-and-dust-tour england glory-days hall-and-oates houston independence-day joe-torre land-of-hope-and-dreams light-of-day long-tall-sally maxs-kansas-city milwaukee new-york-city nils-lofgren open-all-night pay-me-my-money-down philadelphia reunion-tour river-tour santa-ana seeger-sessions-tour spirit-in-the-night springsteen-on-broadway stand-up-for-heroes steve-van-zandt thundercrack uk uniondale used-cars waltz-across-texas world-tour-1992 yankees-win
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/bs241109_01.jpg
+post_id: 61317
+---
 ***New for 2025:** New entry for 1977 and 2024; audio for 2006*<br>
 
-**1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max’s Kansas City in New York. This is the fourth of a five-night/ten-show stand.<br>
+**1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the fourth of a five-night/ten-show stand.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1973-1109.jpg.webp)
 
-**1974:** Continuing a week of Texas shows, Bruce and the E Street Band play a show at Houston’s Music Hall.![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1974-1109.gif)<br>
+**1974:** Continuing a week of Texas shows, Bruce and the E Street Band play a show at Houston's Music Hall.![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1974-1109.gif)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Corpus_Christi_Caller_Times_1974_11_07_70-scaled.jpg.webp)
 
@@ -12,19 +22,19 @@
 
 **1975:** A scheduled show at Jai Alai Fronton in Tampa is rescheduled for the following day.<br>
 
-**1977:** Bruce and the E Street Band work on “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)” at a recording session at The Record Plant in New York City.<br>
+**1977:** Bruce and the E Street Band work on "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" at a recording session at The Record Plant in New York City.<br>
 
-**1980:** The River Tour stops at the University of Texas in Austin, where Bruce plays an acoustic arrangement of “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” and his one-and-only performance to date of “[Waltz Across Texas](../2020-07-14_cover-me-waltz-across-texas/post.md).”<br>
+**1980:** The River Tour stops at the University of Texas in Austin, where Bruce plays an acoustic arrangement of "[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)" and his one-and-only performance to date of "[Waltz Across Texas](../2020-07-14_cover-me-waltz-across-texas/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - WALTZ ACROSS TEXAS 1980 (audio)](https://www.youtube.com/watch?v=ztmhczTvKDQ)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47458526171_9a81e03089_o.jpg.webp)
 
-**1985:** On *American Top 40,* host Casey Kasem introduces “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)” with the story of how Bruce joined The Castiles.<br>
+**1985:** On *American Top 40*, host Casey Kasem introduces "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" with the story of how Bruce joined The Castiles.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp3)
 
-**1992:** Bruce brings World Tour 1992 to the Nassau Coliseum in Uniondale for a two-night stand highlighted by guest appearances. Tonight is Night One, and Steve Van Zandt joins for an encore of “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md).”<br>
+**1992:** Bruce brings World Tour 1992 to the Nassau Coliseum in Uniondale for a two-night stand highlighted by guest appearances. Tonight is Night One, and Steve Van Zandt joins for an encore of "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ba1yui05)
 
@@ -40,11 +50,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46550113892_3443ccaf9d_o.jpg.webp)
 
-**2002:** A scheduled Rising Tour show in Columbus is postponed to December due to Clarence’s detached retina.<br>
+**2002:** A scheduled Rising Tour show in Columbus is postponed to December due to Clarence's detached retina.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2002-11-09.png.webp)
 
-**2005:** After the return of “[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)” after almost a quarter-century the night before, how can Philly Night Two match Night One? With “[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md),” played for the first time in 32 years, and “[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)” for the first time (other than holiday shows) in 31 years. Oh, and the tour premiere of “[Used Cars](../2019-06-13_roll-of-the-dice-used-cars/post.md)” and a rare “[Independence Day.](../2022-03-14_roll-of-the-dice-independence-day/post.md)” A pretty amazing two-night stand from the Devils & Dust Tour.<br>
+**2005:** After the return of "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" after almost a quarter-century the night before, how can Philly Night Two match Night One? With "[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md)," played for the first time in 32 years, and "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" for the first time (other than holiday shows) in 31 years. Oh, and the tour premiere of "[Used Cars](../2019-06-13_roll-of-the-dice-used-cars/post.md)" and a rare "[Independence Day.](../2022-03-14_roll-of-the-dice-independence-day/post.md)" A pretty amazing two-night stand from the Devils & Dust Tour.<br>
 
 [Watch on Youtube: Santa Ana (solo piano) Bruce Springsteen 11/9/2005 Philly](https://www.youtube.com/watch?v=weWzFj8sPBQ)
 
@@ -54,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Spare Parts (Acoustic)](https://www.youtube.com/watch?v=quDkCHDvLLk)
 
-**2006:** Nils Lofgren makes a guest appearance during “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)” when Bruce brings the Seeger Sessions Tour to the NEC Arena in Birmingham, England. Nils is the last man standing (and singing, and playing) on stage after the band exits.<br>
+**2006:** Nils Lofgren makes a guest appearance during "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" when Bruce brings the Seeger Sessions Tour to the NEC Arena in Birmingham, England. Nils is the last man standing (and singing, and playing) on stage after the band exits.<br>
 
 [Watch on Youtube: Bruce Springsteen & Nils Lofgren - "Pay Me My Money Down" - Birmingham, 2006-11-09](https://www.youtube.com/watch?v=ZV8WxevPOaY)
 
@@ -62,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Daily_Telegraph_Sat__Nov_11__2006_.jpg.webp)
 
-**2007:** Bruce supports the Joe Torre Safe at Home benefit at Pier 60 in New York City, playing an eight-song set, including a new song for the occasion, “[Yankees Win](../2019-06-23_roll-of-the-dice-yankees-win/post.md).” Bruce’s performance of “Glory Days” (together with Patti Scialfa and Bernie Williams) will eventually be released on Bernie William’s *Moving Forward* album two years later.<br>
+**2007:** Bruce supports the Joe Torre Safe at Home benefit at Pier 60 in New York City, playing an eight-song set, including a new song for the occasion, "[Yankees Win](../2019-06-23_roll-of-the-dice-yankees-win/post.md)." Bruce's performance of "Glory Days" (together with Patti Scialfa and Bernie Williams) will eventually be released on Bernie William's *Moving Forward* album two years later.<br>
 
 [Watch on Youtube: Bruce arriving at Joe Torre dinner](https://www.youtube.com/watch?v=YHbRQgcrVPc)
 
@@ -72,7 +82,7 @@
 
 [Watch on Youtube: Glory Days (feat. Bruce Springsteen and Patti Scialfa)](https://www.youtube.com/watch?v=Zkr7zNayA5o)
 
-**2011:** Once again, Bruce makes an appearance at Stand Up for Heroes in its 5th annual edition. Tonight, Bruce performs “[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md),” “[Long Tall Sally,](../2019-04-19_cover-me-long-tall-sally/post.md)” and “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” with the Max Weinberg Big Band (Mindi Abair joins Bruce for “Spirit”), and Bruce plays a solo acoustic “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)” as well. As has become a tradition, Bruce auctions off a guitar (plus his shirt and harmonica) for $160,000.<br>
+**2011:** Once again, Bruce makes an appearance at Stand Up for Heroes in its 5th annual edition. Tonight, Bruce performs "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," "[Long Tall Sally,](../2019-04-19_cover-me-long-tall-sally/post.md)" and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" with the Max Weinberg Big Band (Mindi Abair joins Bruce for "Spirit"), and Bruce plays a solo acoustic "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" as well. As has become a tradition, Bruce auctions off a guitar (plus his shirt and harmonica) for $160,000.<br>
 
 [Watch on Youtube: Bruce Springsteen Sprit in the Night "Stand up for Heroes" 11:9:11](https://www.youtube.com/watch?v=LliLpmgnbyM)
 

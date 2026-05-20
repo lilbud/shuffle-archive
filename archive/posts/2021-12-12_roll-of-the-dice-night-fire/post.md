@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Night Fire"
+author: "Ken"
+excerpt: "When “Night Fire” finally saw the light of day,it turned out to be a lesser version of “Point Blank.” But what was it meant to be originally?"
+tags: night-fire the-ties-that-bind-the-river-collection
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/nightfire.gif
+post_id: 1915
+---
 When the long-awaited anniversary box set for *The River* was announced, fans were excited to learn it would include a collection of unreleased outtakes. The prospect of complete, unreleased River-era Springsteen music unearthed and released from the vault certainly had me salivating.
 
 What we got, however, was not *quite* what was advertised.

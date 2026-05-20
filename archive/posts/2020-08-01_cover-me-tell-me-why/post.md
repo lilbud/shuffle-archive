@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Tell Me Why"
+author: "Ken"
+excerpt: "One time only (in public, at least): Bruce Springsteen pays tribute to the Fab Four when the E Street Band plays their first-ever show in the same Atlantic City building where The Beatles once played."
+tags: tell-me-why the-beatles
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/the-beatles-if-i-fell-parlophone-4.jpg
+post_id: 19668
+---
 Not many concert venues are declared U.S. Historic Landmarks, but Atlantic City's Boardwalk Hall is one of them.
 
 From its opening days in 1929 through the present, the hall has played host to Miss America pageants, political conventions, sporting events, and of course concerts.

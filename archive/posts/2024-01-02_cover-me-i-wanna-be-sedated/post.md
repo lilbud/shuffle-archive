@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I Wanna Be Sedated"
+author: "Ken"
+excerpt: "One time only: by request, Bruce and the E Street Band (and a raucous crowd sing-a-long) barrel their way through The Ramones’ “I Wanna Be Sedated.”"
+tags: i-wanna-be-sedated the-ramones
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/sedated.jpg
+post_id: 7883
+---
 We’ll get to the Springsteen connection in a minute; for the moment, you’ll need to excuse me while I rock out to the greatest punk band ever. Turn up the volume and join me, won’t you?
 
 [Watch on Youtube: Ramones - I Wanna Be Sedated (Official Music Video)](https://www.youtube.com/watch?v=bm51ihfi1p4)

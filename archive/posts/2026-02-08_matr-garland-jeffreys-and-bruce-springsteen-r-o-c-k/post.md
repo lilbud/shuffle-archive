@@ -1,3 +1,13 @@
+---
+layout: post
+title: "R.O.C.K."
+author: "Ken"
+excerpt: "Nightly during Bruce’s 2003 holiday show stand in Asbury Park, Bruce and Garland Jeffreys lifted the show with a team-up on Garland’s 1981 anthem."
+tags: garland-jeffreys r-o-c-k
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/Escape-Artist-cover.jpg
+post_id: 14565
+---
 We can hear the E Street connection in Garland Jeffreys' "R.O.C.K." from its very first notes–that's Roy Bittan featured prominently on piano throughout.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=p4fpSxuTc7c)

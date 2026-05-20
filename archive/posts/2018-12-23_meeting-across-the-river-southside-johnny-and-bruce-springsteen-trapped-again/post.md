@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Southside Johnny and Bruce Springsteen, Trapped Again"
+author: "Ken"
+excerpt: "Bruce co-wrote “Trapped Again” with Southside Johnny and Steve Van Zandt, but he’s only performed it live once. Check it out inside."
+tags: southside-johnny steve-van-zandt trapped-again
+categories: meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/southside-johnny-and-the-asbury-jukes-trapped-again-stereo-epic.jpg
+post_id: 6282
+---
 Bruce has gifted several songs to Southside Johnny over the years, but he also contributed in small ways on songs that Southside wrote himself.
 
 Case in point: "Trapped Again," a Southside Johnny composition from 1978, but one that that contains "bits and pieces" from Bruce and Steve (including Steve's backing vocals).

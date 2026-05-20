@@ -1,8 +1,15 @@
-It’s his most covered song by a long shot.
+---
+layout: default-post
+title: "Cover Me Round-up: I'm on Fire"
+author: "Ken"
+excerpt: "It’s his most covered song by a long shot. To include all the covers of “I’m on Fire” I’ve featured on the blog over the…"
+post_id: 68319
+---
+It's his most covered song by a long shot.
 
-To include all the covers of “I’m on Fire” I’ve featured on the blog over the years, I’d need a pretty thick volume of its own. Instead, here’s a special print-only edition of *Cover Me Round-Up,* featuring my favorite versions from artists both iconic and unknown, drawn from dozens of blog posts over the years.
+To include all the covers of "I'm on Fire" I've featured on the blog over the years, I'd need a pretty thick volume of its own. Instead, here's a special print-only edition of *Cover Me Round-Up*, featuring my favorite versions from artists both iconic and unknown, drawn from dozens of blog posts over the years.
 
-Let’s start with one of my favorites by two legends, John Mayer and Keith Urban, from their concert at the Gorge Amphitheater in George, Washington in 2010. Check out the exquisite guitar interplay in this one.
+Let's start with one of my favorites by two legends, John Mayer and Keith Urban, from their concert at the Gorge Amphitheater in George, Washington in 2010. Check out the exquisite guitar interplay in this one.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RMMD891A7V4)
 
@@ -44,13 +51,13 @@ Trust me on this–take a listen.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=X16M1G5TWwE)
 
-Here’s a creative take: Dan Patrick Fulton mashes up “I’m on Fire” with “Sex on Fire” by Kings of Leon–a neat pairing that works both musically and thematically.
+Here's a creative take: Dan Patrick Fulton mashes up "I'm on Fire" with "Sex on Fire" by Kings of Leon–a neat pairing that works both musically and thematically.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_Ak4uHuUPK4)
 
 Dan gets bonus points for going all in with full costume dress and some fantastic editing, too.
 
-Now let’s take a trip around the world and meet some artists you might not have heard before. We’ll start in Canada with a cool, bass-centric arrangement by Jake McIntyre-Paul and vocalist Jessica Heaven, who perform together under the name Descartes.
+Now let's take a trip around the world and meet some artists you might not have heard before. We'll start in Canada with a cool, bass-centric arrangement by Jake McIntyre-Paul and vocalist Jessica Heaven, who perform together under the name Descartes.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vSHM2SOJKIo)
 
@@ -74,13 +81,13 @@ Next stop: The Netherlands, with a great in-studio performance brought to us by 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ylaCGSoAGGo)
 
-Next up: Irish singer-songwriter Megan O'Neill’s lovely duet with Mark Caplice, recorded at the Moat Theater in Naas.
+Next up: Irish singer-songwriter Megan O'Neill's lovely duet with Mark Caplice, recorded at the Moat Theater in Naas.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jZjLpBM84Qg)
 
 Megan and Mark's vocals work beautifully together, and those moments between verses are just sublime.
 
-Here’s Vanilla Swing, [https://vanilaswing.com/](https://vanilaswing.com/)a rockabilly/swing band from Athens, Greece. After a moody first verse, the band cuts loose with a 1950s-style rockabilly arrangement that'll get you on the dance floor. It might lose the tension in Bruce's original version but it certainly retains the heat.
+Here's Vanilla Swing, [https://vanilaswing.com/](https://vanilaswing.com/)a rockabilly/swing band from Athens, Greece. After a moody first verse, the band cuts loose with a 1950s-style rockabilly arrangement that'll get you on the dance floor. It might lose the tension in Bruce's original version but it certainly retains the heat.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iRFG-K4ahLA)
 
@@ -94,12 +101,12 @@ Back in the U.S., Philly-based Sharon Little and Tim Sonnefeld show us what Bruc
 
 If Sharon's name and voice sound familiar, you might have seen her at Light of Day in 2017 or opening for Robert Plant, Alison Krauss and T Bone Burnett before that.
 
-We’ll finish our world tour in Hawaii, with Honolulu-based singer-songwriter and multi-instrumentalist (guitar, banjo, lap steel, and ukelele) whose music incorporates rock, blues, and island influences. And we can definitely hear all three in his live version of "I'm on Fire."
+We'll finish our world tour in Hawaii, with Honolulu-based singer-songwriter and multi-instrumentalist (guitar, banjo, lap steel, and ukelele) whose music incorporates rock, blues, and island influences. And we can definitely hear all three in his live version of "I'm on Fire."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=38D3xP0rRhk)
 
 "This song is such a great example of how Bruce can take the emotions of an average everyday man and turn it into poetry," Tavana wrote on his Facebook page. "I also just love the way it feels to play it on the lap steel. It brings out another layer of grit that I think is very fitting."
 
-For all the great covers in this chapter, there are dozens more on the blog I couldn’t fit in print. My thanks to all the great artists who continue to find inspiration in “I’m on Fire” decades after we first heard it.
+For all the great covers in this chapter, there are dozens more on the blog I couldn't fit in print. My thanks to all the great artists who continue to find inspiration in "I'm on Fire" decades after we first heard it.
 
 © 2018 – 2026

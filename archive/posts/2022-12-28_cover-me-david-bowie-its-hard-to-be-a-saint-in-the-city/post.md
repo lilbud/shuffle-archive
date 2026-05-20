@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, David Bowie: It's Hard to Be a Saint in the City"
+author: "Ken"
+excerpt: "Two years gone to the day, but his music lives on. Enjoy one of the earliest covers of a Bruce Springsteen song (and a darn…"
+tags: bowie covers greetings its-hard-to-be-a-saint-in-the-city
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/bowie.jpg
+post_id: 89
+---
 Two years gone to the day, but his music lives on. Enjoy one of the earliest covers of a Bruce Springsteen song (and a darn good one): David Bowie's cover of "[It's Hard to Be a Saint in the City.](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)"
 
 [Watch on Youtube: David Bowie-It's Hard To Be A Saint In The City](https://www.youtube.com/watch?v=_pDYK4Ns-co)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tom Wopat: Meeting Across the River"
+author: "Ken"
+excerpt: "The former Dukes of Hazard star tackles Bruce’s noir classic, and it’s way better than that sentence would lead you to expect."
+tags: meeting-across-the-river tom-wopat
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/wopat.jpg
+post_id: 9381
+---
 So this is a thing: a micro-genre of 1970s TV celebrities covering Bruce Springsteen songs.
 
 [Leather Tuscadero](../2019-03-16_cover-me-suzi-quatro-born-to-run/post.md) did one, [Wonder Woman](../2019-07-17_cover-me-lynda-carter-im-on-fire/post.md) did one, and yes: Luke Duke did one.

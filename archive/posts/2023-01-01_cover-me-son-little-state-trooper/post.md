@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Son Little: State Trooper"
+author: "Ken"
+excerpt: "Son Little’s treatment of Bruce’s “State Trooper” sheds new light on the madness and violence at the heart of the song."
+tags: son-little state-trooper
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/statetrooper.jpg
+post_id: 15480
+---
 Son Little hails from Philadelphia, deep in Springsteen country. Perhaps that’s why his first Springsteen cover is a true deep cut rather than one of the countless versions of “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” and “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” out there.
 
 His cover of “[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)” will give you chills, which is entirely appropriate given that Bruce’s original version is probably his most terrifying performance on vinyl. Little starts out hewing very closely to the sound of the original *Nebraska* track, but as the song builds towards its conclusion, he let’s the song’s simmering fear and violence escape in a storm of distortion and discordance.

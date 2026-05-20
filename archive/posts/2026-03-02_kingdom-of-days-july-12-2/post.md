@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 12"
+author: "Ken"
+excerpt: "On this date: listen to the earliest known performance of a work-in-progress “Jungleland,” the debut of “Man at the Top,” and more."
+tags: austria bobby-bandiera born-in-the-usa-tour bottom-line castiles dallas darkness-tour dublin east-troy frankfurt ireland jungleland london loose-ends man-at-the-top new-york-city springsteen-on-broadway tunnel-of-love-tour uk vienna wembley west-germany working-on-a-dream-tour world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/july-12th-2024-helsinki-fi-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 57667
+---
 **1968:** The Castiles headline a gig at the Hullabaloo in Freehold.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1968-0712.jpg.webp)

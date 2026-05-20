@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 7"
+author: "Ken"
+excerpt: "Bruce plays Wrigley Field for the first time, and in Philadelphia he sets the unbroken record for his longest American show. Plus: the E Street Band plays a gig without Bruce, and more."
+tags: born-in-the-usa-tour boston chicago diddy-wah-diddy eddie-vedder fenway-park frankie hartford lee-dorsey new-orleans new-york-city peter-wolf philadelphia ralph-lauren rave-on rising-tour river-tour-2016 springsteen-on-broadway the-fever thundercrack tom-morello wrecking-ball-tour wrigley-field
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/09/bs240907_01.jpg
+post_id: 59598
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1973:** Bruce and the as yet unnamed E Street Band headline during freshman orientation at Dean College in Franklin, Massachusetts.<br>

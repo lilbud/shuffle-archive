@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Seattle, March 29, 2008"
+author: "Ken"
+excerpt: "A rough opening spurs Bruce on to an unpredictable middle show of the Magic Tour’s Pacific NW swing."
+tags: magic-tour point-blank seattle
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/20080329_2_front.jpg
+post_id: 1330
+---
 The train almost wrecked before it left the station.
 
 Bruce chose to open the show with “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” for the first (and I believe only) time ever, probably as a sly wink to the show’s venue (KeyArena). The song was immediately recognizable from the opening bars, but Charlie’s organ–the key instrument–couldn’t be heard in the mix.

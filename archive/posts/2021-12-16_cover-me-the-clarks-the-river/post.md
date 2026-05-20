@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Clarks: The River"
+author: "Ken"
+excerpt: "The Clarks transform “The River” from ballad to full-on rocker, and it works–better than one might imagine was possible."
+tags: the-clarks the-river
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/clarks.jpg
+post_id: 7164
+---
 Be great or be different if you're covering Bruce.
 
 The Clarks' version of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" is both.

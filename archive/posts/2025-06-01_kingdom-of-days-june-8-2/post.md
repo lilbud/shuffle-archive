@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 8"
+author: "Ken"
+excerpt: "Happy wedding anniversary, Bruce and Patti! Also on this date: Bruce plays a Born in the U.S.A. warm-up gig at The Stone Pony–listen to the first public airing of much of the album. Plus: the stadium breaker!"
+tags: birmingham born-in-the-usa-tour boston chicago darkness-tour florence gothenburg madison new-york-city patti-scialfa rising-tour river-tour springsteen-on-broadway stone-pony sweden the-castiles uk
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/brucepatti.jpg
+post_id: 57023
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1968:** The Castiles play a show at the Hullabaloo in Middletown, New Jersey.<br>
@@ -22,7 +32,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/dAro3Txt)
 
-**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md),” “[Darlington County,](../2020-09-10_roll-of-the-dice-darlington-county/post.md)” “[My Hometown,](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” and “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” all make their live debuts. Listen to this historic bar gig below.<br>
+**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)," "[Darlington County,](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" "[My Hometown,](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" all make their live debuts. Listen to this historic bar gig below.<br>
 
 [Watch on Youtube: Bruce Springsteen (bootleg) - Stone Pony June 6th 1984 (full album)](https://www.youtube.com/watch?v=_vH_efNE9ZU)
 
@@ -30,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1984-06-08.jpg.webp)
 
-**1985:** The stadium-breaker! Bruce’s encore of “Twist and Shout” almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.<br>
+**1985:** The stadium-breaker! Bruce's encore of "Twist and Shout" almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.<br>
 
 [Watch on Youtube: Bruce Springsteen Gothenburg 8/6/1985 Full Concert](https://www.youtube.com/watch?v=hfIsMDrMlSY)
 
@@ -38,13 +48,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Bristol_Herald_Courier__Bristol_Virginia_Tennessean_Mon__Jun_10__1985_-scaled.jpg.webp)
 
-**1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)“–written for the occasion–for the very first time.<br>
+**1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)"–written for the occasion–for the very first time.<br>
 
 [Watch on Youtube: News coverage: Bruce Springsteen marries Patti Scialfa - June 9, 1991](https://www.youtube.com/watch?v=om5UcNKA5XY)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1991-06-08.jpg.webp)
 
-**2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” for the occasion.<br>
+**2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" for the occasion.<br>
 
 [Watch on Youtube: Bruce Springsteen - YOU'RE MISSING (live @ Firenze)](https://www.youtube.com/watch?v=k7xqgp6x-44)
 

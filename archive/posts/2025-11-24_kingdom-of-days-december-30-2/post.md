@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 30"
+author: "Ken"
+excerpt: "“Streets of Philadelphia,” “Because the Night” and Jessica Rae Springsteen all debuted on this date. Video and more highlights inside."
+tags: because-the-night born-to-run-tour bryn-mawr columbus darkness-tour detroit ed-sciaky jessica-springsteen main-point new-york-city patti-smith philadelphia point-blank sha-na-na springsteen-on-broadway streets-of-philadelphia wmmr
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/philly.jpg
+post_id: 63578
+---
 ***New for 2025:** No updates*<br>
 
 **1972:** Bruce and the E Street Band open for Sha Na Na at the Ohio Theater in Columbus.<br>
@@ -6,11 +16,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1973-1230.jpg.webp)
 
-**1975:** Bruce and most of the band drop by WMMR-FM in Philadelphia for a stint as guest DJs with Ed Sciaky. That evening, the boys play a gig at the Tower Theater, where they tour premiere “[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md).” Steve is gone by that point, though–he takes ill early in the set and has to skip the remainder.<br>
+**1975:** Bruce and most of the band drop by WMMR-FM in Philadelphia for a stint as guest DJs with Ed Sciaky. That evening, the boys play a gig at the Tower Theater, where they tour premiere "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)." Steve is gone by that point, though–he takes ill early in the set and has to skip the remainder.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1975-12-30 Tower Theater, Upper Darby, PA](https://www.youtube.com/watch?v=YBV95EFNLSo)
 
-**1977:** It’s the world premiere of “Because the Night,” played for the very first time at CBGB in New York City–by *both* Bruce and Patti Smith. Patti’s recording of the song is in the can but still months away from release; when Bruce drops by her show tonight, Patti decides to premiere it, and Bruce lends his guitar and backing vocals. Perhaps Bruce might have joined Patti and her band on another song or two if not for the fire inspectors who prematurely halt the show.<br>
+**1977:** It's the world premiere of "Because the Night," played for the very first time at CBGB in New York City–by *both* Bruce and Patti Smith. Patti's recording of the song is in the can but still months away from release; when Bruce drops by her show tonight, Patti decides to premiere it, and Bruce lends his guitar and backing vocals. Perhaps Bruce might have joined Patti and her band on another song or two if not for the fire inspectors who prematurely halt the show.<br>
 
 [Watch on Youtube: Patti Smith & Bruce Springsteen - "Because the Night" - New York City, 1977-12-31](https://www.youtube.com/watch?v=UUhmhPSeH5M)
 
@@ -28,10 +38,10 @@
 
 [Watch on Youtube: News coverage - birth of Jessica Springsteen](https://www.youtube.com/watch?v=tc9IFFMNskY)
 
-**1993:** The soundtrack for the film *Philadelphia* is released, featuring a song Bruce wrote for the movie, “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md).” It will soon win him an Oscar.<br>
+**1993:** The soundtrack for the film *Philadelphia* is released, featuring a song Bruce wrote for the movie, "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)." It will soon win him an Oscar.<br>
 
 [Watch on Youtube: Bruce Springsteen - Streets of Philadelphia (Official Video)](https://www.youtube.com/watch?v=4z2DtNW79sQ)
 
-**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, still using the “B” set list due to Patti’s illness. In attendance tonight: shoe designer Faryl Morse.<br>
+**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, still using the "B" set list due to Patti's illness. In attendance tonight: shoe designer Faryl Morse.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/38699365124_d32170519c.jpg.webp)

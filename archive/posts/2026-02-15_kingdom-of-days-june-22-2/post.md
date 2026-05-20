@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 22"
+author: "Ken"
+excerpt: "The E Street Band welcomes David Sancious, Bruce says goodbye to his beard, and Bruce and the boys play Max Weinberg’s wedding. More highlights inside."
+tags: american-land another-thin-line brimingham castiles copenhagen curt-ramm david-sancious denmark devils-and-dust-tour edwin-starr gothenburg madison-square-garden manchester max-weinberg new-york-city nijmegen pink-cadillac reunion-tour rising-tour river-tour-2016 secret-garden seeger-sessions-tour so-young-and-in-love spirit-in-the-night springsteen-on-broadway steel-mill sweden the-netherlands the-river tunnel-of-love-tour twist-and-shout uk wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/june-22nd-2024-barcelona-es-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 57122
+---
 **1968:** The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.<br>
 
 **1969:** Child plays an under-the-radar show at Monmouth College in West Long Branch, New Jersey.<br>

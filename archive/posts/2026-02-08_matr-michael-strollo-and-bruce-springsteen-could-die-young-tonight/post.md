@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Could Die Young Tonight"
+author: "Ken"
+excerpt: "One time only: Bruce joins Michael Strollo on “Could Die Young Tonight” to pay tribute to Michael’s recently departed brother (and Bruce’s friend), Tony."
+tags: could-die-young-tonight exit-105 michael-strollo
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/dieyoung.jpg
+post_id: 18393
+---
 In the early 2000s, Michael Strollo made a local name for himself as the lead singer of Exit 105, a terrific Jersey Shore-based rock band. (Where else would a band with that name be from?)
 
 Strollo went solo in 2008 and released his first album, *Bedroom Eyes*, in 2010. Among the standout songs on that album is a sad, beautiful ballad called "Could Die Young Tonight."

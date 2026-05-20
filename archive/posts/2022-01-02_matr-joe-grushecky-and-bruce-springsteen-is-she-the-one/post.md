@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky and Bruce Springsteen: Is She The One"
+author: "Ken"
+excerpt: "Bruce contributed harmony vocals and a guitar riff to this bright, happy track from Joe’s 2006 album."
+tags: is-she-the-one joe-grushecky
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/goodlife.jpg
+post_id: 29192
+---
 The first time Joe Grushecky and Bruce Springsteen collaborated, they covered some dark and bloody ground. Joe's landmark [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) was produced by Bruce, who appears on almost every track on the 1995 album.
 
 Their next project together–eleven years later–was a whole lot lighter. Joe's 2006 album *A Good Life* was as bright and optimistic as its title suggests.

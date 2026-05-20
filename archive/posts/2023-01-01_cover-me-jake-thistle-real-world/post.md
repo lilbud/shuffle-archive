@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jake Thistle: Real World"
+author: "Ken"
+excerpt: "He may only be fifteen, but New Jersey musician Jake Thistle just recorded a mic drop cover of Bruce’s “Real World” in its original arrangement. You need to watch this one."
+tags: jake-thistle real-world
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/jake.jpg
+post_id: 14843
+---
 Every week brings a new wave of Springsteen covers, and I try to watch them all.
 
 The vast majority of them are just what you’d expect: a fan in home studio paying tribute to their idol in passable but unremarkable fashion. I watch them once and then move on to the next. But when I find the rare gem, I bring it to your attention here.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Los Angeles, March 15, 2016"
+author: "Ken"
+excerpt: "A fantastic opener to a sizzling three-night stand that sent off the L.A. Sports Arena off to meet the Wrecking Ball in style."
+tags: human-touch hungry-heart i-wanna-marry-you lonesome-day los-angeles out-in-the-street river-2016-tour sports-arena the-river thunder-road wrecking-ball
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/bs160315_01.jpg
+post_id: 1143
+---
 It can be a bit hard to focus on a concert when Rocky Balboa is rocking out in front of you. But that's the risk when you catch a show in L.A., where the stars mix right in with the hoi polloi. (And yes, that's Stallone actually taking photos of the crowd (you can see my arm circled), who were chanting "Rocky! Rocky! Rocky!" before the show, to which Sly mugged and waved and generally ate it up. It was charming.)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/sly2.jpg.webp)
@@ -10,7 +20,7 @@ The building was tall and steep, but not wide, so the crowd was pushed forward a
 
 Okay, *now* the show:
 
-When Bruce plays multiple nights in one city, you know going in that the first night is going to be a pretty standard, safe, almost conservative setlist–in preparation for the surprises to come. So I went in expecting a standard show and wasn't surprised the show was only three songs different from the prior show in Oakland. But what a difference three songs can make: Out with "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Prove It All Night,](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" and "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)"; in with "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" (naturally, given the impending destruction of the arena), "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)"... and I'll take that trade any day. If Oakland felt like an entirely retro show, LA1 was more balanced, and "Human Touch" in particular was a wonderful treat–I'd only seen that one live twice, and this was by far the strongest performance.
+When Bruce plays multiple nights in one city, you know going in that the first night is going to be a pretty standard, safe, almost conservative setlist–in preparation for the surprises to come. So I went in expecting a standard show and wasn't surprised the show was only three songs different from the prior show in Oakland. But what a difference three songs can make: Out with "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Prove It All Night,](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" and "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)"; in with "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" (naturally, given the impending destruction of the arena), "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)"… and I'll take that trade any day. If Oakland felt like an entirely retro show, LA1 was more balanced, and "Human Touch" in particular was a wonderful treat–I'd only seen that one live twice, and this was by far the strongest performance.
 
 [Watch on Youtube: Wrecking Ball - Bruce Springsteen - Los Angeles Sports Arena - 15th March 2016](https://www.youtube.com/watch?v=vVKAs-9iNTM)
 

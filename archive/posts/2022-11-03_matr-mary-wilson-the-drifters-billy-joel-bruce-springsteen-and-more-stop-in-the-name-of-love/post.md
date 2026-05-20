@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Mary Wilson, The Drifters, Billy Joel, Bruce Springsteen and more: Stop! In the Name of Love"
+author: "Ken"
+excerpt: "One time only: Bruce joins a truly all-star assembly an early Rock Hall induction to perform one of the greatest girl group songs of all time."
+tags: rock-and-roll-hall-of-fame stop-in-the-name-of-love the-supremes
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/stop.jpg
+post_id: 39131
+---
 We're still a week away from hearing Bruce Springsteen's new album of R&B covers, *Only the Strong Survive*, and only a couple of days out from the induction of this year's Rock and Roll Hall of Fame class.
 
 So while we wait for both, let's take a look back at the only time Bruce covered one of the all-time greatest girl group songs, at one of the earliest ever Rock Hall inductions.
@@ -8,9 +18,9 @@ So while we wait for both, let's take a look back at the only time Bruce covered
 
 It's still one of Motown's most recognizable singles and ranks #254 on *Rolling Stone's* 500 Greatest Songs of All Time and #38 on *Billboard's* 100 Greatest Girl Group Songs of All Time. When The Supremes were inducted into the Rock and Roll Hall of Fame in only its third year, it's not surprising that "Stop! In the Name of Love" was featured in the evening's all-star jam session.
 
-And what a jam session that was: Mary Wilson of The Supremes was there to be inducted, as were The Drifters, The Beach Boys, and Bob Dylan. Surrounding them on stage were Neil Young, George Harrison and Ringo Starr, Mick Jagger, John Fogerty, Billy Joel, Elton John, Little Richard, Jeff Beck, Paul Simon, and many more... including Little Steven, Clarence Clemons, Max Weinberg, and Patti Scialfa.
+And what a jam session that was: Mary Wilson of The Supremes was there to be inducted, as were The Drifters, The Beach Boys, and Bob Dylan. Surrounding them on stage were Neil Young, George Harrison and Ringo Starr, Mick Jagger, John Fogerty, Billy Joel, Elton John, Little Richard, Jeff Beck, Paul Simon, and many more… including Little Steven, Clarence Clemons, Max Weinberg, and Patti Scialfa.
 
-Oh, and Bruce Springsteen on the... tambourine?
+Oh, and Bruce Springsteen on the… tambourine?
 
 [Watch Video Highlight](https://videopress.com/embed/SxWA7ZnT)
 

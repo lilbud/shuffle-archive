@@ -1,3 +1,11 @@
+---
+layout: post
+title: "ROTD: Lucky Town Introduction"
+author: "Ken"
+excerpt: "In the long arc of Bruce Springsteen’s career, 1992 is remembered as the year when the E Street Band was officially in the rearview mirror,…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/02/luckytown-album.webp
+post_id: 67846
+---
 In the long arc of Bruce Springsteen's career, 1992 is remembered as the year when the E Street Band was officially in the rearview mirror, the year of the double-album gamble, and the year both critics and fans sharpened their knives for the first time.
 
 Neither *Human Touch* nor *Lucky Town* were well-received at the time. As Bruce would put it many years later, *Human Touch* in particular was "star-challenged." And for good reason: the album sounds like an artist trying to find his footing in a high-tech studio. It's overly slick, over-produced, and more dated-sounding than anything else in Bruce's catalog.

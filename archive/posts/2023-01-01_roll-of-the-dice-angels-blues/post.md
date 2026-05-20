@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Angel's Blues"
+author: "Ken"
+excerpt: "Is “Angel’s Blues” the missing link in “Thunder Road’s” lineage? You decide, but one thing’s for certain: this mysterious Springsteen original disappeared as soon as it debuted."
+tags: angels-blues thunder-road
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/angelsblues-2.jpg
+post_id: 13399
+---
 Now where did *this* come from? And perhaps more importantly, where did it go?
 
 "Angel's Blues" seems to have spontaneously generated in the middle of the Wild & Innocent Tour and disappeared after its one and only performance.

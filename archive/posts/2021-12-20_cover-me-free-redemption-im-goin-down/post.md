@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Free Redemption: I'm Goin' Down"
+author: "Ken"
+excerpt: "Free Redemption is a new band out of Italy, and to call them a tribute band would be a vast disservice. Their mission is to reinterpret Bruce’s music, and they hit it out of the park with “I’m Goin’ Down.”"
+tags: free-redemption im-goin-down
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/freeredeem.png
+post_id: 17352
+---
 No doubt about it: my favorite part of writing this blog is when readers send me their own covers of Bruce’s original songs.
 
 I don’t always write a blog post about them, because the list of covers on my to-blog list is so long already (and always growing), but I do enjoy watching them.

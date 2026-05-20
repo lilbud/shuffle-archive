@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I Wish It Would Rain"
+author: "Ken"
+excerpt: "With a tragic backstory and a standout out David Ruffin vocal performance, “I Wish It Would Rain” practically dares any cover contender to meet its anguish. Springsteen was up for the challenge."
+tags: i-wish-it-would-rain only-the-strong-survive the-temptations
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/10/wishrain.jpg
+post_id: 45724
+---
 "You've gotta be nuts to try and sing that song after David Ruffin sang it," confessed Bruce Springsteen to Andy Greene in *Rolling Stone.* "But I found my own little part of it... I found the hurt and the center of human emotion in it."
 
 Honestly, he didn't have to look very hard.

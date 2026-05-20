@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "My Generation"
+author: "Ken"
+excerpt: "Bruce joins Pete Townshend and Roger Daltry on stage to play The Who’s classic anthem."
+tags: my-generation pete-townshend roger-daltry the-who
+categories: meeting-across-the-river
+post_id: 1229
+---
 In 2015, the MusicCares MAP fund honored Pete Townshend, and Bruce was in attendance both to pay tribute and to join Pete Townshend and Roger Daltrey on stage for “My Generation.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=a6BrJJgDtxM)

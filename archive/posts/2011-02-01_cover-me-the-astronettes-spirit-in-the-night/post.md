@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Astronettes: Spirit in the Night"
+author: "Ken"
+excerpt: "From deep in the vaults comes one of the oldest recorded Springsteen covers, unreleased until 1995 and featuring a blink-and-you’ll-miss-it David Bowie cameo."
+tags: david-bowie spirit-in-the-night the-astronettes
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/ava-cherry.jpg
+post_id: 12001
+---
 One of the very first covers of a Bruce Springsteen song went unreleased for more than twenty years after it was recorded. And while you may not know the band that recorded it, you certainly know the producer who masterminded it.
 
 It may not be much of an understatement to say that in 1973-74, David Bowie seemed borderline obsessed with Bruce Springsteen. As many Springsteen fans know, Bowie recorded covers of not [one](../2011-02-01_cover-me-david-bowie-growin-up/post.md/) but [two](../2018-01-10_cover-me-david-bowie-its-hard-to-be-a-saint-in-the-city/post.md) tracks from Bruce's first album: "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)."

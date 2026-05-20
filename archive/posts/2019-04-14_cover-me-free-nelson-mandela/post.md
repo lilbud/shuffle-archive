@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Free Nelson Mandela"
+author: "Ken"
+excerpt: "When Bruce stepped on a South African stage for the first time, he opened with this faithful cover of The Special AKA’s protest song, “Free Nelson Mandela.” Watch that pro-shot performance inside."
+tags: cape-town free-nelson-mandela the-special-a-k-a
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/the_special_aka-nelson_mandela_s.jpg
+post_id: 3028
+---
 When Bruce took the stage in South Africa for the first time ever, we knew we were in for something special right from the beginning.
 
 From the High Hopes Tour [opening show on January 26, 2014](../2025-01-31_where-the-band-was-cape-town-january-26-2014/post.md/), here’s a wonderful pro-shot video of Bruce’s opening number: a cover of “Free Nelson Mandela” by The Special A.K.A.

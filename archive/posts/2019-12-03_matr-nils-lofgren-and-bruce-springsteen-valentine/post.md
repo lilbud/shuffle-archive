@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Nils Lofgren and Bruce Springsteen, Valentine"
+author: "Ken"
+excerpt: "The E Street Band may have been on hiatus, but relationships endured. From 1991, here’s Nils and Bruce together again on Nils’ sweet love song, “Valentine.”"
+tags: nils-lofgren silver-linings valentine
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/valentine_sin-us-9014.jpg
+post_id: 7523
+---
 During the E Street Diaspora of the 1990s, the band members focused on their solo careers. Nils in particular was prolific during this period, releasing six albums over a period of only seven years, starting with *Silver Linings* in 1991 (Nils' first album in five years).
 
 If you wondered at the time whether the band's friendships were able to survive the suspension of their professional relationships, you didn't have to listen to *Silver Linings* very long to get your answer.

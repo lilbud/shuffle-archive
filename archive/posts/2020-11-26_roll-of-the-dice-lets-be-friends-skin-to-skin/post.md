@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Let's Be Friends (Skin to Skin)"
+author: "Ken"
+excerpt: "Haters gonna hate it, but I’m gonna love it: “Let’s Be Friends” is one of my favorite tracks on The Rising."
+tags: lets-be-friends the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/letsbefriends.jpg
+post_id: 829
+---
 I'm gonna say it: I *love* this song, and it's in my top three tracks on *The Rising.*
 
 Fans love to lavish the hate on this song–heck, even Bruce seems embarrassed by it (he only ever performed it once). But from the first listen, "Let's Be Friends" hooked me with it's summery, shimmery, feel-good R&B groove.

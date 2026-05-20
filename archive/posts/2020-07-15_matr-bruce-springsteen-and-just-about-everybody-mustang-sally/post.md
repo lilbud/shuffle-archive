@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and just about everybody: Mustang Sally"
+author: "Ken"
+excerpt: "Too many team-ups! “Mustang Sally” is one of those songs you just gotta play with someone else, I guess, because the list of Bruce’s “Mustang Sally” guest spots is a long one."
+tags: mack-rice mustang-sally
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/Mustang-Sally-Wilson-Pickett.jpg
+post_id: 19326
+---
 It seems like *everybody's* covered "Mustang Sally" at one time or another, so it shouldn't come as a surprise that Bruce has covered it with so many different artists as well.
 
 "Mustang Sally" was a hit from the beginning for songwriter and original artist Mack Rice when he released it in the spring of 1965, peaking at #15 on the R&B chart.

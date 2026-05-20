@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 30"
+author: "Ken"
+excerpt: "On this date: Bruce releases The Rising, his first E Street Band album in 18 years. Watch the day’s festivities inside. Plus: the premiere of “All the Way Home” in 1992, reggae versions of “Born in the U.S.A.” and “My Hometown,” and more."
+tags: benidorm born-in-the-usa born-to-run-tour bremen detroit east-rutherford empty-sky glory-days independence-day into-the-fire jah-love lonesome-day my-hometown nightline one-love people-get-ready richfield river-tour rock-creek-park roger-mcguinn southside-johnny spain terry-magovern the-rising today-show tunnel-of-love-tour washington-dc west-germany working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/rising.jpg
+post_id: 57850
+---
 **1974:** Bruce and the E Street Band co-headline with Roger McGuinn at The Troubadour in West Hollywood, a surprise gig that only became public three days prior. (Bruce doesn't actually take the stage until almost 2am, however, so this technically qualifies as an entry for July 31.)<br>
 
 **1975:** Bruce wraps up a three-night stand at the Carter Barron Amphitheater in Washington DC's Rock Creek Park, where he debuts his cover of The Drifters' "Up on the Roof."<br>

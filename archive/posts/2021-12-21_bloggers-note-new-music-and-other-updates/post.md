@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Blogger's Note: New Music and Other Updates"
+author: "Ken"
+excerpt: "For a summer without live music, it’s been a remarkably busy time for Bruce Springsteen. Here’s a quick round-up of the most must-watch/listen events of the summer."
+tags: boston-college from-my-home-to-yours letter-to-you
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/Bruce-Springsteen-Letter-to-You.jpg
+post_id: 21241
+---
 Well, hello there!
 
 I don't write these updates very often (the last one was six months ago) since this isn't really a news site, but there's enough happening in the Springsteen world these days that I thought it was worth doing a brief recap in case you've missed any of it.

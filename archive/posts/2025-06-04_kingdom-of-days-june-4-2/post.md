@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 4"
+author: "Ken"
+excerpt: "Happy birthday, Born in the U.S.A.! Celebrate by watching some historic footage from the Newcastle ’85 performance (and the hilarious British music critics’ reviewing it); then listen to the world premieres of “American Skin (41 Shots)” and “Further On (Up the Road).”"
+tags: american-skin atlanta bologna born-in-the-usa born-in-the-usa-tour dancing-in-the-dark devils-and-dust-tour further-on-up-the-road glory-days italy london my-fathers-house newcastle reunion-tour river-tour stockholm sweden thunder-road uk wholl-stop-the-rain working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/bitusa.jpg
+post_id: 56996
+---
 ***New for 2025:** Audio for 2000 and 2005; new entry for 2017*<br>
 
 **1981:** Bruce and the E Street Band play their fifth of six shows at London's Wembley Arena on the River Tour. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29124/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-4-1981-Wembley-Arena-London-UK.html).<br>

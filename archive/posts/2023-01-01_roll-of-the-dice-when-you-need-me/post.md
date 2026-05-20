@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Roll of the Dice: When You Need Me"
+author: "Ken"
+excerpt: "“When You Need Me” was one of the first songs Bruce recorded for Tunnel of Love, but given the direction of the final album, this pop trifle never stood a chance."
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/needme.jpg
+post_id: 15843
+---
 Ask a fan or a critic about Bruce Springsteen's [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) album, and odds are pretty good you'll hear the term "divorce album."
 
 At the very least, we tend to characterize the album as an anthology of love gone wrong, infected by doubt, insecurity, shame, and secrets.

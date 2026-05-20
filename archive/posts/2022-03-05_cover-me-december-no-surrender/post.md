@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, December: No Surrender"
+author: "Ken"
+excerpt: "This powerful new cover from Glasgow-based December couldn’t be more timely. Take a listen and then donate to World Central Kitchen’s Ukrainian relief efforts today."
+tags: december no-surrender
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/nosurrender.jpg
+post_id: 33101
+---
 Glasgow-based indie-rock band December just released their latest single, and it couldn't be more timely.
 
 Their cover of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" is terrific–nostalgic but fresh, moody but brash, and most importantly as defiant and determined as Bruce's original.

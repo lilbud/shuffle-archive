@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, SMAF and Stjerne: Streets of Philadelphia"
+author: "Ken"
+excerpt: "Singer-songwriter Stjerne teams up with the eclectic SMAF! combo on a beautiful, longing, torchy arrangement of “Streets of Philadelphia.”"
+tags: smaf stjerne streets-of-philadelphia
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/smaf.jpg
+post_id: 23942
+---
 SMAF is a German combo that describe their music as “a soundtrack Quentin Tarantino would dance to on acid at a soul music party,” inspired by “spaghetti westerns, Motown, and reggae.”
 
 I don’t know about any of that, but I do know that their recently released cover of “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)” (filmed in late 2019) is absolutely stunning.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Don't Wanna Be"
+author: "Ken"
+excerpt: "This melodic ancestor to “Jackson Cage” captures The Big Man standing just a bit too close to the mic."
+tags: clarence-clemons i-dont-wanna-be the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/wannabe.jpg
+post_id: 29803
+---
 Back in the River era, Bruce used to record his band's rehearsal sessions so he could hear how they sounded as a unit and tweak his arrangements as required.
 
 Since none of the recordings were meant to be kept for posterity, he didn't use the best of equipment. In fact, he used a boom box situated so that it would capture the band's full sound.

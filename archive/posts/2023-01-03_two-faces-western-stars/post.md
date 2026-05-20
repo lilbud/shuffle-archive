@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Two Faces: Western Stars"
+author: "Ken"
+excerpt: "Introducing guest-blogger Katy Crane in her first of hopefully many appearances. Today she offers a counter-take to my interpretation of “Western Stars.”"
+tags: western-stars
+categories: two-faces
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/f23405-20190425-bruce-springsteen-western-stars.jpg
+post_id: 30616
+---
 Editor's Note
 
 ***Editor's Note:*** *For four years, I've been working my way through Bruce's catalog, song by song, day by day. I've had some great guest-writers along the way, but always in the "Where the Band Was" series. When it comes to analyzing Bruce's songs, I've held the Roll of the Dice series with a pretty tight grip.*<br>

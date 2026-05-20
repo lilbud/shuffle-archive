@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and USA For Africa: We Are the World"
+author: "Ken"
+excerpt: "Bruce was just one of many who participated in the USA For Africa project, but his contributions provided some of the song’s most memorable moments."
+tags: u-s-a-for-africa we-are-the-world
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/wearetheworld.jpg
+post_id: 32252
+---
 > "Anytime somebody asks you to take one night of your time to stop people starving to death... you can't say no." — *Bruce Springsteen, January 28, 1985*<br>
 
 In late November 1984, the biggest names in British and Irish popular music banded together in the studio to record "Do They Know It's Christmas," which became an instant smash hit and raised more than £8 million for African famine relief in the song's first year.

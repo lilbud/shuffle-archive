@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Train Song"
+author: "Ken"
+excerpt: "One of the first songs Bruce ever recorded in a studio featured one heck of a plot twist."
+tags: steel-mill the-train-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/trainsong-1.jpg
+post_id: 29631
+---
 Wait, *what?*
 
 I did *not* see that plot twist coming, and I'm betting you won't either, even with this spoiler-ish setup.

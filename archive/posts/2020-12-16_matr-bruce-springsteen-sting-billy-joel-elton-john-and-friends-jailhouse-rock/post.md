@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Sting, Billy Joel, Elton John, and Friends – Jailhouse Rock"
+author: "Ken"
+excerpt: "At an Elvis-themed benefit concert, Bruce joined Sting, Billy Joel, Elton John, Paul Simon, and more great performers on an encore of Elvis’ classic “Jailhouse Rock.”"
+tags: billy-joel elton-john elvis-presley jailhouse-rock james-taylor jon-bon-jovi paul-simon sting
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/jailhouse.jpg
+post_id: 13624
+---
 It was a team-up for the ages, an Elvis-themed evening featuring an all-star cast of performers.
 
 At Sting and Trudie Styler’s Rainforest Foundation benefit concert in 1995, Sting was joined on stage by Billy Joel, Elton John, James Taylor, Paul Simon, Jon Bon Jovi, and the late Geoffrey Oryema and Jessye Norman. Oh, and Bruce Springsteen of course.

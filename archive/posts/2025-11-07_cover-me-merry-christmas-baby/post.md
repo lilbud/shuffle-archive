@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Merry Christmas, Baby"
+author: "Ken"
+excerpt: "Bruce’s “other” Christmas song is almost as well-known and much-loved as his “Santa Claus,” even though he’s never performed it beyond New Jersey or New York."
+tags: a-very-special-christmas johnny-moores-three-blazers live-1975-85 merry-christmas-baby otis-redding
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/merryxmasbaby.jpg
+post_id: 6315
+---
 If Bruce is associated with one holiday song, it's "Santa Claus is Comin' to Town." But if he's associated with *two*, the second one is most certainly "Merry Christmas Baby" — and yet, he's only ever played it in concert four times with the E Street Band, and never at all outside of New Jersey or New York State.
 
 "Merry Christmas Baby" doesn't go quite as far back as does "Santa," but it's close: it was first recorded in 1947 by Johnny Moore's Three Blazers.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Jesse Malin and Bruce Springsteen, Broken Radio"
+author: "Ken"
+excerpt: "Watch Jesse Malin and Bruce Springsteen team up in the studio and on stage for Jesse’s gorgeous, heartbreaking ode to his mom, “Broken Radio.” It’s one of my all-time favorite Springsteen collaborations."
+tags: broken-radio jesse-malin
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/broken-radio.png
+post_id: 12012
+---
 Among the many, many reasons I have to be grateful to Bruce Springsteen, I owe him thanks for introducing me to the music of Jesse Malin.
 
 After listening to Jesse perform songs from his debut album at Bruce's Asbury Park holiday shows in 2003, I ran right out and bought a copy of *The Fine Art of Self-Destruction*. It remains one of my favorite and most-played albums to this day. I didn't know at the time that I'd caught Malin at a key moment in his evolution from punk band frontman to singer-songwriter, but I could certainly sense that in his music. That album felt at once fresh and nostalgic, and I already want to go listen to it again as soon as I finish writing.

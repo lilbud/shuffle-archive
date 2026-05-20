@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Start Me Up"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen joins The Rolling Stones, Tina Turner, Little Richard, and a host of Hall of Fame all-stars for a cover of The Stones’ iconic “Start Me Up.”"
+tags: rock-and-roll-hall-of-fame start-me-up the-rolling-stones
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/the_rolling_stones-start_me_up_s_1.jpg
+post_id: 18391
+---
 Back in 1989, the Rock and Roll Hall of Fame was still in its infancy, and its annual induction ceremony was held not at New York City's Madison Square Garden but at the much more intimate Waldorf-Astoria Hotel.
 
 That fourth class of inductees was an amazing one: The Rolling Stones, The Temptations, Dion, and Stevie Wonder were among the luminaries welcomed into the Hall that night, and Bruce Springsteen was there to congratulate them, along with Little Richard, Tina Turner, Pete Townshend, Lou Reed, and more.

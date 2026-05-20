@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Rising"
+author: "Ken"
+excerpt: "An anthem cloaked as an elegy, a gospel wrapped in rock, “The Rising” is one of Bruce’s finest, most important, and most superbly crafted songs."
+tags: the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/therising.jpg
+post_id: 22424
+---
 It started as an elegy.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=r5_8gpiSotI)

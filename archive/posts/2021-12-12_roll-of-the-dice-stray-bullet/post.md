@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Stray Bullet"
+author: "Ken"
+excerpt: "“Stray Bullet” is a dark and haunting outcast from the River sessions."
+tags: river-outtakes stray-bullet
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/stray-bullet.jpg
+post_id: 442
+---
 Wow.
 
 I remember listening to "Stray Bullet" for the first time when it was released in 2015 along with other lost outtakes from the River sessions on *The Ties That Bind: The River Collection*. "Where did *this* come from?" I thought.

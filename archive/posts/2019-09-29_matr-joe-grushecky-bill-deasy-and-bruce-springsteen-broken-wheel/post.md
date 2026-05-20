@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky, Bill Deasy and Bruce Springsteen, Broken Wheel"
+author: "Ken"
+excerpt: "You won’t hear Bruce’s voice on Joe Grushecky’s “Broken Wheel,” but you’ll certainly hear his guitar lending power to an already killer song."
+tags: broken-wheel east-carson-street joe-grushecky
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/broken-wheel.jpg
+post_id: 12485
+---
 Joe Grushecky's very fine *East Carson Street* album is known by Springsteen fans primarily because it's the home of the studio version of "Another Thin Line," co-written and performed by both Bruce and Joe.
 
 But while "Another Thin Line" may be the only song on Joe's 2009 album that features Bruce's vocals, it's not the only song to which Bruce contributed his talents.

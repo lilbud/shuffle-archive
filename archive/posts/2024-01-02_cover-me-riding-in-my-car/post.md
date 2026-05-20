@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Riding in My Car"
+author: "Ken"
+excerpt: "Bruce has covered Woody Guthrie’s social and political folk songs time and again, but it was only a matter of time before Bruce discovered Guthrie’s children’s songs, too. “Riding in My Car” must have proved irresistible–which is exactly the descriptor for Bruce’s cover version."
+tags: car-song riding-in-my-car til-we-outnumber-them woody-guthrie
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/30childrens-slide-PQKM-superJumbo.jpg
+post_id: 15413
+---
 Bruce Springsteen his covered the work of Woody Guthrie time and again.
 
 "[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)" was a River Tour staple; "[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/)" was a featured encore throughout the Working on a Dream Tour.

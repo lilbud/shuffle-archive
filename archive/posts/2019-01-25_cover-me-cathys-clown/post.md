@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Cathy's Clown"
+author: "Ken"
+excerpt: "Listen in on a 1988 soundcheck and hear Bruce take a run at covering the Everly Brothers’ “Cathy’s Clown.”"
+tags: cathys-clown tacoma the-everly-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/The-Everly-Brothers-Cathys-Clown-1519336727-640x637.jpg
+post_id: 7224
+---
 When the Everly Brothers released "Cathy's Clown" in 1960, it quickly went to #1 in both the U.S. (for five weeks) and U.K. (for seven). Billboard ended up ranking it at #3 for the entire year, and it would prove to be the Everlys most successful single ever and their final #1 hit.
 
 [Watch on Youtube: The Everly Brothers "Cathy's Clown"](https://www.youtube.com/watch?v=z3-E9JebDtU)

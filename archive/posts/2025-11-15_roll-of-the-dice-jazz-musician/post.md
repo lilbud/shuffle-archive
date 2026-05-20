@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Jazz Musician"
+author: "Ken"
+excerpt: "The road to Tenth Avenue starts with this 1972 outtake."
+tags: jazz-musician tenth-avenue-freeze-out
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/jazzmusician.webp
+post_id: 33131
+---
 The road to Tenth Avenue started way back in 1972.
 
 The original line-up for what would become *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*included ten songs, evenly split between full-band recordings and Springsteen solo performances.

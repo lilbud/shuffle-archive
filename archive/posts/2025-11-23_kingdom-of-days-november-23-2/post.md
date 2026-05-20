@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 23"
+author: "Ken"
+excerpt: "Bruce’s video for “Born in the U.S.A.” premiered on MTV on this date–check out the coverage, plus: guest appearances by Bono, Dave Stewart, and Dion, Bruce’s first-ever show in the Netherlands, and more."
+tags: amsterdam austin because-the-night bono born-in-the-usa born-to-run born-to-run-tour bruce-springsteen-band dave-stewart dion if-i-should-fall-behind largo mansion-on-the-hill miami mtv netherlands orlando pat-karwin rising-tour river-tour salem student-prince the-big-muddy vincent-pastore washington-dc world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/bitusa.gif
+post_id: 62429
+---
 ***New for 2025:** Review for 1975*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park. Afterward, Bruce zips over to Linden to join Pat Karwin and the Psychotic Blues Band in a late-night jam session at the New Plaza Theater.<br>

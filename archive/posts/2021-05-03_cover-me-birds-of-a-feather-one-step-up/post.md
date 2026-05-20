@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Birds of a Feather: One Step Up"
+author: "Ken"
+excerpt: "Birds of a Feather recorded a lovely, lonely performance of “One Step Up” during their pandemic Acoustic Sessions. Take a listen inside."
+tags: birds-of-a-feather one-step-up
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/birdsonestep.jpg
+post_id: 26868
+---
 Blogger's Note
 
 ***Blogger's Note:*** *If you're a Springsteen fan, have musical talent, and think you can bring a fresh perspective to one of Bruce's songs, there's still time to enter the s[econd annual Cover Me contest](https://www.noiespringsteen.com/contest/). There's no fee to enter, and the contest attracts submissions from around the world.*<br>

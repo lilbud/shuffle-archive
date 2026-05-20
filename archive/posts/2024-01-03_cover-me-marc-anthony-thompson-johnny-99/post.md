@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Marc Anthony Thompson: Johnny 99"
+author: "Ken"
+excerpt: "Wondering how the founder of Chocolate Genius ended up in the Sessions Band? Listen to this cover and wonder no longer."
+tags: chocolate-genius johnny-99 march-anthony-thompson
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/ChocolateGenius.jpg
+post_id: 30564
+---
 I discovered Marc Anthony Thompson around the same time that Bruce Springsteen did: at the New York Guitar Festival's *Nebraska Project* tribute concert in January 2006.
 
 There was a stellar array of on-stage talent that night, from Michelle Shocked to The National to Martha Wainwright and more. And in the audience was the original songwriter, appreciatively taking in how other artists interpreted his songs.

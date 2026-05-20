@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Spanish Eyes"
+author: "Ken"
+excerpt: "A rich, romantic predecessor to “I’m on Fire” inspired by a 1960 Ben E. King hit single, “Spanish Eyes” deserves more airplay than it received."
+tags: spanish-eyes the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/01/spanish.jpg
+post_id: 40850
+---
 In the midst of the Born to Run Tour, Bruce Springsteen and his former manager Mike Appel filed mutual lawsuits that precluded Springsteen from entering a recording studio for almost a year.
 
 By the time the dust finally settled in May 1977, Bruce had quite a backlog of material. He wasted no time getting back into the studio with the band, and over the months that followed they recorded at least sixty songs, only ten of which would see release a year later on *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).*

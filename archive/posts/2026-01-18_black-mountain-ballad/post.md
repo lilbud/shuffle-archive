@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Black Mountain Ballad"
+author: "Ken"
+excerpt: "“Black Mountain Ballad” improves on “Don’t Back Down on Our Love” in almost every way. As we noted in the early pages of this book,…"
+post_id: 65839
+---
 "Black Mountain Ballad" improves on "Don't Back Down on Our Love" in almost every way.
 
 [Watch on Youtube: Bruce Springsteen - Black Mountain Ballad (Official Audio)](https://www.youtube.com/watch?v=9DIW3ow7PjU)

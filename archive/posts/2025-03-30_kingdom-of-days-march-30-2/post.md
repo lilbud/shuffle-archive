@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 30"
+author: "Ken"
+excerpt: "Listen in on a 1993 rehearsal session, watch Jimmy Barnes guest-star with Bruce at Hanging Rock, and more."
+tags: australia denver glasgow hanging-rock jimmy-barnes julianne-phillips macedon reunion-tour river-tour scotland world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/20130330_front.jpg
+post_id: 56315
+---
 ***New for 2025:** New entry for 1978, 1979, 1996, and 2008*<br>
 
 **1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for "[Darkness on the Edge of Town.](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)"<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 29"
+author: "Ken"
+excerpt: "On this date: Bruce and the E Street Band open the MTV Video Music Awards, play a one-time-only cover of “(I Heard That) Lonesome Whistle” and more."
+tags: born-in-the-usa-tour child dancing-in-the-dark darkness-tour i-heard-that-lonesome-whistle im-a-rocker largo mtv-video-music-awards nashville new-york-city philadelphia pittsburgh ramrod rising-tour springsteen-on-broadway steel-mill the-rising vernon washington-dc world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/admin-ajax-79.jpg
+post_id: 59500
+---
 **1969:** Child plays a gig at the Ocean Side Surf Club in Sea Bright, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1969-0829.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 17"
+author: "Ken"
+excerpt: "Bruce joins The Who on stage, plays a “surprise” Light of Day set, and more."
+tags: barack-obama cleveland del-fuegos earth ghost-of-tom-joad-tour janey-dont-you-lose-heart joe-grushecky john-fogerty light-of-day long-tall-sally nils-lofgren rock-and-roll-hall-of-fame southside-johnny springsteen-on-broadway the-who willie-nile
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/lodjam.jpg
+post_id: 55605
+---
 **1969:** For a short time, Bruce led a band called Earth. On this date, the band plays a two-hour show at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1969-0117.jpg.webp)

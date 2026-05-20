@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: John Prine and Bruce Springsteen, Take a Look at My Heart"
+author: "Ken"
+excerpt: "From John Prine’s 1991 album The Missing Years comes this wry, bitter rocker, written by Prine and John Mellencamp."
+tags: john-prine take-a-look-at-my-heart
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/takealookatmyheart_sin-gb.jpg
+post_id: 806
+---
 Bruce Springsteen has been a fan of John Prine since the early seventies, and they once shared a stage in the late eighties. But it took until 1991 for them to record their first and only collaboration.
 
 Bruce's participation was assured from the outset: bumping in to each other at a southern California Italian restaurant on the first day of recording sessions for John's *The Missing Years* album, Bruce gave John his phone number and told him, "When you guys get into the record and have something to play, please invite me over. I'd just love to play guitar or harmonica or sing or whatever."

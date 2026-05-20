@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Dead Man Walkin'"
+author: "Ken"
+excerpt: "Bruce’s quiet, introspective title track for Tim Robbins’ award-winning film earned him his second Oscar nomination."
+tags: dead-man-walkin dead-man-walking
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/deadman.jpg
+post_id: 3214
+---
 *Dead Man Walking* is based on a book by the same name, a true story of convicted murderers awaiting execution and the nun who develops a relationship with them and acts as their spiritual counselor throughout the remainder of their lives.
 
 In 1995, Tim Robbins adapted the book into a film, sparking renewed debate about the legitimacy of the death penalty and garnering critical acclaim. Robbins personally asked Bruce to write a song for the film. Bruce watched the film and then delivered a quiet, introspective reflection from the point of view of the murderer. It plays over the film's end credits.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "You Mean So Much to Me"
+author: "Ken"
+excerpt: "“You Mean So Much to Me” is a rarity: a Bruce Springsteen Band song that survived well into the E Street Band era, allowing us to trace the evolution of Bruce’s sound from 1971 to 1974. Take a listen inside."
+tags: you-mean-so-much-to-me
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/19740119_3_front.jpg
+post_id: 15485
+---
 If you want to trace the rapid evolution in Bruce's sound during the first half of the 1970s, there's no better case study than his lost original, "You Mean So Much to Me."
 
 Readers of this blog know by now that Bruce was just as prolific a songwriter prior to his first album as he's been since–but that first album tends to be a demarcation: there's the stuff that came before *Greetings from Asbury Park, N.J.* and the stuff the came after, and once Bruce started touring behind his album, his pre-label Steel Mill and Bruce Springsteen Band material rarely received any outings.

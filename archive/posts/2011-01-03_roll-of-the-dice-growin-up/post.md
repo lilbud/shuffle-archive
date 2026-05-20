@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Growin' Up"
+author: "Ken"
+excerpt: "An ode to never growing up that never gets old."
+tags: eloise greetings-from-asbury-park growin-up
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2011/01/growinupmod.jpg
+post_id: 38034
+---
 The irony was there at the outset.
 
 Long before "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," Bruce Springsteen was pairing lyrics that said one thing with music that said the opposite, with a wink that conveyed confidence one wouldn't expect from a struggling 22-year-old singer-songwriter.
@@ -46,23 +56,23 @@ And yet beneath its playfulness, there's a lot of seriousness. It's as if Bruce 
 
 How do you enter the world of adulthood without losing the vitality of youth? How do you fit into a world that asks for conformity without sacrificing the rebellion demanded by rock and roll? The famous real-life introvert and on-stage extrovert tells us how it's done:
 
-> *Well I stood stone-like at midnight suspended in my masquerade*
-> *And I combed my hair till it was just right and commanded the night brigade*
-> *I was open to pain and crossed by the rain and I walked on a crooked crutch*
-> *I strode all alone into a fallout zone, came out with my soul untouched*
-> *I hid in the clouded wrath of the crowd, when they said "sit down" I stood up*
-> *Ooh, ooh, growin' up*
+> *Well I stood stone-like at midnight suspended in my masquerade*<br>
+> *And I combed my hair till it was just right and commanded the night brigade*<br>
+> *I was open to pain and crossed by the rain and I walked on a crooked crutch*<br>
+> *I strode all alone into a fallout zone, came out with my soul untouched*<br>
+> *I hid in the clouded wrath of the crowd, when they said "sit down" I stood up*<br>
+> *Ooh, ooh, growin' up*<br>
 
 Before we even dive into the meaning of the lyrics, let's take a moment to appreciate their artfulness. Bruce wastes no time at all before diving into alliteration with "stood stone-like," and internal rhymes abound (stone-like and midnight, pain and rain, alone and zone, clouded and crowd… almost every line has rhymes within rhymes).
 
 As for the content, it's pretty clear: the masquerade is Bruce's stage persona, and midnight is when we're most likely to find him, backed by his night brigade of a band. By day in his secret identity, he writes from painful experience and insecurity; at night, on stage, he rebels and rises above, despite the discouragement of the authority figures around him.
 
-> *The flag of piracy flew from my mast, my sails were set wing to wing*
-> *I had a jukebox graduate for first mate, she couldn't sail but she sure could sing*
-> *And I pushed B-52 and bombed 'em with the blues with my gear set stubborn on standing*
-> *I broke all the rules, strafed my old high school, never once gave thought to landing*
-> *I hid in the clouded warmth of the crowd, when they said "come down" I threw up*
-> *Ooh, ooh, growin' up*
+> *The flag of piracy flew from my mast, my sails were set wing to wing*<br>
+> *I had a jukebox graduate for first mate, she couldn't sail but she sure could sing*<br>
+> *And I pushed B-52 and bombed 'em with the blues with my gear set stubborn on standing*<br>
+> *I broke all the rules, strafed my old high school, never once gave thought to landing*<br>
+> *I hid in the clouded warmth of the crowd, when they said "come down" I threw up*<br>
+> *Ooh, ooh, growin' up*<br>
 
 The second verse treads similar ground, albeit more playfully. (The connective thread between *jukebox graduate, B-52*, and *bombing with the blues* ranks among the best of Bruce's early lyrics.) Again though, there are some almost-hidden confessions to be appreciated: he *never once gave thought to landing*. Bruce had no Plan B, which is probably a major reason why he never needed one.
 
@@ -72,12 +82,12 @@ It's interesting, though, that Bruce colors both of them as "clouded." Neither s
 
 The final verse places Bruce firmly on the precipice of adulthood, establishing roots in his community even as his alter ego gains a national following.
 
-> *I took month-long vacations in the stratosphere and you know it's really hard to hold your breath*
-> *Swear I lost everything I ever loved or feared, I was the cosmic kid in full costume dress*
-> *But my feet they finally took root in the earth but I got me a nice little place in the stars*
-> *And I swear I found the key to the universe in the engine of an old parked car*
-> *I hid in the mother breast of the crowd, when they said "pull down" I pulled up*
-> *Ooh, ooh, growin' up*
+> *I took month-long vacations in the stratosphere and you know it's really hard to hold your breath*<br>
+> *Swear I lost everything I ever loved or feared, I was the cosmic kid in full costume dress*<br>
+> *But my feet they finally took root in the earth but I got me a nice little place in the stars*<br>
+> *And I swear I found the key to the universe in the engine of an old parked car*<br>
+> *I hid in the mother breast of the crowd, when they said "pull down" I pulled up*<br>
+> *Ooh, ooh, growin' up*<br>
 
 Going out on tour as a rising rock star probably feels a lot like an extended vacation in the stratosphere–it's easy to lose your grounding, your sense of home and identity. Bruce hadn't yet reached anything resembling any level of commercial success, but with a record deal finally in the bag, he could smell it and taste it.
 

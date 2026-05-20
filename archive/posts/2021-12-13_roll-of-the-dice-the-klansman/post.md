@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Klansman"
+author: "Ken"
+excerpt: "“The Klansman” is one of the best unreleased outtakes from the Born in the U.S.A. sessions–a stark, morally ambiguous tale of the day a KKK recruiter visits a young boy’s home."
+tags: dont-back-down the-klansman
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/klansman-blu-ray-movie-title.jpg
+post_id: 4890
+---
 On March 10, 1983, Bruce sat down in his new home studio in his Los Angeles home, switched on a drum machine, and recorded "The Klansman," a dark reminiscence of a home visit by a KKK recruiter through the eyes of a child.
 
 [Watch on Youtube: Bruce Springsteen-The Klansman](https://www.youtube.com/watch?v=1ewhMge_MXM)

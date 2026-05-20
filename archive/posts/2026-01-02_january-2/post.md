@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: January 2"
+author: "Ken"
+excerpt: "Bruce’s podcast appearance in 2017 makes national news when the topic turns to the president-elect."
+tags: big-sur donald-trump marc-maron steel-mill wtf
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/15871453_10154665954800250_5995822331153399158_n.jpg
+post_id: 63728
+---
 **New for 2026:** *New entry for 1978*<br>
 
 **1970:** Steel Mill starts out the year in California, where they play a gig at the Esalen Institute in Big Sur.<br>

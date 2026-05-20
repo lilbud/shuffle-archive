@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 2"
+author: "Ken"
+excerpt: "On this date: Bruce teams up with Joe Grushecky, Robert Gordon, Dion, and Marah. Plus: the earliest recorded “Santa Claus is Comin’ to Town,” and more."
+tags: all-along-the-watchtower atlanta badlands baton-rouge born-in-the-usa-tour born-to-run-book born-to-run-tour boston brendan-obrien code-of-silence dallas dion-dimucci exit-105 flood-aid germany ghost-of-tom-joad-tour heartbreak-hotel if-i-should-fall-behind into-the-fire joe-grushecky land-of-hope-and-dreams light-of-day link-wray magic-tour mannheim marah pittsburgh rising-tour river-tour robert-gordon rochester santa-claus-is-comin-to-town sunrise world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/19801202_2_front.jpg
+post_id: 62661
+---
 ***New for 2025:** New entry for 1981; video for 2002 and 2004*<br>
 
 **1975:** Bruce and the E Street Band usher in the holiday season with their first of two shows at Boston's Music Hall. On the set list: Bruce's very first performance of "[Party Lights](../2022-06-01_cover-me-party-lights/post.md)," and the earliest captured performance of "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)."<br>

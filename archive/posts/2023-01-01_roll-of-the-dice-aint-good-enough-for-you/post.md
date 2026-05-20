@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Ain't Good Enough for You"
+author: "Ken"
+excerpt: "The curious tale of how an ad-libbed in-joke turned a throwaway outtake into a concert crowd-pleaser."
+tags: aint-good-enough-for-you darkness-on-the-edge-of-town jimmy-iovine the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/aintgood.jpg
+post_id: 10321
+---
 How good a songwriter is Bruce Springsteen?
 
 So good that he can ad-lib a namecheck of his sound engineer in a song, keep it in the vault for over thirty years, release it when *everyone* knows the guy's name… and then magically, the lyrics make even more sense then they did when recorded.

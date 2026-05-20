@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Somewhere North of Nashville"
+author: "Ken"
+excerpt: "The shortest song on Western Stars is also the most poignant, a two-minute character study in loss and regret."
+tags: somewhere-north-of-nashville western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/nashville.jpg
+post_id: 35382
+---
 > "Sometimes you've been too beat up or haven't healed enough of the fear out of you to know a good thing when you've found it. Sometimes you just gravitate to the pain. It's what you're used to. It's how you recognize yourself. It feels like home. It feels more familiar to you than love. So that's where you go.
 >
 > You don't know how to hold on to love, but you know how to hold on to hurt."

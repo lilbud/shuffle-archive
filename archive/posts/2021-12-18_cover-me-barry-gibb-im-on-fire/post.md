@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Barry Gibb: I'm on Fire"
+author: "Ken"
+excerpt: "Turnabout’s fair play: After Bruce paid homage to The Bee Gees on his 2014 tour, Barry Gibb returned the favor by covering Bruce a few months later."
+tags: barry-gibb im-on-fire
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/barry-gibb.jpg
+post_id: 10633
+---
 One of the highlights of Bruce Springsteen’s Australian High Hopes Tour was his gorgeously arranged cover of “[Stayin’ Alive](../2020-09-01_cover-me-stayin-alive/post.md)” by the Bee Gees. It was so good that even Barry Gibb was blown away by it. (Don’t take my word for it, though.)
 > Dear Bruce [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw), just been blown away by your Stayin Alive. You brought it back to life.Thank you!
 >

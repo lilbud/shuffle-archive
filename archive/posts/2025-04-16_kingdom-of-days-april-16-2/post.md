@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 16"
+author: "Ken"
+excerpt: "Quite the grab bag of highlights today: a guest appearance by Mike Ness, a gorgeous acoustic “Point Blank,” the premiere of “Pilgrim in the Temple of Love,” and a Bruce concert gets panned by two critics in the same paper."
+tags: albany bad-luck born-in-the-usa-tour clarence-clemons germany ghost-of-tom-joad-tour japan london los-angeles mike-ness munich point-blank sheffield tokyo uk upstage working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/20120416_booklet2.jpg
+post_id: 56455
+---
 ***New for 2025:** New entry for 1983 and 2013; video for 2009; review for 2012*<br>
 
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>

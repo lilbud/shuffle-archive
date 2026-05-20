@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Royals"
+author: "Ken"
+excerpt: "Bruce found a kindred spirit in the lyrics of Lorde’s 2013 mammoth breakout hit and paid tribute to the young singer-songwriter when he performed it in Auckland on the High Hopes Tour."
+tags: lorde royals
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/lorde.jpg
+post_id: 17745
+---
 If it seems like "Royals" was everywhere in 2013-2014, that's because it was.
 
 Not only did Lorde's debut single top charts around the world, not only did it remain atop the Billboard Hot 100 for an astonishing nine straight weeks, it went on to become one of the best-selling singles *of all time–*certified diamond by the Recording Industry Association of America for surpassing the ten million milestone, a feat Bruce has never even once achieved (although in fairness, Bruce hit his popularity peak in the pre-streaming age).

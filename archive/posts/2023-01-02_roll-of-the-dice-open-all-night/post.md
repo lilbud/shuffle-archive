@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Open All Night"
+author: "Ken"
+excerpt: "The only electric rocker on Nebraska, “Open All Night” was destined for greater heights than its original arrangement."
+tags: living-on-the-edge-of-the-world nebraska open-all-night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/openallnight_sin-gb-07i.jpg
+post_id: 21784
+---
 > "[‘Open All Night'] is totally Chuck Berry-inspired, because he was the master of everyday imagery." — Bruce Springsteen to Conan O'Brien, *Conan O'Brien Needs a Friend*, October 25, 2020
 
 Nebraska is often labeled as Bruce's "acoustic album," but that's not entirely true. There's one track that's not only electric but destined to rock from the start,

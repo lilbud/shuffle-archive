@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Little Steven, Bye Bye Johnny"
+author: "Ken"
+excerpt: "Chuck Berry’s “Bye Bye Johnny” inspired one of Bruce’s own songs, but strangely he’s only covered it a few times. Here’s his most recent performance, with Little Steven and the Disciples of Soul."
+tags: bye-bye-johnny chuck-berry little-steven-and-the-disciples-of-soul
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/byebye.jpg
+post_id: 3764
+---
 True fact: Chuck Berry wrote *five* songs about Mr. Johnny B. Goode, so you'd be forgiven for confusing any of them with the titular and most famous of them.
 
 "Bye Bye Johnny" debuted two years after "[Johnny B. Goode](../2018-01-22_meeting-across-the-river-check-berry-bruce-springsteen-and-the-e-street-band/post.md)." When last we left Johnny, his mother was proclaiming and predicting that someday he'd be a man, bandleader, and a star with his name in lights. When "Bye Bye Johnny" begins, Johnny's mom is putting her boy on a bus and sending him west to stardom.

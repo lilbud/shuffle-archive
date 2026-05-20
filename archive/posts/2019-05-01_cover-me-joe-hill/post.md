@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Joe Hill"
+author: "Ken"
+excerpt: "One time only: Bruce acknowledges International Worker’s Day by opening his High Hopes show in Tampa with a sober performance of “Joe Hill.”"
+tags: earl-robinson i-dreamed-i-saw-joe-hill-last-night joe-hill paul-robeson pete-seeger
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/JoeHill2-1.jpg
+post_id: 9383
+---
 On International Worker's Day 2014, Bruce opened his show in Tampa on a sober note with a one-time only performance of the Labor Union anthem, "I Dreamed I Saw Joe Hill Last Night."
 
 [Watch on Youtube: Bruce Springsteen- "Joe Hill" (Tampa, FL 05/01/14)](https://www.youtube.com/watch?v=T2UF8yw89yE)

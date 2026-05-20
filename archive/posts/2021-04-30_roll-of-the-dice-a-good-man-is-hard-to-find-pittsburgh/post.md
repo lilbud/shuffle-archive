@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: A Good Man Is Hard to Find (Pittsburgh)"
+author: "Ken"
+excerpt: "From the early days of the Born in the U.S.A. recording sessions comes this jewel box of a song that captures the impact of war on the ones left behind."
+tags: a-good-man-is-hard-to-find-pittsburgh tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/goodman-1.jpg
+post_id: 26705
+---
 > There was something in those stories of [Flannery O'Connor] that I felt captured a certain part of the American character that I was interested in writing about. They were a big, big revelation. She got to the heart of some part of meanness that she never spelled out, because if she spelled it out you wouldn't be getting it. It was always at the core of every one of her stories–the way that she'd left that hole there, that hole that's inside of everybody. *–Bruce Springsteen to Will Percy, DoubleTake, Spring 1998*<br>
 
 It's easy to overlook a song like "A Good Man Is Hard to Find (Pittsburgh)."

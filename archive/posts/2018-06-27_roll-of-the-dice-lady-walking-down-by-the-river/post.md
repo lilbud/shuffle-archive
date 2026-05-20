@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lady Walking Down by the River"
+author: "Ken"
+excerpt: "Bruce’s first published work in a college literary magazine leads to a Steel Mill song that would be recorded forty years later."
+tags: lady-walking-down-by-the-river seascape steel-mill steel-mill-retro
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/a-walk-by-the-river-pierre-andre-brouillet.jpg
+post_id: 2696
+---
 Here's another one from the wayback machine: "Lady Walking Down by the River" is a Springsteen original from 1970, performed twice only (that we know of) with Steel Mill.
 
 [Watch on Youtube: Bruce Springsteen and Steel Mill: Lady Walking Down by the River 1970 01 13, The Matrix](https://www.youtube.com/watch?v=-mc--9u9W80)

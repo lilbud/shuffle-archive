@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Camilla Horn"
+author: "Ken"
+excerpt: "An all-but-forgotten German film actress inspired one of Bruce’s earliest character studies."
+tags: camilla-horn
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/camilla.jpg
+post_id: 35373
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/clip_103307049.jpg.webp)
 
 In 1926, a 23-year-old German ingenue was catapulted from obscurity to stardom when she was cast in the role of Gretchen in the German production of *Faust*, a role originally intended for famous actress Lillian Gish.

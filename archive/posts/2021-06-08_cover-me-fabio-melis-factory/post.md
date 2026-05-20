@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Fabio Melis: Factory"
+author: "Ken"
+excerpt: "Fabio Melis turns in a strong Cover Me contest contender with a rock arrangement of “Factory” that’s more E Street than the E Street Band’s version."
+tags: cover-me-contest fabio-melis factory
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/fabio.jpg
+post_id: 27774
+---
 You guys, I'm starting to panic.
 
 When the organizers of this year's [*Cover Me* contest](https://www.noiespringsteen.com/contest/) asked me to join their jury, I leapt at the opportunity.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 25"
+author: "Ken"
+excerpt: "Christmas in May, the first E Street Band “Red Headed Woman” and a full video document of a Wrecking Ball show lead the highlights for this date in Springsteen history."
+tags: dublin france frankfurt germany ghost-of-tom-joad-tour ireland italy magic-tour manchester new-york-city paris ramrod red-headed-woman reunion-tour river-tour-2016 rome santa-claus-is-comin-to-town springsteen-on-broadway uk washington-dc world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/live-downloads-review-may-25th-2023-amsterdam-ne-johan-v0-axHIRvkfuSjd1GWI1GrlHPBLHPllniHmjolSvN5Xdf4.webp
+post_id: 56836
+---
 ***New for 2025:** New entry for 1979, 1982, 1983, and 2024; audio for 1993, 1999, and 2008*<br>
 
 **1973:** Bruce plays the second of three nights at Childe Harold in Washington, DC.<br>

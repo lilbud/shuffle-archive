@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 22"
+author: "Ken"
+excerpt: "The legendary Boston Music Hall stand of ’77 began on this date. Plus: Bruce guests with Neil Young in Sydney, Rosie comes out for the first time in the post-reunion era, and more."
+tags: atlanta australia barack-obama boston castiles cincinnati down-by-the-river growin-up lawsuit-tour magic-tour neil-young portland prove-it-78 renegades rising-tour river-tour-2016 springsteen-on-broadway sydney trapped tunnel-of-love-express-tour we-take-care-of-our-own wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/03/march-22nd-2024-las-vegas-nv-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56241
+---
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1968-0322.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Jumbeliah"
+author: "Ken"
+excerpt: "“Jumbeliah” marks a transition in Bruce’s songwriting and provides a fascinating look at one of the only original compositions he created for the short-lived Dr. Zoom and the Sonic Boom."
+tags: dr-zoom-and-the-sonic-boom jumbeliah the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/zoom.jpg
+post_id: 5126
+---
 "Jumbeliah" is a curiosity–a fully realized Bruce Springsteen original composition penned during Bruce's brief transition from his heavier Steel Mill writing to his more bluesy, hookier Bruce Springsteen Band writing. In fact, Bruce wrote "Jumbeliah" during his super-brief (if you blinked, you'd have missed it) Dr. Zoom period.
 
 Listening the to the earliest known recording of "Jumbeliah" below–from the latter of the only two concerts Dr. Zoom and the Sonic Boom is known to have played, back in 1971–it's easier to hear Bruce's seventies songwriting style emerging:

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Born to Be Wild"
+author: "Ken"
+excerpt: "Twice only: Bruce and the E Street Band tackle Steppenwolf’s anthem, “Born to Be Wild.”"
+tags: born-to-be-wild steppenwolf
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/bornwild.jpg
+post_id: 18397
+---
 It's been called the first heavy metal song (or at the very least, the first song to use that term), but it was originally written by Mars Bonfire as a ballad.
 
 Thankfully, Steppenwolf got to it first and released their now immortal anthem in the summer of 1968.

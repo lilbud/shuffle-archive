@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: All or Nothin' at All"
+author: "Ken"
+excerpt: "In which Bruce redeems one of his least compelling compositions decades after it was released."
+tags: all-or-nothin-at-all human-touch woodlands
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/all-or-nothing.jpg
+post_id: 523
+---
 The maddening thing about Bruce's *Human Touch* album is that there are some really good songs ruined by terrible arrangements and over-production (I'm talking to *you*, "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)").
 
 And then there are the throwaway songs, weightless in substance without even the saving grace of a pleasant pop hook. But even those can fool you: I spent a couple of decades hating "All or Nothin' at All" for its over-dense guitars, grating vocals, and unimaginative lyrics… and then one night in 2014, he whips it out in concert for only the second time in 20+ years, and dang if it isn't one of the night's highlights. Makes me wonder what he could do with "[Real Man](../2020-04-15_roll-of-the-dice-real-man/post.md)" if he tried.

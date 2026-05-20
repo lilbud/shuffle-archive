@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 13"
+author: "Ken"
+excerpt: "Listen to highlights from Toronto ’77 and Starkville ’81."
+tags: canada lawsuit-tour river-tour san-francisco starksville steel-mill toronto
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/toronto-1977.jpg
+post_id: 55945
+---
 **1970:** Steel Mill opens for Boz Scaggs for the second of three nights at The Matrix in San Francisco.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1972-02-14.jpg.webp)

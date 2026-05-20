@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: August 22"
+author: "Ken"
+excerpt: "On this date: Bruce makes a guest appearance with Levon Helm, Little Steven reunites with the E Street Band, and the original Miami Horns make their final appearance on an E Street stage."
+tags: american-land atlanta born-in-the-usa born-in-the-usa-tour born-to-run-tour boston cadillac-ranch darkness-tour detroit-medley east-rutherford giants-stadium im-goin-down la-bamba lawsuit-tour levon-helm madison-square-garden mansfield miami-horns new-york-city reunion-tour richfield springfield springsteen-on-broadway steve-van-zandt stone-pony trapped working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/aug85.jpg
+post_id: 59400
+---
 ***New for 2025:** Audio for 1985*<br>
 
-**1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver’s in Boston.<br>
+**1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver's in Boston.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1973-08-22.png.webp)
 
-**1975:** Bruce and the boys play their second of three nights at Alex Cooley’s Electric Ballroom in Atlanta.<br>
+**1975:** Bruce and the boys play their second of three nights at Alex Cooley's Electric Ballroom in Atlanta.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0822.jpg.webp)
 
@@ -20,13 +30,13 @@
 
 [Watch on Youtube: Madison Square Garden (8/22/1978)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1D4drCKmEeRRz7nBqEGW0pV)
 
-**1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for “Travelin’ Band” and “[I’m Bad, I’m Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md).”<br>
+**1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for "Travelin' Band" and "[I'm Bad, I'm Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Travelin' Band (1984-08-22)](https://www.youtube.com/watch?v=OvXIhNv4tKE)
 
 [Watch Video Highlight](https://videopress.com/embed/UrcFPCOo)
 
-**1985:** At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven makes a guest appearance during the encores. This show is available as part of Bruce’s official archive series–get it [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html).<br>
+**1985:** At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven makes a guest appearance during the encores. This show is available as part of Bruce's official archive series–get it [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html).<br>
 
 [Watch on Youtube: Seeds (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=s-K4f0YDhsg)
 
@@ -44,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-22.png.webp)
 
-**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm’s All-Stars for “[Up on Cripple Creek](../2018-01-29_meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/post.md)” and “[Lucille](../1976-01-07_cover-me-lucille/post.md/).”<br>
+**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm's All-Stars for "[Up on Cripple Creek](../2018-01-29_meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/post.md)" and "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gxirqWhO)
 
@@ -54,7 +64,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/bFZgm7vd)
 
-**1999:** Bruce and the E Street Band play their second of five Reunion shows at Boston’s Fleet Center.<br>
+**1999:** Bruce and the E Street Band play their second of five Reunion shows at Boston's Fleet Center.<br>
 
 [Watch on Youtube: Adam Raised A Cain Boston 22-8-99](https://www.youtube.com/watch?v=bMDI9tdyfbc)
 

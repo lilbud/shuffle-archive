@@ -1,3 +1,13 @@
+---
+layout: post
+title: "A Teenager in Love"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen, Billy Joel, James Taylor, Lou Reed, Reuben Blades, and Paul Simon serve as honorary Belmonts for Dion’s 1987 benefit performance of “A Teenager in Love.”"
+tags: a-teenager-in-love billy-joel dion-and-the-belmonts james-taylor lou-reed paul-simon reuben-blades
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/admin-ajax-29.jpg
+post_id: 20491
+---
 They weren't the Belmonts, but they'd do in a pinch.
 
 On the evening of December 13, 1987, Paul Simon organized a benefit concert at Madison Square Garden in order to raise awareness and money to fight homelessness among New York City's children.

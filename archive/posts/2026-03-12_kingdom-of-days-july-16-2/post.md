@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 16"
+author: "Ken"
+excerpt: "On this date: Bruce kicks off a magical show at Circus Maximus with “New York City Serenade” (complete with strings), plays a one-time-only cover of “Honky Tonk,” and makes surprise appearances at Jersey shore bar gigs. More highlights inside."
+tags: albany carhaix child darkness-tour devils-and-dust-tour france honky-tonk italy jon-bon-jovi keep-a-knockin midnight-thunder new-orleans outlaw-pete philadelphia river-2016-tour river-tour rome southside-johnny stone-pony working-on-a-dream working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/rome16.webp
+post_id: 57724
+---
 **1969:** Child plays their second of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.<br>
 
 **1974:** Bruce reschedules a planned gig at The Stone Balloon in Newark, Delaware for the following month.<br>

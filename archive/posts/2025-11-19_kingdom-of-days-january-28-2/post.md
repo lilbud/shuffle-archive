@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 28"
+author: "Ken"
+excerpt: "Behind the scenes of “We Are the World” and the Tunnel of Love Express Tour, plus much more on this date in Springsteen history."
+tags: american-music-awards atlanta bruce-springsteen-band cape-town chicago dancing-in-the-dark ghost-of-tom-joad-tour high-hopes-tour los-angeles pete-seeger protection river-tour south-africa st-louis tunnel-of-love-express-tour valentines-day we-are-the-world we-shall-overcome
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/watw.jpg
+post_id: 55811
+---
 **1972**: The Bruce Springsteen Band plays The Captain’s Garter in Neptune, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1972-0128.jpg.webp)

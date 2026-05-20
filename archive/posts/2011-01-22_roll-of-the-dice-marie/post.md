@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Marie"
+author: "Ken"
+excerpt: "In 1972, Bruce exorcised his toxic relationship demons with this harsh but beautiful character study."
+tags: marie
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/marie.jpg
+post_id: 30736
+---
 > "I had a gal in New Jersey who broke my heart, ripped it to shreds, trampled on it, and sent it to me COD in a paper bag. So I was out of there on the first ride west, no looking back. I was going to build a new life in California, three thousand miles away from the pain. But it didn't take long before my luck ran out and my money ran out. And it just wasn't gonna happen." — Bruce Springsteen, *Western Stars* (2019)
 
 In the waning days of 1971, Bruce Springsteen left New Jersey, headed west and didn't look back.
@@ -16,16 +26,16 @@ Like the obviously autobiographical "[Family Song](../2020-02-23_roll-of-the-dic
 
 His lyrics are unusually harsh, his narrator clearly portrayed as a victim–raped, skinned, cut and carved.
 
-> *Marie, she comes to me in the twilight*
-> *When the wind blows down ‘cross the river, so cold the fishermen cry*
-> *She rapes me in a rage of rainbow violence*
-> *‘Till my bare nerves, they sing like the strings of a violin*
-> *And the room seeps into a savage silence*
-> *Soaked in colors, red as blood, blue as night*
-> *And Marie she skins me alive, carves her initials in my side*
-> *Lures me with her purr, then cuts me with her knife*
-> *And the horses pound like thunder, they bolt like lightning on her range*
-> *She feels she's going under and she zeroes in the rain, she's so strange*
+> *Marie, she comes to me in the twilight*<br>
+> *When the wind blows down ‘cross the river, so cold the fishermen cry*<br>
+> *She rapes me in a rage of rainbow violence*<br>
+> *‘Till my bare nerves, they sing like the strings of a violin*<br>
+> *And the room seeps into a savage silence*<br>
+> *Soaked in colors, red as blood, blue as night*<br>
+> *And Marie she skins me alive, carves her initials in my side*<br>
+> *Lures me with her purr, then cuts me with her knife*<br>
+> *And the horses pound like thunder, they bolt like lightning on her range*<br>
+> *She feels she's going under and she zeroes in the rain, she's so strange*<br>
 
 His melody is pensive, brooding, almost an afterthought. "Marie" sounds very much like therapy for a broken heart.
 
@@ -33,21 +43,21 @@ Still, "Marie" contains much evidence of Bruce's rapidly developing craft: the b
 
 The second verse isn't quite as strong as the first imagery-wise, but what it lacks in subtlety it makes up for with some impressive internal rhyming. (I particularly like *berserk fairy/concrete prairies*.)
 
-> *Well, Marie, you know, she's the queen of all the stallions*
-> *And I'm her prince of mules and one of her principal fools*
-> *Marie, she's got the claws of a falcon*
-> *And she's perched upon my shoulder, and slowly digging in*
-> *But she can be so strange sometimes*
-> *Oh, like at night when the coyotes whine or when the neighbors come to dine*
-> *Marie, she skins me alive, burns her initials in my hide*
-> *And then leaves me all alone branded to the bone*
-> *And my heart pounds like her horses stampeding on the range*
-> *Marie knows all the sources and she shoots me with her pain*
-> *And for her, I take it, Lord, down in my veins*
-> *And I watch her dance like some berserk fairy all across the concrete prairies of*
-> *Bleeker Street*
-> *Marie, she can be so strange*
-> *But she's the only lonely cowgirl on my range*
+> *Well, Marie, you know, she's the queen of all the stallions*<br>
+> *And I'm her prince of mules and one of her principal fools*<br>
+> *Marie, she's got the claws of a falcon*<br>
+> *And she's perched upon my shoulder, and slowly digging in*<br>
+> *But she can be so strange sometimes*<br>
+> *Oh, like at night when the coyotes whine or when the neighbors come to dine*<br>
+> *Marie, she skins me alive, burns her initials in my hide*<br>
+> *And then leaves me all alone branded to the bone*<br>
+> *And my heart pounds like her horses stampeding on the range*<br>
+> *Marie knows all the sources and she shoots me with her pain*<br>
+> *And for her, I take it, Lord, down in my veins*<br>
+> *And I watch her dance like some berserk fairy all across the concrete prairies of*<br>
+> *Bleeker Street*<br>
+> *Marie, she can be so strange*<br>
+> *But she's the only lonely cowgirl on my range*<br>
 
 The torture continues: claws digging, initial burning and branding. But it's the last lines that make an impact, as Bruce suddenly switches to drug metaphor.
 

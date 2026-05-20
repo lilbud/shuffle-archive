@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Two Hearts in True Waltz Time"
+author: "Ken"
+excerpt: "Omitting this stunning street romance from Greetings From Asbury Park was a ballroom crime. Take a close listen to this misunderstood lost classic inside."
+tags: two-hearts-in-true-waltz-time
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2011/01/9194779237.jpg
+post_id: 12477
+---
 Bruce often confesses to discomfort with writing love songs in his early years, claiming to have hidden them away either metaphorically (by burying the theme so deeply in a song that you have to pay attention to find it) or by literally squirreling the song away in a vault, never to see the light of day.
 
 "Two Hearts in True Waltz Time" is one of my favorite examples on both counts.

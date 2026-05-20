@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Countin' on a Miracle"
+author: "Ken"
+excerpt: "“Countin’ on a Miracle” is a heartbreaking tale of love and loss, one of the most powerful songs on The Rising–but even more powerful still in its alternate post-concert arrangement. Listen to both inside, along with insights and great performances."
+tags: countin-on-a-miracle nashville-string-machine the-essential-bruce-springsteen the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/miracle-1.jpg
+post_id: 7395
+---
 For all of Bruce's considerable skill as a songwriter, performer, and bandleader, it's his skill as an arranger that impresses me the most.
 
 With each new tour, as much as I look forward to hearing songs I've never heard before, I also know I'm going to hear familiar songs as if I've never heard them before either. Bruce seems to have an almost effortless ability to recast, reinvent, and reimagine songs, infusing them with new meaning, nuance, and layers.

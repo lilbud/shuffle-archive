@@ -1,20 +1,30 @@
+---
+layout: post
+title: "Kingdom of Days: September 2"
+author: "Ken"
+excerpt: "The Human Rights Now! Tour kicks off, Bruce and Bob Seger meet for the first time, Bruce and the E Street Band help inaugurate the Rock and Roll Hall of Fame, and more."
+tags: bob-dylan bob-seger chuck-berry cleveland darkness-on-the-edge-of-town forever-young good-rockin-tonight hey-bo-didley human-rights-now-tour jerry-lee-lewis johnny-b-goode london lost-in-the-flood philadelphia river-tour rock-and-roll-hall-of-fame san-diego shake-rattle-and-roll shes-the-one summertime-blues tinley-park wembley world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19880902_front.jpg
+post_id: 59530
+---
 ***New for 2025:** New entry for 1977 and 1979*<br>
 
 **1973:** Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.<br>
 
-**1977:** Bruce records “Candy’s Boy” at The Record Plant in New York City. It will remain in the vault for more than three decades before finally enjoying an official release on *The Promise*.<br>
+**1977:** Bruce records "Candy's Boy" at The Record Plant in New York City. It will remain in the vault for more than three decades before finally enjoying an official release on *The Promise*.<br>
 
 [Watch on Youtube: Candy's Boy](https://www.youtube.com/watch?v=kyX31Y8O-20)
 
-**1978:** Bruce meets Bob Seger for the first time at Seger’s gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.<br>
+**1978:** Bruce meets Bob Seger for the first time at Seger's gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1978-0902.jpg.webp)
 
-**1979:** Bruce and the E Street Band record “From Small Things (Big Things One Day Come)” at The Power Station in New York City. It will remain in the vault for for 24 years.<br>
+**1979:** Bruce and the E Street Band record "From Small Things (Big Things One Day Come)" at The Power Station in New York City. It will remain in the vault for for 24 years.<br>
 
 [Watch on Youtube: From Small Things (Big Things One Day Come) (Studio Outtake - 1979)](https://www.youtube.com/watch?v=N8qL5_iWWag)
 
-**1981:** Bruce and the E Street Band bring the original River Tour to the San Diego Sports Arena, where the boys play “[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)” for the last time for 21 years.<br>
+**1981:** Bruce and the E Street Band bring the original River Tour to the San Diego Sports Arena, where the boys play "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" for the last time for 21 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/X9DB6SRG)
 
@@ -24,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1984-09-02.jpg.webp)
 
-**1988:** The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N’Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of “[Get Up, Stand Up,](../2020-11-13_matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/post.md)” and Bruce closes the show with an abbreviated fifteen-song “greatest hits” set capped off by an all-artist “[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)” and “Get Up, Stand Up” reprise.<br>
+**1988:** The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N'Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of "[Get Up, Stand Up,](../2020-11-13_matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/post.md)" and Bruce closes the show with an abbreviated fifteen-song "greatest hits" set capped off by an all-artist "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" and "Get Up, Stand Up" reprise.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3)
 
@@ -34,21 +44,21 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1988-09-02b.jpg.webp)
 
-**1992:** Bruce’s World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.<br>
+**1992:** Bruce's World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KSH6dQTI)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-09-02.jpg.webp)
 
-**1995:** The Rock and Roll Hall of Fame celebrates its opening with an inaugural concert in Cleveland, and Bruce and the E Street Band are on hand to perform, joining Chuck Berry…<br>
+**1995:** The Rock and Roll Hall of Fame celebrates its opening with an inaugural concert in Cleveland, and Bruce and the E Street Band are on hand to perform, joining Chuck Berry...<br>
 
 [Watch on Youtube: Chuck Berry with Bruce Springsteen & The E Street Band "Johnny B. Goode" | Concert for the Rock Hall](https://www.youtube.com/watch?v=6swgiM9vSEE)
 
-…Jerry Lee Lewis…
+...Jerry Lee Lewis...
 
 [Watch on Youtube: JERRY LEE LEWIS - Whole Lotta Shakin' (w/Springsteen) live @ Rock 'n' Roll Hall of Fame Opening '95](https://www.youtube.com/watch?v=Flt4klIkYhU)
 
-…and Bob Dylan:
+...and Bob Dylan:
 
 [Watch on Youtube: Bob Dylan & Bruce Springsteen - "Forever Young" | Concert for the Rock & Roll Hall of Fame](https://www.youtube.com/watch?v=QmCeWhUGXlo)
 
@@ -58,7 +68,7 @@ They even play a few songs by themselves:
 
 [Watch on Youtube: Bruce Springsteen: Darkness On The Edge Of Town | Live 1995](https://www.youtube.com/watch?v=YliGkb_aFu0)
 
-According to Melissa Etheridge, she and Bruce also appeared during one of Berry’s performances with the Stax band, but thanks to Berry’s mystifying bit of sabotage, that performance wasn’t shown.
+According to Melissa Etheridge, she and Bruce also appeared during one of Berry's performances with the Stax band, but thanks to Berry's mystifying bit of sabotage, that performance wasn't shown.
 
 [Watch on Youtube: Chuck Berry Pranked Melissa Etheridge and Bruce Springsteen During Hall Of Fame Performance](https://www.youtube.com/watch?v=vSlS4PaXapA)
 
@@ -66,7 +76,7 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry�
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1995-09-02b.jpg.webp)
 
-**2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres “[Green Onions](../2019-05-17_cover-me-green-onions/post.md)” during sign collection, as well as “[Good Rockin’ Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md),” “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/),” and Philly special “[You Can’t Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/).”<br>
+**2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "[Green Onions](../2019-05-17_cover-me-green-onions/post.md)" during sign collection, as well as "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and Philly special "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VD2CbhUu)
 

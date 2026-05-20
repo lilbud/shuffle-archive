@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Break Out"
+author: "Ken"
+excerpt: "If you’ve ever wondered what it would sound like of Bruce crammed all of his Darkness themes into one unreleased outtake, this song is for you."
+tags: badlands break-out darkness-on-the-edge-of-town frankie prove-it-all-night the-promised-land
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/breakout.jpg
+post_id: 25002
+---
 If you ever wondered what it sound like if Bruce crammed all of his lyrical themes from [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) into a single unreleased outtake, you've come to the right place.
 
 Today, we take a look at "Break Out" (also known as "All Night Long"), an early outtake from the *Darkness* sessions that has yet to see the light of day.
@@ -22,64 +32,64 @@ It's difficult to analyze "Break Out," since even this take is still a work in p
 
 Here are Bruce's lyrics, courtesy of the fine folks at SpringeteenLyrics.com. (I'm not 100% sure of their accuracy, but they match what I hear closely enough.)
 
-> *I was born saved in heaven, and I messed around the promised land*
-> *Raised in a good Christian house underneath a good Christian hand*
-> *I was schooled down and dirty, signed a note getting back to town*
-> *It was there where the workers slaved all week waiting for payday to come around*
+> *I was born saved in heaven, and I messed around the promised land*<br>
+> *Raised in a good Christian house underneath a good Christian hand*<br>
+> *I was schooled down and dirty, signed a note getting back to town*<br>
+> *It was there where the workers slaved all week waiting for payday to come around*<br>
 
 The official take of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" was completed only weeks after the second take of "Break Out" above. The phrase must have been on his mind, because it appears twice in this outtake.
 
 We'll also see some similarities to "The Promised Land" in the chorus:
 
-> *Break out, come on if you're coming 'cause baby I just can't stay*
-> *I want to take out the walls of this joint, I want to blow this town away*
+> *Break out, come on if you're coming 'cause baby I just can't stay*<br>
+> *I want to take out the walls of this joint, I want to blow this town away*<br>
 
 In the second verse, however, we hear the seed of a different *Darkness* classic:
 
-> *Now I ain't into fast livin', I ain't into dying young*
-> *And I ain't looking to be forgiven for any of the stupid things that I've done*
+> *Now I ain't into fast livin', I ain't into dying young*<br>
+> *And I ain't looking to be forgiven for any of the stupid things that I've done*<br>
 ***For the ones who once had a notion, a notion it was good to be alive***<br>
-> *Feel the spark, the rush of emotion, I want to break out baby tonight*
+> *Feel the spark, the rush of emotion, I want to break out baby tonight*<br>
 
 We're listening to a track from November 1977. Just a few weeks later, that **bolded** line would appear in a more polished form in "Badlands." (It also appears in a more familiar form a few verses below.)
 
-> *I wanna dream, that I got a place*
-> *I wanna scream in somebody's face*
-> *Make it seem, get out of this muddy race*
-> *All night long*
+> *I wanna dream, that I got a place*<br>
+> *I wanna scream in somebody's face*<br>
+> *Make it seem, get out of this muddy race*<br>
+> *All night long*<br>
 
-> *Well all little queens lose their thrones tonight*
-> *All you little pretty things better learn to sleep alone tonight*
+> *Well all little queens lose their thrones tonight*<br>
+> *All you little pretty things better learn to sleep alone tonight*<br>
 
 This one's a bit obscure, but if that last couplet sounded familiar, it's probably because it reminds you of this passage from "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)" (even though "Frankie" was written first):
 
-> *Let all the finer things sleep alone tonight*
-> *Let all the minor kings lose their thrones tonight*
+> *Let all the finer things sleep alone tonight*<br>
+> *Let all the minor kings lose their thrones tonight*<br>
 
 Let's continue:
 
-> *It was down in the cool dirty living with the man with the master plan*
-> *Some girl who can beg forgiveness and a ticket to the promised land*
+> *It was down in the cool dirty living with the man with the master plan*<br>
+> *Some girl who can beg forgiveness and a ticket to the promised land*<br>
 
-> *Down where they'll tear your guts out, making out what you're all about*
-> *And making while we were blasting like a motor, I want out, I want out, I want out*
+> *Down where they'll tear your guts out, making out what you're all about*<br>
+> *And making while we were blasting like a motor, I want out, I want out, I want out*<br>
 
-> *Want out to the outside, well I'm a small and dirty fool*
-> *I wanna shout, I'm bound for nothing, I wanna shout about something too*
-> *For the ones who once had a notion, it ain't no sin to be glad you're alive*
-> *I feel the heat, the rush of devotion, I want to tear out baby tonight*
+> *Want out to the outside, well I'm a small and dirty fool*<br>
+> *I wanna shout, I'm bound for nothing, I wanna shout about something too*<br>
+> *For the ones who once had a notion, it ain't no sin to be glad you're alive*<br>
+> *I feel the heat, the rush of devotion, I want to tear out baby tonight*<br>
 
-> *I wanna do what ain't ever been done*
-> *I wanna win what ain't ever been won*
-> *I wanna lose what ???*
-> *Prove it all night long*
+> *I wanna do what ain't ever been done*<br>
+> *I wanna win what ain't ever been won*<br>
+> *I wanna lose what ???*<br>
+> *Prove it all night long*<br>
 
 Song reference #4: Bruce had already written and recorded early versions of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" around the time of that first bluffed version of "Break Out" above, so we know that the appearance of that phrase here is almost certainly a loan.
 
-> *I wanna know that I got a place*
-> *I wanna go where I can see your face*
-> *I wanna rock the roof off this place*
-> *I want you to know I wanna live*
+> *I wanna know that I got a place*<br>
+> *I wanna go where I can see your face*<br>
+> *I wanna rock the roof off this place*<br>
+> *I want you to know I wanna live*<br>
 
 I know we've been focusing on the lyrical easter eggs, but "Break Out" really does deserve some recognition for its backing track. It's a great rocker even in its early versions, and I suspect Bruce did eventually finish the song–"Break Out" was reportedly one of the songs Bruce and team worked on for *Tracks* two decades later, although it obviously didn't make the cut.
 

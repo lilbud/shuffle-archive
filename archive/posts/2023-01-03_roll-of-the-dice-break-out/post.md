@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Break Out"
+author: "Ken"
+excerpt: "If you’ve ever wondered what it would sound like of Bruce crammed all of his Darkness themes into one unreleased outtake, this song is for you."
+tags: badlands break-out darkness-on-the-edge-of-town frankie prove-it-all-night the-promised-land
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/breakout.jpg
+post_id: 25002
+---
 If you ever wondered what it sound like if Bruce crammed all of his lyrical themes from [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) into a single unreleased outtake, you've come to the right place.
 
 Today, we take a look at "Break Out" (also known as "All Night Long"), an early outtake from the *Darkness* sessions that has yet to see the light of day.

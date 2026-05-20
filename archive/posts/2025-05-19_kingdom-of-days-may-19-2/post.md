@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 19"
+author: "Ken"
+excerpt: "Bruce records the videos for “Vigilante Man” and “I Ain’t Got No Home,” but the real highlights for this date are the only known Darkness-era performances of three tracks from The Promise."
+tags: all-the-way-home clarence-clemons darkness-tour devils-and-dust-tour dream-baby-dream dublin east-rutherford eliott-murphy france ghost-of-tom-joad-tour i-aint-got-no-home ireland jackson-cage joe-ely joe-grushecky lisbon london madison-square-garden madrid new-york-city pittsburgh portugal reason-to-believe rendezvous reunion-tour rising-tour river-tour-2016 rock-in-rio spain spanish-eyes springsteen-on-broadway stone-pony the-brokenhearted the-shakes the-way toulon tunnel-of-love-express uk vigilante-man working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/may-19th-2024-dublin-ie-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56783
+---
 ***New for 2025:** New entry for 1975*<br>
 
 **1973:** Bruce cancels a scheduled performance at Detroit's Masonic Temple Theater.<br>

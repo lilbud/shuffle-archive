@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: New York City, November 8, 2009 (Marietta's Story)"
+author: "Ken"
+excerpt: "Guest-blogger Marietta Phillips shares her ten-years-ago-tonight story, from the night she helped make the back pit riser an even better place to be near."
+tags: dancing-in-the-dark go-girls-go the-river working-on-a-dream-tour your-love-keeps-lifting-me-higher-and-higher
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/20091108_13_booklet1.jpg
+post_id: 13976
+---
 Editor's Note
 
 ***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips.*<br>

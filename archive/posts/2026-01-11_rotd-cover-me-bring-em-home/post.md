@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Bring 'Em Home"
+author: "Ken"
+excerpt: "Bruce took inspiration from Pete Seeger’s 1966 anti-war protest song and a Civil War classic and forged a heartfelt song of his own."
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/bringem.jpg
+post_id: 27624
+---
 They say that great folk songs are never finished, and that's certainly the case with Pete Seeger's "Bring Them Home."
 
 Seeger wrote "Bring Them Home" in 1966 as a protest against the Vietnam war. He evolved the song over the years that followed, and by the time he performed it on *The Johnny Cash Show* in 1970, Seeger had honed it to a very sharp point.

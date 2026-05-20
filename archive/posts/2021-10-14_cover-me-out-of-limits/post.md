@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Out of Limits"
+author: "Ken"
+excerpt: "One time only: Bruce and the E Street Band open their Halloween Eve second set with a cover of The Marketts’ surf-rock instrumental classic."
+tags: out-of-limits outer-limits the-marketts
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/outerlimits.jpg
+post_id: 30102
+---
 In the autumn of 1963, a new television series took to the air and became an immediate hit. *The Outer Limits* was a speculative fiction series in the vein of *The Twilight Zone*, which was still in its original run. Even today, fans of *The Outer Limits* can recite its memorable opening credit sequence word for word.
 
 [Watch on Youtube: The Outer Limits - 1963 Seasons - Intro - HD](https://www.youtube.com/watch?v=FCcdr4O-3gE)

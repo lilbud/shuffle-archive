@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Spare Parts: Gary Frost, "Shutup Springsteen""
+author: "Ken"
+excerpt: "Hot off the presses: this bittersweet, Springsteen-inspired country single by rising New Jersey artist (and Bruce’s neighbor) Gary Frost."
+tags: gary-frost shutup-springsteen
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/shutup.jpeg
+post_id: 35642
+---
 “Shutup Springsteen” isn’t the first song inspired by a certain New Jersey rock star, but it may very well be the cleverest.
 
 [Watch on Youtube: Shutup Springsteen - Gary Frost (Official Music Video)](https://www.youtube.com/watch?v=W8hIWrKzQ9c)

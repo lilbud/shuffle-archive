@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: August 31"
+author: "Ken"
+excerpt: "This date’s highlights are almost all New Jersey-based: from archival footage of The Doors at Convention Hall in ’68 (Bruce was there) to a Bruce-and-Steve reunion in ’85 to the closing night of the ten-night Giants Stadium stand in ’03."
+tags: born-in-the-usa-tour east-rutherford giants-stadium new-york-city phil-ceccola reunion-tour rising-tour springsteen-on-broadway steve-van-zandt the-doors washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/20030831_6_front.jpg
+post_id: 59508
+---
 ***New for 2025:** No updates*<br>
 
-**1968:** Bruce catches The Doors’ concert at Asbury Park’s Convention Hall. Watch actual footage of Jim Morrison from that day below.<br>
+**1968:** Bruce catches The Doors' concert at Asbury Park's Convention Hall. Watch actual footage of Jim Morrison from that day below.<br>
 
 [Watch on Youtube: The Doors at Convention Hall in Asbury Park](https://www.youtube.com/watch?v=Z3DElGznXIE)
 
@@ -12,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0831.jpg.webp)
 
-**1985:** What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of “[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md).”<br>
+**1985:** What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Wly4xjwi)
 
@@ -26,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1999-08-31b.png.webp)
 
-**2003:** Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of “[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md).” A few songs later, “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)” makes its only tour appearance, and a full-band “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” fittingly closes the show.<br>
+**2003:** Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)." A few songs later, "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" makes its only tour appearance, and a full-band "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" fittingly closes the show.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Valerie"
+author: "Ken"
+excerpt: "“Valerie” looms large in Bruce and Patti’s personal history, and that may be why their one and only performance of it was so lovely and powerful."
+tags: patti-scialfa rumble-doll valerie
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/valerie.jpg
+post_id: 23382
+---
 > ["Valerie" is] a very heavy song in our history… I was visiting you in your apartment in New York (probably when I shouldn't have been visiting you in your apartment in New York). Under the guise of rehearsing for *Tunnel of Love*, I'm teaching you the guitar parts. But somehow, you got around to playing me this next song, and I remember thinking, "Oh my God, this woman can write." And it totally made me twice as scared as I was anyway. It was like, whoa, I think I saw your talent for the first time, outside of just your voice. It was a pretty intense moment. — *Bruce Springsteen to Patti Scialfa, From My Home to Yours Volume 9*<br>
 
 Until that revelatory confession, I'd always wondered why Patti chose to play "Valerie" during her promotional tour for *Rumble Doll*, her 1993 debut album.

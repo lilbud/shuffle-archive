@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 14"
+author: "Ken"
+excerpt: "It’s a monumental date in Springsteen history: Bruce auditions for Mike Appel and records his greatest hit, Rosie comes out for the first time (listen inside), and much more. Plus: the secret origin of the E Street Band."
+tags: australia back-in-your-arms boz-scaggs brisbane dancing-in-the-dark dresden earth germany ghost-of-tom-joad-tour janey-dont-you-lose-heart richmond rosalita san-francisco secret-garden steel-mill vini-lopez
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/2023-02-14-houston-tx-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 55946
+---
 **1969:** Earth (one of Bruce’s early bands) plays their final gig at the Italian-American Mens Association Clubhouse in Long Branch, New Jersey. Vini Lopez is in attendance and is impressed enough to recruit Bruce for a new band he’s putting together. Over the next several weeks, that band will gel under the name of Child and include not just Bruce and Vini, but also Danny Federici. By the end of the year, Child will become Steel Mill, which will eventually give way to The Bruce Springsteen Band, all the while drawing the E Street musicians ever closer into Bruce’s orbit. If the E Street Band has a secret origin, this is where it begins.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1969-02-14.jpg.webp)

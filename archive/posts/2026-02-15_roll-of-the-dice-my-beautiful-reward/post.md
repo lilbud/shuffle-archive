@@ -1,3 +1,13 @@
+---
+layout: post
+title: "My Beautiful Reward"
+author: "Ken"
+excerpt: "Bruce closes out Lucky Town by revisiting the narrator who opens Tunnel of Love."
+tags: lucky-town my-beautiful-reward
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/02/raven.jpg
+post_id: 41682
+---
 In the opening notes of his 1987 *Tunnel of Love* album, Bruce Springsteen introduces us to a thinly veiled narrator who has it all.
 
 Well, almost all. He's missing just one thing. In "Ain't Got You," he sings of his fame, success, and worldly wealth–all of which mean nothing to him without the one thing he lacks: love.

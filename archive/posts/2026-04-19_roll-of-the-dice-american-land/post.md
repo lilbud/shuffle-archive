@@ -1,3 +1,13 @@
+---
+layout: post
+title: "American Land"
+author: "Ken"
+excerpt: "Introduced without fanfare on the Seeger Sessions Tour, Bruce’s immigrant song grew into his summational statement and band tribute. Read the backstory and watch great performances inside."
+tags: american-land we-shall-over-come-the-seeger-sessions wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/americanland-1.jpg
+post_id: 15484
+---
 The Seeger Sessions Tour was a nightly treasure chest of revitalized American folk songs and reinvented Springsteen originals, full of marvelous and meaningful performances. On any given night, Bruce might debut an old chestnut in a brand-new yet familiar arrangement, drawing heavily on classic folk melodies to connect his own work to a long lineage of social songwriters. (It remains to this day my all-time favorite Springsteen tour.)
 
 But there's one thing that tour was *not*, however: a showcase for brand new music.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Spare Parts: You Can Look…"
+author: "Ken"
+excerpt: "A few more souvenirs from my trip back east."
+tags: american-babylon joe-grushecky springsteen-archives
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/archives.jpg
+post_id: 30811
+---
 Just one more day until our regular programming resumes, but as promised, I thought I'd share a few more souvenirs from my week on the road.
 
 Let's start at the end: Last night, Joe Grushecky and The Houserockers played a special live 25th Anniversary concert for their *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*album, streamed live on Facebook by *Little Steven's Underground Garage.*

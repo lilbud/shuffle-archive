@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Chasin' Wild Horses"
+author: "Ken"
+excerpt: "Poignant, elegiac, and ironic, “Chasin’ Wild Horses” is the perfect centerpiece for Bruce’s finest album. It demands and rewards careful listening and inspection."
+tags: chasin-wild-horses western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/wildhorses.jpg
+post_id: 15625
+---
 At last: the dice lead us to Bruce Springsteen's latest and finest album, *Western Stars*.
 
 Seven months after its release, with the benefit of distance, catalog comparison, and deep and repeated listens, I can confidently rank *Western Stars* at the very pinnacle of Bruce's officially released catalog.

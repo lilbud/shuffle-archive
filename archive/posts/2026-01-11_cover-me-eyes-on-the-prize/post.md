@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Eyes on the Prize"
+author: "Ken"
+excerpt: "Bruce and Marc Anthony Thompson breathed new life into this civil rights anthem on their 2006 Seeger Sessions Tour."
+tags: eyes-on-the-prize mahalia-jackson marc-anthony-thompson pete-seeger we-shall-overcome
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/kssZIFo-show-mezzanine16x9-xFD5o0P.png
+post_id: 30173
+---
 > *The only thing I did was wrong*<br>
 > *Was staying the wilderness too long.*<br>
 

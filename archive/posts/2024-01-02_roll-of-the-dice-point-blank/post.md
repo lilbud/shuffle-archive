@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Point Blank"
+author: "Ken"
+excerpt: "Stark, dark, and brooding, the film noir-ish “Point Blank” dazzles with one of Bruce’s very best vocals and arrangements."
+tags: party-lights point-blank the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/pointblank.jpg
+post_id: 14213
+---
 > **Film noir**, (French: "dark film") style of filmmaking characterized by such elements as cynical heroes, stark lighting effects, frequent use of flashbacks, intricate plots, and an underlying existentialist philosophy. (Brittanica.com)
 
 Bruce Springsteen's songbook is filled with songs inspired by film noir, but "Point Blank" is far more than just a hat tip–it's the musical equivalent of film noir itself, from opening notes to dramatic ending.

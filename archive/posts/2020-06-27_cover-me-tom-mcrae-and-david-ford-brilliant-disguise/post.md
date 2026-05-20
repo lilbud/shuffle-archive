@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tom McRae and David Ford: Brilliant Disguise"
+author: "Ken"
+excerpt: "Brilliant singer-songwriters in their own right, David Ford and Tom McCrae are irresistible when they team up to cover Bruce’s “Brilliant Disguise.”"
+tags: brilliant-disguise david-ford tom-mcrae
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/tomanddavid.jpg
+post_id: 19056
+---
 Tom McRae and David Ford are each brilliant singer-songwriters in their own right, with a couple dozen albums and EPs between them spanning two decades.
 
 Together, though, they're a downright delight. Early last month, David and Tom teamed up for a fundraiser to support [Reverse Rett](https://reverserett.org/), an organization dedicated to eliminating Rett Syndrome.

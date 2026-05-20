@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Tupelo Honey"
+author: "Ken"
+excerpt: "During sound checks on the Tunnel of Love Tour, Bruce occasionally covered one of Van Morrison’s loveliest songs."
+tags: crazy-love tupelo-honey van-morrison
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/tupelo.jpg
+post_id: 38924
+---
 Van Morrison may have always had a few bones to pick with Bruce Springsteen, but Bruce only ever had homage to pay.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteens-Desert-Island-Discs-Dec-2016-Radio-Interview-Talks-about-his-Life-and-Music.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteens-Desert-Island-Discs-Dec-2016-Radio-Interview-Talks-about-his-Life-and-Music.mp3)

@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Kingdom of Days: July 18"
+author: "Ken"
+excerpt: "Bruce makes a surprise “guest” appearance with Joe Grushecky (if 15 of 18 songs can be considered a guest appearance), Bruce teases an injured Jake, the Devils and Dust Tour set list busts open, and more."
+tags: be-true born-in-the-usa-tour bruce-springsteen-band buffalo chain-smokin chicago child darkness-tour devils-and-dust-tour dublin east-rutherford garland-jeffreys giants-stadium i-wanna-be-with-you jackson jake-clemons joe-grushecky loose-ends maxs-kansas-city never-be-enough-time philadelphia reunion-tour rising-tour river-tour roesmont sherry-darling spirit-in-the-night steel-mill wailers wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/19990718.jpeg
+post_id: 57749
+---
 ***New for 2025:** Review for 1973; new entry for 1975 and 2024; audio for 1999*<br>
 
 **1969:** Child plays their fourth of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.<br>
 
-**1970:** Steel Mill headlines at Asbury Park’s Sunshine In.<br>
+**1970:** Steel Mill headlines at Asbury Park's Sunshine In.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1970-0718.jpeg.webp)
 
@@ -10,7 +20,7 @@
 
 **1971:** The Bruce Springsteen Band headlines an outdoor show at Monroe Park in Richmond.<br>
 
-**1973:** Bruce and the E Street Band headline two shows at Max’s Kansas City in New York, kicking off a six-night/twelve-show stand. The opening act: Bob Marley and the Wailers, on their very first American tour.<br>
+**1973:** Bruce and the E Street Band headline two shows at Max's Kansas City in New York, kicking off a six-night/twelve-show stand. The opening act: Bob Marley and the Wailers, on their very first American tour.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/Capture.jpg.webp)
 
@@ -20,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1974-0718.jpg.webp)
 
-**1975:** Bruce completes “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” and “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)” at the Record Plant in New York City, a mere month before both songs would appear on record store shelves, and only two days before the kickoff of the the Born to Run Tour.<br>
+**1975:** Bruce completes "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" and "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" at the Record Plant in New York City, a mere month before both songs would appear on record store shelves, and only two days before the kickoff of the the Born to Run Tour.<br>
 
 [Watch on Youtube: Backstreets](https://www.youtube.com/watch?v=USQ697oqkaw)
 
@@ -32,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-18.png.webp)
 
-**1979:** At The Power Station in New York City, Bruce records “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)” and “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md).” It will be almost two decades before they see an album release.<br>
+**1979:** At The Power Station in New York City, Bruce records "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" and "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)." It will be almost two decades before they see an album release.<br>
 
 [Watch on Youtube: Be True](https://www.youtube.com/watch?v=Rq2lsxXUVew)
 
@@ -42,11 +52,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/XehyRDDQ)
 
-**1984:** Bruce wraps up a three-night Born in the U.S.A. stand at the Rosemont Horizon with his live debut of “[Do You Love Me?](../1976-01-18_cover-me-do-you-love-me/post.md/)”<br>
+**1984:** Bruce wraps up a three-night Born in the U.S.A. stand at the Rosemont Horizon with his live debut of "[Do You Love Me?](../1976-01-18_cover-me-do-you-love-me/post.md/)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/kHVTjhMH)
 
-**1999:** Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare performances of “[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)” (the show opener), “[Loose Ends,](../2022-06-23_roll-of-the-dice-loose-end/post.md)” “[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md),” and “[Freehold](../2018-12-03_roll-of-the-dice-freehold/post.md).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,31193/Bruce-Springsteen-mp3-flac-download-7-18-1999-Continental-Airlines-Arena-East-Rutherford-NJ.html).<br>
+**1999:** Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare performances of "[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)" (the show opener), "[Loose Ends,](../2022-06-23_roll-of-the-dice-loose-end/post.md)" "[Stand On It](../2021-10-08_roll-of-the-dice-stand-on-it/post.md)," and "[Freehold](../2018-12-03_roll-of-the-dice-freehold/post.md)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,31193/Bruce-Springsteen-mp3-flac-download-7-18-1999-Continental-Airlines-Arena-East-Rutherford-NJ.html).<br>
 
 [Watch on Youtube: I Wanna Be With You (Live at Continental Airlines Arena, E. Rutherford, NJ - 7/18/1999)](https://www.youtube.com/watch?v=nuDox-fTUTI)
 
@@ -64,11 +74,11 @@
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour.<br>
 
-**2003:** It’s a rainy Night Three of ten at the Giants Stadium stand of the Rising Tour, and Bruce opens with an audibled “[Who’ll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md).” Garland Jeffreys guests during the encores for “[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md).”<br>
+**2003:** It's a rainy Night Three of ten at the Giants Stadium stand of the Rising Tour, and Bruce opens with an audibled "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)." Garland Jeffreys guests during the encores for "[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NPLvxg3D)
 
-**2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including “[4th of July, Asbury Park (Sandy),](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” a solo piano “Leap of Faith,” “[You’re Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md),” “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[When You’re Alone](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md),” and a show-opening new acoustic arrangement of “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” on guitar and harmonica.<br>
+**2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including "[4th of July, Asbury Park (Sandy),](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" a solo piano "Leap of Faith," "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)," "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[When You're Alone](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md)," and a show-opening new acoustic arrangement of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" on guitar and harmonica.<br>
 
 [Watch on Youtube: Bruce Springsteen Prove It All Night Live In Buffalo Solo Acoustic 2005](https://www.youtube.com/watch?v=6tdzu7g-jjc)
 
@@ -80,7 +90,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-07-18b.png.webp)
 
-**2012:** On Night Two in Dublin on the Wrecking Ball Tour, an injured Jake Clemons takes the stage in a wheelchair. He threw his back out the night before, and Bruce gently (and very cleverly) teases him during “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/).”<br>
+**2012:** On Night Two in Dublin on the Wrecking Ball Tour, an injured Jake Clemons takes the stage in a wheelchair. He threw his back out the night before, and Bruce gently (and very cleverly) teases him during "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)."<br>
 
 [Watch on Youtube: Spirit in the night - Bruce Springsteen RDS Dublin 18/7/2012](https://www.youtube.com/watch?v=ITkN4pOsWgk)
 
@@ -90,7 +100,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 18/07/2012 Full Concert 100 subscribers special](https://www.youtube.com/watch?v=1SEaF_zs6rE)
 
-**2013:** The Wrecking Ball Tour comes to Cork, where “[Wild Thing](../2020-03-10_cover-me-wild-thing/post.md),” “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” and “[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)” make their tour debuts. This is the first time Bruce performs “Real World” since 2005, and early arriving fans get to hear it twice: once in the main set and once in a three-song pre-show.<br>
+**2013:** The Wrecking Ball Tour comes to Cork, where "[Wild Thing](../2020-03-10_cover-me-wild-thing/post.md)," "[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)" and "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)" make their tour debuts. This is the first time Bruce performs "Real World" since 2005, and early arriving fans get to hear it twice: once in the main set and once in a three-song pre-show.<br>
 
 [Watch on Youtube: Bruce Springsteen - Real World (Pre Show) (Live) 2013-07-18 Cork, Ireland](https://www.youtube.com/watch?v=uJ_uzh9WsX8)
 
@@ -98,7 +108,7 @@
 
 [Watch on Youtube: Bruce Springsteen Cork Ireland 18/07/2013 Full Concert](https://www.youtube.com/watch?v=JWq7Oi7VS10)
 
-**2015:** At what point does a guest appearance become a surprise co-headline? I’m not sure, but at Joe Grushecky’s show at The Wonder Bar, Bruce clearly crossed that line, joining the Houserockers for fifteen of their eighteen-song set.<br>
+**2015:** At what point does a guest appearance become a surprise co-headline? I'm not sure, but at Joe Grushecky's show at The Wonder Bar, Bruce clearly crossed that line, joining the Houserockers for fifteen of their eighteen-song set.<br>
 
 [Watch on Youtube: Bruce Springsteen and Joe Grushecky Chain Smokin](https://www.youtube.com/watch?v=eNqsIniq9qY)
 
@@ -112,11 +122,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2015-07-18b.png.webp)
 
-**2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores (“[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” and “[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)“) and will be released on the streaming service (and on album) to much acclaim later in the year.<br>
+**2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores ("[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" and "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)") and will be released on the streaming service (and on album) to much acclaim later in the year.<br>
 
 [Watch on Youtube: 'Springsteen On Broadway' (Official Album Trailer #1)](https://www.youtube.com/watch?v=E0Bkn9KgT6Y)
 
-Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to mark Billy’s 100th show of his residency. The two play “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” and “Born to Run.”
+Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to mark Billy's 100th show of his residency. The two play "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" and "Born to Run."
 
 [Watch on Youtube: Bruce Springsteen at Billy Joel #MSG100 10th. Avenue Freeze Out & Born to Run.](https://www.youtube.com/watch?v=Lz-lFobWvTs)
 
@@ -124,10 +134,10 @@ Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to 
 
 **2023:** For the first time in over two decades, Bruce plays an identical setlist to his previous show when World Tour 2023 stops in Vienna, Austria.<br>
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance+](https://www.youtube.com/watch?v=YZwxrURUL8w)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance+ "No Surrender" - Vienna, Austria - July 18, 2023](https://www.youtube.com/watch?v=YZwxrURUL8w)
 
 [Watch on Youtube: Bruce Springsteen / Wrecking Ball / Ernst Happel Stadion, Vienna / 2023-07-18](https://www.youtube.com/watch?v=SWuM5YEDqHI)
 
 **2024:** Bruce and the E Street Band play their second of two nights at Strawberry Arena in Solna, Sweden.<br>
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=bUhyY_1EY3s)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - "I'm On Fire" - Stockholm, Sweden - July 18, 2024](https://www.youtube.com/watch?v=bUhyY_1EY3s)

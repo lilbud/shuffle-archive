@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 9"
+author: "Ken"
+excerpt: "On this date: Bruce Springsteen signs his first contract with Columbia Records and begins assembling the E Street Band! More highlights inside."
+tags: badlands because-the-night bergen born-in-the-usa-tour boston chicago columbia-records darkness-tour gothenburg in-the-midnight-hour london milwaukee new-york-city nils-lofgren norway pete-townshend springsteen-on-broadway stone-pony sweden the-castiles u2 uk working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/19890609_front.jpg
+post_id: 57024
+---
 **1967:** The Castiles play the Senior Farewell Dance at Freehold Regional High School.<br>
 
 **1972:** Bruce signs with Columbia Records, receiving an advance of $25,000 for his first album. He immediately begins assembling a band.<br>

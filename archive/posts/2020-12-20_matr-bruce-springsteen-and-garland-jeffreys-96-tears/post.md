@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Garland Jeffreys, 96 Tears"
+author: "Ken"
+excerpt: "Bruce teams up with Garland Jeffreys for a crowd-pleasing cover of ? and the Mysterians’ “96 Tears.”"
+tags: 96-tears garland-jeffreys question-mark-and-the-mysterians
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/Question-Mark-And-The-Mysterians-96-Tears-1537457412-compressed.jpg
+post_id: 14365
+---
 Bruce Springsteen has supported Garland Jeffreys on "96 Tears" so many times that if you didn't know better, you'd think the song was originally Garland's.
 
 But we do know better: "96 Tears" dates back long before Jeffreys covered it in 1980–all the way back to 1966, in fact, when ? and the Mysterians took it all the way to the top of the Billboard Hot 100.

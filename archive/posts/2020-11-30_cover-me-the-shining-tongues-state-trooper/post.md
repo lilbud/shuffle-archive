@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Shining Tongues: State Trooper"
+author: "Ken"
+excerpt: "The first cover single from former Infinite Three leader Daniel Knowler, The Shining Tongues’ version of “State Trooper” dials up the inner torment and paranoia at the heart of Bruce’s song."
+tags: daniel-knowler state-trooper the-shining-tongues
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/shiningtongues.jpg
+post_id: 22910
+---
 Here's the brand-new single from a brand-new band born during the great lockdown of 2020.
 
 The Shining Tongues is the latest songwriting project from former Infinite Three founder Daniel Knowler, who ended his decade-long former group when one of its members passed away last year.

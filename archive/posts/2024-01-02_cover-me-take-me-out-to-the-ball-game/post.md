@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Take Me Out to the Ball Game"
+author: "Ken"
+excerpt: "We’re going obscure today… all the way back to 1973 to hear Bruce and the E Street Band cover the unofficial anthem of America’s national pastime."
+tags: bruce-springstone edward-meeker take-me-out-to-the-ball-game
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/BaseballSong.jpg
+post_id: 6808
+---
 Yeah, yeah. I know it's the dead of winter (here in the northern hemisphere, at least).
 
 But spring is coming… eventually.

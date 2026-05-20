@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Viva Las Vegas"
+author: "Ken"
+excerpt: "Bruce’s cover of the Elvis Presley classic has stayed under the radar despite several official releases."
+tags: elvis-presley the-essential-bruce-springsteen the-last-temptation-of-elvis viva-las-vegas
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/bruce-springsteen-its-now-or-never-nme-12.jpg
+post_id: 6183
+---
 "Viva Las Vegas" is one of a small collection of covers that Bruce actually recorded in the studio, and it came about in an unusual way.
 
 In 1990, the late, great British magazine *New Musical Express* produced and released an Elvis Presley tribute album to benefit the Nordoff-Robbins Music Therapy Center. The album, *The Last Temptation of Elvis*, consisted solely of covers of songs Elvis performed in his movies, and it included such artists as Paul McCartney, The Pogues, Hall and Oates, Robert Plant, and of course Bruce.

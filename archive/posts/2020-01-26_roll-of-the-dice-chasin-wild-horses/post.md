@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Chasin' Wild Horses"
+author: "Ken"
+excerpt: "Poignant, elegiac, and ironic, “Chasin’ Wild Horses” is the perfect centerpiece for Bruce’s finest album. It demands and rewards careful listening and inspection."
+tags: chasin-wild-horses western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/wildhorses.jpg
+post_id: 15625
+---
 At last: the dice lead us to Bruce Springsteen's latest and finest album, *Western Stars*.
 
 Seven months after its release, with the benefit of distance, catalog comparison, and deep and repeated listens, I can confidently rank *Western Stars* at the very pinnacle of Bruce's officially released catalog.
@@ -23,11 +33,11 @@ We'll break it down in a moment, but as with every track on *Western Stars*, we 
 The introduction features Bruce plucking idly at his acoustic guitar, while a viola establishes a scene that quickly fades into the background as Bruce's vocals draw us into his narrator's deceptively ambivalent musing.
 
  *Guess it was something I shouldn't have done*
-> *Guess I regret it now*
-> *Ever since I was a kid*
-> *Trying to keep my temper down is like*
-> *Chasing wild horses, chasing wild horses*
-> *Chasing wild horses*
+> *Guess I regret it now*<br>
+> *Ever since I was a kid*<br>
+> *Trying to keep my temper down is like*<br>
+> *Chasing wild horses, chasing wild horses*<br>
+> *Chasing wild horses*<br>
 
 There's a lot of information packed into this introductory verse, the most significant of which is that our narrator possesses a fair amount of self-awareness and yet hasn't yet come to terms with his self-knowledge.
 
@@ -37,22 +47,22 @@ What exactly was it that he did but shouldn't have? We never learn, but we get t
 
 In the next verse, we learn that whatever our narrator's running from, it brought him to Montana, where he works for the Bureau of Land Management literally chasing and corralling wild horses, a job so physically taxing that it successfully keeps him from dwelling on his past… for the most part.
 
-> *I left my home, left my friends*
-> *I didn't say goodbye*
-> *I contract out to the BLM*
-> *Up on the Montana line*
-> *Chasing wild horses, chasing wild horses*
+> *I left my home, left my friends*<br>
+> *I didn't say goodbye*<br>
+> *I contract out to the BLM*<br>
+> *Up on the Montana line*<br>
+> *Chasing wild horses, chasing wild horses*<br>
 
 There's a musical structure at work so far: each verse begins on an up note (with a melody reminiscent of "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)"), but each subsequent line ends on a downer. By the end of the second verse, Marc Muller's pedal steel enters, painting the exterior scene and drawing us out of the narrator's reverie across a deliberately monotonous bridge that represents the physical tedium that serves as a substitute for solace:
 
-> *We're out before sunup*
-> *We're in after sundown*
-> *There's two men in the chopper*
-> *Two under saddle on the ground*
-> *In the evenings we hop in the pickup*
-> *Head into town for a drink*
-> *I make sure I work till I'm so damn tired*
-> *Yeah way too tired to think*
+> *We're out before sunup*<br>
+> *We're in after sundown*<br>
+> *There's two men in the chopper*<br>
+> *Two under saddle on the ground*<br>
+> *In the evenings we hop in the pickup*<br>
+> *Head into town for a drink*<br>
+> *I make sure I work till I'm so damn tired*<br>
+> *Yeah way too tired to think*<br>
 
 That last couplet is important–notice that Bruce says "*I make sure* I work till I'm so damn tired." That's the giveaway that he uses his work as a drug, a way of numbing himself from facing the pain he's caused to himself and others.
 
@@ -60,12 +70,12 @@ And if "Chasin' Wild Horses" is skillful to this point, this is the point where 
 
 Notice how Bruce holds the moment after the "way too tired to think" line. It immediately draws us back into the narrator's psyche, and when the full orchestra enters a beat or two later, the musicians represent the past come crashing into the present. Now, finally (and ironically given the lead-in), we glimpse the woman at the center of his lost love.
 
-> *You lose track of time*
-> *It's all just storms blowing through*
-> *You come rolling ‘cross my mind*
-> *Your hair flashing in the blue*
-> *Like wild horses, just like wild horses*
-> *Just like wild horses*
+> *You lose track of time*<br>
+> *It's all just storms blowing through*<br>
+> *You come rolling ‘cross my mind*<br>
+> *Your hair flashing in the blue*<br>
+> *Like wild horses, just like wild horses*<br>
+> *Just like wild horses*<br>
 
 We only see her hair, but to the narrator it stands out against the blue sky like the manes of the horses he spends the day with–and instantly, we know that whatever effectiveness his day job has offered in suppressing his regret, it's vanished forever more. (The use of equestrian imagery in particular strongly suggests that "Chasin' Wild Horses" is a sequel to "[Dry Lightning](../2020-10-16_roll-of-the-dice-dry-lightning/post.md)," so similar are its narrators.)
 
@@ -73,19 +83,19 @@ The orchestra swells now, anchored by repetitive piano riff (presumably Ron Anie
 
 My favorite part of the song comes next, as past merges with present in a way that's very reminiscent of "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)," another Springsteen masterpiece.
 
-> *A fingernail moon in a twilight sky*
-> *I'm riding in the high grass of the switchback*
-> *I shout your name into the canyon*
-> *The echo throws it back*
+> *A fingernail moon in a twilight sky*<br>
+> *I'm riding in the high grass of the switchback*<br>
+> *I shout your name into the canyon*<br>
+> *The echo throws it back*<br>
 
 Go back and listen to this part of the song again. Put your headphones on, and turn the volume up as loud as you can stand, and when the narrator shouts his love's name into the canyon, listen… listen, as the echo throws it back. "Back…. back…" It's so faint that I have to believe that Bruce knew that 99% of his listeners would completely miss it, and yet it's *such* a lovely moment. Bruce allows it to breathe before he brings us crashing back to the present.
 
-> *The winter snow whites out the plains*
-> *Till it can turn you blind*
-> *The only thing up here I've found*
-> *Is trying to get you off my mind*
-> *Chasing wild horses, chasing wild horses*
-> *Chasing wild horses, chasing wild horses*
+> *The winter snow whites out the plains*<br>
+> *Till it can turn you blind*<br>
+> *The only thing up here I've found*<br>
+> *Is trying to get you off my mind*<br>
+> *Chasing wild horses, chasing wild horses*<br>
+> *Chasing wild horses, chasing wild horses*<br>
 
 In this last verse, Bruce drives home both the titular metaphor and the narrator's quixotic futility. The winter weather literally snow blinds him, and the work itself keeps his mind from drifting back to his lost love, but as we learn through the simple word "you," his love is never far from his thoughts.
 

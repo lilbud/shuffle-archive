@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Unsatisfied Heart"
+author: "Ken"
+excerpt: "The curious tale of “Unsatisifed Heart,” never released but with DNA that would influence several later songs."
+tags: fugitive-dreams the-war-on-drugs unsatisfied-heart
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/Bruce-Springsteen-Unsatisfied-Heart-1983.png
+post_id: 4347
+---
 Hailing back to early 1983, in the midst of what would become known retroactively as the *Born in the U.S.A. Sessions*, "Unsatisfied Heart" existed in the wild for decades only as a demo recorded by Bruce in his home studio.
 
 [Watch on Youtube: Bruce Springsteen Unsatisifed Heart](https://www.youtube.com/watch?v=8hgDodSeEoo)

@@ -1,20 +1,30 @@
+---
+layout: post
+title: "Kingdom of Days: March 24"
+author: "Ken"
+excerpt: "A fantastic 1974 interview, the only performance of “You’ll Be Comin’ Down,” and a guest-appearance by Eddie Vedder in Seattle lead the highlights from this eventful date in Springsteen history."
+tags: asbury-park australia born-in-the-usa-tour boston columbus county-fair eddie-vedder lawsuit-tour lewiston magic-tour melbourne michael-gudinski phoenix river-tour-2016 seattle sydney the-blasters working-on-a-dream-tour wrecking-ball-tour youll-be-comin-down
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/20080324_front.jpg
+post_id: 56286
+---
 ***New for 2025:** New entry for 1980*<br>
 
-**1973:** Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce’s recently released debut album. Keep an eye on him, the reviewer advises.<br>
+**1973:** Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce's recently released debut album. Keep an eye on him, the reviewer advises.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1973-03-24.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1973-0324.jpg.webp)
 
-**1974:** Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoenix. After the show, Bruce grants a fascinating interview to The Phoenix New Times and Arizona State University. You can listen to it below–it’s well worth it.<br>
+**1974:** Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoenix. After the show, Bruce grants a fascinating interview to The Phoenix New Times and Arizona State University. You can listen to it below–it's well worth it.<br>
 
 [1974-03-24 Phoenix interview by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F185064103&show_artwork=true&maxheight=1000&maxwidth=758)
 
-**1977:** Bruce and the E Street Band play their third of four nights at Boston’s Music Hall in the final stand of the Lawsuit Tour. This show features the debut of Jackie Wilson’s “[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/).”<br>
+**1977:** Bruce and the E Street Band play their third of four nights at Boston's Music Hall in the final stand of the Lawsuit Tour. This show features the debut of Jackie Wilson's "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/5budtv00)
 
-**1980:** At the Power Station in New York City, Bruce and the E Street Band work on “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
+**1980:** At the Power Station in New York City, Bruce and the E Street Band work on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Official Audio)](https://www.youtube.com/watch?v=boJhWtw-6Gg)
 
@@ -22,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1983:** In his home studio in Los Angeles, Bruce records “[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md).” It will remain unreleased for two decades.<br>
+**1983:** In his home studio in Los Angeles, Bruce records "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)." It will remain unreleased for two decades.<br>
 
 [Watch on Youtube: County Fair (Studio Outtake - 1983)](https://www.youtube.com/watch?v=yltKgMyWLH0)
 
@@ -34,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1995-0324.jpg.webp)
 
-**2008:** Bruce plays “[You’ll Be Comin’ Down](../2018-09-03_roll-of-the-dice-youll-be-comin-down/post.md)” for the first and only time when the Magic Tour stops at the Value City Arena in Columbus, Ohio. The set list also features the tour premieres of “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” and “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md).”<br>
+**2008:** Bruce plays "[You'll Be Comin' Down](../2018-09-03_roll-of-the-dice-youll-be-comin-down/post.md)" for the first and only time when the Magic Tour stops at the Value City Arena in Columbus, Ohio. The set list also features the tour premieres of "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" and "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - You'll Be Comin Down - Columbus- March 24, 2008](https://www.youtube.com/watch?v=xp71N3OTQ4g)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2008-03-24.jpg.webp)
 
-**2009:** The second and final rehearsal show for the Working on a Dream Tour features the live premiere of “[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)” at Asbury Park’s Convention Hall.<br>
+**2009:** The second and final rehearsal show for the Working on a Dream Tour features the live premiere of "[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)" at Asbury Park's Convention Hall.<br>
 
 [Watch on Youtube: Kingdom Of Days - Asbury Park 2009](https://www.youtube.com/watch?v=aHGw8t9zoGM)
 
@@ -54,7 +64,7 @@
 
 [Watch on Youtube: Something In The Night - Bruce Springsteen - Rod Laver Arena - 24-03-2013](https://www.youtube.com/watch?v=G6RuCkjsUR4)
 
-**2016:** The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md).” Eddie Vedder joins Bruce for “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” in the encores. For more highlights, see my [*Where the Band Was* report for this show.](../2018-03-24_where-the-band-was-seattle-march-24-2016/post.md)<br>
+**2016:** The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)." Eddie Vedder joins Bruce for "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" in the encores. For more highlights, see my [*Where the Band Was* report for this show.](../2018-03-24_where-the-band-was-seattle-march-24-2016/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen and Eddie Vedder- Bobby Jean, Key Arena, Seattle, WA, March 24, 2016](https://www.youtube.com/watch?v=TuyXZLdfSCQ)
 
@@ -66,6 +76,6 @@
 
 [Watch on Youtube: New Jersey Pandemic Relief Fund launch](https://www.youtube.com/watch?v=uHGGh5mFJng)
 
-**2021:** Bruce sends a video message out to remember Austalian promotor Michael Gudiski, who passed away on March 2nd, and dedicates “[I’ll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)” to him.<br>
+**2021:** Bruce sends a video message out to remember Austalian promotor Michael Gudiski, who passed away on March 2nd, and dedicates "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" to him.<br>
 
 [Watch on Youtube: Michael Gudinski's state memorial was a celebration of 50 years of passion | ABC News](https://www.youtube.com/watch?v=n_MP_Iq5uGo)

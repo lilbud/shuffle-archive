@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: That's What You Get"
+author: "Ken"
+excerpt: "Listen to Bruce’s very first B-side, the oldest known recording (tied with “Baby I”) of a Bruce Springsteen performance."
+tags: thats-what-you-get the-castiles
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/what-you-get.jpg
+post_id: 14435
+---
 If you've been following this blog for a while, you know (if you didn't already) that Bruce's lyrics cross-pollinate through his catalog. Identical lines (or nearly so) show up in multiple songs, sometimes across a period of several years.
 
 But here's an example that's extreme even by Bruce's standards.

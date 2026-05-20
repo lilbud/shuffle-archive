@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Leap of Faith"
+author: "Ken"
+excerpt: "If Human Touch is an exercise in over-polished pop, Lucky Town is a rock exorcism, and “Leap of Faith” is the prayer. “Leap of Faith”…"
+post_id: 67620
+---
 If *Human Touch* is an exercise in over-polished pop, *Lucky Town* is a rock exorcism, and "Leap of Faith" is the prayer.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=U4ALQoRaB9w)

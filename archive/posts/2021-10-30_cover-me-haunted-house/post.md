@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Haunted House"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the E Street Band open their Halloween 1980 show with a cover of Johnny Fuller’s spooky classic."
+tags: haunted-house johnny-fuller jumpin-gene-simmons
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/haunted.jpg
+post_id: 30100
+---
 It doesn't happen often anymore, but when Bruce plays a show on Halloween Eve, you know he's going to recognize the occasion. Perhaps a rare outing for "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," which opened his 1992 show, or "[A Night With the Jersey Devil](../2019-05-14_roll-of-the-dice-a-night-with-the-jersey-devil/post.md)" and "[Monster Mash](../2019-10-29_cover-me-monster-mash/post.md)," both of which made appearances twenty years to the day later.
 
 But on the original River Tour in 1980, Bruce opened his show with a appropriately themed song that he's never played before or since.

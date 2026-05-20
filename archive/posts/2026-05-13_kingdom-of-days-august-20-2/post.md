@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 20"
+author: "Ken"
+excerpt: "Two legendary shows happened on this date: the 1981 Vietnam Veterans benefit and the closing show of the 1984 ten-night Meadowlands stand. Highlights from these and other great shows inside."
+tags: born-in-the-usa-tour boston dion-dimucci drift-away east-rutherford joe-grushecky john-eddie live-1975-85 los-angeles miami-horns portland rising-tour river-tour steve-van-zandt vietnam-veterans-of-america
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/nj84.jpg
+post_id: 59398
+---
 **1973:** Bruce and the E Street Band kick off a seven-night stand at Oliver's in Boston.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1973-0820.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 2"
+author: "Ken"
+excerpt: "Another date chock full of events for Bruce: From a late-night Letterman appearance to surprise bar gigs to the first performances of “Book of Dreams” and “Terry’s Song” and more."
+tags: bobby-bandiera book-of-dreams born-to-run-tour burnin-love cats-on-a-smooth-surface charlotte darkness-tour david-letterman east-rutherford foxboro having-a-party jackson-browne jersey-girl lawsuit-tour light-of-day little-latin-lupe-lu lonesome-day madison-square-garden madrid magic-tour my-fathers-place new-york-city norfolk point-blank red-bank reunion-tour rising-tour santiago-de-compostela something-in-the-night spain stone-pony terry-magovern terrys-song this-life tunnel-of-love-tour up-on-the-roof willie-and-the-hand-jive working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/admin-ajax-70.jpg
+post_id: 57895
+---
 **1973:** Bruce and the E Street Band (although they aren't known by that name yet) play two shows on their final night of a three-night stand at My Father's Place in Roslyn, New York.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/1973-0802.jpg.webp)

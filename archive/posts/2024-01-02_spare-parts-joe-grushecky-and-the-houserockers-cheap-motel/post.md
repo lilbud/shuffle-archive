@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Spare Parts: Cheap Motel"
+author: "Ken"
+excerpt: "Co-written but never performed by Bruce, Joe Grushecky’s “Cheap Motel” sure *sounds* like a Bruce song. Take a listen inside."
+tags: cheap-motel joe-grushecky-and-the-houserockers
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/cheapmotel.jpg
+post_id: 15195
+---
 I’m glad I started this “Spare Parts” series recently, because I’d have no idea how else to classify this, to be honest.
 
 In one sense, “Cheap Motel” is an original Springsteen song in that Bruce wrote the music. But he didn’t write the lyrics–the great Joe Grushecky supplied those.

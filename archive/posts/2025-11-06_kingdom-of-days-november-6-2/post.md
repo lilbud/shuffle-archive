@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 6"
+author: "Ken"
+excerpt: "Bruce makes his first public appearance after Election Day 2004, Hall and Oates opens for Bruce, and more."
+tags: austin born-to-run-tour canada cats-on-a-smooth-surface clarence-clemons cologne earth fabulous-grease-band fargo germany hall-and-oates joe-grushecky land-of-hope-and-dreams light-of-day madison-square-garden maxs-kansas-city my-hometown new-york-city reunion-tour rosalita seeger-sessions-tour spirit-in-the-night stand-up-for-heroes stone-pony tempe toronto wnew wolfgang-niedecken world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/bs241106_01.jpg
+post_id: 61285
+---
 ***New for 2025:** Review for 1973 and 1999; audio for 2006; new entry for 2024*<br>
 
 **1968:** Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>

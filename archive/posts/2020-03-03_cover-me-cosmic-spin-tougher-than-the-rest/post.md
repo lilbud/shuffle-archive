@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Cosmic Spin: Tougher Than the Rest"
+author: "Ken"
+excerpt: "Hot off the presses, Cosmic Spin brings their trademark harmonies and guitar grooves to Bruce’s “Tougher Than the Rest” — and the result is fantastic."
+tags: cosmic-spin tougher-than-the-rest
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/cspin-tougher.jpg
+post_id: 16478
+---
 I'm digging Cosmic Spin at the moment. Their *Gilding Lillies* EP is well worth seeking out for their gorgeous harmonies, deep grooves, and fantastic cover arrangements of Fleetwood Mac, Neil Young, and other great artists.
 
 If you're a fan of early Everything But the Girl, you'll love Cosmic Spin.

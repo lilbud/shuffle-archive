@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 19"
+author: "Ken"
+excerpt: "On this date: Rosie goes missing, Queen of the Supermarket turns up, Philly Elvis makes his debut, and more. Plus: highlights from the star-studded Alliance of Neighbors benefit concert."
+tags: albuquerque all-just-to-get-to-you all-shook-up all-the-way-home alliance-of-neighbors american-babylon-tour bon-jovi born-in-the-usa-tour born-to-run-book born-to-run-tour boston canada earth england garry-tallent ghost-of-tom-joad-tour jesse-james joan-jett joe-ely joe-grushecky land-of-hope-and-dreams london los-angeles madrid max-weinberg michelle-moore my-city-of-ruins new-mexico ottawa patti-scialfa philadelphia philly-elvis phoebe-snow queen-of-the-supermarket schenectady seeger-sessions-tour spain springsteen-on-broadway stand-by-me street-fighting-man tacoma uk when-you-walk-in-the-room wild-innocent-tour wooly-bully working-on-a-dream-tour wrecking-ball-tour you-can-look-but-you-better-not-touch
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/20011019_front.jpg
+post_id: 61152
+---
 ***New for 2025:** Audio for 2004, 2006, and 2018*<br>
 
 **1968:** Earth plays a show at Le Teendezvous in New Shrewsbury, New Jersey.<br>
@@ -6,11 +16,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1968-1019.jpg.webp)
 
-**1973:** Bruce and the E Street Band play their fifth of five nights at Oliver’s in Boston in lieu of a scheduled but cancelled show at the University of Bridgeport.<br>
+**1973:** Bruce and the E Street Band play their fifth of five nights at Oliver's in Boston in lieu of a scheduled but cancelled show at the University of Bridgeport.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1973-1018.jpg.webp)
 
-**1974:** Bruce and the E Street Band play a show at Union College, in the school’s Memorial Chapel Concert Hall.<br>
+**1974:** Bruce and the E Street Band play a show at Union College, in the school's Memorial Chapel Concert Hall.<br>
 
 [Watch on Youtube: Bruce Springsteen Live Concert - 10/19/74 Memorial Chapel Concert Hall, Schenectady, NY](https://www.youtube.com/watch?v=W9kelA2SxSk)
 
@@ -18,7 +28,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/5HvNdNG9)
 
-**1984:** The Recording Industry Association of America certifies *Born in the U.S.A.* triple platinum. By evening, Bruce has recovered enough from his flu to perform his rescheduled Born in the U.S.A. show in Tacoma. “Rosalita (Come Out Tonight)” goes missing from the setlist for the first time in a decade.<br>
+**1984:** The Recording Industry Association of America certifies *Born in the U.S.A.* triple platinum. By evening, Bruce has recovered enough from his flu to perform his rescheduled Born in the U.S.A. show in Tacoma. "Rosalita (Come Out Tonight)" goes missing from the setlist for the first time in a decade.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VXCyjDsw)
 
@@ -62,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2001-10-19.png.webp)
 
-**2004:** *Enjoy Every Sandwich: The Songs of Warren Zevon* is released. Bruce contributes a track to the tribute album, his live 2003 performance of “[My Ride’s Here](../2022-03-24_cover-me-my-rides-here/post.md).”<br>
+**2004:** *Enjoy Every Sandwich: The Songs of Warren Zevon* is released. Bruce contributes a track to the tribute album, his live 2003 performance of "[My Ride's Here](../2022-03-24_cover-me-my-rides-here/post.md)."<br>
 
 [Watch on Youtube: My Ride's Here](https://www.youtube.com/watch?v=m6h4ULA0Q10)
 
@@ -82,7 +92,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Madrid 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=x9bHS79zB3w)
 
-**2009:** Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–“[When You Walk in the Room](https://estreetshuffle.com/?p=21789),” played here for the first time in 33 years. The setlist also features the first full-band “[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)” in 27 years and the on-stage debut of “Philly Elvis” (a.k.a Nick Ferraro) for the tour premiere of “[All Shook Up](../2019-08-03_matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/post.md).” Oh and not for nothing, the show also includes a full album performance of *Born to Run*. For more highlights from this show, see my [*Where the Band Was* report.](../2018-10-19_where-the-band-was-philadelphia-october-19-2009/post.md)<br>
+**2009:** Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–"[When You Walk in the Room](https://estreetshuffle.com/?p=21789)," played here for the first time in 33 years. The setlist also features the first full-band "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" in 27 years and the on-stage debut of "Philly Elvis" (a.k.a Nick Ferraro) for the tour premiere of "[All Shook Up](../2019-08-03_matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/post.md)." Oh and not for nothing, the show also includes a full album performance of *Born to Run*. For more highlights from this show, see my [*Where the Band Was* report.](../2018-10-19_where-the-band-was-philadelphia-october-19-2009/post.md)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RSUrvwNj)
 
@@ -92,7 +102,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2009-10-19.png.webp)
 
-**2012:** Bruce kicks off the final North American leg of the Wrecking Ball Tour with a show at Scotiabank Place in Ottawa, where “[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md)” receives only its second-ever performance, and its first in a solo acoustic arrangement.<br>
+**2012:** Bruce kicks off the final North American leg of the Wrecking Ball Tour with a show at Scotiabank Place in Ottawa, where "[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md)" receives only its second-ever performance, and its first in a solo acoustic arrangement.<br>
 
 [Watch on Youtube: Prove it All Night ('78 intro) - Bruce Springsteen - 20121019 Ottawa](https://www.youtube.com/watch?v=Xoh5vFLDeTE)
 
@@ -110,15 +120,15 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, and Bruce releases a new song, a cover of “[If I Had a Hammer](../2019-10-07_cover-me-if-i-had-a-hammer/post.md),” on an anniversary compilation for Appleseed Records. The song was recorded during the Seeger Sessions in 2006.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, and Bruce releases a new song, a cover of "[If I Had a Hammer](../2019-10-07_cover-me-if-i-had-a-hammer/post.md)," on an anniversary compilation for Appleseed Records. The song was recorded during the Seeger Sessions in 2006.<br>
 
 [Watch on Youtube: If I Had a Hammer (The Hammer Song)](https://www.youtube.com/watch?v=ZbrEKXppwMQ)
 
 **2019:** Bruce surprises a hometown crowd by introducing two screenings of *Western Stars* at the Freehold AMC Theater.<br>
 
-[Watch on Youtube: Bruce Springsteen introducing](https://www.youtube.com/watch?v=zXUHxrcoY38)
+[Watch on Youtube: Bruce Springsteen introducing "Western Stars" film screening- Freehold, NJ - 10/19/19](https://www.youtube.com/watch?v=zXUHxrcoY38)
 
-**2020:** As the release of Bruce’s *Letter to You* album nears, promotional activities ramp up. Today, Bruce appears on *The Zane Lowe Show* on Apple Music, and E Street Radio airs Episode 1 of *Letter to You Radio*, featuring conversations with Bruce, Clive Davis, and Jon Landau.<br>
+**2020:** As the release of Bruce's *Letter to You* album nears, promotional activities ramp up. Today, Bruce appears on *The Zane Lowe Show* on Apple Music, and E Street Radio airs Episode 1 of *Letter to You Radio*, featuring conversations with Bruce, Clive Davis, and Jon Landau.<br>
 
 [Watch on Youtube: Bruce Springsteen - Apple Music 'Letter To You' Interview](https://www.youtube.com/watch?v=PhkL4K7Esc0)
 

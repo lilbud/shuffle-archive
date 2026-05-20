@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Wall"
+author: "Ken"
+excerpt: "How an old newspaper article and unsettling dinner company inspired one of Bruce Springsteen’s most hauntingly moving songs."
+tags: high-hopes joe-grushecky the-wall
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Vietnam_Memorial_Wall_with_Washington_Monument.jpg
+post_id: 52382
+---
 Those who work there call it "The Floor."
 
 It stretches as far as the eye can see across a cavernous warehouse in Landover, Maryland. The nondescript building bears a quite descript name: the National Park Service National Capital Region Museum Resource Center.

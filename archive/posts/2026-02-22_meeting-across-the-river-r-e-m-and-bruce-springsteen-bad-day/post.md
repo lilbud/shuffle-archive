@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Bad Day"
+author: "Ken"
+excerpt: "For one week only during the Vote for Change Tour, Bruce joined R.E.M. on one of their latest singles with a very Springsteenian backstory."
+tags: bad-day p-s-a r-e-m vote-for-change
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/badday.jpg
+post_id: 26704
+---
 "Bad Day" isn't the most well-known R.E.M. song that Bruce has performed, but it's probably the most fitting one.
 
 After all, "Bad Day" evolved in true Springsteenian style, first appearing in the form of a couple of lyrics seemingly ad libbed by Michael Stipe "Drive All Night"-style in concert on August 25, 1985.

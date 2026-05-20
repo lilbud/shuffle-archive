@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Cowboys of the Sea"
+author: "Ken"
+excerpt: "For a young Jersey Shore songwriter fascinated with American westerns, undersea cowboys is as high concept as it gets."
+tags: cowboys-of-the-sea the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/negative-space-man-horse-cowboy-hat-sea-water-photo-graphe-thumb-1.jpg
+post_id: 29030
+---
 It was one of the songs Bruce played when he auditioned for Mike Appel.
 
 It was one of the songs Bruce demoed with John Hammond the day after Appel introduced them.

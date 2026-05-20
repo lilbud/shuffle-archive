@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Drinkin' Wine, Spo-Dee-O-Dee"
+author: "Ken"
+excerpt: "One time only: Bruce opens his winery show with an oenological classic of ithyphallic origin."
+tags: drinking-wine-spo-dee-o-dee jerry-lee-lewis sam-theard spo-dee-o-dee stick-mcghee the-nightcaps
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/stickwine.jpg
+post_id: 24823
+---
 This is gonna be a long walk, and it goes through a red light district, but trust me: the destination is worth it.
 
 In the early and mid-twentieth century, Sam Theard made a name and a living for himself as a singer, comedian, and actor. Oh, and also a songwriter.

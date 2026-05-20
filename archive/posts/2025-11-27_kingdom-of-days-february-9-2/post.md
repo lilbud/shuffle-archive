@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 9"
+author: "Ken"
+excerpt: "On this date: Watch highlights from Bruce’s last show in Sydney. Off-stage, a fourteen-year old Bruce watches the Beatles live debut on American TV. More highlights inside."
+tags: australia buffalo ed-sullivan lawsuit-tour new-york-city-serenade rendezvous sting sydney the-beatles thunder-road
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/26274124577_75fe4820cb_b.jpg
+post_id: 55884
+---
 **1964:** Bruce watches The Beatles make their live American debut on The Ed Sullivan Show. Bruce is inspired, galvanized, and dedicates himself to learning music and playing his guitar.<br>
 
 [Watch on Youtube: The Beatles - I Want To Hold Your Hand - Performed Live On The Ed Sullivan Show 2/9/64](https://www.youtube.com/watch?v=jenWdylTtzs)

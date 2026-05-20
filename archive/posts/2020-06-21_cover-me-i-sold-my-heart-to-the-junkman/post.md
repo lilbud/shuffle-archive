@@ -1,8 +1,18 @@
-About the only things that I can tell you for certain about "I Sold My Heart to the Junkman" are that it was written by Leon René (who also wrote "[Rockin' Robin](../2021-08-10_cover-me-rockin-robin/post.md)" and other hits) under the pseudonym Jimmie Thomas, first recorded in 1946 by The Basin Street Boys...
+---
+layout: post
+title: "Cover Me: I Sold My Heart to the Junkman"
+author: "Ken"
+excerpt: "Who made “I Sold My Heart to the Junkman” famous, and what made Bruce cover it one night in 1974? Just two of the many mysteries surrounding this classic song."
+tags: i-sold-my-heart-to-the-junkman patti-labelle patti-labelle-and-her-blue-belles the-basin-street-boys
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/junkman.jpg
+post_id: 19183
+---
+About the only things that I can tell you for certain about "I Sold My Heart to the Junkman" are that it was written by Leon René (who also wrote "[Rockin' Robin](../2021-08-10_cover-me-rockin-robin/post.md)" and other hits) under the pseudonym Jimmie Thomas, first recorded in 1946 by The Basin Street Boys…
 
 [Watch on Youtube: I Sold My Heart To The Junk Man - Basin Street Boys](https://www.youtube.com/watch?v=YmhAQbKo3C4)
 
-...and then translated into a wonderful arrangement by Etta Jones the following year.
+…and then translated into a wonderful arrangement by Etta Jones the following year.
 
 [Watch on Youtube: I Sold My Heart to the Junkman](https://www.youtube.com/watch?v=E14Iqk78eug)
 

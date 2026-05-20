@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 21"
+author: "Ken"
+excerpt: "Too many highlights to list: the first cut of “Born to Run,” the first “Meeting Across the River” in 20 years, and more. Plus: the debut of Bruce Springsteen and the Hot Mammas (really)."
+tags: across-the-border anaheim born-to-run bruce-springsteen-and-the-hot-mammas castiles clarence-clemons david-letterman east-rutherford florence ghost-of-tom-joad-tour i-wanna-be-with-you interview itlay london madrid meeting-across-the-river outlaw-pete reunion-tour river-tour-2016 rolling-stone seeger-sessions-tour stockholm sweden the-ghost-of-tom-joad working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/20230521-rome-it-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56798
+---
 **1966:** The Castiles perform at their own junior prom at Freehold Regional High School.<br>
 
 **1971:** Even shorter-lived than Dr. Zoom and the Sonic Boom: *Bruce Springsteen and the Hot Mammas*, making their debut performance in two shows at The Upstage. Bruce also plays an afternoon show on this date with The Sundance Blues Band.<br>

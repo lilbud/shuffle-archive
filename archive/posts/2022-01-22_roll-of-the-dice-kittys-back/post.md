@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Kitty's Back"
+author: "Ken"
+excerpt: "It’s big and brassy; it swings and it struts. And more than any other song in Bruce’s catalog, no two performances are alike."
+tags: kittys-back the-wild-the-innocent-and-the-e-street-shuffle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/kitty.jpg
+post_id: 31937
+---
 When Bruce inducted the E Street Band into the Rock and Roll Hall of Fame, they closed their set with the only song appropriate for the occasion.
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - "Kitty's Back" | 2014 Induction](https://www.youtube.com/watch?v=QW-ZDRooOB8)

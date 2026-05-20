@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Why's It So Hard"
+author: "Ken"
+excerpt: "“Why’s It So Hard” is a Springsteen original, but he takes a backseat in his only live performance of it. Southside Johnny takes the lead vocals, and Dave Sancious is absolutely on fire on the organ. Take a listen inside."
+tags: southside-johnny sundance-blues-band whys-it-so-hard
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/admin-ajax-66.jpg
+post_id: 7404
+---
 I almost feel guilty including "Why's It So Hard" in the *Roll of the Dice* series.
 
 Yes, it's a Springsteen original–he wrote it in his Bruce Springsteen Band period, most likely in 1971.

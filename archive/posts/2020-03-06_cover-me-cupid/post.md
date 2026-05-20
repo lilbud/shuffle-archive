@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Cupid"
+author: "Ken"
+excerpt: "Set the wayback machine for 1974 and listen to Bruce Springsteen and the E Street Band give a ska treatment to Sam Cooke’s “Cupid.”"
+tags: cupid sam-cooke
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/cupid.jpg
+post_id: 16555
+---
 Adventurous arrangements of unexpected cover songs have been concert staples for Bruce Springsteen and the E Street Band since their earliest days. They don't *always* work, though.
 
 Case in point: Sam Cooke's "Cupid."

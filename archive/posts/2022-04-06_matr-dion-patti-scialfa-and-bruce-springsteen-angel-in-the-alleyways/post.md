@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Dion, Patti Scialfa, and Bruce Springsteen: Angel in the Alleyways"
+author: "Ken"
+excerpt: "Patti and Bruce reunited with Dion DiMucci last year on a second religious-themed collaboration."
+tags: angel-in-the-alleyways dion dion-dimucci patti-scialfa
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/dion.jpg
+post_id: 33507
+---
 Some team-ups are too good to be one-offs.
 
 In 2020, Patti Scialfa and Bruce Springsteen lent their talents to Dion for a new arrangement of Dion's "[Hymn to Him](../2021-04-26_matr-dion-bruce-springsteen-and-patti-scialfa-hymn-to-him/post.md)" paean on his *Blues With Friends* album, with Patti arranging and providing beautiful background vocals and Bruce contributing a guitar solo.

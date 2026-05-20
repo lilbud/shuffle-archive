@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 15"
+author: "Ken"
+excerpt: "On this date: Bruce and Steve make a surprise guest appearance with Paul McCartney, Patti plays a solo show in Asbury Park, a judge bans Bruce from the recording studio, and k.d. lang joins Bruce, Sting, and the rest of the Human Rights Now! crew. More highlights inside."
+tags: born-in-the-usa-tour canada darkness-tour from-my-home-to-yours human-rights-now-tour i-saw-her-standing-there k-d-lang mike-appel new-york-city palladium patti-scialfa paul-mccartney philadelphia reunion-tour steve-van-zandt toronto
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/09/bs240915_01.jpg
+post_id: 59656
+---
 ***New for 2025:** Expanded entry and audio for 1977; new entry for 1983, 1987, 1989, 2007, and 2024*<br>
 
 **1973:** A scheduled gig at Syracuse University is cancelled to make room for production work on *The Wild, The Innocent, and the E Street Shuffle.*<br>

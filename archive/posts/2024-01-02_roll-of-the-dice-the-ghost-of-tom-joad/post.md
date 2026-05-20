@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Ghost of Tom Joad"
+author: "Ken"
+excerpt: "Bruce’s personal anthem has been central and vital to his catalog since its 1995 debut, receiving an astonishing *four* different studio releases. Listen to them all, along with backstory, insights, and great performances inside."
+tags: chapter-and-verse high-hopes pete-seeger sowing-the-seeds springsteen-on-broadway the-ghost-of-tom-joad the-people-speak tom-morello
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/theghostoftomjoad_sin-at-samp3142.jpg
+post_id: 12909
+---
 > "I had been watching what's happening in the world and seeing thirty years of work undone. It seems disastrous to me–and everyone is compliant. I don't think there is any such thing as an innocent man; there is a collective responsibility." — *Bruce Springsteen to David Corn, December 1995*<br>
 
 "The Ghost of Tom Joad" holds a special place in Bruce's catalog. Not only is it widely considered to be one of his finest songs, it's also his only song to receive not one or two–or even three–but *four* separate studio recordings in three distinct arrangements, released on four different albums. Sadly, it seems to speak to the moment–when it was first released, today, and at any point along the way.

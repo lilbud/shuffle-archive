@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Last Night in Tulsa"
+author: "Ken"
+excerpt: "Nothing particularly stands out about this Bruce Springsteen Band-era road song, but sometimes that’s not that the aim."
+tags: last-night-in-tulsa the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/tulsa.jpg
+post_id: 23376
+---
 Some songs run deep; others float right on by.
 
 Every once in a while, Bruce writes a pure pop song like "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" or "[You've Got It](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)" that requires no lyrical analysis–everything we need to know is right there on the surface.

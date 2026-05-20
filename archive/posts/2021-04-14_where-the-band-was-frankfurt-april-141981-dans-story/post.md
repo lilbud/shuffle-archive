@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Frankfurt, April 14,1981 (Dan's Story)"
+author: "Ken"
+excerpt: "Point Blank founder Dan French shares the first part of an epic E Street adventure."
+tags: dan-french
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/df4.png
+post_id: 25023
+---
 Editor's Note
 
 ***Editor's Note:*** *Today's guest blogger has the most vividly detailed and colorful E Street adventure I've ever heard (so much so that I've had to split it into two parts).*<br>

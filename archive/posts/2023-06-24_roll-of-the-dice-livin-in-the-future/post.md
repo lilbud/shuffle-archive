@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Livin' in the Future"
+author: "Ken"
+excerpt: "The first song written for Magic is as timely today as it was prophetic twenty years ago."
+tags: livin-in-the-future magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/06/future.jpeg
+post_id: 43751
+---
 > "Who would have ever thought we'd live in a country with no right to habeas corpus? That's Orwellian… You get frightened for your family, for your home. And you realize how countries can move way off course, very far from democratic ideals. Add another terrorist attack or two, and the country can turn into a pretty scary place… It happens in a very American way – the flag is flying over civil liberties as they crumble." — Bruce Springsteen, *Rolling Stone*, November 1, 2007
 
 Twenty years ago, most Americans believed their country was headed in the wrong direction.

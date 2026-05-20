@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 29"
+author: "Ken"
+excerpt: "On this date: Bruce’s first show in Ohio, performances destined for Live 1975-85, and an E Street Band guest appearance on Good Morning America. More highlights inside."
+tags: blackberry-booze-band bryn-mawr darkness-on-the-edge-of-town dayton incident-on-57th-street live-1975-85 main-point ohio river-tour sha-na-na springsteen-on-broadway this-land-is-your-land uniondale you-can-look-but-you-better-not-touch
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/NAUSSU_12.29.80_coverTW.jpg
+post_id: 63457
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1972:** ~~Rick~~ Bruce plays in Ohio for the first time, when he and the band open for Sha Na Na in Dayton.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Long Tall Sally"
+author: "Ken"
+excerpt: "Lots of times with lots of people: “Long Tall Sally” is tried and true when Bruce joins fellow musicians for an impromptu jam. Check out some of his best performances inside."
+tags: john-fogerty la-bamba little-richard long-tall-sally max-weinberg-7 stray-cats the-fabulous-greaseband
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/little-richard-long-tall-sally-big.jpg
+post_id: 8273
+---
 Is there anyone Bruce *hasn't* played "Long Tall Sally" with?
 
 It sure doesn't seem like it.

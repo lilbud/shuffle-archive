@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Little Things (My Baby Does)"
+author: "Ken"
+excerpt: "Little Steven calls it the E Street Band’s finest moment on record, and he may be right."
+tags: the-little-things-my-baby-does the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/littlethings.jpg
+post_id: 32877
+---
 > "‘The Little Things (My Baby Does)'… in my opinion, for me right now, may be our finest moment on record. Period. I'm serious." — Little Steven, *Little Steven's Underground Garage*, Episode 470
 
 Stevie makes a pretty compelling claim.

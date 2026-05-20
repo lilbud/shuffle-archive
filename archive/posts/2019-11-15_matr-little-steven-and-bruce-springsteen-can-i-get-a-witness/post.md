@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Little Steven and Bruce Springsteen: Can I Get a Witness"
+author: "Ken"
+excerpt: "One time only: Bruce and Little Steven team-up for an encore of Marvin Gaye’s “Can I Get a Witness” at Steve’s Soulfire record release event."
+tags: can-i-get-a-witness little-steven-and-the-disciples-of-soul marvin-gaye steve-van-zandt
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/witness.jpg
+post_id: 13915
+---
 Fans attending Little Steven's *Soulfire* record release show at the Count Basie Theater were no doubt delighted when Bruce Springsteen made a late on-stage appearance, but they probably weren't surprised. Bruce often turns up when his lifelong friend performs locally.
 
 They probably weren't shocked by the song selection, either: Bruce and Steve have performed "It's Been a Long Time" and "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)" together many times, and "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" too may times to count.

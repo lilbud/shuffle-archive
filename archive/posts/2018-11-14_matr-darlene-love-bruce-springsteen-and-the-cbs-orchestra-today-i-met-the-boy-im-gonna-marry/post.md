@@ -1,3 +1,12 @@
+---
+layout: post
+title: "MatR: Darlene Love and Bruce Springsteen, Today I Met the Boy I'm Gonna Marry"
+author: "Ken"
+excerpt: "One time only: Bruce joined Darlene Love at her Rock and Roll Hall of Fame induction, teaming up on “Today I Met the Boy I’m Gonna Marry.”"
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/t_darlene_love__today_i_met_the_boy_im_gonna_marry_ic001_122.jpg
+post_id: 5725
+---
 In 2011, Darlene Love was inducted into the Rock and Roll Hall of Fame. Bruce joined Darlene and the house band on stage at the induction ceremony for three of her songs, including her 1963 hit, “Today I Met the Boy I’m Gonna Marry.”
 
 [Watch on Youtube: [Today I Met] The Boy I'm Gonna Marry](https://www.youtube.com/watch?v=MLAbXua2WxU)

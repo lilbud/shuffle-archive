@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Settle for Love"
+author: "Ken"
+excerpt: "Bruce and Joe Ely have been friends for decades, and it all started when their tour schedules brought them together–twice–in Dublin. Check out a few of their great performances of Joe’s “Settle For Love” inside."
+tags: dig-all-night dublin ireland joe-ely settle-for-love
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/settle.jpg
+post_id: 17360
+---
 Bruce Springsteen rolled into Dublin a few days before his 1993 concert to take in a show by, of all things, a Texas singer-songwriter he'd never met.
 
 Although Bruce has long been a fan of southwestern rock, Joe Ely had more than that going for him. Ely's rock roots run deep–if you listen to "Should I Stay or Should I Go" by The Clash, that's Ely contributing the Spanish response to Joe Strummer's chorus call.

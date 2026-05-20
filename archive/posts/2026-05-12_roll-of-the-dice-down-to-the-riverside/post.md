@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Down to the Riverside"
+author: "Ken"
+excerpt: "One time only: Bruce relives the day his grandfather died in this powerful, intimate, and bluesy performance."
+tags: bruce-springsteen-band down-to-the-riverside
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/IMG_1782.jpeg
+post_id: 30275
+---
 > "Every chance I got, I returned to stay with my grandparents. It was my true home and they felt like my real parents. I could and would not leave… This was where I needed to be to feel at home, safe, loved…
 >
 > It was a place where I felt an ultimate security, full license and a horrible unforgettable boundary-less love… It made me in the sense that it would set me off on a lifelong pursuit of a "singular" place of my own, giving me a raw hunger that drove me, hell-bent, in my music. It was a desperate, lifelong effort to rebuild, on embers of memory and longing, my temple of safety."

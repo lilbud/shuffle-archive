@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Save the Last Dance for Me"
+author: "Ken"
+excerpt: "Bruce doesn’t play The Drifters’ 1960 classic often, but each time he does, it’s a magic moment."
+tags: save-the-last-dance-for-me the-drifters
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/lastdance.jpg
+post_id: 21788
+---
 We've known that Bruce is a fan of The Drifters long before he namechecked ~~Benny~~ Ben E. King in "The Power of Prayer."
 
 He may not have played "This Magic Moment" in concert (yet), but he's certainly played the group's bigger hit from that year, "Save the Last Dance For Me."

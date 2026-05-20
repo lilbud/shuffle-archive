@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sitting on Top of the World"
+author: "Ken"
+excerpt: "One time only (that we can listen to, at least): Listen to The Bruce Springsteen Band at their bluesiest, as they cover Howlin’ Wolf’s Chicago blues classic."
+tags: howlin-wolf sitting-on-top-of-the-world the-mississippi-sheiks
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/sitting.jpg
+post_id: 25697
+---
 If you are a fan of the blues, then today's entry is for you, because trust me: you will never hear Bruce Springsteen any bluesier than this.
 
 If you've been following my five-year odyssey through Bruce's recording and performance history for at least a few months, you've probably already figured out we're about to take another trip back to the Bruce Springsteen Band era.
@@ -24,7 +34,7 @@ But we do have one recording of Bruce performing it with his eponymous band in F
 
 And as sacrilegious as it may be to say: I think Bruce's version smokes all the others. Every band member is dialed in with just the slightest restraint so as to never break the mood. The pacing is perfect, Bruce's vocals are soulful, and (of course) Sancious dazzles during his solo.
 
-But oh, that wailing guitar solo finish by 22-year-old Bruce... those final two minutes rank among my favorite "Pre-Street" moments on record.
+But oh, that wailing guitar solo finish by 22-year-old Bruce… those final two minutes rank among my favorite "Pre-Street" moments on record.
 
 [Watch Video Highlight](https://videopress.com/embed/iKPVOvfb)
 
@@ -38,4 +48,4 @@ But it was only a matter of weeks between those smoky Back Door performances and
 **First performed:** February 4, 1972 (Richmond, VA)*<br>
 **Last performed:** February 4, 1972 (Richmond, VA)<br>
 
-**While the above recording definitely originated at Bruce's February 1972 stand at The Back Door, there's good reason to believe it may be from a night other than the one officially cited. That's because when the recordings first surfaced, not all of Bruce's gigs at The Back Door had been documented. Regardless, though, we're listening to 49-year-old recordings.**<br>
+*While the above recording definitely originated at Bruce's February 1972 stand at The Back Door, there's good reason to believe it may be from a night other than the one officially cited. That's because when the recordings first surfaced, not all of Bruce's gigs at The Back Door had been documented. Regardless, though, we're listening to 49-year-old recordings.

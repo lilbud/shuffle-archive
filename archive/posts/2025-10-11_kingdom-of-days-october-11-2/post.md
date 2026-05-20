@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 11"
+author: "Ken"
+excerpt: "On this date: Steel Mill opens for Ike and Tina Turner, Suki Lahav joins the E Street Band, and the Vote for Change Tour wraps up with a star-studded broadcast. These and more highlights inside."
+tags: born-to-run-tour chicago david-sancious gaithersburg gotham-playboys rem richmond river-tour springsteen-on-broadway steel-mill suki-lahav tina-turner vote-for-change-tour washington-dc wild-innocent-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/PearlJam_2004-10-11_Washington_cover_1288381759.jpg
+post_id: 61099
+---
 ***New for 2025:** Review for 1970; new entry for 1979; video for 2004*<br>
 
 **1970:** Steel Mill opens for The Ike and Tina Turner Revue at a shockingly (at least in retrospect) underattended show at The Mosque in Richmond.<br>

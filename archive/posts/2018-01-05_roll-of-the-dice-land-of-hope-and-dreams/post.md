@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Land of Hope and Dreams"
+author: "Ken"
+excerpt: "In a better world, Land of Hope and Dreams would be our national anthem. It’s certainly my personal one."
+tags: clarence grushecky labor-of-love lohad obama reunion wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/amazing_sunrise_on_the_track_hdr.jpg
+post_id: 52
+---
 In a better world, "Land of Hope and Dreams" would be our national anthem. It's certainly my personal one.
 
 [Watch on Youtube: Land of Hope and Dreams](https://www.youtube.com/watch?v=KHpJhS99Q60)
@@ -6,21 +16,21 @@ I remember hearing it for the first time, in the Tacoma Dome in April, 2000. I w
 
 Like many great Springsteen songs, LOHAD resonates differently in different settings: it can be a celebration of what makes America great, an ode to friendship and fraternity, a reminder of our core values in uncertain times, and a call to arms when decency is under siege.
 
-It can be celebratory and foreboding at the same time. Watch the conclusion of President Obama's farewell address, and try not to choke up when LOHAD swells at the conclusion... and shiver at the lines "You don't know where you're going now, but you know you won't be back."
+It can be celebratory and foreboding at the same time. Watch the conclusion of President Obama's farewell address, and try not to choke up when LOHAD swells at the conclusion… and shiver at the lines "You don't know where you're going now, but you know you won't be back."
 
-[Watch on Youtube: Obama Farewell Speech FULL Event | ABC News](https://www.youtube.com/watch?v=R2Zo8vHOgaM?start=3325)
+[Watch on Youtube: Obama Farewell Speech FULL Event | ABC News](https://www.youtube.com/watch?v=R2Zo8vHOgaM)
 
 Fun fact: Like many Springsteen songs, LOHAD had its genesis in another song. Two, actually:
 
 The obvious spiritual ancestor is the American folk song "This Train." There's no doubt that the chorus of LOHAD is a response to the original "This Train."
 
-Original: "This train don't carry no gamblers, liars, thieves, nor big shot ramblers... This train don't carry nothing but the righteous and the holy."
+Original: "This train don't carry no gamblers, liars, thieves, nor big shot ramblers… This train don't carry nothing but the righteous and the holy."
 
 Bruce's reply: "This train carries saints and sinners. This train carries losers and winners. This train carries whores and gamblers. This train carries lost souls."
 
 [Watch on Youtube: Sister Rosetta Tharpe - This Train](https://www.youtube.com/watch?v=jOrhjgt-_Qc)
 
-...but, musically, "Land of Hope and Dreams" began with a little-known guest appearance by Bruce with a little-known artist on what I believe is the finest album released by anyone during the 1990s.
+…but, musically, "Land of Hope and Dreams" began with a little-known guest appearance by Bruce with a little-known artist on what I believe is the finest album released by anyone during the 1990s.
 
 Give a listen to "[Labor of Love](../2022-05-08_matr-joe-grushecky-and-bruce-springsteen-labor-of-love/post.md)" by Joe Grushecky, and keep an ear out for Bruce's mandolin (yes, that's Bruce playing mandolin). You can hear echoes of LOHAD from the opening bars, but you'll hear it note for note following the chorus at around 1:20.
 

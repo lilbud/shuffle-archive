@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Paradise by the "C""
+author: "Ken"
+excerpt: "Bruce’s only officially released original instrumental provided a much-deserved song-length spotlight for The Big Man."
+tags: live-1975-85 paradise-by-the-c
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/paradisebyc.jpg
+post_id: 23580
+---
 Today, we look at one of the more enigmatic entries in the Springsteen catalog: the instrumental Big Man spotlight, "Paradise by the ‘C'."
 
 By 1978, Bruce's catalog had already grown far too large for his set lists to contain. When he and the E Street Band embarked on the Darkness on the Edge of Town Tour that year, Bruce knew that the only way he was going to be able to spotlight both his new material and older fan favorites was to split the show into two sets, with an intermission to give feet and bladders some relief.

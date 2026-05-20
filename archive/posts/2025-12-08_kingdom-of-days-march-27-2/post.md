@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 27"
+author: "Ken"
+excerpt: "Steve Van Zandt makes his Steel Mill debut, Dr. Zoom and the Sonic Boom play their first show, and Bruce convinces Columbia Records to sign The Bangles–all on this date in Springsteen history."
+tags: atlanta australia better-days born-in-the-usa-tour dr-zoom-and-the-sonic-boom friendly-enemies im-goin-down jungleland live-in-new-york-city melbourne michael-bloomberg my-love-will-not-let-you-down richmond river-tour springsteen-on-broadway steel-mill steve-van-zandt sydney wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-27-washington-dc-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56304
+---
 **1970:** Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1970-0327.jpg.webp)

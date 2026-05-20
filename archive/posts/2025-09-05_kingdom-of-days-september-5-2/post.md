@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 5"
+author: "Ken"
+excerpt: "A guest appearance on stage with The Pretenders and on record with Joe Grushecky lead today’s highlights, along with a stunner of a rainout make-up show in Virginia Beach."
+tags: a-good-life born-in-the-usa-tour bruce-springsteen-band columbus darkness-tour for-you france human-rights-now-tour joe-grushecky new-york-city paris pasadena river-tour-2016 springsteen-on-broadway the-pretenders virginia-beach worcester
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19880904_2_front.jpg
+post_id: 59550
+---
 ***New for 2025:** New entry for 1979*<br>
 
 **1971:** The Bruce Springsteen Band is in residency at the Student Prince in Asbury Park.<br>

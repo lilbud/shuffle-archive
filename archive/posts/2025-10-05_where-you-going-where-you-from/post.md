@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Where You Going, Where You From"
+author: "Ken"
+excerpt: "It’s a long goodbye, but the end of this blog is coming."
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/10/endnear.webp
+post_id: 61083
+---
 **E Street Shuffle will cease publication on January 5, 2026.**<br>
 
 I tend to bury the lede at times, so I figured I'd better start with that.

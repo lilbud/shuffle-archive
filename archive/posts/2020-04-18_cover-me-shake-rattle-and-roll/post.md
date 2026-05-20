@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Shake, Rattle and Roll"
+author: "Ken"
+excerpt: "A rusty E Street Band lumbered through their first attempt at Big Joe Turner’s rock and roll standard, but they more than made up for it 18 years later."
+tags: big-joe-turner bill-haley shake-rattle-and-roll
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/shakerattle.jpg
+post_id: 17124
+---
 On September 1, 1995, more than 10,000 people gathered for the dedication ceremony for the brand new Rock and Roll Hall of Fame.
 
 The following night, all generations of rock and roll came together for the first-ever Hall of Fame concert.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Do You Love Me"
+author: "Ken"
+excerpt: "A few years before Dirty Dancing catapulted The Contours back onto the charts, Bruce was busting out his own dance moves to the 1962 classic."
+tags: do-you-love-me the-countours
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/loveme.jpg
+post_id: 27326
+---
 If you're destined to be a one-hit wonder, it helps if lightning strikes twice.
 
 The Contours know a little bit about that. Their one hit was Berry Gordy's "Do You Love Me," a Twist derivative with an irresistible shouted chorus that the group took all the way to the top of the R&B chart (and #3 on the Hot 100) in the autumn of 1962.

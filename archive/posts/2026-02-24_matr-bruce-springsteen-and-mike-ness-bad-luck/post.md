@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Bad Luck"
+author: "Ken"
+excerpt: "An avid Social Distortion fan, Bruce was bound to cover their biggest hit. Watch Bruce team up–three times–with Mike Ness and Social Distortion on “Bad Luck.”"
+tags: bad-luck mike-ness social-distortion
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/admin-ajax-33.jpg
+post_id: 19061
+---
 If you were with me about six months ago, you may remember our spotlight on Bruce's studio guest appearance with Mike Ness on "Misery Loves Company."
 
 I led that article stating that Bruce had been a fan of Social Distortion (Ness' band) since the early nineties. It's a pretty safe bet that one of the songs that originally grabbed his attention was "Bad Luck."

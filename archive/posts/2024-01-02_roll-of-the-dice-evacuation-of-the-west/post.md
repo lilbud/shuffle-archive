@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Evacuation of the West"
+author: "Ken"
+excerpt: "Part spaghetti western, part Mad Max, part War of the Worlds, “Evacuation of the West” is a brilliant, cinematic, fully realized E Street Band outtake that cries out for an official release."
+tags: evacuation-of-the-west
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/cowboysaliens.jpg
+post_id: 21256
+---
 Bruce Springsteen was fascinated by the American West long before *Western Stars* and [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md). Western imagery and themes feature in Bruce's work dating back to the beginning–even *before* the beginning, if we examine his pre-label material.
 
 We're about to get re-introduced to one of those songs, "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)," on Bruce's upcoming [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md)album next month. There's also the Texan fantasy "[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md)," which appears on *Tracks.* But arguably the greatest pre-historic Springsteen Western song is one that *still* hasn't seen any form of release: "Evacuation of the West."

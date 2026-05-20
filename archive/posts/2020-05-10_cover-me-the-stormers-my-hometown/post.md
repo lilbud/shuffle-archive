@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Stormers: My Hometown"
+author: "Ken"
+excerpt: "Take a listen to this lovely, flute-forward version of “My Hometown” by an Irish wedding band raising funds for a suicide prevention center in their own hometown."
+tags: my-hometown the-stormers
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/stormersmyhometown-1280x640-1.png
+post_id: 18165
+---
 The Stormers are an Irish wedding band, and if the notion of a wedding band covering Bruce's music makes you roll your eyes, just trust me and read on.
 
 The Stormers have a unique sound (they describe it as Tom Jones crossed with U2, if either of those acts included a prominent flautist), and with more than a thousand weddings under their belt, they've put in their time.

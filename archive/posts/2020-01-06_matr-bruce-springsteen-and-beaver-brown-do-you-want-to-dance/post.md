@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Beaver Brown: Do You Want to Dance"
+author: "Ken"
+excerpt: "One time only: Listen to Bruce Springsteen join Rhode Island rockers Beaver Brown in a joyful cover of Bobby Freeman’s “Do You Want to Dance” in a surprise appearance in the summer of 1982."
+tags: bobby-freeman do-you-wanna-dance do-you-want-to-dance
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/Bobby-Freeman-album.jpg
+post_id: 15114
+---
 The summer of 1982 looms large in Springsteen legend.
 
 The River Tour was a year in the past; the marathon Born in the U.S.A. Tour was still two years in the future. But for Bruce Springsteen, an "off-year" summer meant no less than *twenty* unadvertised surprise appearances at Jersey shore clubs.

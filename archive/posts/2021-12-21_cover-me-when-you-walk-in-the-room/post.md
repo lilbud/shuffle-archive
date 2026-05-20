@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: When You Walk in the Room"
+author: "Ken"
+excerpt: "Bruce debuted his cover of “When You Walk in the Room” at his legendary stand at the Bottom Line; he reprised it more than thirty years later."
+tags: jackie-deshannon the-searchers when-you-walk-in-the-room
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/walkintheroom.jpg
+post_id: 21789
+---
 When Bruce Springsteen played his historic stand at The Bottom Line in the summer of ’75, he debuted a new cover for the occasion.
 
 “When You Walk in the Room” was written and first released by Jackie DeShannon toward the end of 1963. It barely cracked the Billboard Hot 100, peaking at #99.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Ballad of a Self-Loading Pistol"
+author: "Ken"
+excerpt: "“Ballad of a Self-Loading Pistol” is a lost gem from the Greetings era, a precursor to “Highway 29” decades later. It deserves wider attention."
+tags: ballad-of-a-self-loading-pistol
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/selfloading.jpg
+post_id: 9384
+---
 How?
 
 How is it possible that Bruce has never released "Ballad of the Self-Loading Pistol" or performed it even once?

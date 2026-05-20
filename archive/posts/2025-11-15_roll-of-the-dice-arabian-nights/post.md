@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Arabian Nights"
+author: "Ken"
+excerpt: "One of the last songs to be cut from Bruce’s debut album, “Arabian Nights” is a glimpse at the surreal inner world of an introverted musician."
+tags: arabian-nights
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/Arabian-Nights.png
+post_id: 11225
+---
 Until it was bumped from [*Greetings From Asbury Park, N.J*,](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) by "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "Arabian Nights" was a lock for inclusion on Bruce's debut album.
 
 But CBS President Clive Davis felt that *Greetings* had a little too much solo material and not enough band songs or potential hits, so off to the brand-new vault went "Arabian Nights."

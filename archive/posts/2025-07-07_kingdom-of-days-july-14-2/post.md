@@ -1,12 +1,22 @@
+---
+layout: post
+title: "Kingdom of Days: July 14"
+author: "Ken"
+excerpt: "On this date: Bruce and Paul McCartney learn what happens when you break curfew at Hyde Park."
+tags: basel bottom-line canada darkness-tour darlington-county devils-and-dust-tour follow-that-dream glasgow hard-rock-calling i-saw-her-standing-there john-fogerty london new-york-city paul-mccartney pink-cadillac rockin-all-over-the-world san-antonio scotland springsteen-on-broadway switzerland take-em-as-they-come the-rising thunder-road tom-morello toronto tunnel-of-love-tour twist-and-shout uk working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/brucepaul-1.jpg
+post_id: 57722
+---
 ***New for 2025:** New entry for 1975 and 1985; video for 2012*<br>
 
 **1974:** Bruce and the E Street Band play their third of three nights at The Bottom Line in New York City.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1974-0714.jpg.webp)
 
-**1975:** Bruce records vocal overdubs for “Jungleland” at the Record Plant in New York City.<br>
+**1975:** Bruce records vocal overdubs for "Jungleland" at the Record Plant in New York City.<br>
 
-**1978:** Bruce and the E Street Band continue their Texas swing, as the Darkness Tour arrives for a night in San Antonio (Bruce’s one and only performance in that city). By request, Bruce tour premieres “[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md).”<br>
+**1978:** Bruce and the E Street Band continue their Texas swing, as the Darkness Tour arrives for a night in San Antonio (Bruce's one and only performance in that city). By request, Bruce tour premieres "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lOl367T5)
 
@@ -14,11 +24,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1978-0714.jpg.webp)
 
-**1985:** Nils Lofgren records his vocal and guitar overdubs for “[Janey, Don’t You Lose Heart.](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)” It will become his first appearance on an official Springsteen studio release.<br>
+**1985:** Nils Lofgren records his vocal and guitar overdubs for "[Janey, Don't You Lose Heart.](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" It will become his first appearance on an official Springsteen studio release.<br>
 
 [Watch on Youtube: Janey Don't You Lose Heart (Single B-Side - 1985)](https://www.youtube.com/watch?v=kKIPdOVWTjU)
 
-**1988:** Bruce and the E Street Band bring the Tunnel of Love Tour to St. Jakob Stadion in Basel, Switzerland. The show is filmed professionally and is a delight to watch. Check out the encores below, including the only performance of “Follow That Dream” on the tour.<br>
+**1988:** Bruce and the E Street Band bring the Tunnel of Love Tour to St. Jakob Stadion in Basel, Switzerland. The show is filmed professionally and is a delight to watch. Check out the encores below, including the only performance of "Follow That Dream" on the tour.<br>
 
 [Watch on Youtube: Bruce Springsteen Follow That Dream (Live 1988 07 14)](https://www.youtube.com/watch?v=6h2V61SEBGg)
 
@@ -34,47 +44,47 @@
 
 **1999:** Bruce and the E Street Band play a warm-up set for the first U.S. leg of the Reunion Tour at Continental Airlines Arena in East Rutherford.<br>
 
-**2002:** The *New York Times* publishes [an article on Bruce’s upcoming album](https://www.nytimes.com/2002/07/14/arts/music-his-kind-of-heroes-his-kind-of-songs.html?searchResultPosition=15), *The Rising,* In his article, Jon Pareles quotes frequently from the interview he conducted with Bruce to inform it, but you can hear the interview itself below.<br>
+**2002:** The *New York Times* publishes [an article on Bruce's upcoming album](https://www.nytimes.com/2002/07/14/arts/music-his-kind-of-heroes-his-kind-of-songs.html?searchResultPosition=15), *The Rising*, In his article, Jon Pareles quotes frequently from the interview he conducted with Bruce to inform it, but you can hear the interview itself below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yHujCIf5)
 
-**2005:** Bruce kicks off the encores at his solo acoustic show in Toronto with the tour premiere of “[Darlington County.](../2020-09-10_roll-of-the-dice-darlington-county/post.md)”<br>
+**2005:** Bruce kicks off the encores at his solo acoustic show in Toronto with the tour premiere of "[Darlington County.](../2020-09-10_roll-of-the-dice-darlington-county/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen Darlington County Solo Acoustic Live From Toronto 14/07/2005](https://www.youtube.com/watch?v=Tq-Zp9idlVE)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-14-scaled.jpg.webp)
 
-**2009:** “[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)” makes a welcome return after a six-year absence at Bruce’s Working on a Dream show in Glasgow’s Hampden Park.<br>
+**2009:** "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" makes a welcome return after a six-year absence at Bruce's Working on a Dream show in Glasgow's Hampden Park.<br>
 
 [Watch on Youtube: Pink Cadillac: Bruce Springsteen, Glasgow, 14th July 2009](https://www.youtube.com/watch?v=Hf0lDibY8I8)
 
-**2012:** Bruce and the E Street Band headline Hard Rock Calling in London’s Hyde Park on what will prove to be an eventful day, and a highly anticipated one:<br>
+**2012:** Bruce and the E Street Band headline Hard Rock Calling in London's Hyde Park on what will prove to be an eventful day, and a highly anticipated one:<br>
 
 [Watch on Youtube: Hard Rock Calling 2012 Bruce Springsteen - TV Advert](https://www.youtube.com/watch?v=eg3fySaCohI)
 
-It starts with a surprise guest appearance by Bruce during John Fogerty’s set:
+It starts with a surprise guest appearance by Bruce during John Fogerty's set:
 
 [Watch on Youtube: Springsteen And Fogerty - Rockin' All Over The World - Hyde Park, London, Jul 14, 2012](https://www.youtube.com/watch?v=DyQ6mN2EhWY)
 
-…and things pick up during Bruce’s set: Bruce and Roy open by themselves, playing “Thunder Road” like they did at Bruce’s legendary Hammersmith Odeon show in 1975.
+...and things pick up during Bruce's set: Bruce and Roy open by themselves, playing "Thunder Road" like they did at Bruce's legendary Hammersmith Odeon show in 1975.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN LIVE | THUNDER ROAD | Hard Rock Calling Festival 2012](https://www.youtube.com/watch?v=pvfFuASYgfM)
 
-Guest appearances by Tom Morello and John Fogerty quickly follow, along with the tour premiere of the very rare “[Take ‘Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md).”
+Guest appearances by Tom Morello and John Fogerty quickly follow, along with the tour premiere of the very rare "[Take 'Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - Take Em As They Come - Hyde Park - Hard Rock Calling, London England 7/14/2012](https://www.youtube.com/watch?v=KQLmV1fCxt8)
 
-But it’s the encore surprise that garners worldwide headlines, when Bruce invites Sir Paul McCartney to join him on stage for “[I Saw Her Standing There](../2018-09-11_matr-bruce-springsteen-george-harrison-ringo-starr-mick-jagger-and-billy-joel-i-saw-her-standing-there/post.md)” and “Twist and Shout.”
+But it's the encore surprise that garners worldwide headlines, when Bruce invites Sir Paul McCartney to join him on stage for "[I Saw Her Standing There](../2018-09-11_matr-bruce-springsteen-george-harrison-ringo-starr-mick-jagger-and-billy-joel-i-saw-her-standing-there/post.md)" and "Twist and Shout."
 
 [Watch on Youtube: Paul McCartney & Bruce Springsteen "I Saw Her Standing There" & "Twist And Shout" Live HD Rare](https://www.youtube.com/watch?v=SzhXSSRPvxQ)
 
-Unfortunately, and mystifyingly, the festival staff pull the plug on Bruce, Paul, and the band when they sail past their 10:30pm curfew. Unable to close the show in his customary fashion, Bruce merely sings a brief “[Goodnight Irene](../2019-08-01_matr-pete-seeger-and-bruce-springsteen-goodnight-irene/post.md)” and exits. (The broadcast clip above ends before the power cut, but you can watch the unedited footage below to see how it played out.)
+Unfortunately, and mystifyingly, the festival staff pull the plug on Bruce, Paul, and the band when they sail past their 10:30pm curfew. Unable to close the show in his customary fashion, Bruce merely sings a brief "[Goodnight Irene](../2019-08-01_matr-pete-seeger-and-bruce-springsteen-goodnight-irene/post.md)" and exits. (The broadcast clip above ends before the power cut, but you can watch the unedited footage below to see how it played out.)
 
 [Watch on Youtube: Paul McCartney & Bruce Springsteen Hard Rock Calling Hyde Park 2012 Complete!](https://www.youtube.com/watch?v=dJ0SQ6NX13U)
 
 Over the days and weeks that follow, the incident will become legendary.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XO5wYdX28JM)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XO5wYdX28JM?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
 
 [Watch on Youtube: London council cuts power on Springsteen](https://www.youtube.com/watch?v=Y5Mru2ZuYoA)
 
@@ -84,6 +94,6 @@ Over the days and weeks that follow, the incident will become legendary.
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** BBC Radio 2 airs Zoe Ball’s interview with Bruce, while in New York City *Springsteen on Broadway* continues its limited return engagement at The St. James Theater. In attendance tonight: Garry Tallent.<br>
+**2021:** BBC Radio 2 airs Zoe Ball's interview with Bruce, while in New York City *Springsteen on Broadway* continues its limited return engagement at The St. James Theater. In attendance tonight: Garry Tallent.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2023/07/The-Zoe-Ball-Breakfast-Show-Bruce-Springsteen-BBC-Sounds-Springsteen-Only.mp3](https://estreetshuffle.com/wp-content/uploads/2023/07/The-Zoe-Ball-Breakfast-Show-Bruce-Springsteen-BBC-Sounds-Springsteen-Only.mp3)

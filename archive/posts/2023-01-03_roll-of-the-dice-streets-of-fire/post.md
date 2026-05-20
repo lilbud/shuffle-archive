@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Streets of Fire"
+author: "Ken"
+excerpt: "If you’re paying attention to the words, you’re doing it wrong. This is song you feel, not hear."
+tags: darkness-on-the-edge-of-town streets-of-fire
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/streetsoffire.jpg
+post_id: 30554
+---
 > *Pouring outside. Windy. Windows open. Turn the lights out and perfect setting for "Streets of Fire."* — Anonymous Springsteen Fan
 
 She gets it, that anonymous fan. The rest of this essay is just going to use a lot more words to say the same thing.

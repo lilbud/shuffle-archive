@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Confessin' the Blues"
+author: "Ken"
+excerpt: "One time only: Listen to Bruce rejoin his former band to take lead vocals on Walter Brown’s blues standard, “Confessin’ the Blues.”"
+tags: confessin-the-blues jay-mcshann southside-johnny steve-van-zandt the-rolling-stones walter-brown
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/confessin-1.jpg
+post_id: 30172
+---
 The Bruce Springsteen Band had a year-long run from the summer of '71 to the summer of '72, but for a while, it didn't look like they were going to make it past the six-month mark.
 
 At the same time Bruce was forming and performing with his eponymous band, he was falling "in obsession" (as he put it in *Born to Run*) with a "drug-taking, hell-raising wild child who played by nobody's rules." (If you saw *Springsteen on Broadway*, this was the girlfriend who convinced agents to come see Bruce play and then slept with them.)

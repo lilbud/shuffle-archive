@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jeff Stevens and the Bullets: Darlington County"
+author: "Ken"
+excerpt: "In 1987, “Darlington County” became the eighth song from Born in the U.S.A. to hit the Billboard charts, but it wasn’t Bruce who took it there."
+tags: darlington-county jeff-stevens-and-the-bullets
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/bullets.jpg
+post_id: 21176
+---
 The next time you're playing Springsteen trivia and you get this old softball:
 
 How many *Born in the U.S.A.* songs charted as singles?

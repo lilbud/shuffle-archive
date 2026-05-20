@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Two Hearts"
+author: "Ken"
+excerpt: "“Two Hearts” is one of Bruce’s early songwriting masterpieces, and one that is best listened to acoustically than in its original arrangement."
+tags: patti-scialfa steve-van-zandt the-river two-hearts
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/twohearts-1.jpg
+post_id: 2293
+---
 Let's establish up front: the definitive version of "Two Hearts" can't be found on *The River*. To do justice to one of Bruce's greatest songwriting accomplishments, we must look to his hometown acoustic performance from 1996, available as an official archive series recording.
 
 Here, at his old high school, in front of a crowd of Freehold locals, accompanied by Soozie on violin and supporting vocals from both Soozie and Patti, "Two Hearts" gets its first public concert outing in over a decade (other than a couple of one-offs at promotional events for *Greatest Hits*), rearranged and reinvented with the wisdom of age and the tenderness of compassion that is missing in the original recording:
@@ -10,48 +20,48 @@ That, right there, is one of my very favorite performances of any Bruce song eve
 
 Lyrically, "Two Hearts" is a perfect song. I often excerpt and discuss just the essential lyrics when I write these essays, but here, every line, every word is essential to the story. Its message is lean and powerful, emotional and tender.
 
-> *I went out walking the other day*
-> *Seen a little girl crying along the way*
-> *She'd been hurt so bad, said she'd never love again*
-> *Someday your crying, girl, will end*
+> *I went out walking the other day*<br>
+> *Seen a little girl crying along the way*<br>
+> *She'd been hurt so bad, said she'd never love again*<br>
+> *Someday your crying, girl, will end*<br>
 
-> *And you'll find once again*
-> *That two hearts are better than one*
-> *That two hearts, girl, get the job done*
-> *That two hearts are better than one*
+> *And you'll find once again*<br>
+> *That two hearts are better than one*<br>
+> *That two hearts, girl, get the job done*<br>
+> *That two hearts are better than one*<br>
 
 Right away, we've established the narrator as an older and wiser soul who is observant enough to stop in his tracks when he encounters a heartbroken girl and caring enough to console and counsel her.
 
 He reminisces:
 
-> *Once I spent my time playing tough guy scenes*
-> *But I was living in a world of childish dreams*
-> *Someday these childish dreams must end*
-> *To become a man and grow up to dream again*
+> *Once I spent my time playing tough guy scenes*<br>
+> *But I was living in a world of childish dreams*<br>
+> *Someday these childish dreams must end*<br>
+> *To become a man and grow up to dream again*<br>
 
-> *I believe in the end*
-> *That two hearts are better than one*
-> *That two hearts, girl, get the job done*
-> *That two hearts are better than one*
+> *I believe in the end*<br>
+> *That two hearts are better than one*<br>
+> *That two hearts, girl, get the job done*<br>
+> *That two hearts are better than one*<br>
 
 This is a man who has the self-awareness to recognize that he spent his youth wrapped in bravado, eschewing connection in order to chase his dreams, and the wisdom to realize that embracing adulthood doesn't mean giving up on your dreams–it means find the power, support, and companionship to chase and achieve new dreams.
 
 Now pay attention to what comes next–the song is about to make a very subtle but significant shift that completely changes the meaning and power of the song:
 
-> *Sometimes it might seem like it was planned*
-> *For you to roam empty-hearted through this land*
-> *Though the world turns you hard and cold*
+> *Sometimes it might seem like it was planned*<br>
+> *For you to roam empty-hearted through this land*<br>
+> *Though the world turns you hard and cold*<br>
 *There's one thing, **mister**, that I know:*
 
-> *That's if you think your heart is stone*
-> *And that you're rough enough to whip this world alone*
+> *That's if you think your heart is stone*<br>
+> *And that you're rough enough to whip this world alone*<br>
 *Alone, **buddy**, there ain't no peace of mind*
-> *That's why I'll keep searching till I find*
+> *That's why I'll keep searching till I find*<br>
 
-> *My special one*
-> *‘Cause two hearts are better than one*
-> *‘Cause two hearts, girl, get the job done*
-> *‘Cause two hearts are better than one*
+> *My special one*<br>
+> *‘Cause two hearts are better than one*<br>
+> *‘Cause two hearts, girl, get the job done*<br>
+> *‘Cause two hearts are better than one*<br>
 
 Did you catch the change from "little girl" to "mister" and "buddy?" That's clearly not a mistake or carelessness. Bruce is no longer singing to or about the girl he met the other day; now, he's talking to himself, reassuring himself of his own beliefs.
 

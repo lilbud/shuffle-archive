@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: This Is Your Sword"
+author: "Ken"
+excerpt: "The debut performance of “This Is Your Sword” was more memorable than the song itself."
+tags: high-hopes this-is-your-sword
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/swordshield.jpg
+post_id: 24478
+---
 [I was in the pit leaning on the stage](../2018-01-29_where-the-band-was-cape-town-january-29-2014/post.md) the first time Bruce played "This Is Your Sword" in public, but all I remember about that performance is how unprepared Little Steven was for that selection.
 
 It was clearly an audible, and poor Stevie looked like the student who forgot to do the assignment as the teacher announces a pop quiz. In the video below, you can see Steve spend the first verse in a panic, consulting Garry while Bruce has a microphone brought up front for the two of them to sing at together.

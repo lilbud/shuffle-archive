@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Where Was Jesus in Ohio"
+author: "Ken"
+excerpt: "Only six weeks after the tragic Kent State shootings, Bruce voiced his anguish in song."
+tags: steel-mill where-was-jesus-in-ohio
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/kentstate.jpg
+post_id: 19325
+---
 When the nation cries out in anguish, anger, and frustration, Bruce Springsteen has a penchant for meeting the moment in song.
 
 "American Skin (41 Shots)" is still tragically relevant today, but Bruce wrote it in response to the 1999 shooting of Amadou Diallo and debuted it a year later.

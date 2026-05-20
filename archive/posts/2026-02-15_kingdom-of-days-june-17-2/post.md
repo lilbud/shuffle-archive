@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 17"
+author: "Ken"
+excerpt: "The first-ever performances of “All or Nothin’ at All,” “Real Man,” and “Spanish Eyes,” and the first “E Street Shuffle” in 25 years lead the highlights from this date in Springsteen history."
+tags: all-or-nothin-at-all bremen bring-em-home clarence-clemons darkness-tour detroit finland germany helsinki im-on-fire madison-square-garden madrid michael-stipe munich new-york-city patti-scialfa pay-me-my-money-down real-man real-world reunion-tour rising-tour seeger-sessions seeger-sessions-tour southside-johnny spain spanish-eyes st-louis stockholm sweden talk-to-me the-e-street-shuffle the-river the-view world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/17thjune20242cmadrid2cesbrucespringsteen.jpg
+post_id: 57108
+---
 **1972:** Bruce and Clarence play together for only the second time ever when Bruce makes a guest appearance with Clarence's band, Norman Seldin and the Joyful Noyze, at The Shipbottom Lounge in Point Pleasant Beach, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/joyful.jpg.webp)

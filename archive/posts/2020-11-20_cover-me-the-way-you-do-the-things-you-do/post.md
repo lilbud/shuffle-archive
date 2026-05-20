@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Way You Do The Things You Do"
+author: "Ken"
+excerpt: "When Bruce played the Apollo Theater for the first time, he worked up a special arrangement of The Temptations’ 1964 breakout hit for the occasion."
+tags: 634-5789-soulsville-u-s-a apollo-medley smokey-robinson the-temptations the-way-you-do-the-things-you-do wilson-pickett
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/wayyoudo.jpg
+post_id: 21785
+---
 When Bruce Springsteen played the legendary Apollo Theater for the very first time in early 2012, he prepared something appropriately special for the occasion.
 
 To pay tribute to all the great Motown soul singers that paved the way, Bruce and the E Street Band worked up an arrangement of The Temptations' "The Way You Do The Things You Do."

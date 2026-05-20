@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Street Queen"
+author: "Ken"
+excerpt: "Another treasure from the vault: Listen to “Street Queen,” Bruce’s car-on-boy fetish song from the very first day of recording sessions for Greetings from Asbury Park."
+tags: street-queen
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/streetqueen.png
+post_id: 10635
+---
 What is it with Bruce Springsteen and cars?
 
 I mean, I get the fascination in general, even if I don't share it. But he's on record stating that he didn't even know how to drive as late as 1970, and he didn't own a car until 1975.

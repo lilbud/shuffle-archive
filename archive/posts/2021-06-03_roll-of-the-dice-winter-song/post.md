@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Winter Song"
+author: "Ken"
+excerpt: "Lost in the vault, “Winter Song” is a red-light tale of sexual fear and fascination."
+tags: winter-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/winter-song-1.jpg
+post_id: 27149
+---
 Even before his first album was released, Bruce Springsteen was already hard at work on his second.
 
 *Greetings From Asbury Park* made its under-the-radar debut on January 5, 1973. Over the following six weeks, Bruce recorded at least that many new songs–none of which would make his next album.

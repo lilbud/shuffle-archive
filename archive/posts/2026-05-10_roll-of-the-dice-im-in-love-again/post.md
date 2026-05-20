@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I'm in Love Again"
+author: "Ken"
+excerpt: "Welcome summer with Bruce’s tribute to 1960s girl groups, the wonderfully light “I’m in Love Again.”"
+tags: im-in-love-again the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/loveagain.jpg
+post_id: 18395
+---
 Two Bruce Springsteen Band songs in one week? You bet: it's Memorial Day weekend, and I'm feeling summer coming on. That means it's time to break out my BSB bootlegs, crank up the volume, and welcome the season.
 
 I love those Bruce Springsteen Band shows–they're warm and soulful, cool and brassy, and at times as close to pop as Bruce ever got. I love playing them on a warm weekend afternoon.

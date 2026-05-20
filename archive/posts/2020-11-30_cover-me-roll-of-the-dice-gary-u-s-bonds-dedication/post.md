@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me (Roll of the Dice?), Gary U.S. Bonds: Dedication"
+author: "Ken"
+excerpt: "Bruce’s original version of “Dedication” has never been released…. or has it?"
+tags: dedication gary-u-s-bonds
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/dedication.jpg
+post_id: 2777
+---
 Now here's an usual cover for a couple of reasons:
 
 1. Bruce never released it.

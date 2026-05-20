@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tori Amos: I'm on Fire"
+author: "Ken"
+excerpt: "It’s a crossover! Listen in on my visit to “Drive All Night,” a Tori Amos podcast, in a special Tori-on-Bruce episode."
+tags: drive-all-night-the-podcast im-on-fire tori-amos
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/TORI_AMOS_IMONFIRE-75771.jpg
+post_id: 12166
+---
 What do Bruce Springsteen and Tori Amos have in common?
 
 Quite a bit, actually:

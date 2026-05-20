@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 9"
+author: "Ken"
+excerpt: "It’s Bruce’s first show in Indiana and the Ivory Coast, and his last-ever show at Giants Stadium. Both happened on this date–more highlights inside."
+tags: detroit devils-and-dust-tour east-rutherford giants-stadium human-rights-now-tour ivory-coast lawsuit-tour magic-tour notre-dame river-tour south-bend the-last-time thundercrack uniondale working-on-a-dream-tour wrecking-ball
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/20091009_booklet2.jpg
+post_id: 61076
+---
 ***New for 2025:** No updates*<br>
 
 **1973:** Bruce plays at Grendel's Lair Coffee House in Philadelphia.<br>

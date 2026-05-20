@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 7"
+author: "Ken"
+excerpt: "Bruce debuted (and re-debuted, and re-debuted) “You Can Look (But You Better Not Touch)” on this date. Plus: Bruce recalls his first-ever show in Africa, is interviewed on-stage at The New Yorker Festival, and more."
+tags: born-to-run-book buffalo cadillac-ranch cats-on-a-smooth-surface devils-and-dust devils-and-dust-tour factory further-on-up-the-road hartford human-rights-now-tour italy perugia richfield rising-tour river-tour seeger-sessions-tour springsteen-on-broadway stone-pony the-castiles the-new-yorker zimbabwe
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/20061007_2_front.jpg
+post_id: 61074
+---
 ***New for 2025:** No updates*<br>
 
 **1967:** The Castiles take part in a battle of the bands at the Middletown Community Center.<br>

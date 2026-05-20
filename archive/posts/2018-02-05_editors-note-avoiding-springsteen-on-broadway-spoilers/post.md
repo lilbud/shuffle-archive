@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Editor's Note: Avoiding Springsteen on Broadway spoilers"
+author: "Ken"
+excerpt: "There shall be no Springsteen on Broadway spoilers on this blog."
+tags: springsteen-on-broadway
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/sob.jpg
+post_id: 580
+---
 Greetings, all–
 
 Since I launched this blog exactly a month ago, I've been struggling with how to deal with references to *Springsteen on Broadway* performance notes. So far, I've managed to punt the issue, since none of the songs I've covered so far appear in it (that's as much of a spoiler as you're ever going to see here).

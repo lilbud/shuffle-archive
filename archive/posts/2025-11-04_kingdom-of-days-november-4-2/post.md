@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 4"
+author: "Ken"
+excerpt: "A day full of highlights, from Bruce’s first meeting with Mike Appel, to his first on-stage appearance with Ronnie Spector, to the recording of the “Born in the U.S.A.” video and more."
+tags: a-good-man-is-hard-to-find-pittsburgh american-babylon be-true born-in-the-usa born-in-the-usa-tour born-to-run-tour burlington cleveland darkness-tour devils-and-dust-tour ed-sciaky fade-away for-you houston hungry-heart incident-on-57th-street joe-grushecky lawsuit-tour los-angeles magic-tour mike-appel new-york-city pittsburgh rising-tour ron-kovic ronnie-spector santa-claus-is-comin-to-town save-my-love springsteen-on-broadway stand-up-for-heroes surprise-surprise tampa tempe the-composure thunder-road town-called-heartbreak your-own-worst-enemy
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/outlawpete.jpg
+post_id: 61283
+---
 ***New for 2025:** Audio for 1976 and 1977; review for 2002 and 2007; new entry for 2024*<br>
 
 **1971:** Tinker West drives Bruce to New York City to introduce him to future manager Mike Appel. Bruce performs a few songs for Appel on piano and acoustic guitar, including "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)," which Bruce will officially release 49 years later, and "[Baby Doll](../2019-10-13_roll-of-the-dice-baby-doll/post.md)," which fails to impress. Bruce and Appel agree to touch base again someday, but their next meeting won't happen for another four months.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Preacher's Daughter"
+author: "Ken"
+excerpt: "“Preacher’s Daughter” is one Bruce’s greatest unreleased outtakes–a Darkness cast-off with Born to Run sweep and cinematic power."
+tags: preachers-daughter shes-the-one
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/preacher.jpg
+post_id: 2933
+---
 When I sit down to compose these essays, I always listen to the song a few times before I start to write: to refresh my memory, to remind myself of what I love or find curious, and to experience it with as close to fresh ears as I can manage.
 
 After three times listening to the way "Preacher's Daughter" builds in power, establishes its sweeping cinematic scope, and unleashes Bruce's vocals… I'm shaking my dang head at how it's possible that this masterpiece has never been released.

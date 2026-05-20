@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 23"
+author: "Ken"
+excerpt: "On this date: Bruce and the Sessions Band stop by Late Night with Conan O’Brien, the first “Fade Away” in almost a quarter-century, and more."
+tags: antwerp belgium born-in-the-usa-tour brendan-obrien conan-obrien devils-and-dust-tour fade-away france gothenburg im-a-rocker madison-square-garden magic-tour montpellier new-york-city pay-me-my-money-down portland reunion-tour springsteen-on-broadway stockholm sweden warren-zevon
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Art-Front.jpg
+post_id: 57178
+---
 **1973:** Bruce and his band play their second of three consecutive nights at Fat City in Seaside Heights, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1973-06-23.jpg.webp)

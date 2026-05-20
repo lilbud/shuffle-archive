@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Any Other Way"
+author: "Ken"
+excerpt: "Even Bruce Springsteen’s musical encyclopedia can miss an entry or two, as evidenced by his adaptation of this William Bell song transformed by Jackie Shane."
+tags: any-other-way jackie-shane melissa-etheridge only-the-strong-survive stax william-bell
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/12/anyother.jpg
+post_id: 47227
+---
 > **Chris Jordan:** "Any Other Way," William Bell ... Are you familiar with the version by a woman named Jackie Shane?
 >
 > **Bruce Springsteen:** *I've heard her name mentioned with that song. I don't know if I've heard her version. I know a lot of people are familiar with her version of it. It's supposed to be great.*<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "My Oklahoma Home"
+author: "Ken"
+excerpt: "In 1997, Bruce plucked Sis Cunningham’s bitingly funny dust bowl chronicle from obscurity when he recorded it in his very first Seeger Session. Nine years later, it would become a nightly tour showpiece."
+tags: my-oklahoma-home pete-seeger sis-cunningham
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/a2977464654_10.jpg
+post_id: 16358
+---
 Of the folks songs Bruce recorded for his 2006 album *We Shall Overcome: The Seeger Sessions*, "My Oklahoma Home" was one of the most contemporary–and yet somehow, the least familiar.
 
 Agnes "Sis" Cunningham wrote it with her brother Bill. The Cunninghams were born and raised in rural Oklahoma, where Sis worked both as a labor organizer and musician. Among the groups she performed with was Pete Seeger's troupe, The Almanac Singers, leading to a lifelong friendship and business partnership in *Broadside Magazine*, a publishing haven for aspiring socially conscious folk singers. Seeger published his work in *Broadside*, as did Bob Dylan, Janis Ian, and others.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Deep Dark Woods: Factory"
+author: "Ken"
+excerpt: "Canadian band Deep Dark Woods turns in a faithful cover of Bruce’s minimalist musing on the meaning of work."
+tags: deep-dark-woods factory
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/factory.jpg
+post_id: 10476
+---
 "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" is a difficult song to cover. Its melody, lyrics and structure are so minimalist that it can be tough to bring something new and distinct to the table when performing it.
 
 And yet the song clearly strikes a chord for so many of us, so artists still take an occasional swing at it. Lucinda Williams nailed it in [her fresh approach](../2018-12-26_cover-me-lucinda-williams-factory/post.md) on her *Ghosts of Highway 20* album, but I'm fond of this more straightforward version by Deep Dark Woods as well:

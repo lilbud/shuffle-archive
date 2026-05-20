@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: U2, Bruce Springsteen and Patti Scialfa, People Get Ready"
+author: "Ken"
+excerpt: "Bruce based two of his most uplifting songs on Curtis Mayfield’s “People Get Ready,” but the only time he ever performed the original in an arena was with U2 in 2005. Watch that loose, fun performance inside."
+tags: curtis-mayfield patti-scialfa people-get-ready the-impressions u2
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/peoplegetready.jpg
+post_id: 6812
+---
 It’s the unofficial anthem of the U.S. Civil Rights Movement.
 
 It’s preserved in the National Recording Registry for its historical and cultural significance and enshrined in the Grammy Hall of Fame.

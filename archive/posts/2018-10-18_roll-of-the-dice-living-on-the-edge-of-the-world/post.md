@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Living on the Edge of the World"
+author: "Ken"
+excerpt: "“Living on the Edge” is a glorious hot mess of a song. An unreleased outtake until 1998, it nevertheless spawned no less than three officially released Springsteen originals along the way."
+tags: living-on-the-edge-of-the-world open-all-night state-trooper the-ties-that-bind-the-river-collection this-hard-land tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/edgeworld.jpg
+post_id: 4788
+---
 This is one of the essays I've been dreading, but I knew the dice would turn it up eventually.
 
 It's not that I don't like the song–in fact, it's such a gloriously hot mess that I can't help but love it.
@@ -20,27 +30,27 @@ That pretty much the song. Both songs. Some details get longer or shorter shrift
 
 Some verses appear in complete form in both songs:
 
-> *Early North Jersey industrial skyline*
-> *I'm a all-set cobra jet creeping through the night time*
-> *Gotta find a gas station, gotta find a pay phone*
-> *This turnpike sure is spooky at night when you're all alone*
+> *Early North Jersey industrial skyline*<br>
+> *I'm a all-set cobra jet creeping through the night time*<br>
+> *Gotta find a gas station, gotta find a pay phone*<br>
+> *This turnpike sure is spooky at night when you're all alone*<br>
 
-> *Now the boss don't dig me, so he put me on the night shift*
-> *It takes me two hours to get back to where my baby lives*
-> *In the wee wee hours your mind gets hazy*
-> *Radio relays towers, won't you lead me to my baby*
-> *Underneath the overpass, trooper hits his party light switch*
-> *Good night good luck, one two power shift*
+> *Now the boss don't dig me, so he put me on the night shift*<br>
+> *It takes me two hours to get back to where my baby lives*<br>
+> *In the wee wee hours your mind gets hazy*<br>
+> *Radio relays towers, won't you lead me to my baby*<br>
+> *Underneath the overpass, trooper hits his party light switch*<br>
+> *Good night good luck, one two power shift*<br>
 
-> *Radio's jammed up with gospel stations*
-> *Lost souls calling long distance salvation*
-> *Hey mister deejay won't you hear my last prayer*
-> *Hey ho rock ‘n roll deliver me from nowhere*
+> *Radio's jammed up with gospel stations*<br>
+> *Lost souls calling long distance salvation*<br>
+> *Hey mister deejay won't you hear my last prayer*<br>
+> *Hey ho rock ‘n roll deliver me from nowhere*<br>
 
 Others vary a bit:
 
-> *Radio, radio, hear my tale of heartbreak*
-> *New Jersey in the morning like a lunar landscape*
+> *Radio, radio, hear my tale of heartbreak*<br>
+> *New Jersey in the morning like a lunar landscape*<br>
 
 …and some details (like the name and employer of the aforementioned girl) differ.
 
@@ -58,12 +68,12 @@ Except it's not just "Open All Night" that intermingles its lyrics with "Living 
 
 Both:
 
-> *Down past the refinery towers where the great black river flows*
+> *Down past the refinery towers where the great black river flows*<br>
 
 and
 
-> *In the wee wee hours my mind gets hazy*
-> *Relay towers, won't you lead me to my baby*
+> *In the wee wee hours my mind gets hazy*<br>
+> *Relay towers, won't you lead me to my baby*<br>
 
 appear in "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" as well, along with references to radio stations jammed with gospel ("Living") or talk show ("State Trooper") stations.
 
@@ -73,10 +83,10 @@ Once you get past the "Nebraskafication" of the song, pay careful attention to t
 
 [Watch on Youtube: Bruce Springsteen - Open All Night (early version)](https://www.youtube.com/watch?v=jF4Ju9wu7EI)
 
-> *Mister, can you tell me what happened to the seeds*
-> *What happened to the seeds I've sown*
-> *Yeah, where they fall from my hand*
-> *And they fell on the ground of this hard land*
+> *Mister, can you tell me what happened to the seeds*<br>
+> *What happened to the seeds I've sown*<br>
+> *Yeah, where they fall from my hand*<br>
+> *And they fell on the ground of this hard land*<br>
 
 Yep… that's right: now we have "Open All Night," "State Trooper," and "This Hard Land," all spinning out of one song: "Living on the Edge of the World."
 

@@ -1,18 +1,27 @@
-Joe Grushecky’s very fine *East Carson Street* album is known by Springsteen fans primarily because it’s the home of the studio version of “Another Thin Line,” co-written and performed by both Bruce and Joe.
+---
+layout: default-post
+title: "Broken Wheel"
+author: "Ken"
+excerpt: "You won’t hear Bruce’s voice on Joe Grushecky’s “Broken Wheel,” but you’ll certainly hear his guitar lending power to an already killer song."
+tags: broken-wheel east-carson-street joe-grushecky
+categories: meeting-across-the-river
+post_id: 12485
+---
+Joe Grushecky's very fine *East Carson Street* album is known by Springsteen fans primarily because it's the home of the studio version of "Another Thin Line," co-written and performed by both Bruce and Joe.
 
-But while “Another Thin Line” may be the only song on Joe’s 2009 album that features Bruce’s vocals, it’s not the only song to which Bruce contributed his talents.
+But while "Another Thin Line" may be the only song on Joe's 2009 album that features Bruce's vocals, it's not the only song to which Bruce contributed his talents.
 
-Deep in the middle of the album, we find “Broken Wheel.”
+Deep in the middle of the album, we find "Broken Wheel."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DYMLz8QZvU4)
 
-Written and performed by Joe and fellow Pittsburgh singer/songwriter Bill Deasy, “Broken Wheel” is a song about a broken heart (for reasons I shall not spoil, but suffice to say this is not a love song), and it features Bruce prominently on lead guitar.
+Written and performed by Joe and fellow Pittsburgh singer/songwriter Bill Deasy, "Broken Wheel" is a song about a broken heart (for reasons I shall not spoil, but suffice to say this is not a love song), and it features Bruce prominently on lead guitar.
 
-It’s a beautiful, powerful, and haunting song, with or without Bruce’s accompaniment, on an album that should be in every Springsteen fan’s collection.
+It's a beautiful, powerful, and haunting song, with or without Bruce's accompaniment, on an album that should be in every Springsteen fan's collection.
 
 **Broken Wheel**<br>
-Recorded**: 2009
-**Released**: *East Carson Street* (2009)<br>
+**Recorded:** 2009<br>
+**Released:** *East Carson Street* (2009)<br>
 **Never performed**<br>
 
 © September 29, 2019

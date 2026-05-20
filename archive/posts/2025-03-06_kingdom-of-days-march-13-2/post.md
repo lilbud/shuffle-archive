@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: March 13"
+author: "Ken"
+excerpt: "Take in highlights from Springsteen shows in every decade today."
+tags: boston child dallas ghost-of-tom-joad-tour jay-weinberg lawsuit-tour oakland reunion-tour richfield river-tour-2016 seeger-sessions-tour stockholm towson tunnel-of-love-express-tour upstage working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/41146181681_8cf89fcedb_o.jpg
+post_id: 56173
+---
 ***New for 2025:** No updates*<br>
 
-**1969:** Child, Bruce’s new band, performs at Pandemonium in Wanamassa, New Jersey.<br>
+**1969:** Child, Bruce's new band, performs at Pandemonium in Wanamassa, New Jersey.<br>
 
 **1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.<br>
 
-**1973:** Night Two of seven at Oliver’s in Boston.<br>
+**1973:** Night Two of seven at Oliver's in Boston.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1973-0316.jpg.webp)
 
@@ -18,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-0313.jpg.webp)
 
-**1988**: The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.<br>
+**1988:** The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qnlgh7uK)
 
@@ -40,9 +50,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2000-03-13-rotated.jpg.webp)
 
-**2006:** Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park’s Paramount Theater.<br>
+**2006:** Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park's Paramount Theater.<br>
 
-**2009**: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg’s benefit.<br>
+**2009:** The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg's benefit.<br>
 
 **2016:** The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highlights, see my [*Where the Band Was*](../2018-03-13_where-the-band-was-oakland-march-13-2016/post.md) report for that show.<br>
 

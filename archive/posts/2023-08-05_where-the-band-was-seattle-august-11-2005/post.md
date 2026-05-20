@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Seattle, August 11, 2005"
+author: "Ken"
+excerpt: "Bruce was in storyteller mode at a rare tour stop in Seattle, treating us to a very different setlist than the night before in Portland."
+tags: aint-got-you be-true devils-and-dust devils-and-dust-tour for-you frankie growin-up highway-29 highway-patrolman jesus-was-an-only-son living-proof long-time-comin matamoras-banks nothing-man part-man part-monkey racing-in-the-street reason-to-believe reno seattle the-hitter the-rising the-river this-hard-land
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/seattle05.jpg
+post_id: 3639
+---
 Coming off an outstanding show [the night before in Portland](https://wp.me/p9w3Lk-W3), I was excited to see what a hometown show might bring. It had been three years since I’d seen a show in the Seattle area, and I was used to travelling and meeting new people in the interim. So it was kind of a novelty to go to a show joined by a bunch of friends and co-workers–I even convinced my wife to join me for this one, which is a pretty rare thing.
 
 Portland’s setlist was romantic and eclectic, and I suspected that Seattle might turn out to be a very different show. I was right: Seattle was no less surprising, and still filled with rarities (including five songs I’d never heard live before), but the mood was more serious–this was Bruce in cinematic mode, with liberal dips into *Nebraska* and [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)-style storytelling.

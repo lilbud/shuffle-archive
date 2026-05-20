@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "ROTD: Bruce Springsteen Band Preface"
+author: "Ken"
+excerpt: "You knew this was coming, didn’t you? Over the blog’s lifespan, I waxed poetic over the Bruce Springsteen Band era way too many times to…"
+post_id: 68960
+---
 You knew this was coming, didn't you?
 
 Over the blog's lifespan, I waxed poetic over the Bruce Springsteen Band era way too many times to not devote an entire volume to it.

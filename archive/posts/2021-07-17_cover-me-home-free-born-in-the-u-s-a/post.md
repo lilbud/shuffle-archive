@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Home Free: Born in the U.S.A."
+author: "Ken"
+excerpt: "Okay, just one more post before I go back to vacation mode, because this new cover of “Born in the U.S.A.” by Home Free is too great…"
+tags: born-in-the-u-s-a home-free
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/homefree.jpg
+post_id: 28469
+---
 Okay, just *one* more post before I go back to vacation mode, because this new cover of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" by Home Free is too great to sit on until August. If it's gonna be stuck in my head, I want company.
 
 [Watch on Youtube: Home Free - Born In The USA](https://www.youtube.com/watch?v=D-OkZBtgmS8)

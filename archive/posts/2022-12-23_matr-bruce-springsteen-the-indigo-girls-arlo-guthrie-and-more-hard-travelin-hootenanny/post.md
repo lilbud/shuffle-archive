@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, The Indigo Girls, Arlo Guthrie, and more: Hard Travelin'"
+author: "Ken"
+excerpt: "Bruce helped launch the American Music Masters series by leading an all-star encore of one of Woody Guthrie’s most-recorded songs."
+tags: ani-difranco arlo-guthrie billy-bragg dave-pirner hard-travelin-hootenanny indigo-girls rambin-jack-elliott tim-robbins
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/hardtravel.jpg
+post_id: 40051
+---
 Everyone remembers the Rock and Roll Hall of Fame's inaugural concert in September 1995. It was a massive, star-studded, stadium event featuring an array of rock icons past and present.
 
 With superstars like Bruce Springsteen, John Mellencamp, and Jon Bon Jovi backing pioneers like Chuck Berry, Martha Reeves, and Eric Burdon, the first Hall of Fame concert announced the arrival of the Cleveland institution with one heck of an exclamation point.

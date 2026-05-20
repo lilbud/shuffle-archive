@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Ricky Wants a Man of Her Own"
+author: "Ken"
+excerpt: "“Ricky Wants a Man of Her Own” is a fun, poppy outtake from the River sessions–guaranteed to make you smile (unless you’re a parent to a teenage girl, in which case you’ll wince)."
+tags: ricky-wants-a-man-of-her-own the-ties-that-bind-the-river-collection tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/Ricky-designstyle-love-heart-m.png
+post_id: 5739
+---
 Whew!
 
 After a string of essays demanding deep lyrical analysis, it's a relief to be reminded that even for Bruce, sometimes a cigar is just a cigar.

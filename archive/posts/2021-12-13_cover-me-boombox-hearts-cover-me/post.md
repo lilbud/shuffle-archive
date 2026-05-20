@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Boombox Hearts: Cover Me"
+author: "Ken"
+excerpt: "“Melancholy, lo-fi indie” group The Boombox Hearts take a different path with their version of “Cover Me,” and it works."
+tags: cover-me the-boombox-hearts
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/coverme.jpg
+post_id: 5068
+---
 By now you my motto when it comes to covers: Do it better, or do it different.
 
 Self-described “melancholy lo-fi indie” band The Boombox Hearts takes the latter route with “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md),” but it’s pretty darn good, too.

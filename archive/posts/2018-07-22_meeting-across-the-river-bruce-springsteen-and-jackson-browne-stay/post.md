@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Jackson Browne, Stay"
+author: "Ken"
+excerpt: "Bruce and Jackson Browne team up to cover “Stay” by The Zodiacs at the 1979 MUSE concerts. Along with the other tracks from that show, it’s Bruce’s first live appearance on record."
+tags: jackson-browne maurice-williams muse stay the-zodiacs
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/stay.jpg
+post_id: 3210
+---
 In September 1979, Bruce and the E Street Band participated in a special pair of Madison Square Garden concerts, under the aegis of "Musicians United for Safe Energy," a musical coalition advocating for an end to nuclear proliferation.
 
 The MUSE concerts featured a stellar artist line-up that besides Bruce included Jackson Browne, Bonnie Raitt, James Taylor, The Doobie Brothers, Carly Simon, Crosby, Still, and Nash, and more.

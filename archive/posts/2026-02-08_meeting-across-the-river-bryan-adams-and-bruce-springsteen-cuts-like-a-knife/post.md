@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Cuts Like a Knife"
+author: "Ken"
+excerpt: "Bruce and Bryan Adams meet on stage for the first time to cover Bryan’s 1983 hit at the 2017 Invictus Games."
+tags: bryan-adams canada cuts-like-a-knife invictus-games-2017 rainforest-fund-concert toronto
+categories: cover-me meeting-across-the-river
+post_id: 4355
+---
 The first time Bruce ever performed Bryan Adam’s “Cuts Like a Knife” was at the eighties-themed Rainforest Fund Concert in 2010. Each artist chose their own material to cover; who knew that Bruce was a Bryan fan before that?
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VZZgzF0g9lU)

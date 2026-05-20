@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Third Lung: Brilliant Disguise"
+author: "Ken"
+excerpt: "Third Lung’s mesmerizing version of “Brilliant Disguise” is my favorite cover yet of one Bruce’s best songs."
+tags: brilliant-disguise third-lung
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/thirdlung.jpg
+post_id: 23732
+---
 Here's one that'll get under your skin. At least, it got under mine.
 
 I keep an eye out for interesting Springsteen covers on a daily basis, and when I find one I like, I usually listen to it a few times, schedule it for publication, and then rarely look back. (It takes a lot of focused attention to keep this blog going on a daily schedule.)

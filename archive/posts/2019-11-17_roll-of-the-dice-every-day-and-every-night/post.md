@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Every Day and Every Night"
+author: "Ken"
+excerpt: "“Janey, Don’t You Lose Heart” traces its origins to this 1979 home demo."
+tags: every-day-and-every-night janey-dont-you-lose-heart
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/104636-Day-And-Night.gif
+post_id: 14031
+---
 Sometimes the path to perfection is long and winding.
 
 I broke down "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" last spring, and at the time I noted that we can trace the melody and lyrics of this 1983 track to a home demo called "[True Love Is Hard to Come By](../2018-05-19_roll-of-the-dice-true-love-is-hard-to-come-by/post.md)" recorded a year earlier.

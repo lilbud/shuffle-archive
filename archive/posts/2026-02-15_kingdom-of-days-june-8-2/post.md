@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 8"
+author: "Ken"
+excerpt: "Happy wedding anniversary, Bruce and Patti! Also on this date: Bruce plays a Born in the U.S.A. warm-up gig at The Stone Pony–listen to the first public airing of much of the album. Plus: the stadium breaker!"
+tags: birmingham born-in-the-usa-tour boston chicago darkness-tour florence gothenburg madison new-york-city patti-scialfa rising-tour river-tour springsteen-on-broadway stone-pony sweden the-castiles uk
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/brucepatti.jpg
+post_id: 57023
+---
 **1968:** The Castiles play a show at the Hullabaloo in Middletown, New Jersey.<br>
 
 **1973:** Bruce and the E Street Band open for Chicago at Boston Garden.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "When You're Alone"
+author: "Ken"
+excerpt: "Melodically warm but lyrically icy, “When You’re Alone” is (appropriately) one of the least played songs on Tunnel of Love."
+tags: tunnel-of-love when-youre-alone
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/alone.jpg
+post_id: 22773
+---
 When Bruce gathered the E Street Band at the Expo Theater in Fort Monmouth to rehearse for their upcoming Tunnel of Love Express Tour, "When You're Alone" was among the first songs they tackled.
 
 [Watch Video Highlight](https://videopress.com/embed/6TPI8gbd)
@@ -20,18 +30,18 @@ Uncharacteristically for Bruce, there's not a trace of metaphor in "When You're 
 
 In the first verse, we meet our narrator. Johnny's been dumped (quite a while ago, although we won't realize that until the end of the song), not because he and his nameless girl didn't love each other, but because they didn't do the work demanded by successful long-term relationships.
 
-> *Times were tough, and love was not enough*
-> *So you said, "Sorry Johnny I'm gone, gone, gone"*
-> *You said my act was funny but we both knew what was missing, honey*
-> *So you let out on your own*
-> *Now that pretty form that you've got, baby*
-> *Will make sure you get along*
-> *But you're gonna find out someday, honey:*
+> *Times were tough, and love was not enough*<br>
+> *So you said, "Sorry Johnny I'm gone, gone, gone"*<br>
+> *You said my act was funny but we both knew what was missing, honey*<br>
+> *So you let out on your own*<br>
+> *Now that pretty form that you've got, baby*<br>
+> *Will make sure you get along*<br>
+> *But you're gonna find out someday, honey:*<br>
 
-> *When you're alone, you're alone*
-> *When you're alone, you're alone*
-> *When you're alone, you're alone*
-> *When you're alone, you ain't nothing but alone*
+> *When you're alone, you're alone*<br>
+> *When you're alone, you're alone*<br>
+> *When you're alone, you're alone*<br>
+> *When you're alone, you ain't nothing but alone*<br>
 
 Young couples tend to realize quickly that successful marriages require more than attraction and love. Johnny leads us to believe that in his case, it wasn't his fault–he was willing to stay, but she bailed. But there's that line–"you said my act was funny, but we both knew what was missing"–that suggests that maybe Johnny wasn't taking their issues seriously, either.
 
@@ -41,29 +51,29 @@ And that's the cleverness of the chorus (the song's only really admirable qualit
 
 In the second verse, Johnny lectures his ex. He's already realized how having a partner helps us face the troubles life throws our way, because he's lived enough to have learned it first-hand. She had to learn it on her own, too, and Johnny gets in an "I told you so."
 
-> *Now I was young and pretty on the mean streets of the city*
-> *And I fought to make 'em my home*
-> *With just the shirt on my back I left and swore I'd never look back*
-> *And man I was gone, gone, gone*
-> *But there's things that'll knock you down you don't even see coming*
-> *And send you crawling like a baby back home*
-> *You're gonna find out that day, sugar:*
+> *Now I was young and pretty on the mean streets of the city*<br>
+> *And I fought to make 'em my home*<br>
+> *With just the shirt on my back I left and swore I'd never look back*<br>
+> *And man I was gone, gone, gone*<br>
+> *But there's things that'll knock you down you don't even see coming*<br>
+> *And send you crawling like a baby back home*<br>
+> *You're gonna find out that day, sugar:*<br>
 
-> *When you're alone you're alone*
-> *When you're alone you're alone*
-> *When you're alone you're alone*
-> *When you're alone you ain't nothing but alone*
+> *When you're alone you're alone*<br>
+> *When you're alone you're alone*<br>
+> *When you're alone you're alone*<br>
+> *When you're alone you ain't nothing but alone*<br>
 
 In the last verse, the past tense is important; it's what tell us that what he'd always dreamt of has actually happened: his ex is on his doorstep, asking to be forgiven and taken back. But Johnny refuses, explaining (more than a bit disingenuously) that he's not angry at her, he just doesn't care (a statement that's belied by the entire song up until this point).
 
-> *I knew some day your running would be through and you'd think back on me and you*
-> *And your love would be strong*
-> *You'd forget all about the bad and think only of all the laughs that we had*
-> *And you'd wanna come home*
-> *Well, now it ain't hard feelings or nothing, sugar*
-> *That ain't what's got me singing this song*
-> *It's just nobody knows, honey, where love goes*
-> *But when it goes it's gone, gone…*
+> *I knew some day your running would be through and you'd think back on me and you*<br>
+> *And your love would be strong*<br>
+> *You'd forget all about the bad and think only of all the laughs that we had*<br>
+> *And you'd wanna come home*<br>
+> *Well, now it ain't hard feelings or nothing, sugar*<br>
+> *That ain't what's got me singing this song*<br>
+> *It's just nobody knows, honey, where love goes*<br>
+> *But when it goes it's gone, gone…*<br>
 
 It's always risky to read too much autobiography into an artist's creation, and surely the individual songs on *Tunnel of Love* are more thematically than literally true.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 14"
+author: "Ken"
+excerpt: "Dr. Zoom and the Sonic Boom make their debut under that name on this date in history. Plus: Max misses his first show in 35 years, Bruce and Julianne hold their wedding reception, Bruce’s first ever performance of “Satan’s Jewel Crown,” and more."
+tags: barcelona berlin copenhagen denmark devils-and-dust-tour dr-zoom-and-the-sonic-boom fairfax for-you germany hershey high-hopes-tour jay-weinberg julianne-phillips manchester max-weinberg river-tour river-tour-2016 satans-jewel-crown seeger-sessions-tour spain uk world-tour-1993 wreck-on-the-highway wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/barca2016.jpg
+post_id: 56766
+---
 ***New for 2025:** New entry for 1973, 1979, and 1982; audio for 1993; video for 2016*<br>
 
 **1971:** Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park's Sunshine In.<br>

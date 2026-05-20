@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 14"
+author: "Ken"
+excerpt: "On this date: Arcade Fire makes a memorable guest appearance, Bruce plays his first-ever show in Argentina, and the European Rising Tour kicks off. Video and more highlights inside."
+tags: arcade-fire argentina canada france further-on-up-the-road gotham-playboys human-rights-now-tour keep-the-car-running land-of-hope-and-dreams magic-tour mendoza milwaukee ottawa paris philadelphia rising-tour river-tour springsteen-on-broadway state-trooper what-love-can-do working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/10/bs091014_01.jpg
+post_id: 61113
+---
 ***New for 2025:** Audio for 1977*<br>
 
 **1972:** Bruce runs a classified ad in the Asbury Park Press seeking a "together and ready to travel" pianist and country violinist. Let's hope he finds at least one of them. Maybe David Sancious is still available?<br>

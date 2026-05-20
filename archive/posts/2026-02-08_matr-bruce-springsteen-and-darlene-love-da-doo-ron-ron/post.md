@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Da Doo Ron Ron"
+author: "Ken"
+excerpt: "It’s up for debate whether Darlene Love’s vocals are anywhere to be found on the original recording, but she certainly was front and center with the E Street Band at the Rock and Roll Hall of Fame concert in 2009."
+tags: da-doo-ron-ron darlene-love rock-and-roll-hall-of-fame the-crystals
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/dadooronron.jpg
+post_id: 6804
+---
 “Da Doo Ron Ron” was a top ten hit not once, but twice–first for The Crystals, who took it to #3 in 1963…
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=v-qqi7-Q19k)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Patriot Game"
+author: "Ken"
+excerpt: "One time only: Bruce covers Dominc Behan’s cautionary ballad on the cost of patriotic extremism."
+tags: dominic-behan the-patriot-game
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/patriot.jpg
+post_id: 26258
+---
 For all of the hundreds of covers Bruce has performed in concert, there are probably thousands he’s only soundchecked.
 
 Most of those will only ever be known to the fortunate few who were in the room working at the time, but every once in a while one escapes into the wild. We’ve featured some of those soundcheck escapees on this blog before, but they’re almost always distant and muddy recordings due to the circumstances under which they were captured.

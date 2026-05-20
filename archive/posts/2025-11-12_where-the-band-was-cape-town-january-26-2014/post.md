@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Cape Town 2014"
+author: "Ken"
+excerpt: "Highlights from Bruce Springsteen’s first-ever show in South Africa: January 26, 2014"
+tags: cape-town free-nelson-mandela high-hopes-tour south-africa
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/cape-town-01-26-14-cd-oficial-ciudad-del-cabo-sudafrica-26-enero-2014.jpg
+post_id: 335
+---
 On the list of things I’d never have expected to be a witness to, Bruce Springsteen kicking off his first-ever show in South Africa with a rousing singalong of “[Free Nelson Mandela](../2018-07-10_cover-me-free-nelson-mandela/post.md)” would have ranked pretty high if it had even have occurred to me put it on the list.
 
 But I was there, and it was an amazing, surreal experience–my first day of my first visit to South Africa, kicking off a week of new discoveries and friends. I’ll always remember the days before the South Africa shows as much as I do the evenings–there’s something about new places that makes everything more vivid and detailed, and that held true for the concerts as well.

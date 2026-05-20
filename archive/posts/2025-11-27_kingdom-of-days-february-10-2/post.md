@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 10"
+author: "Ken"
+excerpt: "On this date: Bruce wins three Grammy Awards, plays his last show at the Sunshine In, and much more."
+tags: australia ghost-of-tom-joad-tour grammy-awards hartford lawsuit-tour loose-ends meet-me-in-the-city river-tour-2016 san-francisco steel-mill sting sunshine-in sydney utica
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/2023-02-10-dallas-tx-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 55933
+---
 **1970:** Steel Mill plays the Fillmore West in San Francisco, a last minute-replacement for a band cancellation. Venue owner Bill Graham is impressed enough to invite the band back for a second gig the following week.<br>
 
 **1973:** Bruce and his band play their final show at Asbury Park’s Sunshine In. Unfortunately, it’s a short set–only forty minutes–disappointing fans who came to hear Bruce. To add insult to injury, the scheduled opening band (John Lennon’s backing band, Elephant’s Memory) is a no-show. A frustrated fan writes to the Asbury Park Press to complain.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 22"
+author: "Ken"
+excerpt: "On this date: Bruce makes a guest appearance with Levon Helm, Little Steven reunites with the E Street Band, and the original Miami Horns make their final appearance on an E Street stage."
+tags: american-land atlanta born-in-the-usa born-in-the-usa-tour born-to-run-tour boston cadillac-ranch darkness-tour detroit-medley east-rutherford giants-stadium im-goin-down la-bamba lawsuit-tour levon-helm madison-square-garden mansfield miami-horns new-york-city reunion-tour richfield springfield springsteen-on-broadway steve-van-zandt stone-pony trapped working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/aug85.jpg
+post_id: 59400
+---
 ***New for 2025:** Audio for 1985*<br>
 
 **1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver's in Boston.<br>

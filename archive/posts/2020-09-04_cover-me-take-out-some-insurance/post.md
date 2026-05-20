@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Take Out Some Insurance"
+author: "Ken"
+excerpt: "One time only: The Bruce Springsteen Band covers Jimmy Reed’s 1959 classic at The Back Door in Richmond."
+tags: jimmy-reed take-out-some-insurance the-bruce-springsteen-band
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/insurance.jpg
+post_id: 20594
+---
 Bruce Springsteen may be a rock icon, but for a brief moment in the early 1970s, he was all about the blues.
 
 Regular readers are well aware by now of my fondness for [the Bruce Springsteen Band era](https://estreetshuffle.com/index.php/tag/the-bruce-springsteen-band/). Lasting just a few days short of a year from the summer of 1971 through the following year's July 4th weekend, the Bruce Springsteen Band featured a stellar core line-up of Bruce, Steve Van Zandt, Garry Tallent, Vini Lopez, and Dave Sancious, as well as an expanded line-up of horns, vocalists and percussion depending on the date (and the budget).

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Queen of the Supermarket"
+author: "Ken"
+excerpt: "“Queen of the Supermarket” is one of Bruce’s best 21st century songs. There–I’ve said it. I’ll explain why inside."
+tags: queen-of-the-supermarket working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/springsteen_supermarket-compressed.jpg
+post_id: 4774
+---
 *Spin* described it as "a widescreen melodrama about a cashier crush that for sheer overkill rivals Adam Sandler's *Broooce* parody ‘Lunchlady Land.'"
 
 The *Seattle Times* bemoaned the "disco strings, mounting backing vocals and pounding drums [that] turn it into a Broadway number."
@@ -14,12 +24,12 @@ I love it. I always have, since I first heard it.
 
 Let me show you what I mean:
 
-> *There's a wonderful world where all you desire*
-> *And everything you've longed for is at your fingertips*
-> *Where the bittersweet taste of life is at your lips*
-> *Where aisles and aisles of dreams await you*
-> *And the cool promise of ecstasy fills the air*
-> *At the end of each working day she's waiting there*
+> *There's a wonderful world where all you desire*<br>
+> *And everything you've longed for is at your fingertips*<br>
+> *Where the bittersweet taste of life is at your lips*<br>
+> *Where aisles and aisles of dreams await you*<br>
+> *And the cool promise of ecstasy fills the air*<br>
+> *At the end of each working day she's waiting there*<br>
 
 Scoff all you want about Bruce the millionaire writing about the common man–but if you can walk into a Whole Foods or a Wegmans and not be at least momentarily overwhelmed by the luxuries and indulgences amassed before you, you've lost way more perspective than Bruce has.
 
@@ -39,24 +49,24 @@ Notice how Bruce has Roy syncopate mid-bar? That's Bruce creating a background o
 
 I won't even bother writing about Bruce's warm, soaring vocal. It speaks for itself.
 
-> *I'm in love with the queen of the supermarket*
-> *As the evening sky turns blue*
-> *A dream awaits in aisle number two*
+> *I'm in love with the queen of the supermarket*<br>
+> *As the evening sky turns blue*<br>
+> *A dream awaits in aisle number two*<br>
 
 With that line, Bruce starts knitting, entwining love-struck metaphor with stark, everyday reality, and we're never quite sure whether to laugh or swoon. Which is exactly what Bruce is going for.
 
 Look how effortlessly he does it:
 
-> *With my shopping cart I move through the heart*
-> *Of a sea of fools so blissfully unaware*
-> *That they're in the presence of something wonderful and rare*
+> *With my shopping cart I move through the heart*<br>
+> *Of a sea of fools so blissfully unaware*<br>
+> *That they're in the presence of something wonderful and rare*<br>
 
 That line–"with my shopping cart I move through the heart"–is *exactly* what I referred to above: the juxtaposition of something tangible against something figurative, the ordinary against the sublime.
 
-> *The way she moves behind the counter*
-> *Beneath her white apron her secrets remain hers*
-> *As she bags the groceries, her eyes so bored*
-> *And sure she's unobserved*
+> *The way she moves behind the counter*<br>
+> *Beneath her white apron her secrets remain hers*<br>
+> *As she bags the groceries, her eyes so bored*<br>
+> *And sure she's unobserved*<br>
 
 Oh my. Her "secrets" beneath her "white apron?" That's one of the most artfully subtle sexual references Bruce has ever written. And the fact that this beauty is bored and detached–numbed by overexposure to the wonders that surround her–creates the central dilemma of the song that's so powerful that we instinctively understand it without Bruce ever stating it:
 
@@ -64,30 +74,30 @@ If this woman isn't moved by the richness, the beauty, the diversity and divinit
 
 The strings swell, the backing vocals soar as our hero professes his love into the ether:
 
-> *I'm in love with the queen of the supermarket*
-> *There's nothing I can say*
-> *Each night I take my groceries and I drift away*
-> *And I drift away*
+> *I'm in love with the queen of the supermarket*<br>
+> *There's nothing I can say*<br>
+> *Each night I take my groceries and I drift away*<br>
+> *And I drift away*<br>
 
-> *With guidance from the gods above*
-> *At night I pray for the strength to tell the one I love*
-> *I love I love I love her so*
-> *I take my place in the checkout line*
-> *For one moment her eyes meet mine*
-> *And I'm lifted up, lifted up, lifted up, lifted up*
+> *With guidance from the gods above*<br>
+> *At night I pray for the strength to tell the one I love*<br>
+> *I love I love I love her so*<br>
+> *I take my place in the checkout line*<br>
+> *For one moment her eyes meet mine*<br>
+> *And I'm lifted up, lifted up, lifted up, lifted up*<br>
 
 And there we have it: our moment of connection, and it's so powerful that even in that sacred setting, the singer is carried away by this one-of-a-kind in an emporium of excess.
 
-> *I'm in love with the queen of the supermarket*
-> *Though a company cap covers her hair*
-> *Nothing can hide the beauty waiting there*
-> *The beauty waiting there*
+> *I'm in love with the queen of the supermarket*<br>
+> *Though a company cap covers her hair*<br>
+> *Nothing can hide the beauty waiting there*<br>
+> *The beauty waiting there*<br>
 
 Another clever literary device, this is. Supermarkets are notorious laboratories of product placement and packaging, with every product's exterior engineered to attract and hold attention. And here we have a checkout clerk who is attired to do anything but that–and yet.
 
-> *As I lift my groceries into my car*
-> *I turn back for a moment and catch a smile*
-> *That blows this whole fucking place apart*
+> *As I lift my groceries into my car*<br>
+> *I turn back for a moment and catch a smile*<br>
+> *That blows this whole fucking place apart*<br>
 
 Perhaps no verse that Bruce has ever written is ridiculed as much as that one. This is a writer who does not employ f-bombs indiscriminately, so why do so here?
 

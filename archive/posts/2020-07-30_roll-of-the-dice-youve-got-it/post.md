@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You've Got It"
+author: "Ken"
+excerpt: "It’s an okay trifle, but whatever makes a pop song great, “You’ve Got It” ain’t got it."
+tags: wrecking-ball youve-got-it
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/you-ve-got-it-l.jpg
+post_id: 20114
+---
 Not every song has to be a masterpiece; not every song requires analysis and dissection.
 
 Every once in a while, Bruce writes and releases a trifle purely for his own enjoyment, and that's okay.
@@ -8,27 +18,27 @@ Every once in a while, Bruce writes and releases a trifle purely for his own enj
 
 "You've Got It" is built around a gimmick: Bruce writes almost entirely in the negative, taking palpable joy in finding ways to describe what the titular "it" isn't and never even attempting to describe what it actually is. (The song is so light that it would collapse if he did.)
 
-> *No one ever found it, ain't no school ever taught it*
-> *No one ever made it, ain't no one ever bought it*
-> *Baby you've got it, baby you've got it*
-> *Come on and give it to me*
+> *No one ever found it, ain't no school ever taught it*<br>
+> *No one ever made it, ain't no one ever bought it*<br>
+> *Baby you've got it, baby you've got it*<br>
+> *Come on and give it to me*<br>
 
-> *Ain't no one can break it, there ain't no one can steal it*
-> *Ain't no one can fake it, you just know it when you feel it*
-> *Baby you've got it, baby you've got it*
-> *Come on and give it to me*
+> *Ain't no one can break it, there ain't no one can steal it*<br>
+> *Ain't no one can fake it, you just know it when you feel it*<br>
+> *Baby you've got it, baby you've got it*<br>
+> *Come on and give it to me*<br>
 
-> *Yeah, you can't read it in a book, and you can't even dream it*
-> *Honey, it ain't got a name, you just know it when you see it*
-> *Baby you've got it, yeah, baby you've got it*
-> *Come on and give it to me*
+> *Yeah, you can't read it in a book, and you can't even dream it*<br>
+> *Honey, it ain't got a name, you just know it when you see it*<br>
+> *Baby you've got it, yeah, baby you've got it*<br>
+> *Come on and give it to me*<br>
 
-> *Well, now listen up, your reckless love is precious so don't waste it*
-> *Can't tell you what they made it of, but I know it when I taste it*
-> *Baby you've got it, yeah, baby you've got it*
-> *You've got it in your bones and blood, yeah, you're real as real ever was*
-> *Baby you've got it, yeah, baby you've got it*
-> *Come on and give it to me*
+> *Well, now listen up, your reckless love is precious so don't waste it*<br>
+> *Can't tell you what they made it of, but I know it when I taste it*<br>
+> *Baby you've got it, yeah, baby you've got it*<br>
+> *You've got it in your bones and blood, yeah, you're real as real ever was*<br>
+> *Baby you've got it, yeah, baby you've got it*<br>
+> *Come on and give it to me*<br>
 
 So what is it? Charisma, perhaps. Chemistry, maybe. Animal magnetism, sexiness, the power of persuasion, take your pick amongst a spectrum of intangible, invisible, unmeasurable qualities. (Although "come on and give it to me" is such a recognizable come-on that my bet is on sex appeal.)
 

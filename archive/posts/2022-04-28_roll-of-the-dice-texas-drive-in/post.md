@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Texas Drive-In"
+author: "Ken"
+excerpt: "Among the lost tracks from a lost album is this teaser of a song about a secret love."
+tags: texas-drive-in
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/texas.jpg
+post_id: 33251
+---
 Somewhere in the vast recesses of Bruce's vault, there may reside a legendary "lost" follow-up album to *Born to Run*.
 
 Bruce started compiling songs for his fourth studio album not long after the release of his third, and an album sequence exists that shows a couple of old friends and several unfamiliar faces:

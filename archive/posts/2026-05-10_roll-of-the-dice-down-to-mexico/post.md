@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Down to Mexico"
+author: "Ken"
+excerpt: "Did a holiday father-son roadtrip inspire this Bruce Springsteen Band gem? We may never know, but with a groove this funky, who cares?"
+tags: down-to-mexico the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/downtomexico.jpg
+post_id: 25806
+---
 > "When my folks moved out to California," Bruce begins in response to a question about whether he really knows "a pretty little place in Southern California/Down San Diego way" as he claims in "Rosalita," "my mom decided-see my father and I would fight all the time–and she decided that we should take a trip together. She decided that we should take a trip together. She decided that we should go to *Tijuana* [he laughs his hoarse laugh, reserved for the truly absurd]. So we got in the car and drove down there, arguing all the way. First I drove and he yelled at me, and then he drove and I yelled at him.
 >
 > "Anyway, we finally got there, and of course, my old man is the softest-hearted guy in the world. Within fifteen minutes, some guy has sold him some watch that must've run for all of an hour and a half before it stopped. And then some guy comes up and says, 'Hey, would you guys like to have your picture taken on a zebra?'

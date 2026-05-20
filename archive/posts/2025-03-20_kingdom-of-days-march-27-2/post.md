@@ -1,14 +1,24 @@
+---
+layout: post
+title: "Kingdom of Days: March 27"
+author: "Ken"
+excerpt: "Steve Van Zandt makes his Steel Mill debut, Dr. Zoom and the Sonic Boom play their first show, and Bruce convinces Columbia Records to sign The Bangles–all on this date in Springsteen history."
+tags: atlanta australia better-days born-in-the-usa-tour dr-zoom-and-the-sonic-boom friendly-enemies im-goin-down jungleland live-in-new-york-city melbourne michael-bloomberg my-love-will-not-let-you-down richmond river-tour springsteen-on-broadway steel-mill steve-van-zandt sydney wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-27-washington-dc-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56304
+---
 ***New for 2025:** New entry for 1996 and 2024; audio for 2013; video for 2023*<br>
 
 **1970:** Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1970-0327.jpg.webp)
 
-**1971:** Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park’s Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band’s set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)<br>
+**1971:** Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park's Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band's set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1971-0327.jpg.webp)
 
-**1976:** Bruce and Steve drop by Atlanta’s WQXI-FM for an interview with DJ Cat Simon.<br>
+**1976:** Bruce and Steve drop by Atlanta's WQXI-FM for an interview with DJ Cat Simon.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0327.jpg.webp)
 
@@ -16,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1983:** Bruce checks out The Bangles’ performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.<br>
+**1983:** Bruce checks out The Bangles' performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.<br>
 
 [Susanna Hoffs on how Bruce Springsteen helped The Bangles get signed by SiriusXM Entertainment](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F655331276&show_artwork=true&maxheight=1000&maxwidth=758)
 
@@ -24,11 +34,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/RxOJwN5n)
 
-**1996:** Bruce’s scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year’s Oscar ceremony.<br>
+**1996:** Bruce's scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year's Oscar ceremony.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/19960322_Press_01_Reschedule.jpg.webp)
 
-**2013:** The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md).”<br>
+**2013:** The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Jungleland - Melbourne, Australia 27 March 2013](https://www.youtube.com/watch?v=VWJ36EUmKPg)
 
@@ -48,8 +58,8 @@
 
 [Watch on Youtube: Bruce Springsteen Washington DC 3-27-23 ENCORE](https://www.youtube.com/watch?v=bLUhR_LSLmc)
 
-**2024:** Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing “Sandpaper” and an encore of “Revival” together. Maggie Rogers joins Bruce and Zach for the encore.<br>
+**2024:** Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing "Sandpaper" and an encore of "Revival" together. Maggie Rogers joins Bruce and Zach for the encore.<br>
 
 [Watch on Youtube: Zach Bryan - Sandpaper (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=07MFGBvHiEk)
 
-[Watch on Youtube: Zach Bryan w/ Bruce Springsteen & Maggie Rogers,](https://www.youtube.com/watch?v=G_E1Q3un3iY)
+[Watch on Youtube: Zach Bryan w/ Bruce Springsteen & Maggie Rogers, "Revival" live at Barclays Center 3/27/24](https://www.youtube.com/watch?v=G_E1Q3un3iY)

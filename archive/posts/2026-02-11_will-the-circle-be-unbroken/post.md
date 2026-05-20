@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Will the Circle Be Unbroken"
+author: "Ken"
+excerpt: "It’s a funeral dirge and a celebration of life, a church hymn and a social protest. “Will the Circle Be Unbroken” endures in American music…"
+post_id: 67563
+---
 It's a funeral dirge and a celebration of life, a church hymn and a social protest.
 
 "Will the Circle Be Unbroken" endures in American music in part due to its tremendous versatility.

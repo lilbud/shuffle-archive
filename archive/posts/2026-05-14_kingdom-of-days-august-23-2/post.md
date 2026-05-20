@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 23"
+author: "Ken"
+excerpt: "Today in Bruce history: Bruce welcomes Max and Roy to the E Street Band and kicks off his “autobiography tour.” Plus: highlights from epic, surprise-filled shows, and more."
+tags: american-land atlanta born-to-run-tour boston child darkness-tour jack-of-all-trades jay-weinberg jersey-girl ken-casey los-angeles love-is-like-a-heatwave madison-square-garden magic-tour mama-tried mansfield mansion-on-the-hill max-weinberg metlife-stadium new-york-city new-york-city-serenade river-tour river-tour-2016 roy-bittan sam-bardfeld springsteen-on-broadway st-louis working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/maxroy.jpg
+post_id: 59419
+---
 **1969:** Bruce, along with the other members of Child, attend Janis Joplin's gig at Asbury Park Convention Hall as backstage guests of The James Cotton Band (Joplin's opening act).<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Asbury_Park_Press_2014_09_07_Page_A8.jpg.webp)

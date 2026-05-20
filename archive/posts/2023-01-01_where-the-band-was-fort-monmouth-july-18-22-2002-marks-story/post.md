@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Fort Monmouth, July 18-22, 2002 (Mark's story)"
+author: "Ken"
+excerpt: "Guest-blogger Mark Cunningham takes us behind the scenes at Bruce’s Rising Tour rehearsals."
+tags: mark-cunningham the-rising the-today-show
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/Fort_Monmouth_Expo_Theater.jpg
+post_id: 11637
+---
 Editor's Note
 
 ***Editor's Note:*** *After last month's back-to-back behind-the-scenes first-hand accounts from* *[Sandi Pederson](../2019-06-28_where-the-band-was-st-paul-june-28-1984/post.md)* *and* *[Kevin Doyle](../2019-07-02_where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/post.md)**, I figured it would be a long time before I'd have the privilege to feature another exclusive "I was there" report.*<br>

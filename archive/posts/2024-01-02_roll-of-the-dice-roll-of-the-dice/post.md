@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Roll of the Dice"
+author: "Ken"
+excerpt: "“Roll of the Dice” was the first song Bruce recorded for Human Touch, and the one that finally broke his late 80s writer’s block–and if the lyrics aren’t among his best, his vocals certainly are."
+tags: human-touch roll-of-the-dice
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/rotd.jpg
+post_id: 15483
+---
 > "*Hit!* I wrote a hit last night!" *–Bruce Springsteen to Roy Bittan, as told by Peter Ames Carlin*<br>
 
 Well, not really, as it turns out.

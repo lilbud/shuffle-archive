@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Family Song"
+author: "Ken"
+excerpt: "Bruce’s revealing, healing “Family Song” shines a light into his glossed-over reconciliation with his family in the winter of 1971-72."
+tags: family-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/springsteens.jpg
+post_id: 16061
+---
 A quarter-century before "[Freehold](../2018-12-03_roll-of-the-dice-freehold/post.md)," and almost a half-century before Bruce's revealing autobiography and Broadway show, there was "Family Song."
 
 "Family Song" sheds rare light into a brief period of Bruce's life that's glossed over not only by biographers but by Bruce himself in his own book: the winter of 1971-72, when Bruce fled New Jersey for the warmer climes of California and his parents' new home in San Mateo.

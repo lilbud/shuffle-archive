@@ -1,4 +1,14 @@
-> "*Hit!* I wrote a hit last night!" *–Bruce Springsteen to Roy Bittan, as told by Peter Ames Carlin*
+---
+layout: post
+title: "Roll of the Dice: Roll of the Dice"
+author: "Ken"
+excerpt: "“Roll of the Dice” was the first song Bruce recorded for Human Touch, and the one that finally broke his late 80s writer’s block–and if the lyrics aren’t among his best, his vocals certainly are."
+tags: human-touch roll-of-the-dice
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/rotd.jpg
+post_id: 15483
+---
+> "*Hit!* I wrote a hit last night!" *–Bruce Springsteen to Roy Bittan, as told by Peter Ames Carlin*<br>
 
 Well, not really, as it turns out.
 
@@ -17,29 +27,29 @@ This was December 1989, though, and it be more than another two years before the
 
 "Desperate fun" is as good a descriptor as any for "Roll of the Dice."
 
-> *Well I've been a losing gambler, yeah just throwing snake eyes*
-> *Oh love ain't got me downhearted, I know up around the corner lies*
-> *My fool's paradise in just another roll of the dice (oh yeah)*
+> *Well I've been a losing gambler, yeah just throwing snake eyes*<br>
+> *Oh love ain't got me downhearted, I know up around the corner lies*<br>
+> *My fool's paradise in just another roll of the dice (oh yeah)*<br>
 
-> *All my elevens and sevens been coming up sixes and nines (hmm yeah)*
-> *Since I fell for you baby I'm coming on changing times (oh yeah)*
-> *They're waiting over the rise in just another roll of the dice*
+> *All my elevens and sevens been coming up sixes and nines (hmm yeah)*<br>
+> *Since I fell for you baby I'm coming on changing times (oh yeah)*<br>
+> *They're waiting over the rise in just another roll of the dice*<br>
 
-> *I've stumbled and I know I made my mistakes*
-> *Oh but tonight I'm gonna be playing for all of the stakes*
+> *I've stumbled and I know I made my mistakes*<br>
+> *Oh but tonight I'm gonna be playing for all of the stakes*<br>
 
-> *Well it's never too late so come on girl, the tables are waiting (oh yeah)*
-> *Oh you and me and Lady Luck well tonight we'll be celebrating*
-> *Drinking champagne on ice in just another roll of the dice (ooh hoo hoo)*
-> *Whoa whoa whoa yeah*
+> *Well it's never too late so come on girl, the tables are waiting (oh yeah)*<br>
+> *Oh you and me and Lady Luck well tonight we'll be celebrating*<br>
+> *Drinking champagne on ice in just another roll of the dice (ooh hoo hoo)*<br>
+> *Whoa whoa whoa yeah*<br>
 
-> *High-rollers, lay down your bets and I'll raise 'em*
-> *Well I know the odds ain't in my favor (oh no)*
+> *High-rollers, lay down your bets and I'll raise 'em*<br>
+> *Well I know the odds ain't in my favor (oh no)*<br>
 
-> *Maybe I'm just a clown throwing down looking to come up busted (oh no)*
-> *I'm a thief in the house of love and I can't be trusted*
-> *Well I'll be making my heist in just another roll of the dice*
-> *Just another roll of the dice*
+> *Maybe I'm just a clown throwing down looking to come up busted (oh no)*<br>
+> *I'm a thief in the house of love and I can't be trusted*<br>
+> *Well I'll be making my heist in just another roll of the dice*<br>
+> *Just another roll of the dice*<br>
 
 Truth be told, this isn't Bruce at his lyrical best: Although there some genuinely clever turns of phrase ("my elevens and sevens been coming up sixes and nines" and "I'm a thief in the house of love and I can't be trusted" are as good as any lines he's ever written), he strains the gambling metaphor to its breaking point, there's some awkward phrasing ("all of the stakes") and a lazy rhyme in the bridge ("raise 'em" and "favor").
 
@@ -53,7 +63,7 @@ When Bruce performs "Roll of the Dice" in concert, that desperate fun translates
 
 [Watch on Youtube: Bruce Springsteen - Roll of the Dice (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=eFIh-5SYwK0)
 
-> *"Have you ever felt so empty inside, empty like you had nothing left… you're unsure of yourself, like you weren't sure who you were anymore… have you ever been so alone that all you wanted to do was hide, and when you reach down inside you can find nothing left inside. You're unsure of all the things that you love."*
+> *"Have you ever felt so empty inside, empty like you had nothing left… you're unsure of yourself, like you weren't sure who you were anymore… have you ever been so alone that all you wanted to do was hide, and when you reach down inside you can find nothing left inside. You're unsure of all the things that you love."*<br>
 
 In 1992, after being out of the public eye for almost four years, a bout of writer's block, the dissolution of his band, the search for a new voice, and the beginning of a family, that sounded more like a confession than shtick.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: What Love Can Do"
+author: "Ken"
+excerpt: "“What Love Can Do” is a reminder that while love can’t solve society’s ills, it can give us the strength to face them. It’s more timely now than when Bruce wrote it."
+tags: magic what-love-can-do working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/whatlovecando_sin-us-07i.jpg
+post_id: 5749
+---
 "What Love Can Do" was the first song written for *Working on a Dream*, and the fourth single released from that album. Yet it labors in obscurity, buried deep within an underappreciated album and performed live exactly once.
 
 What's to explain the ambivalence from both fans and artist?
@@ -14,48 +24,48 @@ The song is ultimately a moral lesson, a pep talk for the disheartened–or as B
 
 When Bruce waxes moralistic, he tends to go biblical in the process. He wastes no time doing so here:
 
-> *There's a pillar in the temple where I carved your name*
-> *There's a soul sitting sad and blue*
-> *Now the remedies you've taken are all in vain*
-> *Let me show you what love can do*
-> *Let me show you what love can do*
+> *There's a pillar in the temple where I carved your name*<br>
+> *There's a soul sitting sad and blue*<br>
+> *Now the remedies you've taken are all in vain*<br>
+> *Let me show you what love can do*<br>
+> *Let me show you what love can do*<br>
 
 The "pillar in the temple" is a promise of eternal faith, loyalty, service, and love. (Bruce will contrast it with another eternal mark in the final verse.)
 
 And it sounds like it's sorely needed, because whoever Bruce is singing to is dejected and despondent. She's done everything she could, tried every measure, to no avail. The singer's declaration must strike her (as it does us) as naïve and hollow. But Bruce knows that, too–which is why he qualifies it:
 
-> *Darling I can't stop the rain*
-> *Or turn your black sky blue*
-> *Well let me show you what love can do*
-> *Let me show you what love can do*
+> *Darling I can't stop the rain*<br>
+> *Or turn your black sky blue*<br>
+> *Well let me show you what love can do*<br>
+> *Let me show you what love can do*<br>
 
 And that's the message of the song right there. In many of Bruce's songs, the payoff comes at the end, but nothing's hidden here. There are no plot twists.
 
 In an age where the deck seems stacked against us, in a world where hard work can't earn us a fair shake, where hate and fear are allowed to take root and score points, love alone can't fix things. But it can give us the strength and support we need to keep fighting.
 
-> *Well now our truth lay shattered, you stood at world's end*
-> *As the dead sun rose in view*
-> *Well if any of this matters, with a kiss my friend*
-> *Let me show you what love can do*
-> *Let me show you what love can do*
+> *Well now our truth lay shattered, you stood at world's end*<br>
+> *As the dead sun rose in view*<br>
+> *Well if any of this matters, with a kiss my friend*<br>
+> *Let me show you what love can do*<br>
+> *Let me show you what love can do*<br>
 
-> *Darling we can't stop this train*
-> *When it comes crashing through*
-> *But let me show you what love can do*
-> *Let me show you what love can do*
+> *Darling we can't stop this train*<br>
+> *When it comes crashing through*<br>
+> *But let me show you what love can do*<br>
+> *Let me show you what love can do*<br>
 
 Our narrator humbly sings "if any of this matters," but he knows it does. Love can't stop a train but it can keep you from being knocked down by the force of it.
 
-> *When the bed you lie on is nails and rust*
-> *And the love you've given's turned to ashes and dust*
-> *When the hope you've gathered's drifted to the wind*
-> *It's you and I my friend (you and I my friend)*
-> *You and I now friend*
+> *When the bed you lie on is nails and rust*<br>
+> *And the love you've given's turned to ashes and dust*<br>
+> *When the hope you've gathered's drifted to the wind*<br>
+> *It's you and I my friend (you and I my friend)*<br>
+> *You and I now friend*<br>
 
-> *Here our memory lay corrupted and our city lay dry*
-> *Let me make this vow to you*
-> *Here where it's blood for blood and an eye for an eye*
-> *Let me show you what love can do*
+> *Here our memory lay corrupted and our city lay dry*<br>
+> *Let me make this vow to you*<br>
+> *Here where it's blood for blood and an eye for an eye*<br>
+> *Let me show you what love can do*<br>
 
 Make no mistake: while the song is written as an intimate conversation, Bruce isn't speaking to one person–he's speaking to his country. "What Love Can Do" was written and recorded before *Magic* was even released, and politics were certainly on his mind as he wrote it.
 
@@ -63,10 +73,10 @@ The timing is important: especially with the "hope" reference, it's easy to view
 
 Bruce bookends the song with another biblical reference to eternal remembrance, this time noting that none of us are without sin, none of us perfect–but despite that we can still choose at any time to embrace our better nature:
 
-> *Here we bear the mark of Cain*
-> *We'll let the light shine through*
-> *Let me show you what love can do*
-> *Let me show you what love can do*
+> *Here we bear the mark of Cain*<br>
+> *We'll let the light shine through*<br>
+> *Let me show you what love can do*<br>
+> *Let me show you what love can do*<br>
 
 Given the turn of events in the world these past few years, as nations shift rightward after years of progress, one might accuse Bruce of being naive in releasing this song when he did.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Baby, I'm So Cold"
+author: "Ken"
+excerpt: "The illegitimate child of “Loose Ends” and “Follow That Dream” still lives deep in the vault, but you can listen to an early demo of it inside."
+tags: baby-im-so-cold follow-that-dream janey-dont-you-lose-heart
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/socold.jpg
+post_id: 9731
+---
 From time to time here on the Shuffle, we profile Springsteen original songs that never made it to vinyl but instead ended up donating their DNA to other songs that did.
 
 "[True Love is Hard to Come By](../2018-05-19_roll-of-the-dice-true-love-is-hard-to-come-by/post.md)," for example, led to "[Janey, Don't You Lose Heart,](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" and "[Stockton Boys](../2019-01-10_roll-of-the-dice-stockton-boys/post.md)" donated some lyrics to "[Working on the Highway.](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" Bruce appears to have worked on "[Eloise](../2011-01-16_roll-of-the-dice-eloise/post.md/)" and "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" at the same time; they share the same melody, but only one of the twins survived. Don't even get me started on "[Garden State Parkway Blues](../2018-11-30_roll-of-the-dice-garden-state-parkway-blues/post.md)." (But do check out that entry if you're not familiar with it, because that song's DNA is all over Bruce's catalog.)
@@ -20,42 +30,42 @@ The chorus–unique to this song–simply finds the lovers estranged from each o
 
 Listen again, and marvel at how Bruce is able to craft an entirely difference song with only small changes to existing elements.
 
-> *We met on open streets*
-> *We had no place to go*
-> *I remember how my heart beat*
-> *When you said "Bobby, I love you so"*
-> *Then little by little, baby, now I don't know*
-> *We lost the love, so long ago*
+> *We met on open streets*<br>
+> *We had no place to go*<br>
+> *I remember how my heart beat*<br>
+> *When you said "Bobby, I love you so"*<br>
+> *Then little by little, baby, now I don't know*<br>
+> *We lost the love, so long ago*<br>
 
-> *Now I'm so cold, and we turn the lights down low*
-> *So cold, baby, I'm so cold, and we turn the lights down low*
-> *So cold, baby, I'm cold*
+> *Now I'm so cold, and we turn the lights down low*<br>
+> *So cold, baby, I'm so cold, and we turn the lights down low*<br>
+> *So cold, baby, I'm cold*<br>
 
-> *We both made promises we couldn't keep*
-> *Now last night, my girl, you were crying in your sleep*
-> *Baby, we used to walk on nights just like this*
-> *I would hold you in my arms, fill you with my kiss*
-> *(Hold you in my arms, protect you with my kiss)*
+> *We both made promises we couldn't keep*<br>
+> *Now last night, my girl, you were crying in your sleep*<br>
+> *Baby, we used to walk on nights just like this*<br>
+> *I would hold you in my arms, fill you with my kiss*<br>
+> *(Hold you in my arms, protect you with my kiss)*<br>
 
-> *Now I'm so cold, and we turn the lights down low*
-> *I'm so cold, baby, I'm so cold, we turn the lights down low*
+> *Now I'm so cold, and we turn the lights down low*<br>
+> *I'm so cold, baby, I'm so cold, we turn the lights down low*<br>
 
-> *Our love has fallen around us*
-> *Like we said it never could*
-> *It happened to us, we said it never would*
-> *How could something so bad, baby, happen to something so good*
-> *I don't know, I don't know*
+> *Our love has fallen around us*<br>
+> *Like we said it never could*<br>
+> *It happened to us, we said it never would*<br>
+> *How could something so bad, baby, happen to something so good*<br>
+> *I don't know, I don't know*<br>
 
-> *We got no new dreams, baby, left to touch*
-> *We're lost like strangers who know too much*
-> *About each other, it was ???*
-> *I'm scared but I fear the cold coming in the night*
+> *We got no new dreams, baby, left to touch*<br>
+> *We're lost like strangers who know too much*<br>
+> *About each other, it was ???*<br>
+> *I'm scared but I fear the cold coming in the night*<br>
 
-> *Now I'm so cold, and we turn the lights down low*
-> *So cold, baby, I'm so cold, and we turn the lights down low*
-> *And we turn the lights down low*
-> *And we turn the lights down low*
-> *And we turn the lights down low*
+> *Now I'm so cold, and we turn the lights down low*<br>
+> *So cold, baby, I'm so cold, and we turn the lights down low*<br>
+> *And we turn the lights down low*<br>
+> *And we turn the lights down low*<br>
+> *And we turn the lights down low*<br>
 
 (Yes, those are lyrics that would someday end up in "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" in that final verse.)
 

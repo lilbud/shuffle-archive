@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You're Missing"
+author: "Ken"
+excerpt: "Written in the aftermath of 9/11, “You’re Missing” gives voice to the grief and loss we all experience sooner or later."
+tags: the-rising youre-missing
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/missing.jpg
+post_id: 15955
+---
 Even now, almost eighteen years later, "You're Missing" hits like a punch to the gut.
 
 Until Bruce released it on *The Rising* in 2002, we didn't know how much we needed this song. Still reeling from a national tragedy, it seemed that everyone in America knew someone directly affected by the 9/11 terror attacks, and we were still grappling with how to process it.
@@ -16,17 +26,17 @@ Of the two, "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" is the
 
 When the vocals enter, Bruce's voice is simultaneously distant and tender, taking note of his surroundings but all the while feeling the profound absence of his lost love.
 
-> *Shirts in the closet, shoes in the hall*
-> *Mama's in the kitchen, baby and all*
-> *Everything is everything*
-> *Everything is everything*
-> *But you're missing*
+> *Shirts in the closet, shoes in the hall*<br>
+> *Mama's in the kitchen, baby and all*<br>
+> *Everything is everything*<br>
+> *Everything is everything*<br>
+> *But you're missing*<br>
 
-> *Coffee cups on the counter, jackets on the chair*
-> *Papers on the door step, but you're not there*
-> *Everything is everything*
-> *Everything is everything*
-> *But you're missing*
+> *Coffee cups on the counter, jackets on the chair*<br>
+> *Papers on the door step, but you're not there*<br>
+> *Everything is everything*<br>
+> *Everything is everything*<br>
+> *But you're missing*<br>
 
 Nothing happens in these verses. Nothing happens through the entire song, in fact.
 
@@ -36,43 +46,43 @@ You can't escape the reminders: their clothes, their shoes, the family you share
 
 The chorus (such as it is) is heartbreaking–how can all the things that make a home continue to exist when the heart of the family no longer beats? And yet it does: everything is still everything.
 
-> *Pictures on the nightstand, TV's on the den*
-> *Your house is waiting, your house is waiting*
-> *For you to walk in, for you to walk in*
-> *But you're missing, you're missing*
+> *Pictures on the nightstand, TV's on the den*<br>
+> *Your house is waiting, your house is waiting*<br>
+> *For you to walk in, for you to walk in*<br>
+> *But you're missing, you're missing*<br>
 
 Many of Bruce's songs can be summed up in a single line. "Your house is waiting for you to walk in" — that's the song, right there. In one line, Bruce tells us so much: that the family's loss is recent, that their home still bears the imprint of their lost one, that our narrator still can't quite believe she's gone, that the entire family and their home still aches to see her walk through their door once more.
 
 If there was an award for economy in songwriting, "You're Missing" would be in the Hall of Fame.
 
-> *You're missing when I shut out the lights*
-> *You're missing when I close my eyes*
-> *You're missing when I see the sun rise*
-> *You're missing*
+> *You're missing when I shut out the lights*<br>
+> *You're missing when I close my eyes*<br>
+> *You're missing when I see the sun rise*<br>
+> *You're missing*<br>
 
 Time passes, and the nights are long. Her absence is the last thing our narrator feels when he goes to sleep, and the first thing he notices when he wakes.
 
 And in the middle of the night, Danny Federici's organ carries the children on tiptoe into their parents' bedroom:
 
-> *Children are asking if it's alright*
-> *Will you be in our arms tonight?*
+> *Children are asking if it's alright*<br>
+> *Will you be in our arms tonight?*<br>
 
 Again, Bruce manages to convey so much in a simple couplet: the sadness of children who miss their mother; the concern for a father so deep in mourning that his children feel his emotional absence. Are they asking for their mother's embrace or their fathers? Both are denied in the moment.
 
 The next verse echoes the bridge: time continues to pass, as it does.
 
-> *Morning is morning, the evening falls*
-> *I got too much room in my bed, too many phone calls*
-> *How's everything, everything*
-> *Everything, everything*
-> *But you're missing, you're missing*
+> *Morning is morning, the evening falls*<br>
+> *I got too much room in my bed, too many phone calls*<br>
+> *How's everything, everything*<br>
+> *Everything, everything*<br>
+> *But you're missing, you're missing*<br>
 
 Morning comes, then evening–with nothing in between. In the early days of grief, loss is all you feel. Friends and family call to comfort, but all they serve to do is remind. And at the end of the day, in the place where only your partner should accompany you, you're alone.
 
 The final couplet of the song is the one that's generated the most discussion over the years:
 
-> *God's drifting in heaven, devil's in the mailbox*
-> *I got dust on my shoes, nothing but teardrops*
+> *God's drifting in heaven, devil's in the mailbox*<br>
+> *I got dust on my shoes, nothing but teardrops*<br>
 
 "You're Missing" is a song filled with simple and literal imagery–yet Bruce closes it with religious and abstract metaphor.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 4"
+author: "Ken"
+excerpt: "The Ties That Bind: The River Collection was released on this day in 2015. Other highlights from this date: guest appearances from Joe Grushecky, Tom Morello, and Mike Ness, rare River Tour footage, and more."
+tags: anaheim asbury-park bad-luck bobby-bandiera bon-jovi bruce-springsteen-band buffalo code-of-silence garland-jeffreys garry-tallent holiday-shows joe-grushecky land-of-hope-and-dreams lisa-lowell long-time-comin magic-tour miami-horns mike-ness my-lover-man new-york-city nils-lofgren norway oslo patti-scialfa pittsburgh rising-tour river-tour santa-claus-is-comin-to-town soozie-tyrell southside-johnny springsteen-on-broadway student-prince the-ties-that-bind-the-river-collection tom-morello wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/tiesthatbindbox.jpeg
+post_id: 62959
+---
 ***New for 2025:** New entry for 1979; audio for 2002*<br>
 
 **1948:** Bruce's good friend, frequent co-performer, and one-time bandmate Southside Johnny Lyon is born in Neptune, New Jersey.<br>

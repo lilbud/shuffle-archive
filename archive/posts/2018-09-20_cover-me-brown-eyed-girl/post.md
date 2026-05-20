@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Brown Eyed Girl"
+author: "Ken"
+excerpt: "Bruce doesn’t play “Brown Eyed Girl” often, but when he does, it’s a singalong highlight, with no teleprompter required."
+tags: brown-eyed-girl timepiece van-morrison
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/browneyedgirl.jpg
+post_id: 4534
+---
 For a classic rock song that he clearly knows by heart and enjoys singing, it's surprising that Bruce doesn't cover Van Morrison's "Brown Eyed Girl" more often.
 
 Check it out: no teleprompter in sight during this impromptu, by-request performance from 2014:

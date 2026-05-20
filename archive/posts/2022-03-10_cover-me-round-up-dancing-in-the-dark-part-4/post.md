@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me Round-Up: Dancing in the Dark (Part 4)"
+author: "Ken"
+excerpt: "Five more fresh takes on Bruce Springsteen’s greatest hit."
+tags: 48th-street-collective billy-reekie-and-cara-mcbride dancing-in-the-dark jack-jarryd the-starlings walk-off-the-earth
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/dancing.jpg
+post_id: 32829
+---
 I'm serious, y'all: These things multiply *fast.*
 
 It's only been two months since our last "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" cover round-up and I *still* had to whittle down a list of a dozen new ones to arrive at today's five spotlights. That means I'm falling further behind instead of catching up, so let's not waste any more time before diving into today's stellar selections.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Patty Griffin: Jungleland"
+author: "Ken"
+excerpt: "It takes guts to cover “Jungleland,” let alone as an acoustic show opener. But Patty Griffin has guts, and her cover is gorgeous. Watch and listen inside."
+tags: jungleland patty-griffin
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/Patty-Griffin-6-620x414.jpg
+post_id: 11791
+---
 It takes guts to cover Bruce Springsteen's "Jungleland." It takes even more guts to do so with nothing more than an acoustic guitar and a bass to accompany you.
 
 Patty Griffin has nothing if not guts.

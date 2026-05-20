@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Linda Ronstadt, Emmylou Harris, and Neil Young: Across the Border"
+author: "Ken"
+excerpt: "Three great voices blend lovingly in this gorgeous arrangement of “Across the Border.”"
+tags: across-the-border emmylou-harris linda-ronstadt neil-young
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/western.jpg
+post_id: 3486
+---
 Recently, I shared a [beautiful cover](../2018-07-23_cover-me-willie-nelson-and-emmylou-harris-dry-lightning/post.md) of "[Dry Lightning](../2020-10-16_roll-of-the-dice-dry-lightning/post.md)" by Emmylou Harris and Willie Nelson, and almost immediately, a few friends and readers pointed me to another Emmylou duet/Bruce cover. And even though Emmylou has covered Bruce enough times to make for a mini-blog by itself, this particular track deserves more listens.
 
 This cover of "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)" combines not just two but *three* great voices: Emmylou, Linda Ronstadt, and Neil Young (who hangs out on backing vocals but contributes a prominent harmonica).

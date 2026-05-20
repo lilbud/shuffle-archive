@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Down the Road Apiece"
+author: "Ken"
+excerpt: "From Bruce’s pre-E Street Days to just pre-pandemic, “Down the Road Apiece” has always been an epic, crowd-pleasing jam. Let’s watch and listen to some of the best inside."
+tags: chuck-berry danny-clinch down-the-road-apiece freddie-slack joe-grushecky tangiers-blues-band the-rolling-stones will-bradley-trio wolfgang-niedecken
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/PIECECOVER_1024x1024@2x.jpg
+post_id: 22285
+---
 If ever a rock and roll recording was predestined for live jamming, it's "Down the Road Apiece."
 
 Even in its original boogie-woogie recording by the Will Bradley Trio in 1940, we can't help but feel like we're hearing a live performance in a smoky club.
@@ -14,11 +24,11 @@ Ella Mae Morris recorded "Down the Road Apiece" in the 1950s (changing the music
 
 [Watch on Youtube: Down The Road Apiece](https://www.youtube.com/watch?v=kRCgPr-Xgzo)
 
-The Rolling Stones changed "Kickin'" to "Charlie" when they recorded their 1965 version, no doubt a nod to their own drummer...
+The Rolling Stones changed "Kickin'" to "Charlie" when they recorded their 1965 version, no doubt a nod to their own drummer…
 
 [Watch on Youtube: Down The Road Apiece](https://www.youtube.com/watch?v=s_L7OUi-5tA)
 
-...and it's this version that almost certainly inspired Bruce Springsteen to first cover "Down the Road Apiece" during his Bruce Springsteen Band era of 1971-72. How do we know? Because he kept the "Charlie McCoy" reference.
+…and it's this version that almost certainly inspired Bruce Springsteen to first cover "Down the Road Apiece" during his Bruce Springsteen Band era of 1971-72. How do we know? Because he kept the "Charlie McCoy" reference.
 
 A jam piece from its very origin, "Down the Road Apiece" proved a perfect showcase for the talents of the Bruce Springsteen Band players: Bruce and Steve Van Zandt both take a turn in the guitar solo spotlight, and David Sancious dazzles as always. Take a listen to this vintage show-opening performance from February 1972.
 

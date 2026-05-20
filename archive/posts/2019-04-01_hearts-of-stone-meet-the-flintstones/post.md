@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Hearts of Stone: (Meet the) Flintstones"
+author: "Ken"
+excerpt: "Today we kick off a new series examining the work of the lesser-known Bruce Springstone. Today’s heart of stone: Bruce’s homage to the classic “(Meet the) Flintstones.”"
+tags: bruce-springstone live-in-bedrock meet-the-flintstones take-me-out-to-the-ball-game
+categories: hearts-of-stone
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/bedrock.jpg
+post_id: 8622
+---
 Our long-running *Kingdom of Days, Roll of the Dice, Cover Me, Meeting Across the River*, and *Where the Band Was* series have been so well-received that I've decided to launch a sixth series starting today!
 
 Welcome to *Hearts of Stone*, in which we'll explore the works of the lesser known but not lesser talent, Bruce Springstone.

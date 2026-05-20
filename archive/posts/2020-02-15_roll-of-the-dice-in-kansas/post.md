@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: In Kansas"
+author: "Ken"
+excerpt: "Abandoned almost as soon as Bruce began it, “In Kansas” provides a glimpse of what might have developed into an early epic."
+tags: in-kansas
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/kansas.jpg
+post_id: 14218
+---
 This one's for the completists (like me).
 
 For all the many songs Bruce has recorded or performed over the years, there are so many more that never saw the light of day.

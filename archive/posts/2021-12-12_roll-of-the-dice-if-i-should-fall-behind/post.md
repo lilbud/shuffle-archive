@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: If I Should Fall Behind"
+author: "Ken"
+excerpt: "“If I Should Fall Behind” is an enduring favorite that continuously grows, changes, and evolves like the best and strongest of relationships."
+tags: if-i-should-fall-behind live-in-dublin live-in-new-york-city lucky-town stand-up-for-heroes tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/ifishouldfallbehind_sin-1992-aus-cd5.jpg
+post_id: 2415
+---
 (**Updated June 20, 2019)**
 
 A truly great song can be re-arranged, re-recorded, re-invented, and covered many times over without ever losing its power or beauty.

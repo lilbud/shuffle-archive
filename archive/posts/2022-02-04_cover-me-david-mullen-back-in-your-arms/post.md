@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, David Mullen: Back in Your Arms"
+author: "Ken"
+excerpt: "Scotland-based David Mullen dials back the melodrama in Bruce’s original version but preserves the passion and heartache."
+tags: back-in-your-arms david-mullen
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/mullen.jpg
+post_id: 32747
+---
 I have a stack of great Springsteen covers that I never get around to featuring, because I can't find any information about the artists. That doesn't leave me much to write about, so I don't.
 
 Every once in a while, though, I stumble back across one of them, and if it moves me in the moment I may just spotlight it anyway and give myself the morning off.

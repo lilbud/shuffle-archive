@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mississippi"
+author: "Ken"
+excerpt: "Long before “The Ghost of Tom Joad,” nineteen-year-old Bruce Springsteen adapted another great work of literature into song."
+tags: 1968-notebook child mississippi
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/huckfinn.jpeg
+post_id: 21116
+---
 Bruce adapted classic literature in song long before "[The Ghost of Tom Joad.](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)"
 
 In the autumn of 1968, nineteen-year-old Bruce Springsteen put pen to paper and wrote a song called "Mississippi," featuring two friends drifting down the great river on a raft on a beautiful, lazy summer day. One of them was named Jim, and although the narrator never identifies himself, it's not too difficult to figure out his name, too.

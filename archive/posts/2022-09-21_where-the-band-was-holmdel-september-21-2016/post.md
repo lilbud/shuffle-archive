@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Holmdel, September 21, 2017"
+author: "Ken"
+excerpt: "My first and surprise Bruce appearance was a tremendous show featuring Peter Wolf, Jackson Browne, and Little Steven & The Disciples of Soul."
+tags: holmdel i-am-a-patriot its-been-a-long-time jackson-browne laid-back-festival little-steven-and-the-disciples-of-soul our-lady-of-the-well peter-wolf take-it-easy tenth-avenue-freeze-out
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/Laid-Back-square.jpg
+post_id: 4446
+---
 I don’t know why I was surprised when Bruce showed up at the Laid Back Festival. After all, it was essentially in his back yard (Holmdel is about a ten-minute drive from Bruce’s neighborhood), and the line-up of performers was comprised entirely of old friends (including his best friend).
 
 But I’d been at enough “he’s gotta show” shows that ended up as “he never showed” shows to have long since given up speculating and expecting. (Well, the expecting part, at least.)

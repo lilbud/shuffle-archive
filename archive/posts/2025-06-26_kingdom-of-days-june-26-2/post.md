@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 26"
+author: "Ken"
+excerpt: "On this date: Bruce films the video for “American Skin (41 Shots),” plays his last show with the 1992-1993 band, and more."
+tags: american-skin-41-shots billy-chinnock copenhagen darkness-tour denmark frankfurt germany gijon joe-ely jonathan-demme kristen-ann-carr-fund light-of-day madison-square-garden new-york-city reunion-tour soozie-tyrell spain terrence-trent-darby the-long-goodbye vancouver wholl-stop-the-rain world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/19930626_front.jpg
+post_id: 57181
+---
 ***New for 2025:** New entry for 1973; video for 1992, 2013 and 2023; audio for 1993*<br>
 
 **1972:** At 914 Sound Studios in New York, Bruce records "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" and "[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" (minus the harmonica, which will be overdubbed later).<br>

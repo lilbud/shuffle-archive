@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Gresham Flyers: Magic"
+author: "Ken"
+excerpt: "From the outstanding tribute album Play Some Pool, Skip Some School, Act Real Cool comes this seriously sinister and rocking cover of Bruce’s moody original."
+tags: gresham-flyers magic play-some-pool-skip-some-school-act-real-cool
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/gresham.jpg
+post_id: 20795
+---
 The Gresham Flyers were a London-based power pop septet that were generating some indie pop buzz there for a while back in the mid-2000s.
 
 Unfortunately, the band broke up in 2011, but they were on the scene long enough to contribute one of the strongest tracks on the outstanding Springsteen tribute album, *Play Some Pool, Skip Some School, Act Real Cool*. (Check out other great featured tracks from the album [here](https://estreetshuffle.com/?s=play+pool+skip+school).)

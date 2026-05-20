@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 7"
+author: "Ken"
+excerpt: "Bruce plays full albums for the first time, makes his first visit to Austria, promotes an upcoming SNL appearance, and more."
+tags: across-the-borderline austria born-to-run brilliant-disguise canada darkness-on-the-edge-of-town denver devils-and-dust-tour finland ghost-of-tom-joad-tour gijon hartford louie-louie manchester queen-of-the-supermarket reunion-tour river-tour saturday-night-live seeger-sessions-tour spain stockholm sweden the-promise the-promised-land tom-hanks toronto turku uk usc vienna working-on-a-dream-tour world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/FxFAJONWwA4J0h_.jpeg
+post_id: 56717
+---
 ***New for 2025:** New entry for 1980, 1982, and 1996*<br>
 
 **1976:** Four days before Bruce's scheduled show at Auburn University, Bruce makes an unannounced visit to the campus... [or does he](https://buddmclaughlin.blogspot.com/2013/07/springsteen-i-fake-singer-fools-students.html)? (h/t Bud McLaughlin)<br>

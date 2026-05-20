@@ -1,10 +1,20 @@
+---
+layout: post
+title: "MatR: Ronnie Spector and The E Street Band, Say Goodbye to Hollywood"
+author: "Ken"
+excerpt: "The E Street Band finally gets an official recording credit in 1977 when Steve Van Zandt recruits them to back Ronnie Spector in the studio. Listen to Ronnie and the band cover Billy Joel’s “Say Goodbye to Hollywood.”"
+tags: billy-joel ronnie-spector say-goodbye-to-hollywood steve-van-zandt
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/ronnie.jpg
+post_id: 12011
+---
 Call it a meeting of the Mutual Admiration Society.
 
-Billy Joel kicked off his 1976 *Turnstiles* album with "Say Goodbye to Hollywood," a song he wrote with Ronnie Spector in mind. Billy's homage is obvious from the opening bars. Compare his song below...
+Billy Joel kicked off his 1976 *Turnstiles* album with "Say Goodbye to Hollywood," a song he wrote with Ronnie Spector in mind. Billy's homage is obvious from the opening bars. Compare his song below…
 
 [Watch on Youtube: Say Goodbye To Hollywood - Billy Joel](https://www.youtube.com/watch?v=47PtUvHIQpk)
 
-...with Spector's 1963 hit, "[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md)."
+…with Spector's 1963 hit, "[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md)."
 
 [Watch on Youtube: The Ronettes - Be My Baby (Official Audio)](https://www.youtube.com/watch?v=jSPpbOGnFgk)
 

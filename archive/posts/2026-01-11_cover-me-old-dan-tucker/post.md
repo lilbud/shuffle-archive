@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Old Dan Tucker"
+author: "Ken"
+excerpt: "Recorded during the freewheeling second Seeger Session, “Old Dan Tucker” led of Bruce’s 2006 album and became a nightly favorite on tour."
+tags: old-dan-tucker we-shall-overcome-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2006/01/234128210_695aa2b3-3687-45fb-a1ee-86f293f4adcb.jpeg
+post_id: 23067
+---
 The "Seeger Sessions" that yielded Bruce Springsteen's 2006 album were actually three separate recording sessions that spanned a decade.
 
 The project started with a simple request by Appleseed Records for a single cover track they could include in an upcoming Pete Seeger tribute album. Bruce convened a recording session at his home with The Gotham Playboys, a group of musicians he'd met through Soozie Tyrell, who joined the players along with Patti Scialfa and the Miami Horns.

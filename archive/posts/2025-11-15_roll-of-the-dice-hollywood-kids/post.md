@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Hollywood Kids"
+author: "Ken"
+excerpt: "An early, unreleased, never-performed demo by a 22-year-old Bruce Springsteen."
+tags: hollywood-kids
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/hollywood.jpg
+post_id: 158
+---
 We are going *seriously* obscure today.
 
 So obscure, in fact, that when the dice roll came up with this track, I had no idea what it was.

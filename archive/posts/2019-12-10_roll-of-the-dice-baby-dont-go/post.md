@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Baby, Don't Go"
+author: "Ken"
+excerpt: "Listen in on an abandoned River-era demo that might have been an early ancestor of “Fade Away.”"
+tags: baby-dont-go fade-away
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/151940-Baby-Don-t-Go.png
+post_id: 14437
+---
 In early 1979, Bruce had a vision for a song.
 
 He didn't have much in the way of lyrics yet, but he had a hook, a theme, and a basic melody. (And if you listen closely to this home demo recording, you'll hear him note that the song calls for a "Bennie and the Jets-type rhythm."

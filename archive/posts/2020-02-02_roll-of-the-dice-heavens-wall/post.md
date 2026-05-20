@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Heaven's Wall"
+author: "Ken"
+excerpt: "Who the heck would ever think to combine samba rhythm, middle eastern melody, a self-guitar duel, discordant strings, cowbell, and a gospel choir? Bruce Springsteen, that’s who!"
+tags: heavens-wall high-hopes
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/heaven.jpg
+post_id: 15842
+---
 We know that Bruce has employed biblical imagery in his songs pretty much since he started writing them, but am I the only one who thinks it's odd that Bruce released songs about Jonah and the whale on two albums in a row?
 
 Okay, maybe "[Swallowed Up (In the Belly of the Whale)](https://estreetshuffle.com/index.php/2020/05/07/roll-of-the-dice-swallowed-up-in-the-belly-of-the-whale/)" isn't *really* about Jonah, but that [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)bonus track certainly uses the myth as metaphor.
@@ -10,28 +20,28 @@ We'll discuss the lyrics in a bit, but let's take a few minutes to listen to the
 
 See what I mean? In the first twenty seconds alone, we segue from a cowbell count-off to a samba intro to a gospel choir. The first verse hasn't even kicked in yet, and I'm already dizzy.
 
-> *There was a woman waiting at the well*
-> *Drawing water ‘neath the desert sky blue*
-> *She said, "He'll heal the blind, raise the dead, cure the sickness out of you"*
+> *There was a woman waiting at the well*<br>
+> *Drawing water ‘neath the desert sky blue*<br>
+> *She said, "He'll heal the blind, raise the dead, cure the sickness out of you"*<br>
 
 I'm a far cry from a biblical scholar–I'm not even sure I've read the greatest hits–so it's possible I may be missing the significance of many of the references in "Heaven's Wall." But it seems pretty clear to me that the song is a celebration of the forgiveness that awaits those who truly repent their sins and embrace their faith.
 
 That said, I can't help but feel that "Heaven's Wall" is more of a songwriting experiment ("I wonder if I can write a gospel song") than a story that had to be told. Or more accurately, it feels like an arranging experiment, because that Latin/gospel intro was just the beginning. Check out the eerie string effects that start with the next line and continue throughout the rest of the verses–it raises the hair on my arms every time I hear it.
 
-> *Come on men of Gideon*
-> *Come on men of Saul*
-> *Come on sons of Abraham*
-> *Waiting outside heaven's wall*
+> *Come on men of Gideon*<br>
+> *Come on men of Saul*<br>
+> *Come on sons of Abraham*<br>
+> *Waiting outside heaven's wall*<br>
 
-> *Raise your hand, raise your hand, raise your hand*
-> *Raise your hand, raise your hand, raise your hand*
-> *And together we'll walk into Canaan land*
-> *Raise your hand, raise your hand, raise your hand*
+> *Raise your hand, raise your hand, raise your hand*<br>
+> *Raise your hand, raise your hand, raise your hand*<br>
+> *And together we'll walk into Canaan land*<br>
+> *Raise your hand, raise your hand, raise your hand*<br>
 
-> *He saw the watcher at the city gates*
-> *Jonah in the belly of the whale*
-> *He watched you walk your ragged mile*
-> *His mercy did not fail*
+> *He saw the watcher at the city gates*<br>
+> *Jonah in the belly of the whale*<br>
+> *He watched you walk your ragged mile*<br>
+> *His mercy did not fail*<br>
 
 Most reviews that mentioned "Heaven's Wall" focused on Tom Morello's dueling guitar solos: he plays call-and-response solos that alternate between left and right channels–not only a cool technical effect but a clever way of underscoring the song's gospel spirit.
 

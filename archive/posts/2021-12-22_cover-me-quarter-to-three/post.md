@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Quarter to Three"
+author: "Ken"
+excerpt: "How a 1960 instrumental led to one of Bruce Springsteen’s most exciting on-stage covers."
+tags: a-night-with-daddy-g gary-u-s-bonds gene-barge quarter-to-three
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/quarter-to-three.jpg
+post_id: 28468
+---
 > "Man, when I´d wake up in the middle of the night, I´d put that record on and drive everybody in the house fucking *nuts*. I'd just wake up and slam that thing on, man, and turn it on 10, and *shit!*‘" *–Bruce Springsteen, October 29, 1976*<br>
 
 Of the more than a thousand songs Bruce Springsteen is known to have covered on stage, few loom larger than Gary U.S. Bonds' "Quarter to Three."

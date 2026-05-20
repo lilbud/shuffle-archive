@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Tacoma, August 21, 2002"
+author: "Ken"
+excerpt: "The early shows of the Rising Tour were largely unsurprising… until the encores in Tacoma, where Bruce debuted his reinvented greatest hit. It’s been with us ever since."
+tags: dancing-in-the-dark rising-tour tacoma
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/20020821_4_front.jpg
+post_id: 3902
+---
 So this was the one: the first show where I thought at the end of it, “I need to see just one more…”
 
 Until this point, I’d only ever seen Bruce when he came through my town. The thought of travelling to see a show had never even occurred to me. But I’d been living in the Pacific Northwest for seven years by this time, and the shows just weren’t the same out here.

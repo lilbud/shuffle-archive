@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 24"
+author: "Ken"
+excerpt: "News coverage and live footage from great shows from this date across the years."
+tags: american-babylon-tour barcelona chicago devils-and-dust-tour gloria joe-grushecky land-of-hope-and-dreams live-in-dublin my-beautiful-reward renegades-born-in-the-u-s-a richmond rising-tour river-tour seattle seeger-sessions-tour spain springsteen-on-broadway stockholm sweden
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/20061024_front.jpg
+post_id: 61212
+---
 ***New for 2025:** Audio for 2006; new entry for 2024*<br>
 
 **1970:** Steel Mill is among the three top bands from a summer festival invited back to perform at the Municipal Auditorium in Nashville.<br>

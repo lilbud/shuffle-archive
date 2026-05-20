@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Bimbo du Jour: No Surrender"
+author: "Ken"
+excerpt: "Another outtake from the terrific One Step Up/Two Steps Back 1998 tribute project, Bimbo du Jour unleashes the inner punk in Bruce’s “No Surrender.”"
+tags: bimbo-du-jour no-surrender
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/bimbo-du-jour.jpg
+post_id: 18471
+---
 Deep down, we always knew that “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” was secretly punk, didn’t we?
 
 Bimbo du Jour sure did.

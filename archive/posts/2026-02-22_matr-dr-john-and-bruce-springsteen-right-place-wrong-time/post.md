@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Right Place, Wrong Time"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen make a surprise appearance with Dr. John on the New Orleans legend’s greatest hit."
+tags: dr-john musical-mojo-of-dr-john right-place-wrong-time
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/dr-john-right-place-wrong-time.jpg
+post_id: 14566
+---
 The set list had the opening number listed as "Special Guest & Dr. John – Right Place Wrong Time."
 
 The event was a hometown celebration of Dr. John's music during Jazz Fest in New Orleans in 2014.

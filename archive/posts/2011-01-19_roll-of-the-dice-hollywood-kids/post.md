@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Hollywood Kids"
+author: "Ken"
+excerpt: "An early, unreleased, never-performed demo by a 22-year-old Bruce Springsteen."
+tags: hollywood-kids
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/hollywood.jpg
+post_id: 158
+---
 We are going *seriously* obscure today.
 
 So obscure, in fact, that when the dice roll came up with this track, I had no idea what it was.
@@ -10,24 +20,24 @@ Not much I can say about this track. It's never been released in any format, and
 
 Lyrically, it fits right in with Bruce's early work, rife with alliteration…
 
-> *Lonely hard-head losers dressed in the tinsel of the times*
-> *Learn all the latest lines and the order in which they come*
+> *Lonely hard-head losers dressed in the tinsel of the times*<br>
+> *Learn all the latest lines and the order in which they come*<br>
 
 …and colorful imagery limning seamy street life.
 
-> *So perfumed sweet and so obscene*
-> *Like the fancy dancers of our dirty green*
-> *Oh they know hello and goodbye but not what goes in between*
-> *Yeah, and its such a scene on Saturday night*
+> *So perfumed sweet and so obscene*<br>
+> *Like the fancy dancers of our dirty green*<br>
+> *Oh they know hello and goodbye but not what goes in between*<br>
+> *Yeah, and its such a scene on Saturday night*<br>
 
 For most of the song, it seems like "Hollywood Kids" is just a street scene painting without any real narrative or message, perhaps simply a songwriting practice exercise.
 
 …and then the last verse hits:
 
-> *And on Monday here I stand alone on this littered stage*
-> *Like an animal who forgot he was in a cage*
-> *Just a restless soul, just waiting for 'em to come*
-> *Them Hollywood kids each and everyone*
+> *And on Monday here I stand alone on this littered stage*<br>
+> *Like an animal who forgot he was in a cage*<br>
+> *Just a restless soul, just waiting for 'em to come*<br>
+> *Them Hollywood kids each and everyone*<br>
 
 And the song flips on itself, as you realize that you have indeed been listening to a painting, as seen from the vantage point of the singer who now stands alone on a Monday-morning stage, waiting…. just waiting, restlessly, for those so-foreign Hollywood Kids to come back. Waiting, with nowhere to go, like an animal who forgot he was in a cage.
 

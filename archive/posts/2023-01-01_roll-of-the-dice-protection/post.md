@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Protection"
+author: "Ken"
+excerpt: "No, not *that* “Protection” – this one is a light River-era outtake that likely influenced two later official releases."
+tags: protection restless-nights
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/protection.png
+post_id: 18570
+---
 No, not *that* "Protection." We'll discuss the song Bruce donated to Donna Summer at a later date and dice roll.
 
 Today's "Protection" is a much earlier song by the same name that Bruce recorded at home in early 1979. This song has never seen the light of day in any finished form, although some of its DNA did surface in an official release years later. But I'm getting ahead of myself.

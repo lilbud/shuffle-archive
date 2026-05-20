@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 24"
+author: "Ken"
+excerpt: "On this date: Bruce’s legendary 50th birthday show, the debut of a hastily-penned song for a Michigan crowd, and more."
+tags: blinded-by-the-light born-in-the-usa-tour bruce-springsteen-band buffalo clarence-clemons denver empty-sky ghost-of-tom-joad-tour honolulu in-michigan kansas-city los-angeles magic-tour main-street philadelphia reunion-tour rising-tour student-prince the-fever the-long-goodbye world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/19990924_2_front.jpg
+post_id: 59711
+---
 ***New for 2025:** New entry for 1979*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
@@ -30,7 +40,7 @@ On television, NBC's youth-oriented *Main Street* series profiles Bruce.
 
 [Watch on Youtube: NBC-TV Main Street, 1985-09-24 - Profile of Bruce Springsteen](https://www.youtube.com/watch?v=sZa1ZFE6DDQ)
 
-**1986:** A group of Philly fans drive up to Rumson to wish Bruce an only slightly belated happy birthday at his house… at 1:00am. Bruce is not amused.<br>
+**1986:** A group of Philly fans drive up to Rumson to wish Bruce an only slightly belated happy birthday at his house... at 1:00am. Bruce is not amused.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/Asbury_Park_Press_1986_09_25_Page_48.jpg.webp)
 
@@ -42,7 +52,7 @@ On television, NBC's youth-oriented *Main Street* series profiles Bruce.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-09-24b.jpg.webp)
 
-**1996:** Bruce debuts a new song at his solo acoustic show in Kalamazoo… sort of. Before the show, a fan had requested "Highway Patrolman" and while Bruce planned to grant it, he knew he'd be blowing the STFU theme of his tour by playing it in Michigan, because audiences can't help but cheer when their own state is mentioned. So instead of declining the request, he doubled down and wrote a song called "[In Michigan](../2022-04-12_roll-of-the-dice-in-michigan/post.md)" backstage in the minutes leading up to the show. It shows.<br>
+**1996:** Bruce debuts a new song at his solo acoustic show in Kalamazoo... sort of. Before the show, a fan had requested "Highway Patrolman" and while Bruce planned to grant it, he knew he'd be blowing the STFU theme of his tour by playing it in Michigan, because audiences can't help but cheer when their own state is mentioned. So instead of declining the request, he doubled down and wrote a song called "[In Michigan](../2022-04-12_roll-of-the-dice-in-michigan/post.md)" backstage in the minutes leading up to the show. It shows.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YZMQo4ib)
 
@@ -88,4 +98,4 @@ Earlier in the day, *Kindred Spirits: A Tribute to the Songs of Johnny Cash* is 
 
 [Watch on Youtube: Bruce Springsteen - Ghosts (Lyric Video)](https://www.youtube.com/watch?v=Lo5QNcFioZ4)
 
-[Watch on Youtube: Bruce Springsteen and E Street Band Reunite to Record](https://www.youtube.com/watch?v=Jwxpz2U9gjY)
+[Watch on Youtube: Bruce Springsteen and E Street Band Reunite to Record "Letter to You"](https://www.youtube.com/watch?v=Jwxpz2U9gjY)

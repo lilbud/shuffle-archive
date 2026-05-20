@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Walk Like a Man"
+author: "Ken"
+excerpt: "“Walk Like a Man” is the conclusion to Bruce’s “Daddy Trilogy,” an underplayed and under-recognized masterpiece of songwriting."
+tags: adam-raised-a-cain daddy-trilogy independence-day tunnel-of-love walk-like-a-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/footsteps.jpg
+post_id: 3216
+---
 For sheer, raw emotional power in song, I'm not sure it's possible to top the gut-punch of Bruce's "Daddy Trilogy."
 
 In 1978, Episode One–"[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)"–introduces us to a young man who feels the gravitational pull of his father's fate and rages against it, feeling resentfully trapped and predestined to follow in his father's footsteps.

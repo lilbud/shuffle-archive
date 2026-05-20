@@ -1,16 +1,26 @@
+---
+layout: post
+title: "Kingdom of Days: October 15"
+author: "Ken"
+excerpt: "On this date: Bruce and Sam Moore share the stage for the first time, and the Human Rights Now! Tour wraps up with a worldwide broadcast. More highlights inside."
+tags: argentina born-in-the-usa-tour boston branford-marsalis bruce-springsteen-band buenos-aires canada child david-sancious detroit-medley devils-and-dust-tour ghost-of-tom-joad-tour growin-up human-rights-now-tour idiots-delight madison magic magic-tour phoenix reunion-tour salt-lake-city sam-moore soul-man student-prince toronto valentines-day vancouver wild-innocent-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/buenos.jpg
+post_id: 61114
+---
 ***New for 2025:** Video for 2005; new entry for 2024*<br>
 
-**1969:** Child performs for Monmouth College’s National Vietnam Moratorium Protest Day.<br>
+**1969:** Child performs for Monmouth College's National Vietnam Moratorium Protest Day.<br>
 
 **1971:** The Bruce Springsteen Band is in residence at The Student Prince in Asbury Park.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1971-1015.jpg.webp)
 
-**1973:** Bruce and the as-yet-unnamed E Street Band kick off a four-night stand at Oliver’s in Boston.<br>
+**1973:** Bruce and the as-yet-unnamed E Street Band kick off a four-night stand at Oliver's in Boston.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1973-1015.jpg.webp)
 
-**1984:** The Born in the U.S.A. Tour resumes after a three-week break at Vancouver’s Pacific Coliseum, where an early stage rush temporarily halts the show to ensure that close-up fans are okay. Check out the pro-shot encore footage below.<br>
+**1984:** The Born in the U.S.A. Tour resumes after a three-week break at Vancouver's Pacific Coliseum, where an early stage rush temporarily halts the show to ensure that close-up fans are okay. Check out the pro-shot encore footage below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Detroit Medley - Vancouver October 15, 1984.mov](https://www.youtube.com/watch?v=fXB3mqCUMcw)
 
@@ -18,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1984-10-15b.png.webp)
 
-**1988:** The Human Rights Now! Tour comes to a close with a worldwide radio broadcast from the finale in Buenos Aires. This last show features some special guest appearances: David Sancious joins his old band for “[Glory Days,](../2024-06-04_roll-of-the-dice-glory-days/post.md)” “[Raise Your Hand,](../1976-01-13_cover-me-raise-your-hand/post.md/)” and “Twist and Shout”–the latter two featuring Branford Marsalis as well. HBO will air portions of the show in a documentary later in the year, and a DVD/Blu-ray collection will be released many years later.<br>
+**1988:** The Human Rights Now! Tour comes to a close with a worldwide radio broadcast from the finale in Buenos Aires. This last show features some special guest appearances: David Sancious joins his old band for "[Glory Days,](../2024-06-04_roll-of-the-dice-glory-days/post.md)" "[Raise Your Hand,](../1976-01-13_cover-me-raise-your-hand/post.md/)" and "Twist and Shout"–the latter two featuring Branford Marsalis as well. HBO will air portions of the show in a documentary later in the year, and a DVD/Blu-ray collection will be released many years later.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/6Vqm2t6a)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-10-15.png.webp)
 
-**1999:** The Reunion Tour picks up after a two-week break at America West Arena in Phoenix, where Sam Moore joins the reunited E Street Band for an encore (and live debut for Bruce) of “[Soul Man](../2018-07-25_meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/post.md).” Take a listen below.<br>
+**1999:** The Reunion Tour picks up after a two-week break at America West Arena in Phoenix, where Sam Moore joins the reunited E Street Band for an encore (and live debut for Bruce) of "[Soul Man](../2018-07-25_meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/post.md)." Take a listen below.<br>
 
 [Watch on Youtube: Bruce Springsteen and Sam Moore - "Soul Man," Phoenix, 1999-10-15](https://www.youtube.com/watch?v=6ohPz5nWewk)
 
@@ -70,13 +80,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2005-10-15b.png.webp)
 
-**2007:** Bruce tour premieres “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)” early in the set during his Magic Tour stop at the Air Canada Center in Toronto.<br>
+**2007:** Bruce tour premieres "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" early in the set during his Magic Tour stop at the Air Canada Center in Toronto.<br>
 
 [Watch on Youtube: Bruce Springsteen - Magic (Live Toronto 15.10.2007)](https://www.youtube.com/watch?v=hgzYSwLqQcc)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-15.png.webp)
 
-**2014:** Bruce attends the Broadway opening of *The Last Ship*, Sting’s musical about English shipbuilding, at the Neil Simon Theater in New York City.<br>
+**2014:** Bruce attends the Broadway opening of *The Last Ship*, Sting's musical about English shipbuilding, at the Neil Simon Theater in New York City.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/2014-1027.jpg.webp)
 

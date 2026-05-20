@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 31"
+author: "Ken"
+excerpt: "On this busy date: the release of Human Touch and Lucky Town, the start of World Tour 1993, and the finale of the 2013 Australian Tour. More highlights and video inside."
+tags: australia born-in-the-usa-tour brisbane canada denver glasgow hanging-rock human-touch incident-on-57th-street jimmy-barnes lucky-town macedon magic-tour reunion-tour river-tour-2016 thunder-road tougher-than-the-rest trapped vancouver world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/bruce-springsteen-human-touch-lucky-town.jpg
+post_id: 56316
+---
 ***New for 2025:** Video for 1993; new entry for 1996 and 2024*<br>
 
 **1960:** Bruce receives his bear merit badge at the monthly meeting for Cub Scout Pack 18 at St. Rose of Lima in Freehold.<br>

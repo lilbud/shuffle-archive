@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 28"
+author: "Ken"
+excerpt: "Rarities abound at gigs played on this day. Listen to live performances of “Lion’s Den,” “So Young and In Love,” “Janey, Don’t You Lose Heart,” and more. Plus: Greatest Hits is released on this date in 1995."
+tags: backstreets child duluth ghost-of-tom-joad-tour greatest-hits greensboro hartford janey-dont-you-lose-heart kittys-back lawsuit-tour lions-den magic-tour manchester mtv penn-state reunion-tour richmond rising-tour river-tour rolling-stone so-young-and-in-love springsteen-on-broadway st-louis steel-mill tunnel-of-love-express-tour uk vinnie-roslin worcester
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/greatest-hits.jpg
+post_id: 56015
+---
 **1969:** Bruce, Vini Lopez, Danny Federici, and Vinnie Roslin jam at the Upstage in Asbury Park. Within weeks, they will debut their new band, Child.<br>
 
 **1970:** Steel Mill plays their second of two shows at Richmond’s Free University. This is Vinnie Roslin’s final show; Steven Van Zandt will replace him within the month.<br>

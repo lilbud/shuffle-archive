@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Fever"
+author: "Ken"
+excerpt: "Bruce calls it “an annoying fan favorite” and certainly not one of his. But in this blogger’s opinion, “The Fever” is one of the E Street Band’s finest moments on record."
+tags: 18-tracks southside-johnny the-fever
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/thermometer-5420066_1280.png
+post_id: 21113
+---
 Sometimes the dice are kind to me.
 
 After the thesis-worthy "[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" the other day, I'm grateful for a song that isn't about the lyrics at all.

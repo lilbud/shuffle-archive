@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 16"
+author: "Ken"
+excerpt: "On this date: the E Street Band plays to one of their smallest audiences ever, the revived River tour kicks off, plus news footage from ’96."
+tags: born-in-the-usa-tour chaka-khan charlotte cleveland david-bowie don-henley ghost-of-tom-joad-tour jackson-browne jesse-malin joe-grushecky light-of-day pittsburgh rebel-rebel river-tour-2016 rock-and-roll-hall-of-dame springsteen-on-broadway villanova willie-nile
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/2016-01-16-pittsburgh-pa-bruce-springsteen-the-e-street-band-1.webp
+post_id: 55590
+---
 **1973:** Bruce and the not-yet-named E Street Band play Villanova University in a 150-seat auditorium more than two-thirds unfilled. (The school newspaper is on strike, so the concert goes unadvertised.) Imagine an E Street Band concert in front of no more than fifty people!<br>
 
 **1980:** At his home studio in Holmdel, Bruce rehearses “Stolen Car” with the E Street Band in advance of their upcoming recording sessions.<br>

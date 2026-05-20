@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Spare Parts: Born to Take"
+author: "Ken"
+excerpt: "Who would have thought Bruce Springsteen and A-ha would blend so perfectly? RuinedMusic2000 did–check out their awesome work inside."
+tags: a-ha born-to-run take-on-me
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/borntotake.png
+post_id: 34026
+---
 No matter how many times I hear this, I can't help cracking up at.... well, you'll know it when you hear it.
 
 [Watch Video](https://bandcamp.com/EmbeddedPlayer/album=3964793550/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/track=887175261/transparent=true/)

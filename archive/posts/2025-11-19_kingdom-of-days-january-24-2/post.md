@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 24"
+author: "Ken"
+excerpt: "Bruce plays his first ever show in Chicago, preps for his first ever show in South Africa, and records two songs that have still never seen the light of day. These and more highlights inside."
+tags: born-in-the-usa-tour canada cape-town chicago high-hopes-tour oattawa pretty-baby-will-you-be-mine providence river-tour springsteen-on-broadway things-aint-that-way tunnel-of-love
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/rehearsal.jpg
+post_id: 55793
+---
 **1973:** Bruce performs in Chicago for the first time, beginning a five-night stint at The Quiet Knight, opening for The Persuasions.<br>
 
 **1981:** The Canadian leg of the River tour ends at the Ottawa Civic Center.<br>

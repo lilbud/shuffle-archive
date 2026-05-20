@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 5"
+author: "Ken"
+excerpt: "Big day: Bruce releases his second studio album, films a 1980 River show for posterity (and an eventual box set), and makes guest appearances with Huey Lewis, Bob Geldof, and Eric Church. Lots more inside."
+tags: american-babylon auburn-hills barack-obama barefootin better-days bob-geldof canada columbus dancing-in-the-dark darkness-tour des-moines detroit drive-all-night durham eric-church forward france huey-lewis-and-the-news if-i-should-fall-behind ill-work-for-your-love jackson-cage joe-grushecky madison magic-tour murder-incorporated new-york-city no-money-down paris pink-cadillac pittsburgh river-tour stand-up-for-heroes tempe the-ties-that-bind-the-river-collection the-wild-the-innocent-and-the-e-street-shuffle this-hard-land toronto world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/wild.jpg
+post_id: 61284
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1973:** Bruce releases his second studio album, *The Wild, The Innocent & The E Street Shuffle.*<br>

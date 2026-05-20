@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Glendale, June 3, 2006"
+author: "Ken"
+excerpt: "My first Seeger Sessions show was the most joyous show I’ve ever attended–by Bruce or anyone. The crowd was sparse and the pit was roomy, but Nils helped us put it to good use with an all-night dance party."
+tags: atlantic-city glendale nils-lofgren seeger-sessions-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/artwork_2000_20060603_front.jpg
+post_id: 2419
+---
 
 What a surreal experience my first Seeger Sessions show was:
 

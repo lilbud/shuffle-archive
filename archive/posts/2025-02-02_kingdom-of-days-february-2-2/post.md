@@ -1,8 +1,18 @@
+---
+layout: post
+title: "February 2"
+author: "Ken"
+excerpt: "Bruce apologizes to Australia on behalf of America and sends a message back to Washington DC on this date in Springsteen history. More highlights inside."
+tags: australia canada dont-hang-up human-touch hungry-heart long-walk-home madison maxs-kansas-city melbourne new-orleans new-york-city river-tour river-tour-2016 springfield springsteen-on-broadway the-iguanas the-promised-land the-river toronto
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/26274124817_8695d9b01f_o.jpg
+post_id: 55845
+---
 **1971:** Ten days after Steel Mill plays their final show, Bruce is already in the market for talent for a new band. This help wanted ad runs in the *Asbury Park Press* today.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/Asbury_Park_Press_1971_02_02_Page_29-scaled.jpg.webp)
 
-**1973:** Bruce and the as yet unnamed E Street Band play their third of six nights at Max's Kansas City in New York. (photo credit: Chuck Pulin)<br>
+**1973:** Bruce and the as yet unnamed E Street Band play their third of six nights at Max’s Kansas City in New York. (photo credit: Chuck Pulin)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1973-0202.jpg.webp)
 
@@ -24,7 +34,7 @@
 
 **1988:** Bruce and the E Street Band rehearse for their upcoming Tunnel of Love Express Tour at the Expo Theater in Fort Monmouth, New Jersey.<br>
 
-**1992:** Bruce and Patti are in New Orleans filming the video for "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)." That evening, they drop by the Maple Leaf Bar, where the Iguanas are playing. Introduced by a pseudonym, Bruce joins the band for "[Ain't That a Shame,](../2018-03-08_meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/post.md)" "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)" and "Betty Jean."<br>
+**1992:** Bruce and Patti are in New Orleans filming the video for “[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md).” That evening, they drop by the Maple Leaf Bar, where the Iguanas are playing. Introduced by a pseudonym, Bruce joins the band for “[Ain’t That a Shame,](../2018-03-08_meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/post.md)” “[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)” and “Betty Jean.”<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Toronto_Star_1992_02_27_43-scaled.jpg.webp)
 
@@ -40,7 +50,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road (Toronto 2016)](https://www.youtube.com/watch?v=XyF69cUZcP4)
 
-**2017:** The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon's "[Don't Hang Up](../2021-05-13_cover-me-dont-hang-up/post.md)," dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" and also includes a solo acoustic "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" in the encores, bookending the show with pointed statements.<br>
+**2017**: The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon’s “[Don’t Hang Up](../2021-05-13_cover-me-dont-hang-up/post.md),” dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)” and also includes a solo acoustic “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” in the encores, bookending the show with pointed statements.<br>
 
 [Watch on Youtube: "Don't Hang Up" (Melbourne, 02/02/17)](https://www.youtube.com/watch?v=zSiZMyUlw8Y)
 
@@ -54,6 +64,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2024:** Bruce salutes and performs with Jon Bon Jovi at the annual MusiCares Person of the Year gala in honor of Bon Jovi. The two perform "[Who Says You Can't Go Home](../2019-06-22_matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/post.md)" and "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" together.<br>
+**2024:** Bruce salutes and performs with Jon Bon Jovi at the annual MusiCares Person of the Year gala in honor of Bon Jovi. The two perform “[Who Says You Can’t Go Home](../2019-06-22_matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/post.md)” and “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” together.<br>
 
 [Watch on Youtube: Jon Bon Jovi And Bruce Springsteen Perform On Stage In LA | TMZ](https://www.youtube.com/watch?v=TRVlZPAUkHo)

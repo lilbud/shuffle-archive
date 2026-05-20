@@ -1,4 +1,14 @@
-> "My first recollection of Frank's voice was coming out of a jukebox in a dark bar on a Sunday afternoon when my mother and I went in searching for my father... I always remember she said, 'Listen to that, that's Frank Sinatra. He's from New Jersey.' It was a voice filled with bad attitude, life, beauty, excitement, a nasty sense of freedom, sex, and a sad knowledge of the ways of the world... his blues voice was always the sound of hard luck, and men late at night with the last ten dollars in their pockets, trying to figure a way out." — Bruce Springsteen, November 19, 1995
+---
+layout: post
+title: "Cover Me: Angel Eyes"
+author: "Ken"
+excerpt: "One time only: The Boss pays tribute to the Chairman of the Board on the occasion of Sinatra’s 80th birthday."
+tags: angel-eyes frank-sinatra herb-jeffries
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/angeleyes.jpg
+post_id: 19492
+---
+> "My first recollection of Frank's voice was coming out of a jukebox in a dark bar on a Sunday afternoon when my mother and I went in searching for my father… I always remember she said, ‘Listen to that, that's Frank Sinatra. He's from New Jersey.' It was a voice filled with bad attitude, life, beauty, excitement, a nasty sense of freedom, sex, and a sad knowledge of the ways of the world… his blues voice was always the sound of hard luck, and men late at night with the last ten dollars in their pockets, trying to figure a way out." — Bruce Springsteen, November 19, 1995
 
 In any other context, "Angel Eyes" would have been a most unexpected cover.
 
@@ -24,7 +34,7 @@ Bruce reverted to the original lyrics for his cover and arranged the song for ac
 
 Not surprisingly, that was the one and only time Bruce has ever covered "Angel Eyes." It's likely to remain that way. Thankfully the performance was televised and recorded for posterity, because it's a rare and intimate moment between two of New Jersey's favorite sons.
 
-**Update:** Thanks to friend of the blog Bill Anderson for pointing me to a May 2000 interview with Frank Sinatra Jr., who was not at all a fan of Bruce' interpretation. But then again, Junior apparently wasn't a fan of a lot of things...<br>
+**Update:** Thanks to friend of the blog Bill Anderson for pointing me to a May 2000 interview with Frank Sinatra Jr., who was not at all a fan of Bruce' interpretation. But then again, Junior apparently wasn't a fan of a lot of things…<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/sinatra.png.webp)
 

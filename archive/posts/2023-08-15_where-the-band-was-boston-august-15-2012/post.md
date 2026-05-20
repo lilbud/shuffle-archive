@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Boston, August 15, 2012"
+author: "Ken"
+excerpt: "Mind. Blown."
+tags: american-land backstreets badlands boston darkness-on-the-edge-of-town detroit-medley does-this-bus-stop-on-82nd-street dropkick-murphys fenway-park frankie girls-in-their-summer-clothes hungry-heart ken-casey knock-on-wood prove-it-78 quarter-to-three rocky-ground sherry-darling summertime-blues tenth-avenue-freeze-out thunder-road thundercrack wholl-stop-the-rain working-on-the-highway wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/fenway2.jpg
+post_id: 3644
+---
 …and then came Night Two.
 
 My expectations going in were fairly low: [the previous night's show](../2018-08-14_where-the-band-was-boston-august-14-2012/post.md), while perfectly serviceable, was a pretty standard show. Any hope that I had of Bruce continuing the run of amazing, unpredicatable shows that characterized the European leg of the tour had been firmly reset.

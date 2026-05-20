@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/MatR/CM: Tiger Rose"
+author: "Ken"
+excerpt: "A castoff from the Ghost of Tom Joad recording sessions, “Tiger Rose” made its way to an official release and stage performance via the late, great Sonny Burgess. Watch Bruce and Sonny perform it together inside."
+tags: garry-tallent sonny-burgess tiger-rose
+categories: cover-me cover-you meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/tigerrose.jpg
+post_id: 7160
+---
 Today's entry checks all the boxes: it's a Springsteen original, a cover, *and* a team-up!
 
 In the summer of 1995, Bruce retreated to his home studio to start recording a new album. We know the album he released later that year: *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).* But that's not the album he set out to record.

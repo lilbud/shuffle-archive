@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 18"
+author: "Ken"
+excerpt: "Bruce broke up the band on this date in 1989, but there are plenty of happy highlights too: the first-ever performances of “Drive All Night” and “Hungry Heart,” an adorable tape-recorded message to local schoolchildren, the premiere of Legends of Springsteen, Charlie’s first E Street appearance, and more."
+tags: alliance-of-neighbors american-babylon-tour ames barack-obama ben-stiller bill-clinton billy-joel bologna bon-jovi born-in-the-usa-tour born-to-run-tour boston canada charlie-giordano dan-fogelberg dion-dimucci drive-all-night e-street-break-up edmonton forward garry-tallent hungry-heart im-a-rocker iowa italy jimmy-kimmel joan-jett joe-ely joe-grushecky john-sebastian jungleland lawsuit-tour legends-of-springsteen light-of-day live-1975-85 los-angeles madison-square-garden magic-tour meeting-across-the-river michelle-moore new-york-city ohio passaic phoebe-snow reunion-tour rising-tour river-tour roy-elementary-school scott-kempner springsteen-on-broadway st-louis stand-on-it tacoma thunder-road washington-dc wild-innocent-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/roxy75.jpg
+post_id: 61151
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1973:** Bruce and the E Street Band play their fourth of five nights at Oliver's in Boston.<br>
@@ -128,23 +138,23 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 [Watch on Youtube: Bruce Springsteen speaking at Monmouth University 10/18/23](https://www.youtube.com/watch?v=tPs7vgtzsg0)
 
-**2024:** The press junket for *Road Diary* is in full swing. Today, Bruce is interviewed by Simon Mayo of BBC1…<br>
+**2024:** The press junket for *Road Diary* is in full swing. Today, Bruce is interviewed by Simon Mayo of BBC1...<br>
 
 [Watch on Youtube: Bruce Springsteen on Disney+ Documentary, New Music and UK Shows | Simon Mayo | Greatest Hits Radio](https://www.youtube.com/watch?v=rSH2Sa8Nmyw)
 
-…Mark Savage on BBC TV…
+...Mark Savage on BBC TV...
 
 [Watch on Youtube: Bruce Springsteen interview this morning (UK) 25/Oct/2024](https://www.youtube.com/watch?v=_gK9BdDeAcQ)
 
-…Dermot O'Leary…
+...Dermot O'Leary...
 > [@bbcradio2](https://www.tiktok.com/@bbcradio2?refer=embed "@bbcradio2")"It was great to hear from the E Street Band" 🧡 Listen to Dermot's chat with Bruce Springsteen on BBC Sounds [#brucespringsteen](https://www.tiktok.com/tag/brucespringsteen?refer=embed "brucespringsteen") [#estreetband](https://www.tiktok.com/tag/estreetband?refer=embed "estreetband") [#dermotoleary](https://www.tiktok.com/tag/dermotoleary?refer=embed "dermotoleary")
 >
 > [♬ original sound – BBC Radio 2](https://www.tiktok.com/music/original-sound-7433827014567627553?refer=embed "♬ original sound - BBC Radio 2")
 
 — <https://www.tiktok.com/@bbcradio2/video/7433826972968471841>
 
-…as well as by Antoine de Caunes for a French documentary. Later in the day, Bruce is joined by Jon Landau and Thom Zimny for an interview with Clint Drieburg of Radio Nova.
+...as well as by Antoine de Caunes for a French documentary. Later in the day, Bruce is joined by Jon Landau and Thom Zimny for an interview with Clint Drieburg of Radio Nova.
 
-[Watch on Youtube: Bruce Springsteen. The Man, His Music and His Movie: Road Diary on Radio Nova](https://www.youtube.com/watch?v=NbGjlATDEiQ)
+[Watch on Youtube: Bruce Springsteen. The Man, His Music and His Movie: Road Diary on Radio Nova](https://www.youtube.com/watch?v=NbGjlATDEiQ?list=PLnbVaK2f4raikmZyuz9ASCV35Do4IDotM)
 
 All this, plus the London premiere screening and Q&A panel following.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Book of Dreams"
+author: "Ken"
+excerpt: "The second time’s the charm: Bruce takes another crack at writing about wedding days, and this time he captures the life lessons he learned since the first time."
+tags: book-of-dreams lucky-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/book.jpeg
+post_id: 9986
+---
 > "This is a song about wedding days. (I say ‘days' plural, unfortunately.) But you know, it's a funny day. It's a day when everything counts ten times more." — Bruce Springsteen, Glendale Arizona, April 30, 2005
 
 It's more accurate to say that "Book of Dreams" is a song about wedding eves than wedding days, but that's a nit not worth picking with the songwriter.

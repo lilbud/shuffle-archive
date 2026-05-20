@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 21"
+author: "Ken"
+excerpt: "Too many highlights to list: the first cut of “Born to Run,” the first “Meeting Across the River” in 20 years, and more. Plus: the debut of Bruce Springsteen and the Hot Mammas (really)."
+tags: across-the-border anaheim born-to-run bruce-springsteen-and-the-hot-mammas castiles clarence-clemons david-letterman east-rutherford florence ghost-of-tom-joad-tour i-wanna-be-with-you interview itlay london madrid meeting-across-the-river outlaw-pete reunion-tour river-tour-2016 rolling-stone seeger-sessions-tour stockholm sweden the-ghost-of-tom-joad working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/20230521-rome-it-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56798
+---
 ***New for 2025:** Video for 2016 and 2023*<br>
 
 **1966:** The Castiles perform at their own junior prom at Freehold Regional High School.<br>
@@ -6,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1971-0521.jpg.webp)
 
-**1974:** Bruce cuts the first version of “Born to Run” in the studio (instrumental only).<br>
+**1974:** Bruce cuts the first version of "Born to Run" in the studio (instrumental only).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/IGNGHlDK)
 
@@ -20,7 +30,7 @@
 
 [Watch on Youtube: Bruce Springsteen interview on Lucky Town and Human Touch (1992)](https://www.youtube.com/watch?v=yX9TrkY3IKo)
 
-**1997**: The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.<br>
+**1997:** The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Fr7NZ7c2)
 
@@ -30,13 +40,13 @@
 
 [Watch on Youtube: Bruce Springsteen - This hard land, live in Firenze may 21st 1997](https://www.youtube.com/watch?v=D_QFzQ0fCDI)
 
-**1998:** ABC-TV airs a Rolling *Stone State of the Union* special featuring rare (for the time) band performances of “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” and “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md).”<br>
+**1998:** ABC-TV airs a Rolling *Stone State of the Union* special featuring rare (for the time) band performances of "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" and "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)."<br>
 
 [Watch on Youtube: Rolling Stone Special - State of the Union (Bruce Springsteen)](https://www.youtube.com/watch?v=SsS2S0I_E6E)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1998-05-21.jpg.webp)
 
-**1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)” and the first “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)” in 20 years. Watch the soundcheck below, featuring a lovely, lonely “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” and a bit of Patti Scialfa’s beautiful ballad, “[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/).”<br>
+**1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and the first "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" in 20 years. Watch the soundcheck below, featuring a lovely, lonely "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" and a bit of Patti Scialfa's beautiful ballad, "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - London 1999-05-21 soundcheck including Racing In The Street](https://www.youtube.com/watch?v=0raE2AKOFtA)
 
@@ -74,7 +84,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2009-05-21b.jpg.webp)
 
-**2016:** When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres “My City of Ruins,” and “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md).” Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html).<br>
+**2016:** When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres "My City of Ruins," and "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)." Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html).<br>
 
 [Watch on Youtube: Reportaje Bruce Springsteen Madrid 2016](https://www.youtube.com/watch?v=pyAY9FsJ_yI)
 

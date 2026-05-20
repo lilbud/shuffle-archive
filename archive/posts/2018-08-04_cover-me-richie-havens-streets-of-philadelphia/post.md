@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Richie Havens: Streets of Philadelphia"
+author: "Ken"
+excerpt: "An unfortunate licensing snafu resulted in one of the finest covers of a Springsteen song."
+tags: richie-havens streets-of-philadelphia
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/photo.havens.jpg
+post_id: 3573
+---
 In 1995, Rhino Records issued a thorough (and thoroughly great) five-disc box set called *Academy Award Winning Songs (1934-1993).*
 
 Starting with Fred Astaire and including such luminaries as Bing Crosby, Judy Garland, Billie Holiday, Henry Mancini, and so many more, the box set traces a historical arc through American cinema, culminating, of course, with Bruce's "[Streets of Philadelphia,](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" the Oscar winning song for 1993.

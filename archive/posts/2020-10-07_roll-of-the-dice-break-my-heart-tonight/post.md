@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Break My Heart (Tonight)"
+author: "Ken"
+excerpt: "A riff in search of a song, both “Tonight” and “Break My Heart” point the way to an underappreciated Tracks outtake."
+tags: break-my-heart-tonight dollhouse tonight
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/breakmyheart.jpg
+post_id: 21110
+---
 He didn't have lyrics, but he had a riff. And that was all Bruce needed to gather the E Street Band together at his house toward the end of their month off during the Darkness Tour.
 
 On October 26, 1978, the E Street Band got to work.

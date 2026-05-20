@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'm in Love Again"
+author: "Ken"
+excerpt: "Welcome summer with Bruce’s tribute to 1960s girl groups, the wonderfully light “I’m in Love Again.”"
+tags: im-in-love-again the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/loveagain.jpg
+post_id: 18395
+---
 Two Bruce Springsteen Band songs in one week? You bet: it's Memorial Day weekend, and I'm feeling summer coming on. That means it's time to break out my BSB bootlegs, crank up the volume, and welcome the season.
 
 I love those Bruce Springsteen Band shows–they're warm and soulful, cool and brassy, and at times as close to pop as Bruce ever got. I love playing them on a warm weekend afternoon.
@@ -22,25 +32,25 @@ Holmes had a tremendous voice, so upon occasion she would step forward and take 
 
 Which brings us to the second thing we notice: Bruce is obviously paying tribute with "I'm in Love Again" to the girl groups of the 1960s. The similarities in theme, structure, and lyrics to The Crystals' "[Then He Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)" (which Bruce would cover frequently in his early E Street Band years) are impossible to miss.
 
-> *I met him at a party on a lonely Saturday*
-> *I listened to him talking and I liked the things he had to say*
-> *He invited me up to see him, and I knew right from the start*
-> *No use trying to fool myself, I'm in love again, I'm in love again*
-> *No use being cruel to myself, its a hard enough world*
-> *And I ain't no schoolgirl, I know it's a sin*
-> *Cause I'm in love again*
+> *I met him at a party on a lonely Saturday*<br>
+> *I listened to him talking and I liked the things he had to say*<br>
+> *He invited me up to see him, and I knew right from the start*<br>
+> *No use trying to fool myself, I'm in love again, I'm in love again*<br>
+> *No use being cruel to myself, its a hard enough world*<br>
+> *And I ain't no schoolgirl, I know it's a sin*<br>
+> *Cause I'm in love again*<br>
 
-> *His name is Joe and he talks real low, and he dance so good*
-> *He looks so fine and I know he's mine like I knew he would*
-> *He smiles so sweet when he holds my hand, he's my man*
-> *No use trying to fool myself, I'm in love again, I'm in love again*
-> *No use being cruel to myself, its a hard enough world*
-> *And I ain't no schoolgirl, I know it's a sin*
-> *Cause I'm in love again*
+> *His name is Joe and he talks real low, and he dance so good*<br>
+> *He looks so fine and I know he's mine like I knew he would*<br>
+> *He smiles so sweet when he holds my hand, he's my man*<br>
+> *No use trying to fool myself, I'm in love again, I'm in love again*<br>
+> *No use being cruel to myself, its a hard enough world*<br>
+> *And I ain't no schoolgirl, I know it's a sin*<br>
+> *Cause I'm in love again*<br>
 
-> *He sees me each and every day, and loves me each and every night*
-> *When we go out to a show, he puts his arm around me and holds me real tight*
-> *And lets me know everything's alright, everything's alright, everything's alright*
+> *He sees me each and every day, and loves me each and every night*<br>
+> *When we go out to a show, he puts his arm around me and holds me real tight*<br>
+> *And lets me know everything's alright, everything's alright, everything's alright*<br>
 
 And finally, thing we notice #3: Bruce is absolutely smoking on guitar.
 

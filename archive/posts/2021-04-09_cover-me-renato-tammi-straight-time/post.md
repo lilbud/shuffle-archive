@@ -1,19 +1,29 @@
-Full transparency: this is another plug for this year's [*Cover Me* contest.](https://www.noiespringsteen.com/contest/)
+---
+layout: post
+title: "Cover Me, Renato Tammi: Straight Time"
+author: "Ken"
+excerpt: "Italian musician and Springsteen fan Renato Tammi turns in a haunting cover of this deep cut from The Ghost of Tom Joad."
+tags: dancing-in-the-dark renato-tammi straight-time
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/renato.jpg
+post_id: 26450
+---
+Full transparency: this is another plug for this year’s [*Cover Me* contest.](https://www.noiespringsteen.com/contest/)
 
-You know, the one I get to be on the [Critics Award Jury](../2021-04-01_cover-me-lorde-and-marlon-williams-tougher-than-the-rest/post.md) for. (Hey, I've never been asked to do anything like this before–I'm pretty excited about it!)
+You know, the one I get to be on the [Critics Award Jury](../2021-04-01_cover-me-lorde-and-marlon-williams-tougher-than-the-rest/post.md) for. (Hey, I’ve never been asked to do anything like this before–I’m pretty excited about it!)
 
-Anyway, the quality winner from last year was Renato Tammi, whose cover of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" is so eerily haunting that you'd think it hailed from *Nebraska* instead of *Born in the U.S.A*, if you didn't know better.
+Anyway, the quality winner from last year was Renato Tammi, whose cover of “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” is so eerily haunting that you’d think it hailed from *Nebraska* instead of *Born in the U.S.A,* if you didn’t know better.
 
 [Watch on Youtube: Dancing In The Dark (Bruce Springsteen cover) - Renato Tammi](https://www.youtube.com/watch?v=rLWOfmO9O1o)
 
-I would have featured Renato's cover long ago if the list of "Dancing in the Dark" covers on my to-blog list weren't so darn long.
+I would have featured Renato’s cover long ago if the list of “Dancing in the Dark” covers on my to-blog list weren’t so darn long.
 
-Fortunately, Renato just released another Springsteen cover, and this one's both obscure enough and superb enough to warrant an immediate spotlight.
+Fortunately, Renato just released another Springsteen cover, and this one’s both obscure enough and superb enough to warrant an immediate spotlight.
 
-It's not surprising that Renato's familiar with the outer reaches of Bruce's catalog–he's been a Springsteen fan since he was nine years old, he's part of an Italian tribute combo called The Spring Street Band, and he's had the opportunity to play with not one but two E Streeters: Jake Clemons and Vini Lopez.
+It’s not surprising that Renato’s familiar with the outer reaches of Bruce’s catalog–he’s been a Springsteen fan since he was nine years old, he’s part of an Italian tribute combo called The Spring Street Band, and he’s had the opportunity to play with not one but two E Streeters: Jake Clemons and Vini Lopez.
 
-Renato's latest cover is a deep cut from [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md): Bruce's haunting morality struggle, "[Straight Time](../2022-12-05_roll-of-the-dice-straight-time/post.md)." It's not as contemplative as Bruce's original, but it's a bit more sinister–there isn't much room for doubt about whether the narrator in Renato's version is going to keep to the straight and narrow. (I'm not familiar with the song Renato segues into at the end, though... anyone want to clue me in?)
+Renato’s latest cover is a deep cut from [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md): Bruce’s haunting morality struggle, “[Straight Time](../2022-12-05_roll-of-the-dice-straight-time/post.md).” It’s not as contemplative as Bruce’s original, but it’s a bit more sinister–there isn’t much room for doubt about whether the narrator in Renato’s version is going to keep to the straight and narrow. (I’m not familiar with the song Renato segues into at the end, though… anyone want to clue me in?)
 
 [Watch on Youtube: Straight Time - Bruce Springsteen Cover (+Everytime - The Wooden Brothers)](https://www.youtube.com/watch?v=uwp4Dkv1BB4)
 
-Interested in entering this year's Cover Me contest? Check out the full rules and regulations [here](https://www.noiespringsteen.com/contest/#box-gara).
+Interested in entering this year’s Cover Me contest? Check out the full rules and regulations [here](https://www.noiespringsteen.com/contest/#box-gara).

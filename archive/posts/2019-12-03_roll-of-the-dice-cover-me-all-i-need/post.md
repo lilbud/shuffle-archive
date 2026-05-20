@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice/Cover Me: All I Need"
+author: "Ken"
+excerpt: "One of the best full-band outtakes from the Nebraska era, the E Street Band’s recording of “All I Need” made for a fine deep cut for Gary U.S. Bonds."
+tags: all-i-need gary-u-s-bonds on-the-line
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/all-i-need.jpg
+post_id: 14369
+---
 In the early summer of 1981, inspiration struck (as it often did), and Bruce captured it on tape in his home studio in the form of a mostly-bluffed new song called "All I Need."
 
 [Watch on Youtube: Bruce Springsteen All I Need](https://www.youtube.com/watch?v=KfD2XtK0hQQ)
@@ -30,31 +40,31 @@ Bruce still sticks pretty close to that "It's Gonna Work Out Fine" melody, but i
 
 The lyrics speak for themselves–not much is required in the way of analysis. This is a pure R&B pop song., with Bruce's narrator finding all the validation he needs in the love of his girl.
 
-> *Some men need riches and lots of money to spend*
-> *Some men need power to hold over other men*
-> *But not me, baby, girl you can believe*
-> *I'm telling you my darling*
+> *Some men need riches and lots of money to spend*<br>
+> *Some men need power to hold over other men*<br>
+> *But not me, baby, girl you can believe*<br>
+> *I'm telling you my darling*<br>
 
-> *You're all I need in this world, girl*
+> *You're all I need in this world, girl*<br>
 
-> *Some men need fine clothes, big diamond rings*
-> *To feel like somebody some men need expensive things*
-> *But I feel like somebody, girl, every time you look at me*
-> *I don't need nothing to remind me that*
+> *Some men need fine clothes, big diamond rings*<br>
+> *To feel like somebody some men need expensive things*<br>
+> *But I feel like somebody, girl, every time you look at me*<br>
+> *I don't need nothing to remind me that*<br>
 
-> *You're all I need in this world, girl*
+> *You're all I need in this world, girl*<br>
 
-> *And it's hard to keep holding on*
-> *When you put your arms around me, I feel strong*
+> *And it's hard to keep holding on*<br>
+> *When you put your arms around me, I feel strong*<br>
 
-> *Some men need a fine home on a far hillside*
-> *Some men need a big car to show off as they ride*
-> *Some men need a pretty woman just to walk by their side*
-> *And some men need to see the fear in another man's eyes*
-> *But all I need baby, is all I can see*
-> *When you wrap your loving arms around me*
+> *Some men need a fine home on a far hillside*<br>
+> *Some men need a big car to show off as they ride*<br>
+> *Some men need a pretty woman just to walk by their side*<br>
+> *And some men need to see the fear in another man's eyes*<br>
+> *But all I need baby, is all I can see*<br>
+> *When you wrap your loving arms around me*<br>
 
-> *You're all I need in this world, girl*
+> *You're all I need in this world, girl*<br>
 
 "All I Need" is such confection perfection that we'll set aside its irony: a protagonist who pooh-poohs men who require external validation for internal confidence and security, but who ultimately owns up to the very same thing. This isn't a song you think about–it's a song you *feel*.
 

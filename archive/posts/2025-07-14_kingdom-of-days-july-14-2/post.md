@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 14"
+author: "Ken"
+excerpt: "On this date: Bruce and Paul McCartney learn what happens when you break curfew at Hyde Park."
+tags: basel bottom-line canada darkness-tour darlington-county devils-and-dust-tour follow-that-dream glasgow hard-rock-calling i-saw-her-standing-there john-fogerty london new-york-city paul-mccartney pink-cadillac rockin-all-over-the-world san-antonio scotland springsteen-on-broadway switzerland take-em-as-they-come the-rising thunder-road tom-morello toronto tunnel-of-love-tour twist-and-shout uk working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/brucepaul-1.jpg
+post_id: 57722
+---
 ***New for 2025:** New entry for 1975 and 1985; video for 2012*<br>
 
 **1974:** Bruce and the E Street Band play their third of three nights at The Bottom Line in New York City.<br>

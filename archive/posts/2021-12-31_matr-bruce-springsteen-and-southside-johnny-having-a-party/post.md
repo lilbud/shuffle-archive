@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Southside Johnny and Bruce Springsteen: Having a Party"
+author: "Ken"
+excerpt: "Sam Cooke created it, but Southside Johnny claimed it for the Jersey Shore. Watch his irresistible 1978 team-up with Bruce and just try not to smile."
+tags: having-a-party sam-cooke southside-johnny
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/party.jpg
+post_id: 31026
+---
 Long before it became synonymous with the Jersey Shore, Sam Cooke's "Having a Party" was burning up the charts nationally.
 
 Released in the spring of 1962 as the B-side to "Bring It On Home to Me," "Having a Party" performed almost as well as its A-side, peaking at #17 on the Billboard Hot 100 that summer.

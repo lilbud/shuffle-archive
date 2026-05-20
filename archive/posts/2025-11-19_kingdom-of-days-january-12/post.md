@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 12"
+author: "Ken"
+excerpt: "Youngstown in Youngstown, an all-star HOF jam, and a secret gig at the White House are among this day’s highlights."
+tags: barack-obama blackberry-booze-band born-on-the-bayou boston ghost-of-tom-joad-tour green-river john-fogerty nils-lofgren parsippany springsteen-on-broadway stone-pony wholl-stop-the-rain working-on-a-dream youngstown
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/2017-0112.jpg
+post_id: 55578
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2017-01-12.png.webp)
 
 **1973:** Bruce and the not-yet E Street Band continue their Boston residency with two shows at Paul’s Mall.<br>

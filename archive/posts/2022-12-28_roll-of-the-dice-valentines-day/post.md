@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Valentine's Day"
+author: "Ken"
+excerpt: "“Valentine’s Day” is a powerful counterpoint to “The River.” It may even be a sequel."
+tags: the-river tunnel-of-love valentines-day
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/valentinesday.jpg
+post_id: 2607
+---
 Buried–hidden almost–at the end of an album that primarily serves as a cautionary tale is one of Bruce's most desperate and unabashedly romantic songs in his entire catalog.
 
 Like much of the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)album from which it hails, "Valentine's Day" is a solo effort. Bruce plays every instrument we hear from the ambling, primary guitar melody to the layers of keyboard, mandolin, bass, harmonica and percussion.

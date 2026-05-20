@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Asbury Park, December 7, 2010 (Marietta's Story)"
+author: "Ken"
+excerpt: "Ten years ago tonight: Guest blogger Marietta Phillips takes us inside one of Bruce’s most intimate concerts ever."
+tags: aint-good-enough-for-you asbury-park blue-christmas carousel gotta-get-that-feelin marietta-phillips the-promise
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/carousel.jpg
+post_id: 23523
+---
 Editor's Note
 
 ***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips. Marietta has been to a lot of Springsteen shows over the years, but none as unusual or intimate as this one from a decade ago today. Read on…*<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Bishop Danced"
+author: "Ken"
+excerpt: "Bruce called it a nonsense song, but he might have been pulling a fast one."
+tags: bishop-danced tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/bishopdanced.jpg
+post_id: 26869
+---
 > "This next song is kind of a nonsense song. I'll give you a quick rundown:
 >
 > It's about a bishop and his wife and this violin player in West Virginia.

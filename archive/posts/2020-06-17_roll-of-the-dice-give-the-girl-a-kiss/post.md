@@ -1,4 +1,14 @@
-> "I don't even remember writing it or recording it. It was like, ‘When did I do that?'" – *Bruce Springsteen, Rolling Stone, December 10, 1998*
+---
+layout: post
+title: "Roll of the Dice: Give the Girl a Kiss"
+author: "Ken"
+excerpt: "Only Bruce Springsteen could write such a perfect pop song and have no recollection of it. Thank goodness he remembered, because “Give the Girl a Kiss” is a gem both on record and in concert."
+tags: give-the-girl-a-kiss tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/hersheys-kisses-easter-kisses-large-9.jpg
+post_id: 18721
+---
+> "I don't even remember writing it or recording it. It was like, ‘When did I do that?'" – *Bruce Springsteen, Rolling Stone, December 10, 1998*<br>
 
 How talented a songwriter is Bruce Springsteen?
 
@@ -24,29 +34,29 @@ Musically and stylistically though, "Give the Girl a Kiss" owes more to contempo
 
 But oh, those lyrics: pure pop perfection.
 
-> *Well now I ain't looking for excitement*
-> *Baby that's just a fact*
-> *If you want to get to her heart*
-> *You better let her know just where you're at*
+> *Well now I ain't looking for excitement*<br>
+> *Baby that's just a fact*<br>
+> *If you want to get to her heart*<br>
+> *You better let her know just where you're at*<br>
 
-> *Well I say*
-> *It ain't written in the sky above*
-> *Well no fortune-teller told me this*
-> *You gotta tell her that you love her*
-> *Tell her that you need her*
-> *And give the girl a great big kiss*
+> *Well I say*<br>
+> *It ain't written in the sky above*<br>
+> *Well no fortune-teller told me this*<br>
+> *You gotta tell her that you love her*<br>
+> *Tell her that you need her*<br>
+> *And give the girl a great big kiss*<br>
 
-> *Now if you're such a fool you think*
-> *It don't matter, baby, what you say*
-> *Maybe you better tell her how you're feeling*
-> *It ain't gonna happen any other way*
+> *Now if you're such a fool you think*<br>
+> *It don't matter, baby, what you say*<br>
+> *Maybe you better tell her how you're feeling*<br>
+> *It ain't gonna happen any other way*<br>
 
-> *‘Cause darling it ain't written in the sky above*
-> *Well don't you tell her who told me this*
-> *You gotta tell her that you need her*
-> *Tell her that you love her*
-> *And give the girl a great big kiss*
-> *Yeah you better give the girl a great big kiss*
+> *‘Cause darling it ain't written in the sky above*<br>
+> *Well don't you tell her who told me this*<br>
+> *You gotta tell her that you need her*<br>
+> *Tell her that you love her*<br>
+> *And give the girl a great big kiss*<br>
+> *Yeah you better give the girl a great big kiss*<br>
 
 The romantic pep talk is a recipe that never fails. It's a girl group staple (and we know Bruce loves his girl groups), not only for The Shangri-Las but also notably for The Exciters.
 
@@ -62,30 +72,30 @@ But Bruce distilled the recipe down to its one essential ingredient: the kiss. A
 
 That is, until the bridge gives away the game:
 
-> *Now baby all I wanna do*
-> *Is darling make sweet love to you*
+> *Now baby all I wanna do*<br>
+> *Is darling make sweet love to you*<br>
 
 Aha! So the narrator isn't giving a pep talk to someone else–he's talking to himself. Suddenly, "Give the Girl a Kiss" becomes a song of courage, and that makes it all the more endearing.
 
 And speaking of endearing: can we just appreciate how much fun the E Street Band is having here? From Danny's star turn to Bruce's "Bosstime!" solo to the overdubbed Horns of Love, "Give the Girl a Kiss" features the E Street Band at their most winning.
 
-> *Now I don't know what the meaning is*
-> *Why you wanna hide the things you feel and say*
-> *But baby it's just a natural fact*
-> *Love was never meant to be that way*
+> *Now I don't know what the meaning is*<br>
+> *Why you wanna hide the things you feel and say*<br>
+> *But baby it's just a natural fact*<br>
+> *Love was never meant to be that way*<br>
 
-> *And darlin' it ain't written in the sky above*
-> *Well no fortune-teller told me this*
-> *You gotta tell her that you need her*
-> *Tell her that you love her*
-> *And give the girl a great big kiss*
+> *And darlin' it ain't written in the sky above*<br>
+> *Well no fortune-teller told me this*<br>
+> *You gotta tell her that you need her*<br>
+> *Tell her that you love her*<br>
+> *And give the girl a great big kiss*<br>
 
 Did I mention that they recorded this song during the dour [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)sessions (except for the horns, which were added a couple of decades later)? Bruce may not remember "Give the Girl a Kiss" specifically, but he remembers using songs like it to relieve the band after long series of takes tackling darker material.
 
 But the best part of "Give the Girl a Kiss" is still to come:
 
-> *Give the girl a great big, great big, great big*
-> *Give the girl a great big kiss*
+> *Give the girl a great big, great big, great big*<br>
+> *Give the girl a great big kiss*<br>
 
 That killer coda: The Big Man bounces his basso "give the girl a great big, great big, great big" while the Boss soars above him. It's one of my favorite E Street moments on record. And you can tell Bruce feels the magic, because that coda ends up accounting for 25% of the entire song.
 

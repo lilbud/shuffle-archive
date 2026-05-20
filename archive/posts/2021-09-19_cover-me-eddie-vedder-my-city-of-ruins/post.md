@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Eddie Vedder: My City of Ruins"
+author: "Ken"
+excerpt: "Eddie Vedder covered “My City of Ruins” last night in the town it was written for. It wasn’t the first time he’s covered it, but it was the best."
+tags: eddie-vedder my-city-of-ruins pearl-jam
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/vedder.jpg
+post_id: 29664
+---
 Bruce Springsteen didn't make a surprise appearance at *Sea.Hear.Now* last night, but his music sure did.
 
 At Pearl Jam's first concert in more than three years, Eddie Vedder kicked off the encore set with a cover of "My City of Ruins" in a solo acoustic arrangement, accompanied by four local singers: Jason Rogers, Alexander Simone, Joshua Rivers, and Michelle Rushing. (I am almost certain to have misspelled or misheard at least one of their last names, so I apologize in advance.)

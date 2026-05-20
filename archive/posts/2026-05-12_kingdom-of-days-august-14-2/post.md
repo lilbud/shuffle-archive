@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 14"
+author: "Ken"
+excerpt: "Steel Mill plays under the stars, Boom Carter and Dave Sancious play their final E Street gig, Philly and Boston duel each other across the years for most fervent news coverage, and more–all from this date."
+tags: better-days boom-boom boom-carter born-in-the-usa born-in-the-usa-tour born-to-run-tour boston bottom-line castiles cats-on-a-smooth-surface cleveland come-on darkness-tour david-sancious dirty-water fenway-park glory-days hampton human-touch maxs-kansas-city new-york-city philadelphia rising-tour robbin-thompson ronnie-mack-and-the-barndance-band springsteen-on-broadway steel-mill stone-pony the-fairlanes the-river trapped worcester world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/admin-ajax-75.jpg
+post_id: 58377
+---
 **1966:** The Castiles (along with Steve Van Zandt's band, The Shadows) play the Surf ‘n' See Club in Sea Bright, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1966-0814.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Don Henley: I Fought the Law"
+author: "Ken"
+excerpt: "In their first and only on-stage team-up, Don Henley and Bruce Springsteen covered an early rock classic."
+tags: don-henley i-fought-the-law the-clash the-crickets
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/foughtlaw.jpg
+post_id: 33404
+---
 When Bruce Springsteen first covered "I Fought the Law" in 1978, he introduced it as "a song originally done by The Bobby Fuller Four."
 
 [Watch Video Highlight](https://videopress.com/embed/92sMlueO)

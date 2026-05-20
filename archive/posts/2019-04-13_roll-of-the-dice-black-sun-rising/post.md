@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Black Sun Rising"
+author: "Ken"
+excerpt: "For the completists only: A strident, polemic “Black Sun Rising” performed only twice (mercifully) by Steel Mill."
+tags: black-sun-rising steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/blacksun.jpg
+post_id: 451
+---
 Some days the dice let you down. But being the completist that I am…
 
 "Black Sun Rising" is a *very* early Springsteen composition. To my knowledge it was never recorded in a studio, and Bruce only performed it twice, both times in 1970, during his Steel Mill era.

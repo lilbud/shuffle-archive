@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I'm Shipping Up to Boston"
+author: "Ken"
+excerpt: "One time only: Bruce teams up with Dropkick Murphys on their anthemic “I’m Shipping Up to Boston” on St. Patrick’s Day in 2011."
+tags: dropkick-murphys im-shipping-up-to-boston
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/boston.png
+post_id: 6252
+---
 Dropkick Murphys co-wrote “I’m Shipping Up to Boston” with Woody Guthrie. Seriously.
 
 Chancing upon the hand-written lyrics on a scrap of paper in Guthrie’s archives, Ken Casey and crew set them to music in 2006 and scored their biggest hit in the process.

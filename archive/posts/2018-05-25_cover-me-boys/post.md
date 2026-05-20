@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Boys"
+author: "Ken"
+excerpt: "One time only: Max Weinberg and the E Street Band cover “Boys,” originally recorded by The Shirelles and made famous by The Beatles."
+tags: boys magic-tour max-weinberg st-louis the-beatles
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/boys.jpg
+post_id: 2236
+---
 During sign collection in Kansas City, at the final show on the Magic Tour, Bruce collected a sign from a Max Weinberg fan that simply said, "Let Max Sing."
 
 Laughing, Bruce honored the request and let Max pick the song. Max picked one of his favorites: "Boys." The result: a short, ragged but fun performance of The Beatles' classic.

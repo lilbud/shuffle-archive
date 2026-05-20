@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sea Cruise"
+author: "Ken"
+excerpt: "A rainy evening prompts Bruce to cover Frankie Ford’s classic novelty song."
+tags: frankie-ford sea-cruise
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/seacruise.jpg
+post_id: 1465
+---
 On a wet summer night at Red Rocks in 1981, Bruce playfully covered the Frankie Ford novelty song “Sea Cruise,” complete with bell and horn sound effects.
 
 [Watch on Youtube: Bruce Springsteen - SEA CRUISE 1981 (audio)](https://www.youtube.com/watch?v=yMelZDKYN28)

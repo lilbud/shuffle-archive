@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Cover Me: Ring of Fire"
+author: "Ken"
+excerpt: "Traditional, slow-grooving, or hard-rocking, they’re all great: check out Bruce’s three very different covers of Johnny Cash’s “Ring of Fire” spanning five decades."
+tags: johnny-cash ring-of-fire social-distortion the-carter-family
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/ringoffire.jpg
+post_id: 11632
+---
 On the night of November 18, 2009, in the final week of the Working on a Dream Tour in Nashville, Bruce opened the encores with those words every Springsteen fan loves to hear:
 
-> *"We've never played this before…"*
+> *"We've never played this before…"*<br>
 
 And then without further ado, he launched into a just-for-Nashville cover of Johnny Cash's "Ring of Fire" (taking full advantage of Curt Ramm).
 

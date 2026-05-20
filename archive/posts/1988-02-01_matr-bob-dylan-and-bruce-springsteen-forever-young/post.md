@@ -1,14 +1,24 @@
+---
+layout: post
+title: "Forever Young"
+author: "Ken"
+excerpt: "One time only: Bruce and Bob Dylan perform Dylan’s classic “Forever Young” at the Rock and Roll Hall of Fame Museum inaugural concert."
+tags: bob-dylan forever-young john-hammond
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/BD-ForeverYoung.jpg
+post_id: 12103
+---
 On October 23, 1987, the music industry paid tribute to the man who introduced much of the world to Count Basie, Bob Dylan, Aretha Franklin, Benny Goodman, Billy Holliday, Pete Seeger, Bessie Smith, Stevie Ray Vaughn… and Bruce Springsteen.
 
 John Hammond, the man who signed Bruce to Columbia Records, passed away on July 10, 1987, and his loss was deeply felt.
 
-Bruce performed at Hammond’s memorial service at St. Peter’s Church in New York City, and the song he chose to play was fittingly written by “another young fellow that John gave a break to.”
+Bruce performed at Hammond's memorial service at St. Peter's Church in New York City, and the song he chose to play was fittingly written by "another young fellow that John gave a break to."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=llyGdYw3KmQ)
 
-“Forever Young” was a wonderful choice for the occasion, and not just because of its author–the song is a celebration of life, and of a life lived well. For those present, it must have been a moving moment.
+"Forever Young" was a wonderful choice for the occasion, and not just because of its author–the song is a celebration of life, and of a life lived well. For those present, it must have been a moving moment.
 
-Dylan’s original version (there were actually two–an uptempo rocker and a slower lullaby) dates back to his *Planet Waves* album in 1974.
+Dylan's original version (there were actually two–an uptempo rocker and a slower lullaby) dates back to his *Planet Waves* album in 1974.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Frj2CLGldC4)
 

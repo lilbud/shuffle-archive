@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'll Work For Your Love"
+author: "Ken"
+excerpt: "A little Valentine’s day (counter?) programming."
+tags: ill-work-for-your-love magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/workforlove.jpg
+post_id: 671
+---
 I know what you're thinking: the dice must be loaded today.
 
 But I'm not sure whether "I'll Work For Your Love" is truly Valentine's Day appropriate, love themed-or not.

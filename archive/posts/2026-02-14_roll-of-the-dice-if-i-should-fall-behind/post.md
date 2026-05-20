@@ -1,3 +1,13 @@
+---
+layout: post
+title: "If I Should Fall Behind"
+author: "Ken"
+excerpt: "“If I Should Fall Behind” is an enduring favorite that continuously grows, changes, and evolves like the best and strongest of relationships."
+tags: if-i-should-fall-behind live-in-dublin live-in-new-york-city lucky-town stand-up-for-heroes tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/MV5BOTY4ODllMDktMjM0OS00ZjY2LWJiNDMtYTYwZWM2MjQwZDgxXkEyXkFqcGc@._V1_FMjpg_UX1000_.jpg
+post_id: 2415
+---
 A truly great song can be re-arranged, re-recorded, re-invented, and covered many times over without ever losing its power or beauty.
 
 "If I Should Fall Behind" is one of those songs, with seemingly infinite elasticity that lends itself to constant tinkering. It's hard to keep track of all of the many different versions that Bruce has performed–some subtle, some bold–but I can't think of a single clunker among them.

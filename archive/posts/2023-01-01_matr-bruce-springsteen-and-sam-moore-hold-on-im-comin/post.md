@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Sam Moore: Hold On, I'm Comin'"
+author: "Ken"
+excerpt: "Magic happens when two legendary front men share the stage. Check out Bruce and Sam Moore performing Sam and Dave’s timeless “Hold On, I’m Comin'”"
+tags: hold-on-im-comin sam-and-dave sam-moore
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/holdon.jpg
+post_id: 8767
+---
 Bruce has long credited Sam Moore as a major influence, and if you’ve ever seen Sam perform live, it’s easy to see why and how. But let’s let Bruce explain it in his own words to Elvis Costello:
 
 [Watch Video Highlight](https://videopress.com/embed/2K7gfajm)

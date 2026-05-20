@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Goin' Cali"
+author: "Ken"
+excerpt: "“Goin’ Cali” traces Bruce’s journey from east to west, from isolation and frustration to connection and reinvention."
+tags: goin-cali the-promised-land tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/needles.jpg
+post_id: 6679
+---
 Funny how those dice work.
 
 I was wondering what song they would assign me to start the year off with, secretly hoping for a classic like "Thunder Road" or "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" that I could sink my teeth into. Instead, I got "Goin' Cali," a straightforward obscurity that I rarely listen to, much less consider.

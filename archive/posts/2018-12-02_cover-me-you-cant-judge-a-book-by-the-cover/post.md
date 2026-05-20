@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: You Can't Judge a Book by the Cover"
+author: "Ken"
+excerpt: "Bruce’s most recent album features his earliest officially released cover: Bo Diddley’s “You Can’t Judge a Book by the Cover.”"
+tags: bo-diddley chapter-and-verse the-castiles you-cant-judge-a-book-by-the-cover
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/diddley.jpg
+post_id: 5737
+---
 It's rare for Bruce to include a cover song on a studio album, but it's been known to happen.
 
 He did it most recently on *Chapter & Verse*, where he spotlighted his earliest (officially released) cover: Bo Diddley's "You Can't Judge a Book by the Cover."

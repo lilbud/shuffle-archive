@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Train Ride"
+author: "Ken"
+excerpt: "Bruce wasn’t Steel Mill’s only songwriter. Co-lead vocalist Robbin Thompson contributed his own song to the band’s set lists, but their version was a far cry from Mercy Flight’s original."
+tags: child dave-hazlett mercy-flight robbin-thompson spirit-in-the-night steel-mill train-ride
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/trainride.jpg
+post_id: 29688
+---
 I'm sort of at a loss for how to classify today's entry. Is it an original? A cover? A team-up?
 
 It's kind of all of the above.

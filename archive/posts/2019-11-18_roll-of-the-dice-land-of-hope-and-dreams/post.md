@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Land of Hope and Dreams"
+author: "Ken"
+excerpt: "In a better world, Land of Hope and Dreams would be our national anthem. It’s certainly my personal one."
+tags: clarence grushecky labor-of-love lohad obama reunion wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/amazing_sunrise_on_the_track_hdr.jpg
+post_id: 52
+---
 In a better world, *Land of Hope and Dreams* would be our national anthem. It's certainly my personal one.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KHpJhS99Q60)

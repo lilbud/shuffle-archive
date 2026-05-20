@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Janey Needs a Shooter"
+author: "Ken"
+excerpt: "The decade-long and winding tale of an early outtake that missed making three albums but ended up (sorta) on one by Warren Zevon."
+tags: janey-needs-a-shooter letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/janey.jpg
+post_id: 19927
+---
 **Updated 10/23/20:** If you'd told me when I first published this essay that we'd seen an officially released, brand new recording of "Janey Needs a Shooter" within ninety days, I'd have thought you were nuts. And yet, here we are: Bruce's new album, [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md), is available and includes–at long, long last–a fully realized version of "Janey Needs a Shooter," and it is glorious.<br>
 
 [Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter (Official Audio)](https://www.youtube.com/watch?v=A_BRCRkAkAE)

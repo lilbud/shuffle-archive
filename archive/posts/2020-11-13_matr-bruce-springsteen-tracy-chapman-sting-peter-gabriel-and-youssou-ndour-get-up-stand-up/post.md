@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "MatR: Bruce Springsteen, Tracy Chapman, Sting, Peter Gabriel, and Youssou N'Dour: Get Up, Stand Up"
+author: "Ken"
+excerpt: "“Get Up, Stand Up” was the perfect song to end each show on the Human Rights Now! Tour and kick off the tour’s 10th anniversary celebration. Watch both performances inside."
+tags: bob-marley get-up-stand-up peter-gabriel sting the-wailers tracy-chapman youssou-ndour
+categories: cover-me cover-you meeting-across-the-river
+post_id: 22287
+---
 It was the perfect song to end with each night.
 
 Written by Bob Marley and Peter Tosh after witnessing poverty conditions in Haiti, The Wailers' "Get Up, Stand Up" has become a rallying cry the world over since its original release in 1973.

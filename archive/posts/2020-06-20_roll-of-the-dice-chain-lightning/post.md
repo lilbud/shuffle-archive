@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Chain Lightning"
+author: "Ken"
+excerpt: "The love child of “State Trooper” and “Pink Cadillac” (and grandchild of “Peter Gunn”) “Chain Lightning” is a fascinating River cast-off that deserves a live outing."
+tags: chain-lightning the-river-outtakes
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/lightning.gif
+post_id: 18722
+---
 If "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" and "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)" had a love child, it would have been "Chain Lightning."
 
 [Watch on Youtube: Chain Lightning (Studio Outtake - 1980)](https://www.youtube.com/watch?v=xbuW4XrNVFU)

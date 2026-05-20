@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: When the Lights Go Out"
+author: "Ken"
+excerpt: "At a pair of 1990 benefit shows, Bruce debuted a dark song about espionage and political conspiracy. It hasn’t been heard from since."
+tags: tracks when-the-lights-go-out
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/lightsout.jpg
+post_id: 24155
+---
 In November 1990, Bruce Springsteen held his first publicly advertised concert in over two years. It would be another year and a half before he would play his next one.
 
 With the E Street Band on extended hiatus and his most recent album now three years in the rear view mirror, Bruce's name was most frequently invoked at the end of "Whatever happened to…?"

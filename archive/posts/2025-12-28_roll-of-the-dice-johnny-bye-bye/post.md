@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Johnny Bye Bye"
+author: "Ken"
+excerpt: "An early rock and roll sequel and the tragic deaths of two of his musical heroes inspired this powerful, under-the-radar B-side."
+tags: bye-bye-johnny im-on-fire johnny-bye-bye tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/bruce-springsteen-i-am-on-fire-vinyl-album-photo-368.jpg
+post_id: 35847
+---
 > "I remember when I was nine years old and my mother had on *The Ed Sullivan Show* and Elvis came on. I sat there and I said, ‘When I grow up, I wanna be just like that.' I remember I was sitting at home when somebody called me up and told me that he died. It´s something I still think about all the time… how somebody that had so much and was so alive inside could end up losing so bad and seeming so lonely."
 >
 > — Bruce Springsteen, September 2, 1981

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Check Berry, Bruce Springsteen, and the E Street Band, Johnny B. Goode"
+author: "Ken"
+excerpt: "From the 1995 opening concert for the Rock and Roll Hall of Fame: Chuck Berry backed by Bruce Springsteen and the E Street Band."
+tags: chuck-berry hall-of-fame johnny-b-goode
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/johnnybgoode.jpg
+post_id: 341
+---
 From the 1995 opening concert for the Rock and Roll Hall of Fame: Chuck Berry backed by Bruce Springsteen and the E Street Band.
 
 [Watch on Youtube: Chuck Berry with Bruce Springsteen & The E Street Band "Johnny B. Goode" | Concert for the Rock Hall](https://www.youtube.com/watch?v=6swgiM9vSEE)

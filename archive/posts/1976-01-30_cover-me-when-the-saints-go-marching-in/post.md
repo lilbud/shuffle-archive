@@ -1,3 +1,13 @@
+---
+layout: post
+title: "When the Saints Go Marching In"
+author: "Ken"
+excerpt: "When the city of New Orleans needed it most, Bruce found a heart of redemption in the city’s unofficial song."
+tags: when-the-saints-go-marching-in
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/when-the-saints-go-marching-in-song-lyrics.jpg
+post_id: 25932
+---
 No one quite knows where "When The Saints Go Marching In" came from. Like many folk songs, it's origins and earliest days are murky and multi-threaded. But the earliest known recording dates back to 1923 by the Paramount Jubillee Singers.
 
 [Watch on Youtube: When All The Saints Come Marching In (Take 1)](https://www.youtube.com/watch?v=hpuFgqlDP4c)
@@ -14,10 +24,10 @@ Over the years, it's been covered countless times in myriad arrangements and gen
 
 Researching the song, Bruce discovered that like much of folk music "The Saints" doesn't really have an "official" set of lyrics. In fact, its simple structure almost guarantees musical mutation. But Bruce stumbled across an early set of lyrics that he'd never heard before but which spoke to him:
 
-> *Oh when the new world is revealed*
-> *Oh when the new world is revealed*
-> *Yeah I want to be there on that morning*
-> *When the new world is revealed*
+> *Oh when the new world is revealed*<br>
+> *Oh when the new world is revealed*<br>
+> *Yeah I want to be there on that morning*<br>
+> *When the new world is revealed*<br>
 
 "When The Saints Go Marching In" is fatalistic (if not apocalyptic), but these new lyrics promised redemption and rewarded hope. Bruce embraced these lyrics and worked up a quiet, almost reverent arrangement–and when the band was ready for its last JazzFest encore, this is what they played.
 

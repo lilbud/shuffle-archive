@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Wreck on the Highway"
+author: "Ken"
+excerpt: "Bruce capped off The River with a somber, introspective meditation on the fleeting time we get with those we love."
+tags: john-wesley-harding the-river wreck-on-the-highway
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/wreck-highway.jpg
+post_id: 36656
+---
 > "On a rainy highway the character witnesses a fatal accident. He drives home, and lying awake that night next to his lover, he realizes you have a limited number of opportunities to love someone, to do your work, to be a part of something, to parent your children, to do something good." — Bruce Springsteen, *Songs* (1998)
 
 The first time we learn about death, it's something that happens to other people. Not to us, and not to anyone we love. Our child brain understands what death is, but somehow we instinctively feel that we're protected from it.

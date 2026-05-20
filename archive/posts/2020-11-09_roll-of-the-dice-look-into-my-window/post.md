@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Look Into My Window"
+author: "Ken"
+excerpt: "One time only (that we know of): Bruce’s first band plays one of his earliest original songs, co-written with George Theiss and inspired by The Kinks."
+tags: look-into-my-window the-castiles
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/lookwindow.jpg
+post_id: 22772
+---
 Recordings of original Springsteen songs from The Castiles era are exceedingly rare.
 
 If you think about it, though, it's astonishing there are any at all.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Lanny Cordola: My Beautiful Reward"
+author: "Ken"
+excerpt: "Lanny Cordola delivers a beautiful, atmospheric studio recording of “My Beautiful Reward.”"
+tags: lanny-cordola my-beautiful-reward
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/lanny.jpg
+post_id: 6179
+---
 Sometimes a wonderful cover can fly completely under the radar.
 
 This is one of them.

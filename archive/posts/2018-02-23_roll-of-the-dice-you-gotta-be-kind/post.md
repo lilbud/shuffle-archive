@@ -1,25 +1,35 @@
+---
+layout: post
+title: "Roll of the Dice: You Gotta Be Kind"
+author: "Ken"
+excerpt: "An unfinished, unreleased demo that would resonate particularly well these days."
+tags: you-gotta-be-kind
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/acoustic.jpg
+post_id: 819
+---
 "You Gotta Be Kind" is an unfinished demo, recorded by Bruce at home in early 1980.
 
 The song features a reggae beat paired with roughed-in lyrics that dance around the need to go out of your way to help someone in need. To be kind, in other words.
 
-> *If you see a man lying by the roadside*
-> *Would you stop and give him a helping hand*
-> *Or would you drive home leavin' him to cry*
-> *<unintelligible>*
+> *If you see a man lying by the roadside*<br>
+> *Would you stop and give him a helping hand*<br>
+> *Or would you drive home leavin' him to cry*<br>
+> *<unintelligible>*<br>
 
-> *You gotta be a kind to your brother*
-> *You gotta be kind, baby, understand*
-> *You gotta be, You gotta be kind*
-> *You gotta be kind*
+> *You gotta be a kind to your brother*<br>
+> *You gotta be kind, baby, understand*<br>
+> *You gotta be, You gotta be kind*<br>
+> *You gotta be kind*<br>
 
 [Watch on Youtube: Bruce Springsteen You Gotta Be Kind](https://www.youtube.com/watch?v=ZGdmi0tREPQ)
 
 The second verse doesn't really fit with the first:
 
-> *Now some boys, they come out on Stockton*
-> *And they're acting mighty rough and tough*
-> *They hurt the others*
-> *And they don't live on blood*
+> *Now some boys, they come out on Stockton*<br>
+> *And they're acting mighty rough and tough*<br>
+> *They hurt the others*<br>
+> *And they don't live on blood*<br>
 
 The reference to "Stockton" and acting "rough and tough" leads me to believe that this verse is borrowed from "[Stockton Boys](../2019-01-10_roll-of-the-dice-stockton-boys/post.md)" (which was recorded around the same time) for the purpose of working out the song (if one can borrow lines from a song that doesn't exist yet). It was probably never intended for the final product at all.
 

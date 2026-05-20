@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Love and Kisses"
+author: "Ken"
+excerpt: "This early River-era home demo was a dead end, but it’s melody pointed the way to an officially released Born in the U.S.A. outtake."
+tags: love-and-kisses wages-of-sin
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/loveandkisses.jpg
+post_id: 29629
+---
 Bruce spent much of early 1979 writing and working out new material from his home in Holmdel.
 
 Over the past few years, we've listened to many of the acoustic, work-in-progress demos that somehow escaped into the wild. Most are at least partially (and often mostly) bluffed, and many ultimately led nowhere.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "How Can A Poor Man Stand Such Times and Live?"
+author: "Ken"
+excerpt: "Bruce’s version of Blind Alfred Reed’s original protest song draws on a 1970 arrangement by Ry Cooder and a 2005 natural disaster for inspiration."
+tags: blind-alfred-reed how-can-a-poor-man-stand-such-times-and-live ry-cooder we-shall-overcome-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/57.jpg
+post_id: 31275
+---
 Stocks fell on September 4, 1929.
 
 Stocks fell, and with only a few exceptions they continued to fall, accelerating through the rest of the month and through October. Finally, on October 24th, they plunged in what remains the biggest sell-off in U.S. history.

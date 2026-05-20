@@ -1,3 +1,11 @@
+---
+layout: post
+title: "Rose Tattoo"
+author: "Ken"
+excerpt: "It was the strangest of all team-ups, at the strangest of times. It was just after Memorial Day in 2020, still very much the early…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/02/0x1900-000000-80-0-0-1.jpg
+post_id: 68097
+---
 It was the strangest of all team-ups, at the strangest of times.
 
 It was just after Memorial Day in 2020, still very much the early days of the Great Pandemic.

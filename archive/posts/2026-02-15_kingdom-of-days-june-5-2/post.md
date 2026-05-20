@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 5"
+author: "Ken"
+excerpt: "Steel Mill plays the prom, Bruce appears on the Tonight Show, a ’92 rehearsal show radio broadcast, the world premiere of “Queen of the Supermarket,” and the release of Live in Dublin–these and more highlights from this date inside."
+tags: be-true born-in-the-usa-tour coldplay darkness-tour how-can-a-poor-man-stand-such-times-and-live ill-work-for-your-love jay-leno jole-blon live-in-dublin london los-angeles new-york-city newcastle other-band queen-of-the-supermarket reunion-tour river-tour river-tour-2016 seeger-sessions-tour spain springsteen-on-broadway steel-mill stockholm sweden toledo tonight-show uk working-on-a-dream-tour zaragoza
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/live-in-dublin.jpg
+post_id: 56997
+---
 **1970:** Steel Mill headlines at the Rumson-Fairhaven Regional High School Junior-Senior Prom.<br>
 
 **1973:** Bruce and the E Street Band open for Chicago at the Veterans Memorial Coliseum in New Haven.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Better Days"
+author: "Ken"
+excerpt: "“Better Days” is one of the happiest songs in Bruce’s catalog. It also features some of his best writing."
+tags: better-days lucky-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/betterdays.jpg
+post_id: 1015
+---
 It's possible that I'm biased.
 
 After all, I'd been married a grand total of 11 days to a woman I'd started dating not even four months prior, when "Better Days" was released as the first single ahead of the upcoming *Lucky Town* album.

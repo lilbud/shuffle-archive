@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky and Bruce Springsteen: Chain Smokin'"
+author: "Ken"
+excerpt: "The origin of American Babylon starts with Bruce and Joe’s first-ever studio collaboration."
+tags: chain-smokin joe-grushecky
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/chainsmokin.jpg
+post_id: 27045
+---
 The origin of Joe Grushecky's milestone [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md)album starts with "Chain Smokin'," the album's second track.
 
 "Chain Smokin' was a song that I'd been playing around with for a while," Joe told me in an interview last year. "I started taking some acoustic gigs, and I was never a ‘copy' guy. It never appealed to me, doing a whole night of covers… So I had been working on Chain Smokin' for a while, and I just thought it was a really good song."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sherry Darling"
+author: "Ken"
+excerpt: "“Sherry Darling” is synonymous with summer–one of Bruce’s loosest, most carefree (and believe it or not, romantic) songs, yet it dates back to the serious Darkness sessions."
+tags: darkness-on-the-edge-of-town darkness-tour sherry-darling the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/sherry.jpg
+post_id: 2966
+---
 Ninety-nine percent of the time, Bruce picks the right take of a song to officially release. With "Sherry Darling," however, I humbly submit he got it wrong.
 
 Listen to this outtake from the [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)sessions, recorded more than three years before the release of *The River*, and tell me that it's not superior to the final release:

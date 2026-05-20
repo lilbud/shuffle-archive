@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Jersey Girl"
+author: "Ken"
+excerpt: "If there was ever a song that sounds like (but isn’t) a Springsteen original, it would have to be Tom Waits’ “Jersey Girl.” Check out Bruce’s great cover performances inside, including a rare Springsteen/Waits duet with hybrid lyrics!"
+tags: jersey-girl live-1975-85 tom-waits
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/bruce-springsteen-jersey-girl-cbs-3.jpg
+post_id: 11448
+---
 Honestly now: are we *really* sure Bruce Springsteen didn't write "Jersey Girl?"
 
 I mean, I know that Tom Waits is clearly credited with it, and that his wonderful original version debuted on his 1980 album *Heartattack and Vine* almost a full year before Bruce ever performed it.
@@ -24,14 +34,14 @@ Bruce teed it up with the hometown crowd by sharing his observations that Europe
 
 Fans familiar with Waits' version probably noticed that Bruce cleaned up the lyrics a bit, but the shocker was the completely new final verse:
 
-> *I see you on the street and you look so tired*
-> *Girl I know that job you got leaves you so uninspired*
-> *When I come by to take you out to eat*
-> *You're lying all dressed up on the bed baby fast asleep*
-> *Go in the bathroom, put your makeup on*
-> *We're gonna take that little brat of yours and drop her off at your mom's*
-> *I know a place where the dancing's free*
-> *Now baby won't you come with me*
+> *I see you on the street and you look so tired*<br>
+> *Girl I know that job you got leaves you so uninspired*<br>
+> *When I come by to take you out to eat*<br>
+> *You're lying all dressed up on the bed baby fast asleep*<br>
+> *Go in the bathroom, put your makeup on*<br>
+> *We're gonna take that little brat of yours and drop her off at your mom's*<br>
+> *I know a place where the dancing's free*<br>
+> *Now baby won't you come with me*<br>
 
 That verse perfectly matches the tone and heart of Waits' original–in large part because Waits' songwriting on "Jersey Girl" so closely resembles Bruce's own style.
 
@@ -49,7 +59,7 @@ It's a magnificent performance–one of Bruce's very best and certainly one of h
 
 But the official release wasn't the most remarkable "Jersey Girl" performance of the tour. That honor would have to go to (ironically) a Los Angeles performance from later that summer, where Bruce introduced the song by remarking:
 
-> *There's a guy that's written a lot of great songs, like "Ol' 55," "Heart of Saturday Night…" and this song. When I heard it, I remember it was one of those songs I said, "Well… I wish I'd wrote that." It's a song called "Jersey Girl" and Tom Waits is gonna sing it with us.*
+> *There's a guy that's written a lot of great songs, like "Ol' 55," "Heart of Saturday Night…" and this song. When I heard it, I remember it was one of those songs I said, "Well… I wish I'd wrote that." It's a song called "Jersey Girl" and Tom Waits is gonna sing it with us.*<br>
 
 And then, as promised, Tom Waits joined Bruce on stage for their one and only public duet of "Jersey Girl." (They'd perform it once more in 1990 at a private reception.) Take a listen below–and notice how it's an unusual, one-off hybrid version: Tom sings Bruce's sanitized first verse but adds his "And I call your name; I can't sleep at night" flourish that Bruce dropped, while Bruce sings the verse he added.
 

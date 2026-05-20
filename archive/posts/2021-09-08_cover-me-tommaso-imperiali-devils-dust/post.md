@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tommaso Imperiali: Devils & Dust"
+author: "Ken"
+excerpt: "Tommaso Imperiali won third-place recognition for his powerful cover of “Devils & Dust” at this year’s Cover Me contest in Bergamo."
+tags: devils-and-dust tomasso-imperiali
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/tomasso.jpg
+post_id: 29317
+---
 Continuing our coverage of last week's *Cover Me* finals in Bergamo, let's meet Tommaso Imperiali, an Italian blues musician, guitarist, vocalist for the band Five Quarters, and philosophy student at the University of Milan.
 
 Although his first Springsteen concerts were in 2016, Tommaso is no stranger to Bruce's music, nor to covering him in competition. Last year, Tommaso finished in third place with his cover (in Italian!) of "[The Promised Land.](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)"

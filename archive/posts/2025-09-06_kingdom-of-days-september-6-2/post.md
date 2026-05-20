@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 6"
+author: "Ken"
+excerpt: "On this date in Springsteen history: Bruce plays Fenway Park and New Orleans for the first time, Boz Scaggs and Peter Wolf make guest appearances with the E Street Band, the release of Chimes of Freedom, and more. Audio and video inside."
+tags: born-in-the-usa-tour born-to-run-tour boston boz-scaggs budapest chicago darkness-tour diddy-wah-diddy fenway-park human-rights-now-tour hungary indianapolis michelle-obama new-orleans new-york-city peter-wolf rising-tour springsteen-on-broadway steel-mill
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/chimes-of-freedom.jpg
+post_id: 59551
+---
 ***New for 2025:** No updates*<br>
 
 **1970:** Steel Mill rehearses for their upcoming and destined-for-legend Clearwater Swim Club show with fill-in drummer Dave Hazlett covering for Vini, who is stuck in Richmond due to a legal misunderstanding.<br>

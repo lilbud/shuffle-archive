@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Beat Farmers: Reason to Believe"
+author: "Ken"
+excerpt: "The Beat Farmers’ rock arrangement of “Reason to Believe” electrified the Nebraska classic more than two decades before Bruce broke out a similar arrangement on the Magic Tour."
+tags: beat-farmes reason-to-beleive
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/beatfarmers830.jpg
+post_id: 4351
+---
 If you're a fan of the rock arrangement of "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)" that Bruce debuted during the Magic Tour, give a listen to The Beat Farmers' cover treatment from way back in 1985–it rocks just as hard.
 
 [Watch on Youtube: Reason to Believe The Beat Farmers](https://www.youtube.com/watch?v=cMZLTgR3gbQ)

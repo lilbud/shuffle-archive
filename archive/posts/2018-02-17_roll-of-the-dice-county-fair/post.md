@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: County Fair"
+author: "Ken"
+excerpt: "“County Fair” is a perfect song about a perfect day, and so delicate that live performance can’t match the power of the version on record."
+tags: county-fair essential-bruce-springsteen
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/Talbot-County-Fair.jpg
+post_id: 678
+---
 It's the crickets, I tell you.
 
 [Watch on Youtube: County Fair (Studio Outtake - 1983)](https://www.youtube.com/watch?v=yltKgMyWLH0)

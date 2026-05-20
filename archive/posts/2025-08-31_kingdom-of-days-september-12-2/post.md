@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 12"
+author: "Ken"
+excerpt: "On this date: Western Stars debuts at the Toronto International Film Festival, the E Street Band plays their first “All or Nothin’ At All,” and Bruce has a close encounter with fans in the shower. Great video/audio inside (except for that last part)."
+tags: austin born-in-the-usa-tour born-to-run-tour bruce-springsteen-band chile darkness-tour manifesto philadelphia santiago student-prince syracuse tampa working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/20130912_2_front.jpg
+post_id: 59635
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
@@ -20,15 +30,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/SLGR7g0C)
 
-**1984:** Bruce and the band play their second of six shows at the Philadelphia Spectrum on the Born in the U.S.A. Tour, tour premiering “[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md).”<br>
+**1984:** Bruce and the band play their second of six shows at the Philadelphia Spectrum on the Born in the U.S.A. Tour, tour premiering "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cs34IgKs)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1984-0912.jpg.webp)
 
-**2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park’s Convention Hall.<br>
+**2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.<br>
 
-**2009:** The Working on a Dream Tour starts a southern swing with a show at the Ford Amphitheater in Tampa, with two notable tour premieres: the very first E Street Band performance of “[All or Nothin’ At All](../2018-01-30_roll-of-the-dice-all-or-nothing-at-all/post.md)” and “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” (last played by the E Street Band 28 years prior).<br>
+**2009:** The Working on a Dream Tour starts a southern swing with a show at the Ford Amphitheater in Tampa, with two notable tour premieres: the very first E Street Band performance of "[All or Nothin' At All](../2018-01-30_roll-of-the-dice-all-or-nothing-at-all/post.md)" and "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" (last played by the E Street Band 28 years prior).<br>
 
 [Watch on Youtube: Raise Your Hand, Bruce Springsteen, Tampa 9/12/09](https://www.youtube.com/watch?v=OpaaaA0M0j8)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-12b.jpg.webp)
 
-**2013:** The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in Santiago, Chile, Bruce’s first performance in this country. The encores begin with a Spanish-language cover of “[Manifesto](../2021-01-31_cover-me-manifesto/post.md)” by activist Victor Jara, sung by Bruce in Spanish.<br>
+**2013:** The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in Santiago, Chile, Bruce's first performance in this country. The encores begin with a Spanish-language cover of "[Manifesto](../2021-01-31_cover-me-manifesto/post.md)" by activist Victor Jara, sung by Bruce in Spanish.<br>
 
 [Watch on Youtube: Manifiesto (Live in Santiago, 09/12/13)](https://www.youtube.com/watch?v=JNQm1Plu63k)
 
@@ -62,6 +72,6 @@
 
 **2023:** Bruce issues a video plea for support for the Community Hospital Endowment Fund for the Kenyan city of Lwala.<br>
 
-[Watch on Youtube: Bruce Springsteen, makes a passionate appeal in support of the Lwala Community Hospital Endowment](https://www.youtube.com/watch?v=5kFCEGnJJNo)
+[Watch on Youtube: Bruce Springsteen, makes a passionate appeal in support of the Lwala Community Hospital Endowment](https://www.youtube.com/watch?v=5kFCEGnJJNo?list=PLnbVaK2f4rahkarvl0qDgKW3lpuomUWEd)
 
 Bruce was originally scheduled to play the first of two shows in Pittsburgh on this date as well, but peptic ulcer disease forces him to postpone the shows for almost a year.

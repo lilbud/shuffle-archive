@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Rose"
+author: "Ken"
+excerpt: "Spotlight on Patti today, as Bruce backs her on one of her earliest songs. Great archive footage from 1980 on this one!"
+tags: 23rd-street-lullaby patti-scialfa rose
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/81mhANkBoTL._SL1500_.jpg
+post_id: 1225
+---
 Spotlight on Patti Scialfa today:
 
 Although Patti released "Rose" on her 2004 album *23rd Street Lullaby*, well-connected Bruce fans were already familiar with the song from the legendary Asbury Park all-start holiday concerts that Bruce hosted in 2000. Patti performed the song with Bruce backing her at both holiday shows that year.

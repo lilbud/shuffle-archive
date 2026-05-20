@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jeniferever: One Step Up"
+author: "Ken"
+excerpt: "Swedish band Jeniferever turns in a terrific cover of “One Step Up,” preserving its tender core in a lushly arranged wrapper."
+tags: jeniferever one-step-up play-some-pool-skip-some-school-act-real-cool
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/onestep.jpg
+post_id: 13966
+---
 I'm a sucker for Springsteen tribute albums, if you haven't figured that out by now.
 
 I'm continually fascinated to hear how other artists receive and return Bruce's music to the world through their own lenses. I have to admit, though, that I tend to listen to them in full only once or twice before I select my favorite tracks and archive the rest.

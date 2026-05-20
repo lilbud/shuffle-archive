@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Ben Harper: My Father's House"
+author: "Ken"
+excerpt: "Thanks to a pro-shot filmed appearance in a French radio studio, we can finally see and hear Ben Harper’s *complete* cover of “My Father’s House.”"
+tags: ben-harper kennedy-center-honors my-fathers-house
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/various-my-city-of-ruins.jpg
+post_id: 11635
+---
 At the 32nd annual Kennedy Center Honors (the highest honor the U.S. bestows on individuals who influence American arts and culture), an array of artists assembled to pay tribute to Bruce Springsteen.
 
 All of the performances were gorgeous that night (see my post on [Sting’s cover of “The Rising”](../2018-10-26_cover-me-sting-the-rising/post.md) for one of my favorites), but Ben Harper’s rendition of “[My Father’s House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)” may have been the most heartfelt.

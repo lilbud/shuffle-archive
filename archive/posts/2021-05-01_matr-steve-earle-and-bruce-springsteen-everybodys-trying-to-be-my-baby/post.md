@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Steve Earle and Bruce Springsteen: Everybody's Trying to Be My Baby"
+author: "Ken"
+excerpt: "One time only: Bruce joins Steve Earle on stage for a cover of a rock classic that goes much further back than you might think."
+tags: carl-perkins everybodys-trying-to-be-my-baby rex-griffin steve-earle the-beatles
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/everbodys.jpg
+post_id: 24824
+---
 This is the story of an original hillbilly song from the 1930s that found its way to the Jersey shore sixty years later.
 
 Most of us know "Everybody's Trying to Be My Baby" as the final track from *Beatles for Sale* and *Beatles '65*, with George Harrison on lead vocals...

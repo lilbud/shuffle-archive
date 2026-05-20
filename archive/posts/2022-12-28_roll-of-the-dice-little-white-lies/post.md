@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Little White Lies"
+author: "Ken"
+excerpt: "“Little White Lies” is a thematic analogue to “Stolen Car” and forerunner to “Brilliant Disguise” — a fascinating outtake from The River sessions."
+tags: little-white-lies the-river the-ties-that-bind-the-river-collection
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/littlewhitelies.jpg
+post_id: 1013
+---
 Every once in a while, Bruce throws a curve ball.
 
 When *The Ties That Bind: The River Collection* was announced, most of the tracks on the bonus disc of outtakes were familiar to long-time fans–at least by title.

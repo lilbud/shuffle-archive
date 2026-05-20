@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Adam Raised a Cain"
+author: "Ken"
+excerpt: "Bruce’s first officially released father/song features the singer and the band at peak fury and ferocity."
+tags: adam-raised-a-cain darkness-on-the-edge-of-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/easteden.jpg
+post_id: 32949
+---
 > "I guess there's just a certain amount of good and bad you get from your parents, and I just got the bad."
 >
 > "That's not true. Cal! Listen to me: you can make of yourself anything you want. It's up to you. A man has a choice."

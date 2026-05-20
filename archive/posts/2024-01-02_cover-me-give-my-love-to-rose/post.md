@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Give My Love to Rose"
+author: "Ken"
+excerpt: "One of the rarer officially released Springsteen recordings, Bruce recorded “Give My Love to Rose” for a Johnny Cash tribute album and TV special."
+tags: give-my-love-to-rose johnny-cash kindred-spirits
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/kindred.jpg
+post_id: 21787
+---
 In 2002, a collection of legendary artists influenced by Johnny Cash contributed covers for *Kindred Spirits*, a tribute album to The Man in Black.
 
 Bruce Springsteen was among the artists represented, and his contribution was a lovely recording of Cash's 1957 country hit, "Give My Love to Rose."

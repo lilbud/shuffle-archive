@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Working on a Dream"
+author: "Ken"
+excerpt: "In defense of “Working on a Dream,” the perfect title track for one of Bruce’s best and most underrated albums."
+tags: working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/workingonadream_sin.jpg
+post_id: 10786
+---
 I'm tempted to prefix the title of this article with "In Defense of," but "Working on a Dream" warrants no apologies.
 
 In the chapter of his catalog entitled "Lovely Pop Songs," "Working on a Dream" ranks high. It's more than a trifle, though–it's a summation of Bruce's life's work, and the perfect title track for the album that rightfully bears its name.
@@ -34,36 +44,36 @@ And when we watch the official video below, it's clear that's exactly what Bruce
 
 Insert your own dream below–I guarantee the song works with it:
 
-> *Out here the nights are long, the days are lonely*
-> *I think of you and I'm working on a dream*
-> *I'm working on a dream*
+> *Out here the nights are long, the days are lonely*<br>
+> *I think of you and I'm working on a dream*<br>
+> *I'm working on a dream*<br>
 
-> *Now the cards I've drawn's a rough hand, darlin'*
-> *I straighten my back and I'm working on a dream*
-> *I'm working on a dream*
+> *Now the cards I've drawn's a rough hand, darlin'*<br>
+> *I straighten my back and I'm working on a dream*<br>
+> *I'm working on a dream*<br>
 
-> *I'm working on a dream*
-> *Though sometimes it feels so far away*
-> *I'm working on a dream*
-> *And how it will be mine someday*
+> *I'm working on a dream*<br>
+> *Though sometimes it feels so far away*<br>
+> *I'm working on a dream*<br>
+> *And how it will be mine someday*<br>
 
-> *Rain pourin' down, I swing my hammer*
-> *My hands are rough from working on a dream*
-> *From working on a dream*
+> *Rain pourin' down, I swing my hammer*<br>
+> *My hands are rough from working on a dream*<br>
+> *From working on a dream*<br>
 
-> *I'm working on a dream*
-> *Though trouble can feel like it's here to stay*
-> *I'm working on a dream*
-> *Our love will chase the trouble away*
+> *I'm working on a dream*<br>
+> *Though trouble can feel like it's here to stay*<br>
+> *I'm working on a dream*<br>
+> *Our love will chase the trouble away*<br>
 
-> *I'm working on a dream*
-> *Though it can feel so far away*
-> *I'm working on a dream*
-> *And our love will make it real someday*
+> *I'm working on a dream*<br>
+> *Though it can feel so far away*<br>
+> *I'm working on a dream*<br>
+> *And our love will make it real someday*<br>
 
-> *Sunrise come, I climb the ladder*
-> *The new day breaks and I'm working on a dream*
-> *I'm working on a dream*
+> *Sunrise come, I climb the ladder*<br>
+> *The new day breaks and I'm working on a dream*<br>
+> *I'm working on a dream*<br>
 
 The lyrics speak for themselves, so there's not much point in my customary analysis. But I will at least draw your attention to the significance of the imagery and metaphors that Bruce employs: hammer-swinging, ladder-climbing, up and at 'em at daybreak, and rough hands in the rain. Bruce isn't just appreciating what he's built, he's also taking pride in the work that went into it, and that's significant.
 

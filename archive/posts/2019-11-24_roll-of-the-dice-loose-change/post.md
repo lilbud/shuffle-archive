@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Loose Change"
+author: "Ken"
+excerpt: "Bruce has grappled with feelings of isolation and alienation through song for decades, but “Loose Change” may be the most artful and hopeful example. Let’s take a close listen."
+tags: loose-change tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/loosechange.jpg
+post_id: 14360
+---
 To the degree that "Loose Change" gets mentioned at all, it's usually when a critic or a fan is asked to rattle off a list of Bruce's darkest songs.
 
 Do a search on it and you'll find it labeled "dark," "bleak," "paranoid," and "sad." Telegraph ranks the lyrics of "Loose Change" among [the top ten saddest lines Bruce has ever written](https://www.telegraph.co.uk/music/what-to-listen-to/bruce-springsteens-saddest-songs-and-lyrics/); NME cites "Loose Change" as one of "[The Five Most Depressing Springsteen Songs Ever.](https://www.nme.com/blogs/nme-blogs/the-5-most-depressing-bruce-springsteen-songs-ever-1554889)"

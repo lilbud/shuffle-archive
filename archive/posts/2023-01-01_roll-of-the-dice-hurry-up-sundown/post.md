@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Hurry Up Sundown"
+author: "Ken"
+excerpt: "Hidden away on a barely promoted Record Store Day EP, “Hurry Up Sundown” is a slick (if overproduced) piece of power pop, perfect for an open road on a sunny day."
+tags: american-beauty hurry-up-sundown
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/hurrysundown.jpg
+post_id: 17541
+---
 Remember the days when years would go by between Bruce's album releases?
 
 A notorious perfectionist, Bruce would write and record dozens of songs and tinker with them incessantly while the calendar pages flipped and ripped away. Sometimes entire album sequences would be scrapped, sometimes album concepts would be, too.

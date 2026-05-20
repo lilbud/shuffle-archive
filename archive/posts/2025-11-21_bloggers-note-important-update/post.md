@@ -1,3 +1,11 @@
+---
+layout: default-post
+title: "Cover Me Book Introduction"
+author: "Ken"
+excerpt: "Shhh.... I'll let you in on a secret, but you can't tell anyone. *Cover Me* is my favorite."
+categories: uncategorized
+post_id: 8825
+---
 Shhh…. I'll let you in on a secret, but you can't tell anyone.
 
 *Cover Me* is my favorite.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 16"
+author: "Ken"
+excerpt: "On this date: Clarence’s final music video debuts, Bruce plays his first show in Finland, and rumors spread about an upcoming Broadway run."
+tags: 23rd-street-lullaby brandon-flowers clarence-clemons cleveland darkness-tour devils-and-dust-tour dusseldorf dustland finland float-away germany helsinki italy kansas-city lady-gaga magic-tour marah new-york-city patti-scialfa rising-tour rome seeger-sessions-tour springsteen-on-broadway steve-van-zandt the-edge-of-glory the-killers the-promised-land tunnel-of-love-tour we-shall-overcome working-on-the-highway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/helsinki03.jpg
+post_id: 57092
+---
 **1949:** Steel Mill member Robbin Thompson is born.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/robbin.jpg.webp)

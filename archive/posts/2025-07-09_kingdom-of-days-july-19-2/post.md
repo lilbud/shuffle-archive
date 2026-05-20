@@ -1,34 +1,44 @@
+---
+layout: post
+title: "Kingdom of Days: July 19"
+author: "Ken"
+excerpt: "No other highlight from this date can top our lead story: Bruce’s legendary East Berlin show in front of 300,000 energized, galvanized Germans."
+tags: barcelona child darkness-tour east-berlin east-germany empty-sky italy magic-tour maxs-kansas-city memphis nightline philadelphia river-tour rome spain tunnel-of-love-tour working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/19880719_4_front.jpg
+post_id: 57750
+---
 ***New for 2025:** No updates*<br>
 
 **1969:** Child plays their fifth of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/1969-07-19.jpg.webp)
 
-**1973:** Bruce and the as-yet-unnamed E Street band play their second of six consecutive two-shows-nightly gigs at Max’s Kansas City in New York, with The Wailers as the opening act.<br>
+**1973:** Bruce and the as-yet-unnamed E Street band play their second of six consecutive two-shows-nightly gigs at Max's Kansas City in New York, with The Wailers as the opening act.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1973-07-19-scaled.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/1973-07-19.jpg.webp)
 
-**1974:** Bruce’s gig on the lineup of the Ozark Music Festival in Sedalia, Missouri is cancelled. Instead, he plays a gig at The Main Point in Bryn Mawr, Pennsylvania.<br>
+**1974:** Bruce's gig on the lineup of the Ozark Music Festival in Sedalia, Missouri is cancelled. Instead, he plays a gig at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1974-07-19a.png.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1974-07-19b.png.webp)
 
-**1975:** With the opening show of the Born to Run Tour only a day away, and final production tinkering running almost to the last minute (“Jungleland” is *still* unfinished), Bruce and the E Street Band rehearse the show for the first and only time at the Record Plant in New York City. The rehearsal runs a staggering *nineteen hours,* which probably explains their subdued appearance in the sunrise photo below. (Photo credit: Barbara Pyle)<br>
+**1975:** With the opening show of the Born to Run Tour only a day away, and final production tinkering running almost to the last minute ("Jungleland" is *still* unfinished), Bruce and the E Street Band rehearse the show for the first and only time at the Record Plant in New York City. The rehearsal runs a staggering *nineteen hours*, which probably explains their subdued appearance in the sunrise photo below. (Photo credit: Barbara Pyle)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1975-0719.jpg.webp)
 
 **1978:** Bruce and the band bring the Darkness Tour to Ellis Auditorium in Memphis.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1978-07-19b.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1978-07-19a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1978-07-19a.jpg.webp)
 
 **1981:** Bruce and the E Street Band wrap up a five-night stand at the Spectrum in Philadelphia on the original River Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/PEuZpNb0)
 
-**1988:** Bruce and the band play a historic show in East Berlin, their first in East Germany. The show is broadcast across East Germany, but as many as 300,000 fans still flocked to the concert grounds for the show, where Bruce greets them in German, “It's nice to be in East Berlin. I want to tell you that I'm not here for or against any government. I have come to play rock and roll for the East Berliners in the hope that one day all barriers will be torn down." It’s believed that this show galvanized East Germany’s youth and contributed to the accelerated reunification of the country. The show also featured the tour premieres of “[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)” and “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md).” Read more [here](https://www.theguardian.com/music/2013/jul/05/bruce-springsteen-east-germany-berlin-wall) and watch below.<br>
+**1988:** Bruce and the band play a historic show in East Berlin, their first in East Germany. The show is broadcast across East Germany, but as many as 300,000 fans still flocked to the concert grounds for the show, where Bruce greets them in German, "It's nice to be in East Berlin. I want to tell you that I'm not here for or against any government. I have come to play rock and roll for the East Berliners in the hope that one day all barriers will be torn down." It's believed that this show galvanized East Germany's youth and contributed to the accelerated reunification of the country. The show also featured the tour premieres of "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" and "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)." Read more [here](https://www.theguardian.com/music/2013/jul/05/bruce-springsteen-east-germany-berlin-wall) and watch below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Chimes of Freedom (East Berlin 1988, with speech)](https://www.youtube.com/watch?v=WBIcfPBVxxQ)
 
@@ -44,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/The_Berkshire_Eagle_1988_07_24_2-scaled.jpg.webp)
 
-**2002:** At his home in Colts Neck, Bruce performs and records “[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md).” The edited footage will eventually air on ABC-TV’s *Nightline* after the album is released; the unedited reel below has not circulated widely until recently.<br>
+**2002:** At his home in Colts Neck, Bruce performs and records "[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md)." The edited footage will eventually air on ABC-TV's *Nightline* after the album is released; the unedited reel below has not circulated widely until recently.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1Uvx6IoY)
 
@@ -54,6 +64,6 @@
 
 [Watch on Youtube: Bruce Springsteen Barcelona 19-07-2008 Brilliant Disguise-The River-Janey Don't You Lose Heart](https://www.youtube.com/watch?v=w6hAS6cFAmM)
 
-**2009:** “My City of Ruins” comes out for the first and only time on the Working on a Dream Tour when Bruce and the band play a show at Stadio Olimpico in Rome, a dedication to the town of L’Aquila that was devastated by an earthquake that spring.<br>
+**2009:** "My City of Ruins" comes out for the first and only time on the Working on a Dream Tour when Bruce and the band play a show at Stadio Olimpico in Rome, a dedication to the town of L'Aquila that was devastated by an earthquake that spring.<br>
 
 [Watch on Youtube: Bruce Springsteen Live in Rome 19/07/2009 surprise surprise](https://www.youtube.com/watch?v=OrRBwm29ONU)

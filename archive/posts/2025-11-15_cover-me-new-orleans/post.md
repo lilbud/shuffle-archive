@@ -1,3 +1,13 @@
+---
+layout: post
+title: "New Orleans"
+author: "Ken"
+excerpt: "One night in in the Big Easy, Bruce and the E Street Band swapped out their standard encore of Gary U.S. Bonds’ “Quarter to Three” for his earlier hit, “New Orleans,” and of course they nailed it. Check it out inside."
+tags: gary-u-s-bonds new-orleans
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/neworleans.jpg
+post_id: 11634
+---
 “New Orleans” was Gary U.S. Bonds’ first-ever single and one of his highest-charting, so of course Bruce was bound to cover it.
 
 Originally released in September 1960, “New Orleans” was credited to simply “U.S. Bonds” (no Gary), a strange stage name chosen for Gary Anderson by his producer, in the bizarre hope that radio DJs would assume the song was a patriotic benefit or PSA.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Baby, I'm So Cold"
+author: "Ken"
+excerpt: "The illegitimate child of “Loose Ends” and “Follow That Dream” still lives deep in the vault, but you can listen to an early demo of it inside."
+tags: baby-im-so-cold follow-that-dream janey-dont-you-lose-heart
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/socold.jpg
+post_id: 9731
+---
 From time to time here on the Shuffle, we profile Springsteen original songs that never made it to vinyl but instead ended up donating their DNA to other songs that did.
 
 "True Love is Hard to Come By," for example, led to "Janey, Don't You Lose Heart," and "Stockton Boys" donated some lyrics to "Working on the Highway." Bruce appears to have worked on "Eloise" and "Growin' Up" at the same time; they share the same melody, but only one of the twins survived. Don't even get me started on "Garden State Parkway Blues." (But do check out that entry if you're not familiar with it, because that song's DNA is all over Bruce's catalog.)

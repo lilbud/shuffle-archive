@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Krezip: The Rising"
+author: "Ken"
+excerpt: "Dutch band Krezip started the new year on a note of optimism with their terrific performance of “The Rising.”"
+tags: krezip the-rising
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/risingkrezip.jpg
+post_id: 25693
+---
 Bruce may have written it for a completely different context, but for my money there's no song more suitable to serve as the anthem for 2021 than "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)."
 
 Dutch band Krezip recognized that from the start when they covered it for their New Years Eve performance a few months back on the television show *Matthijs Gaat Door*.

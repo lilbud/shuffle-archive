@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: City of Night"
+author: "Ken"
+excerpt: "Boasting a hypnotic backing track and skillful editing, “City of Night” closes out The Promise with a lost gem."
+tags: city-of-night the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/city-night.jpg
+post_id: 19494
+---
 I can't fault Bruce for leaving "City of Night" off of [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
 
 That album already had two great songs about driving around in cars; a third might have tipped the album over the line from thematic to obsessive.
@@ -8,16 +18,16 @@ Still, there's something hypnotic and wonderful about this lost lovely. Take a l
 
 If I had to describe "City of Night" in a word, it would be: carefree. Like his sugar girl, our narrator of hasn't a care in the world. He's on his way to see her, and that's pretty much all we need to know–which is good, because that's pretty much all we get. His mind wanders during his cab ride to his baby:
 
-> *Taxi cab, taxi cab at the light*
-> *Won't you take me on a ride through this city of night*
-> *I got some money and I'm feeling fine*
-> *I ain't in no hurry so just take your time*
-> *Some people wanna die young and gloriously*
-> *But taxi cab driver, yeah that ain't me*
-> *I got a cute little baby down at 12th and Vine*
-> *And she opens for business just about closing time*
-> *Ah hey hey, ah hey hey*
-> *City of night, city of night*
+> *Taxi cab, taxi cab at the light*<br>
+> *Won't you take me on a ride through this city of night*<br>
+> *I got some money and I'm feeling fine*<br>
+> *I ain't in no hurry so just take your time*<br>
+> *Some people wanna die young and gloriously*<br>
+> *But taxi cab driver, yeah that ain't me*<br>
+> *I got a cute little baby down at 12th and Vine*<br>
+> *And she opens for business just about closing time*<br>
+> *Ah hey hey, ah hey hey*<br>
+> *City of night, city of night*<br>
 
 There's not a lot in "City of Night" that asks for analysis, but there are a couple of things worth noting.
 
@@ -25,12 +35,12 @@ First, there's the title itself, another in a long, *long* list of Springsteen s
 
 Then there's that lyric: "Some people wanna die young and gloriously." That line will resurface a decade later in "[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)" (another borrowed title). Although we're used to hearing Bruce's lyrics pop up in other songs, at first listen "City of Night" and "All That Heaven Will Allow" couldn't seem more dissimilar. We might change our mind on repeat listen, however: both narrators are walking on air with only love on their minds.
 
-> *I don't believe what I see in this street*
-> *I don't know how people they can take the heat*
-> *Well baby I'm a liar, I'm a cheat, and I don't care*
-> *I got my money, I can take my fare*
-> *Ah hey hey, ah hey hey*
-> *City of night, city of night*
+> *I don't believe what I see in this street*<br>
+> *I don't know how people they can take the heat*<br>
+> *Well baby I'm a liar, I'm a cheat, and I don't care*<br>
+> *I got my money, I can take my fare*<br>
+> *Ah hey hey, ah hey hey*<br>
+> *City of night, city of night*<br>
 
 There's some slick editing at work in the second verse. Although Bruce and the band committed "City of Night" to tape on October 14, 1977, the song was actually unfinished. The second half of the second verse was almost completely bluffed, with Bruce mumbling scraps of phrases.
 
@@ -40,14 +50,14 @@ The version that Bruce officially released on *The Promise* in 2010 deftly edits
 
 You might have noticed something else in that original recording besides the skillful edit–where's the third verse?
 
-> *I'm riding tonight to see my sugar girl*
-> *You know she wears that dress without a care in the world*
-> *Yeah she got some loving that's as bright as the sun*
-> *And she brings it with her, man, when she comes*
-> *Hey, hey, city of night*
-> *Ah-hey, ah-hey, city of night*
+> *I'm riding tonight to see my sugar girl*<br>
+> *You know she wears that dress without a care in the world*<br>
+> *Yeah she got some loving that's as bright as the sun*<br>
+> *And she brings it with her, man, when she comes*<br>
+> *Hey, hey, city of night*<br>
+> *Ah-hey, ah-hey, city of night*<br>
 
-> *Ride on…*
+> *Ride on…*<br>
 
 That last verse in the official 2010 release is new–or at least, it's not in the original recording. And if you listen carefully, you'll notice that Bruce's vocal is new, too.
 

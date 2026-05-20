@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Southern Sun"
+author: "Ken"
+excerpt: "“Southern Sun” is one of the original Hammond demos Bruce never committed to disc, and while there are elements to admire, that’s probably a good thing."
+tags: southern-sun
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/lead-moncks-corner-south-carolina-AMERICANSOUTH1017.jpg
+post_id: 29185
+---
 Everyone needs a change of scenery once in a while, even aspiring songwriters.
 
 Bruce Springsteen's early material drew heavily on the people and places that surrounded him. When he wanted more exotic inspiration, his imagination tended to travel west.

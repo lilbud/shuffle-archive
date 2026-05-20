@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 28"
+author: "Ken"
+excerpt: "Bruce’s Bridge School Benefit sequel, the E Street Band’s first-ever show, the DVD release that never was, and more–all from this date."
+tags: back-in-your-arms beck born-in-the-usa-tour boston bridge-school-benefit cheech-chong chrissie-hynde copenhagen denmark devils-and-dust-tour dirty-water emmylou-harris from-my-home-to-yours ghost-of-tom-joad-tour hootie-the-blowfish john-kerry lawsuit-tour los-angeles madison neil-young new-york-city no-surrender oakland ohio palladium portland reunion-tour river-tour seeger-sessions-tour sinaloa-cowboys springsteen-on-broadway steven-tyler the-promised-land west-chester
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/20051028_booklet1.jpg
+post_id: 61240
+---
 ***New for 2025:** Audio for 1976; new entry for 2024*<br>
 
 **1972:** The still-unnamed E Street Band makes its concert debut as the Greetings from Asbury Park Tour kicks off with Bruce's first-ever show in Pennsylvania, where they open for Cheech & Chong at West Chester College. Bruce was a late addition by the school, and Cheech & Chong's manager does not approve. He forces the school to end Bruce's set early.<br>

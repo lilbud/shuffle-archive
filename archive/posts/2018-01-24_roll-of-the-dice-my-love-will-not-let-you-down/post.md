@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Love Will Not Let You Down"
+author: "Ken"
+excerpt: "Springsteen’s “My Love Will Not Let You Down” – an introvert’s inner scream"
+tags: 18-tracks born-in-the-usa dancing-in-the-dark live-in-nyc my-love-will-not-let-you-down tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/mylove.jpg
+post_id: 397
+---
 For every song that made it on a Springsteen album, there's one (and usually a lot more) that didn't. The man is nothing if not prolific.
 
 Many of the outtakes eventually make their way into circulation, either officially or unofficially, and you can usually understand why they were left off the album. Not because they weren't great songs, though–Bruce has very few clunkers.
@@ -16,11 +26,11 @@ It's not only the most powerful rock anthem Bruce ever wrote (IMHO)–it's also 
 
 In "Dancing in the Dark," the narrator is nocturnal, isolated and disconnected:
 
-> *I get up in the evening, and* *I ain't got nothing to say*<br>
+*I get up in the evening, and* *I ain't got nothing to say*<br>
 > *I come home in the morning*<br>
 > *I go to bed feeling the same way*<br>
 > *I ain't nothing but tired*<br>
-> *Man, I'm just tired and bored with myself*<br>
+> *Man , I'm just tired and bored with myself*<br>
 
 The narrator of "My Love Will Not Let You Down" lives during the day. He feels the same sense of isolation, but a sense of resignation is replaced by desperation:
 
@@ -38,7 +48,8 @@ Both narrators make a plea for connection, but where "Dancing" guy is looking fo
 …"My Love" guy wants the real thing. He knows his love is out there somewhere (the song is sung to a love he searches for but never finds), and he's determined to find her and prove himself:
 
 > *Girl, all I want to say: I keep searching for you darling, searching every where I go*<br>
-> *And when I find you there's gonna be just one thing that you gotta know: My love will not let you down.*<br>
+> *And when I find you there's gonna be just one thing that you gotta know:*<br>
+> *My love will not let you down.*<br>
 
 The "Dancing" narrator is self-obsessed:
 
@@ -58,7 +69,7 @@ The "My Love" narrator shows no self-loathing. but instead hints at an inability
 > *that hardly protect you from too many dreams passed by*<br>
 > *I see you standing across the room, watching me without a sound*<br>
 > *I'm gonna push my way through that crowd*<br>
-> *I'm gonna tear all your walls down*<br>
+> *I'm gonna tear all your walls do*<br>
 
 The irony, as any introvert will have already realized, is that it isn't *her* walls holding him back.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/MatR: Joe Grushecky and Bruce Springsteen: Homestead"
+author: "Ken"
+excerpt: "One of Joe and Bruce’s best collaborations may have inspired one of Bruce’s own songs too."
+tags: american-babylon homestead joe-grushecky
+categories: meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/homestead.jpg
+post_id: 33514
+---
 "‘Homestead' is probably one of the best songs I ever wrote," Joe Grushecky told me during our [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) virtual sit-down a couple of years ago.
 
 I have to agree.

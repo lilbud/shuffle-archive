@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Seeds"
+author: "Ken"
+excerpt: "Will the real “Seeds” please stand up? Let’s take a listen to the many forms of this unreleased but vital entry in the Springsteen catalog."
+tags: live-1975-85 seeds
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/seeds.jpg
+post_id: 21112
+---
 Will the real "Seeds" please stand up?
 
 "Seeds" is an original Springsteen song that Bruce has played live almost two hundred times, and yet it's never seen an official studio release (although live versions can be found on *Live 1975-85* and *London Calling: Live in Hyde Park*), no bootlegged outtake has ever escaped (at least to my knowledge), and rarely is Bruce asked about it let alone does he discuss it.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Oh Mama"
+author: "Ken"
+excerpt: "It’s a bit of a mess on its own merits, but this early Steel Mill song paved the way for a Born to Run classic years later."
+tags: oh-mama steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/ohmama.jpg
+post_id: 38923
+---
 Even Bruce Springsteen doesn't always get it right on the first try.
 
 Take "Oh Mama," for instance. Bruce wrote and performed it during his Steel Mill era, a period in which his songs were typically light on lyrical substance and heavy on instrumental jams.

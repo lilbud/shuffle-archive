@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Noah Chenfeld: Born to Run"
+author: "Ken"
+excerpt: "NYC-based Noah Chenfeld reimagines “Born to Run” for our troubled times while winking at another Springsteen classic."
+tags: born-to-run brilliant-disguise noah-chenfeld
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/btrnoah.jpg
+post_id: 25177
+---
 It's two covers in one!
 
 The first one's obvious, the second one's subtle.

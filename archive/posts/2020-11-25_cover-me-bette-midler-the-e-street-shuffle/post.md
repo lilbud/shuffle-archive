@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Bette Midler: The E Street Shuffle"
+author: "Ken"
+excerpt: "Never have I seen a Springsteen cover start with so much promise only to go so horribly wrong."
+tags: bette-midler the-e-street-shuffle
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/bette.jpg
+post_id: 464
+---
 Oh my.
 
 Never have I seen a Springsteen cover start with so much promise only to go so horribly wrong.

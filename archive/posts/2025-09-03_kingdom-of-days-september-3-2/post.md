@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 3"
+author: "Ken"
+excerpt: "Guest stars galore in DC, a surprise outdoor jam in Sea Bright, and a Labor Day special in Philly lead off the many highlights from this date in Springsteen history."
+tags: bonnie-raitt brian-kirk-and-the-jirks bruce-hornsby bruce-springsteen-band castiles darkness-tour frank-bruno jackson-browne jersey-girl john-eddie mary-chapin-carpenter philadelphia reunion-tour rosalita saginaw shawn-colvin stone-pony tenth-avenue-freeze-out tinley-park washington-dc world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/20230903-east-rutherford-nj-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 59531
+---
 ***New for 2025:** Video for 1999 and 2023; new entry for 2022*<br>
 
 **1971:** The Bruce Springsteen Band kicks off a residency at the Student Prince in Asbury Park that will last the rest of the calendar year.<br>

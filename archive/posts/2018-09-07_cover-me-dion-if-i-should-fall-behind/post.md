@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Dion: If I Should Fall Behind"
+author: "Ken"
+excerpt: "Dion adds yet another arrangement to the many incarnations of Bruce’s “If I Should Fall Behind.” His doo-wop treatment is such a natural fit, you’d think the song was written that way."
+tags: dion-dimucci ghost-of-tom-joad-tour if-i-should-fall-behind sunrise
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/diondimucci_dreamonfire.jpg
+post_id: 4272
+---
 "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" is one of Bruce's loveliest and most versatile ballads. Bruce has treated us to many interpretations since its 1992 debut, so it's unsurprising that its beauty and malleability would attract other artists to cover it as well.
 
 One of the best covers of "If I Should Fall Behind" is also the very first: Dion DiMucci (of Dion and the Belmonts) included it as the lead-off track on his *Dream on Fire* album, released mere months after Bruce's original debuted on *Lucky Town*.

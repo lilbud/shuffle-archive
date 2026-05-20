@@ -1,4 +1,14 @@
-> "Those four minutes on stage with Bruce were more important than the 33 years I've been playing music. It just changed my life. It was like being blessed by the Dalai Lama. Suddenly all those years of working really hard and struggling, someone said, 'You're alright. You're good at what you do. You deserve to be up here.'" *–Alejandro Escovedo, Backstreets interview, July 2008*
+---
+layout: post
+title: "MatR: Alejandro Escovedo and Bruce Springsteen: Always a Friend"
+author: "Ken"
+excerpt: "In 2008, Alejandro Escovedo’s upcoming single received an unexpected boost from The Boss when Bruce asked Alejandro to perform it with him live in concert–their first joint appearance of many."
+tags: alejandro-escovedo always-a-friend
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/always-friend.jpg
+post_id: 20799
+---
+> "Those four minutes on stage with Bruce were more important than the 33 years I've been playing music. It just changed my life. It was like being blessed by the Dalai Lama. Suddenly all those years of working really hard and struggling, someone said, ‘You're alright. You're good at what you do. You deserve to be up here.'" *–Alejandro Escovedo, Backstreets interview, July 2008*<br>
 
 Bruce Springsteen has long been a fan of Alejandro Escovedo. The two singer-songwriters performed together five times in as many years, trading stages in their home states of New Jersey and Texas.
 
@@ -14,7 +24,7 @@ Could Alejandro possibly make it to soundcheck in 45 minutes, Landau asked?
 
 "We were two hours out!" Escovedo laughed. "I get there late, of course, like an hour before the show," he told the Louisville Courier-Journal. "He takes me to the dressing room, he has all the lyrics written out, he's already run the band through it at sound check, and he and I sing it alone in the dressing room together."
 
-"And then I go out and see my first Bruce show, which just chopped my head off. It was unbelievable. I had never realized the magnitude and power. I was like, oh my God, I forgot how big rock 'n' roll could be."
+"And then I go out and see my first Bruce show, which just chopped my head off. It was unbelievable. I had never realized the magnitude and power. I was like, oh my God, I forgot how big rock ‘n' roll could be."
 
 Then came the big moment: when Bruce returned to the stage after the encore break, he brought Alejandro with him. There was only a single tentative moment that betrayed their lack of rehearsal opportunity when Bruce checked to make sure the band was ready. But from the moment Nils played the opening chords, you'd swear the E Street Band had been playing "Always a Friend" for the entire tour.
 

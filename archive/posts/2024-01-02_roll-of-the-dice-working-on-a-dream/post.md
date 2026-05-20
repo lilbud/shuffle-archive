@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Working on a Dream"
+author: "Ken"
+excerpt: "In defense of “Working on a Dream,” the perfect title track for one of Bruce’s best and most underrated albums."
+tags: working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/workingonadream_sin.jpg
+post_id: 10786
+---
 I'm tempted to prefix the title of this article with "In Defense of," but "Working on a Dream" warrants no apologies.
 
 In the chapter of his catalog entitled "Lovely Pop Songs," "Working on a Dream" ranks high. It's more than a trifle, though–it's a summation of Bruce's life's work, and the perfect title track for the album that rightfully bears its name.

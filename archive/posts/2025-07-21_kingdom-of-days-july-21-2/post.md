@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 21"
+author: "Ken"
+excerpt: "Bruce performs “Factory” live for the first time, reunites with “Mad Dog” Vini Lopez at Giants Stadium, and more–all on this date in history."
+tags: born-in-the-usa-tour canada darkness-tour factory giants-stadium glory-days italy maxs-kansas-city montreal nasville new-york-city norway oslo rising-tour springsteen-on-broadway turin vini-lopez working-on-a-dream-tour working-on-the-highway wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/20230721-hockenheim-de-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 57794
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1973:** Bruce and the E Street Band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Northcote: Radio Nowhere"
+author: "Ken"
+excerpt: "In 2016, Northcote tucked an acoustic but rocking cover of “Radio Nowhere” on a B-side and unlocked the loneliness and isolation at the core of the song."
+tags: northcote radio-nowhere
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/northcote.jpg
+post_id: 22909
+---
 (Thanks to friend of the blog Doug Watson for pointing me to this one.)
 
 “[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)” doesn’t get nearly as much cover love as it deserves (although [Town Bike’s spectacular version](../2019-01-31_cover-me-town-bike-radio-nowhere/post.md) still rates as one of my all-time favorite Springsteen covers).

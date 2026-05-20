@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 30"
+author: "Ken"
+excerpt: "“Wrecking Ball” (the song) debuted on this date. Plus: Bruce films Black & White Night with Roy Orbison, joins Bryan Adams at the Invictus Games, makes his first and only appearance in India, and more."
+tags: atlanta black-white-night born-in-the-usa born-in-the-usa-tour born-to-run-tour bryan-adams canada castiles chicago curt-ramm cuts-like-a-knife darkness-tour delhi dion-dimucci dream-baby east-rutherford giants-stadium growin-up human-rights-now-tour india invictus-games lawsuit-tour left-foot live-1975-85 los-angeles my-generation nebraska new-york-city-serenade night-train nothing-man oh-pretty-woman omaha reunion-tour ring-of-fire rising-tour roy-orbison santa-monica social-distortion st-paul take-em-as-they-come the-epidemics the-promised-land this-land-is-your-land thunder-road toronto wild-innocent-tour willie-nile working-on-a-dream-tour wrecking-ball
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/fox78.jpg
+post_id: 59742
+---
 ***New for 2025:** Audio for 1976; new entry for 1977*<br>
 
 **1967:** The Castiles play their second and final gig at The Left Foot in Freehold, where the setlist included covers like "[The Letter,](../2018-07-16_cover-me-the-letter/post.md)" and ["San Franciscan Nights](../2018-05-22_cover-me-san-franciscan-nights/post.md)," as well as a couple of Castiles originals, like "[Mr. Jones](../2019-02-01_roll-of-the-dice-mr-jones/post.md)."<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 19"
+author: "Ken"
+excerpt: "Max and Roy make their E Street Band debut, Bruce debuts a brand new song in Providence, and a legendary show in Passaic."
+tags: born-in-the-usa-tour born-to-run-tour bruce-springsteen-band bryn-mawr cats-on-a-smooth-surface child darkness-tour east-rutherford ghost-of-tom-joad-tour holmdel human-rights-now-tour joan-baez main-point max-weinberg metlife-stadium oakland passaic philadelphia providence richmond ronald-reagan roy-bittan springsteen-on-broadway steel-mill stone-pony student-prince there-will-never-be-any-other-for-me-but-you vini-lopez wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/09/bs780919.jpg
+post_id: 59683
+---
 ***New for 2025:** Review for 2012*<br>
 
 **1969:** Child plays their first of two nights at Richmond's Free University.<br>

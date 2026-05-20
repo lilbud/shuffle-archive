@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 27"
+author: "Ken"
+excerpt: "Bruce and the E Street Band wrap up their Boston Reunion stand with the long-awaited return of encore favorite, “Raise Your Hand.” More highlights inside."
+tags: born-in-the-usa born-in-the-usa-tour boston canada cats-on-a-smooth-surface los-angeles peter-wolf reunion-tour rising-tour river-tour san-jose toronto waitin-on-a-sunny-day
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19990827_front.jpg
+post_id: 59498
+---
 **1970:** Steel Mill rehearses in Wanamassa, New Jersey for their upcoming appearance in Nashville.<br>
 
 **1979:** Bruce and his studio team work on the mix for "Ramrod" at the Power Station in New York City.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 5"
+author: "Ken"
+excerpt: "On this date in Springsteen history: the live debuts of “Secret Garden,” “I’m Turning into Elvis,” and “Blood Brothers,” a David Letterman appearance, and more."
+tags: austin barack-obama chicken-scratch-tour columbus dallas dancing-in-the-dark david-letterman fire im-turning-into-elvis largo magic-tour murder-inc new-york-city renegades river-tour-2016 san-jose secret-garden seeds sony-studios springsteen-on-broadway this-hard-land tunnel-of-love-express-tour widener-college working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/2023-04-05-cleveland-oh-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56369
+---
 ***New for 2025:** New entry for 1969 and 1978; video for 2023*<br>
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>

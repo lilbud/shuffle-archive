@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, George Harrison, Ringo Starr, Mick Jagger, and Billy Joel: I Saw Her Standing There"
+author: "Ken"
+excerpt: "Rock royalty gathers in 1988 to induct The Beatles into the Rock and Roll Hall of Fame, and Bruce takes a turn at the mic on their 1963 classic."
+tags: billy-joel george-harrison hyde-park i-saw-her-standing-there mick-jagger paul-mccartney ringo-starr rock-and-roll-hall-of-fame the-beatles
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/sawher.jpg
+post_id: 4349
+---
 Bruce has played “I Saw Her Standing There” three times on stage (documented, at least), always with at least one Beatle present to play their 1963 classic.
 
 [Watch on Youtube: I Saw Her Standing There (Remastered 2009)](https://www.youtube.com/watch?v=oxwAB3SECtc)

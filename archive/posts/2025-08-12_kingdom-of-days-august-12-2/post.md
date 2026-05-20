@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 12"
+author: "Ken"
+excerpt: "On this date: Mitch Ryder makes a “Detroit Medley” guest appearance, Bruce swings by the Yankees’ clubhouse, the debut of the acoustic “Countin’ on a Miracle” video, and more."
+tags: augusta born-in-the-usa-tour countin-on-a-miracle darkness-tour detroit east-rutherford jersey-girl madison-square-garden maxs-kansas-city mitch-ryder new-york-city out-in-the-street reunion-tour rising-tour river-tour rosalita southside-johnny
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19990812_2_front.jpg
+post_id: 58369
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1967:** The Castiles play the Surf 'N'See Club in Sea Bright, New Jersey. That night, Bruce and some of his bandmates catch The Blues Magoos and The Who opening for Herman's Hermits at Convention Hall in Asbury Park. Just a few weeks later, the band will cover The Blues Magoos' "[One By One](../2020-07-28_cover-me-one-by-one/post.md)" in concert themselves.<br>

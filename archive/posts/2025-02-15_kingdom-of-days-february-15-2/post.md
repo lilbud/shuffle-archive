@@ -1,32 +1,42 @@
+---
+layout: post
+title: "February 15"
+author: "Ken"
+excerpt: "Great duets highlight this day in Bruce history: “Thunder Road” with Melissa Etheridge, and “Highway to Hell” and “Darkness on the Edge of Town” with Eddie Vedder."
+tags: australia detroit eddie-vedder ernest-boom-carter germany ghost-of-tom-joad-tour high-hopes-tour highway-to-hell jole-blon lakeland lawsuit-tour melbourne melissa-etheridge munich one-step-up river-tour thunder-road vini-lopez
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/melbourne14.jpg
+post_id: 55947
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-15a.png.webp)
 
-**1974:** After firing drummer Vini Lopez three days earlier, Bruce cancels a show at the University of Toledo so that the band has time to rehearse with new drummer Ernest "Boom" Carter.<br>
+**1974:** After firing drummer Vini Lopez three days earlier, Bruce cancels a show at the University of Toledo so that the band has time to rehearse with new drummer Ernest “Boom” Carter.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1974-02-15.jpg.webp)
 
-**1977:** Bruce and the E Street band return to the U.S. and continue the Lawsuit Tour at Detroit's Masonic Temple Theater, where "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" makes its tour premiere.<br>
+**1977:** Bruce and the E Street band return to the U.S. and continue the Lawsuit Tour at Detroit’s Masonic Temple Theater, where “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” makes its tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen - DETROIT MEDLEY 1977 (audio)](https://www.youtube.com/watch?v=kiO9Y-V2z8Y)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/46881241794_6812cfd98f_o.jpg.webp)
 
-**1981:** Bruce and band take the River Tour to the Civic Center in Lakeland, Florida.<br>
+**1981**: Bruce and band take the River Tour to the Civic Center in Lakeland, Florida.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/XYZd28NA)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-15b.png.webp)
 
-**1983:** In the studio, Bruce records "[Seven Tears](../2019-03-17_roll-of-the-dice-seven-tears/post.md)" and "The Money We Didn't Make." The former circulates among collectors, the latter has not yet surfaced.<br>
+**1983:** In the studio, Bruce records “[Seven Tears](../2019-03-17_roll-of-the-dice-seven-tears/post.md)” and “The Money We Didn’t Make.” The former circulates among collectors, the latter has not yet surfaced.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Seven Tears (outtake, '83)](https://www.youtube.com/watch?v=6DNs1enmtNM)
 
-**1988:** At the Wonder Bar in Asbury Park, Bruce films footage used in the video for "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)."<br>
+**1988:** At the Wonder Bar in Asbury Park, Bruce films footage used in the video for “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen - One Step Up (Official Video)](https://www.youtube.com/watch?v=MkFQHScyti0)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1988-02-15.png.webp)
 
-**1995:** Bruce joins Melissa Etheridge for her MTV Unplugged performance in Brooklyn. They perform a gorgeous duet of "Thunder Road" together.<br>
+**1995:** Bruce joins Melissa Etheridge for her MTV Unplugged performance in Brooklyn. They perform a gorgeous duet of “Thunder Road” together.<br>
 
 [Watch on Youtube: Bruce Springsteen and Melissa Etheridge - Thunder Road](https://www.youtube.com/watch?v=5cXzFhZVMnQ)
 
@@ -36,13 +46,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/3d7UJujn)
 
-**1997:** Moving on to Melbourne, Bruce performs solo at the Palais Theatre, where he plays "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" for the first time in Australia.<br>
+**1997:** Moving on to Melbourne, Bruce performs solo at the Palais Theatre, where he plays “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” for the first time in Australia.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qmr0Nwtj)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-15.png.webp)
 
-**2014:** The first of two nights in Melbourne features a surprise guest in the opening numbers: Eddie Vedder joins the E Street Band for "Highway to Hell" and "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)." Another surprise shortly follows: a full performance of the *Born in the U.S.A.* album. Also tour premiering tonight: "[Jole Blon,](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)," and "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."<br>
+**2014:** The first of two nights in Melbourne features a surprise guest in the opening numbers: Eddie Vedder joins the E Street Band for “Highway to Hell” and “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md).” Another surprise shortly follows: a full performance of the *Born in the U.S.A.* album. Also tour premiering tonight: “[Jole Blon,](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md),” “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md),” and “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Walk on - Highway to Hell - 2014-02-15 Melbourne, Australia](https://www.youtube.com/watch?v=gyUWJ4To0Dg)
 

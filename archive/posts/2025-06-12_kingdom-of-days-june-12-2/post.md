@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 12"
+author: "Ken"
+excerpt: "The legendary final stand of the Reunion Tour kicks off at Madison Square Garden, and Bruce joins Jackson Browne at the Rally for Disarmament. More highlights from this date in Springsteen history inside."
+tags: american-skin born-in-the-usa-tour clarence-clemons crawdaddy germany hamburg jackson-browne madison-square-garden reunion-tour rising-tour rotterdam running-on-empty southside-johnny the-netherlands the-promised-land wolfgang-niedecken
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/bs240612_01.jpg
+post_id: 57049
+---
 ***New for 2025:** New entry for 1979 and 2024; audio for 2000; video for 2003*<br>
 
 **1973:** Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce's opening act performance along with it.<br>

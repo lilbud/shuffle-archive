@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 21"
+author: "Ken"
+excerpt: "On this date: Bruce releases his eleventh studio album, The Ghost of Tom Joad. Plus: the Seeger Sessions Tour wraps up, the return of forgotten classic “Song for Orphans,” and Bruce plays his first ever show in Sweden. More highlights inside."
+tags: alan-fitzgerald albany belfast bob-costas born-to-run-tour bruce-springsteen-band chicago-transit-authority child darkness-tour devils-and-dust-tour evanston indianapolis its-hard-to-be-a-saint-in-the-city john-eddie link-wray mansion-on-the-hill new-brunswick northern-ireland orlando rave-on reunion-tour rising-tour rumble seeger-sessions-tour song-for-orphans springsteen-on-broadway steel-mill stockholm student-prince sweden the-ghost-of-tom-joad thunder-road trenton working-on-the-highway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/tomjoad.jpg
+post_id: 62409
+---
 ***New for 2025:** No updates*<br>
 
 **1969:** Still transitioning from Child to Steel Mill, Bruce and the band open for Chicago Transit Authority at Randolph-Macon College.<br>

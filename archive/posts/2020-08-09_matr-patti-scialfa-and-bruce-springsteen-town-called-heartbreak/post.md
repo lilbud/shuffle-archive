@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Scialfa and Bruce Springsteen: Town Called Heartbreak"
+author: "Ken"
+excerpt: "An answer song of sorts to “If I Should Fall Behind,” Patti Scialfa’s “Town Called Heartbreak” is one of her strongest tracks and a highlight of the early Magic Tour."
+tags: patti-scialfa play-it-as-it-lays town-called-heartbreak
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/patti-scialfa-171262.jpg
+post_id: 19805
+---
 "Work with me, baby."
 
 That's a pretty good distillation of what long-term relationships are like, and that's exactly what "Town Called Heartbreak" is about.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Well May the World Go"
+author: "Ken"
+excerpt: "One time only: on the occasion of Pete Seeger’s 90th birthday, Bruce, Patti, and an all-star line-up of musicians join Seeger in a rousing rendition of his 1973 benediction."
+tags: pete-seeger well-may-the-world-go
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/pete-and-bruce.jpg
+post_id: 19924
+---
 On May 3, 2009, the music world paid tribute to Pete Seeger on the occasion of his 90th birthday.
 
 Bruce Springsteen performed that night, as did John Mellencamp, Tom Morello, Michael Franti, Emmylou Harris, Dave Matthews, Joan Baez, and many more.

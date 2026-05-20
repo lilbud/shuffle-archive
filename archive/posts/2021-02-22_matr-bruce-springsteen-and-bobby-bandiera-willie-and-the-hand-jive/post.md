@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Bobby Bandiera: Willie and the Hand Jive"
+author: "Ken"
+excerpt: "One time only: Bruce covers Johnny Otis’ innocently censored classic, “Willie and the Hand Jive,” with Bobby Bandiera on the Jersey Shore."
+tags: bobby-bandiera johnny-otis willie-and-the-hand-jive
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/handjive.png
+post_id: 25520
+---
 It's not about masturbation, and the insinuation (and at times, accusation) that it was annoyed Johnny Otis to no end.
 
 But come on: with a title like that, can you blame people for misinterpreting?

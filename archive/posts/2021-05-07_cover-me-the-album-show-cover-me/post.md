@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Album Show: Cover Me"
+author: "Ken"
+excerpt: "Live music in packed clubs lives on in Australia, where Sydney-based The Album Show shone the spotlight on Bruce’s Born in the U.S.A. album just last week. Check out their smoky cover of “Cover Me” inside."
+tags: cover-me the-album-show
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/albumshow-1.jpg
+post_id: 27121
+---
 I gotta envy the Australians, because watching this video made my heart leap into my throat.
 
 [Watch on Youtube: Cover Me (live at Django) - The Album Show (Springsteen "Born In The USA" show)](https://www.youtube.com/watch?v=vAYL_oI_bHA)

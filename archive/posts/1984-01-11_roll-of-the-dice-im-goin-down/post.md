@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I'm Goin' Down"
+author: "Ken"
+excerpt: "A bookend of sorts to “Fire,” Bruce steals a trick from the doo wop masters to craft an angry song that’s a ton of fun to sing."
+tags: born-in-the-u-s-a im-goin-down
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/goindown.jpg
+post_id: 27455
+---
 I like to think of "I'm Goin' Down" as the inevitable bookend to "Fire," just desserts for the earlier song's creepy narrator.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FDePd-mHOL4)

@@ -1,24 +1,27 @@
-**1976:** Bruce, Steve, Roy, and David Sancious drop by The Stone Pony, where they join Southside Johnny<br>
-and The Asbury Jukes on stage for several numbers.
+---
+layout: post
+title: "January 1"
+author: "Ken"
+excerpt: "Happy New Year! On this date: Bruce wraps up the Darkness Tour, releases the single for “Fire,” and plays an impromptu Stone Pony set."
+tags: darkness-tour fire live-1975-85 richfield roy-bittan southside-johnny steve-van-zandt stone-pony
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/19790101_front.jpg
+post_id: 55534
+---
+**1976:** Bruce, Steve, Roy, and David Sancious drop by The Stone Pony, where they join Southside Johnny and The Asbury Jukes on stage for several numbers.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/1976-0101.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/48769956123_ee290e600f_o.jpg.webp)
 
-**1979:** The last night of the Darkness Tour in Richfield is also the longest. The 31-song setlist is<br>
-highlighted by fond farewells (for a time, at least): "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" and "[Meeting Across
-the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" won't appear again for two decades, and "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)"
-will be absent for 24 years.
+**1979:** The last night of the Darkness Tour in Richfield is also the longest. The 31-song setlist is highlighted by fond farewells (for a time, at least): “[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)” and “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)” won’t appear again for two decades, and “[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)” will be absent for 24 years.<br>
 
 [Watch on Youtube: Richfield 01/01/1979](https://www.youtube.com/playlist?list=PLJTyL9twk3zDRD_Yf7sSE5kXut3NQgaUK)
 
-**1987:** Bruce releases "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," his latest single from<br>
-the *Live 1975-85* box set collection.
+**1987:** Bruce releases “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md),” his latest single from the *Live 1975-85* box set collection.<br>
 
 [Watch on Youtube: Bruce Springsteen - Commercial for "Fire" - 1987-01-01](https://www.youtube.com/watch?v=grhe4slilF8)
 
-**2000:** On the first day of the new millennium, *American Top 40* host Casey Kasem recounts the<br>
-most memorable hits and events in rock and roll history, including Bruce Springsteen's "[Born in the
-U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
+**2000:** On the first day of the new millennium, *American Top 40* host Casey Kasem recounts the most memorable hits and events in rock and roll history, including Bruce Springsteen’s “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3)

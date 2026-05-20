@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Antivirus: Radio Nowhere"
+author: "Ken"
+excerpt: "United at a distance: Italian musicians come together (virtually) to raise money for COVID-19 research and relief with their cover of Bruce Springsteen’s “Radio Nowhere.”"
+tags: antivirus-rock-strikes-corona radio-nowhere
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/antivirus.jpg
+post_id: 17717
+---
 Bonus post today, because this project is too great and too urgent to wait:
 
 Even in the country most tragically impacted by the COVID-19 pandemic, music continues.

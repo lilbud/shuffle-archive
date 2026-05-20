@@ -1,18 +1,28 @@
-**Update:** This post ignited a bit of historical debate in the "Bruce Springsteens Friends And Fans" (sic) Facebook group. It seems that the performance in this post that is commonly attributed to The Bruce Springsteen Band at the Student Prince in December 1971 may actually be the Sundance Blues Band at the Captain's Garter in January 1972. (Bruce played at both stands.)<br>
+---
+layout: post
+title: "Cover Me: Key to the Highway"
+author: "Ken"
+excerpt: "The Bruce Springsteen Band delivers a swinging take on a blues classic."
+tags: charlie-segar derek-and-the-dominos eric-clapton key-to-the-highway the-bruce-springsteen-band
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/layla.jpg
+post_id: 3395
+---
+**Update:** This post ignited a bit of historical debate in the “Bruce Springsteens Friends And Fans” (sic) Facebook group. It seems that the performance in this post that is commonly attributed to The Bruce Springsteen Band at the Student Prince in December 1971 may actually be the Sundance Blues Band at the Captain’s Garter in January 1972. (Bruce played at both stands.)<br>
 
-Facebook group contributor, Brucebase admin, Dr. Zoom member, and "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" saxophonist Albee Tallone was on the scene at that time and shed light on the potential mis-attribution, based on his identification of Southside Johnny's harmonica (SSJ was not part of The Bruce Springsteen Band). He also reports that Bruce learned this song from Southside Johnny and confirms the group's familiarity with both the Little Walter and Derek and the Dominos versions. Thanks, Albee!
+Facebook group contributor, Brucebase admin, Dr. Zoom member, and “[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)” saxophonist Albee Tallone was on the scene at that time and shed light on the potential mis-attribution, based on his identification of Southside Johnny’s harmonica (SSJ was not part of The Bruce Springsteen Band). He also reports that Bruce learned this song from Southside Johnny and confirms the group’s familiarity with both the Little Walter and Derek and the Dominos versions. Thanks, Albee!
 
 ---
 
-"Key to the Highway" dates back to 1940, when it was originally recorded by Charlie Segar...
+“Key to the Highway” dates back to 1940, when it was originally recorded by Charlie Segar…
 
 [Watch on Youtube: Key to the Highway](https://www.youtube.com/watch?v=xxWJWcOQ4LI)
 
-...but it's most likely Derek and the Dominos' nine-minute epic that inspired Bruce to cover it.
+…but it’s most likely Derek and the Dominos’ nine-minute epic that inspired Bruce to cover it.
 
 [Watch on Youtube: Derek and the Dominos - Key to the Highway](https://www.youtube.com/watch?v=f3dW5F6GKTs)
 
-The Bruce Springsteen Band took a swing at it when they played The Student Prince in Asbury Park, way back on December 3, 1971–a year or so after Clapton's version. Typical of their sound, The Bruce Springsteen Band's version is faster and swings–it almost has a "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" vibe to it.
+The Bruce Springsteen Band took a swing at it when they played The Student Prince in Asbury Park, way back on December 3, 1971–a year or so after Clapton’s version. Typical of their sound, The Bruce Springsteen Band’s version is faster and swings–it almost has a “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)” vibe to it.
 
 Take a listen:
 

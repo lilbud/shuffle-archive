@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 4"
+author: "Ken"
+excerpt: "On this date: Bruce plays “Sherry Darling” and “Back in Your Arms” for the first time ever. Watch, listen, and catch more highlights inside."
+tags: back-in-your-arms charleston darkness-tour east-rutherford for-you largo no-surrender pony-boy reunion-tour river-tour sherry-darling the-outcry the-rising west-virginia world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/19780804_front.jpg
+post_id: 57909
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1973:** Studio sessions force Bruce to cancel a gig at Asbury Park's Convention Hall, where he and the as-yet-unnamed E Street Band were scheduled to open for Cheech & Chong.<br>

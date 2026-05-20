@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Where the Band Was: East Rutherford, September 19, 2012 (Bill's story)"
+author: "Ken"
+excerpt: "Guest blogger Bill Kenney takes us back to The Meadowlands on the Wrecking Ball Tour."
+tags: bill-kenney east-rutherford wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/20120919_booklet2.jpg
+post_id: 12573
+---
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger is Bill Kenney, who's kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill's blog](https://billk128.tumblr.com/)–he's got some great show reviews (not just Bruce-related) and insightful commentary.*<br>
+***Editor’s Note:*** *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*<br>
 
-> *If you'd like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*
+*If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*
 
 If it wasn't the same old Meadowlands Parking Lot this time, it might as well have been–just slightly re-located and renamed along with the stadium, now MetLife Stadium. All the same glorious tailgate vibe was in full force for Night One of three that Bruce and the band would be playing to wrap up the summer and their outdoor venue leg of the Wrecking Ball Tour.
 
@@ -12,7 +22,7 @@ Weedy was bit tardy arriving, and I left my sister and other friends (including 
 
 We ventured in and made no real effort to get up close, which left us plenty of room to groove to yet another high-energy offering from the seemingly indefatigable Bossman and mates. While the setlist echoed to some degree the one played a few nights earlier in DC, there were some interesting twists, largely due to the appearance of Patti, who had not played a show in months. To wit:
 
-"[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" opened the show. Typically a late set piece that has evolved into something of a show stopper, Bruce just had to play it, so he did it first.
+“[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" opened the show. Typically a late set piece that has evolved into something of a show stopper, Bruce just had to play it, so he did it first.
 
 [Watch on Youtube: Bruce Springsteen - Shackled and Drawn, MetLife Stadium September 19 2012](https://www.youtube.com/watch?v=g8ZHOZDKlRQ)
 
@@ -52,13 +62,13 @@ I do have one more video clip for you, one that shows a few minutes of the Bruce
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*
 
 **9/19/12 – MetLife Stadium, NJ**<br>
 
 **Setlist:**<br>
 Shackled and Drawn
-Prove It All Night ('78 intro)
+Prove It All Night (’78 intro)
 The Ties That Bind
 Hungry Heart
 We Take Care of Our Own
@@ -80,7 +90,7 @@ Racing in the Street
 The Rising
 Badlands
 Land of Hope and Dreams
-* **
+---
 We Are Alive
 Thunder Road
 Born to Run

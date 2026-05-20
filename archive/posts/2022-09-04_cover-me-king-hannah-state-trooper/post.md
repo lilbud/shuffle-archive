@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, King Hannah: State Trooper"
+author: "Ken"
+excerpt: "King Hannah’s version of “State Trooper” may just be that song’s best cover yet, thanks to an outstanding vocal performance and a nearly three-minute long epic guitar solo."
+tags: king-hannah state-trooper
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/kinghannah.jpg
+post_id: 37439
+---
 Wait for it.
 
 Trust me, it's worth it.

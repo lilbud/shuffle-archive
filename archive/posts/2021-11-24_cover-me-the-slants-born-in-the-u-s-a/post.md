@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Slants: Born in the U.S.A."
+author: "Ken"
+excerpt: "The ironic story of an earnest band performing an earnest cover in an ironic context."
+tags: born-in-the-u-s-a the-slants
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/slants.jpg
+post_id: 31116
+---
 This is an ironic story about an earnest band.
 
 The Slants are an all-Asian American dance rock band based in Portland, Oregon. They've performed all over the world and all over TV, attracting attention and a following for their infectious combination of 80s synth pop and "hard-hitting, indie, floor-filling beats."

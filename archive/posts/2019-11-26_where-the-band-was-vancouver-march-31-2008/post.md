@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Vancouver, March 31, 2008"
+author: "Ken"
+excerpt: "The surprise ESB debut of “None But the Brave” is the highlight of this final Pacific NW show of the Magic Tour."
+tags: magic-tour none-but-the-brave trapped vancouver
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/MEIV_front.jpg
+post_id: 1331
+---
 Until I started reliving my concert memories, I didn’t realize just how many of my local shows happened in March. That’s largely because Bruce’s tours tend to follow set patterns, but why he’d choose early spring for a west coast tour is beyond me. But while the Seattle show two days earlier fell on a cold, gloomy, and even snowy day, two days later in Vancouver, it was sunny and warm.
 
 Also: deserted.

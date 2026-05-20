@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Stray Cats and Bruce Springsteen: Twenty Flight Rock"
+author: "Ken"
+excerpt: "One time only: Bruce teams up with Stray Cats at The Fast Lane on Eddie Cochran’s rockabilly classic."
+tags: eddie-cochran stray-cats the-girl-cant-help-it twenty-flight-rock
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/20flightrock.jpg
+post_id: 17361
+---
 He died way too young at the age of 21, but he left us with a string of rockabilly classics that would influence generations of artists to come.
 
 Eddie Cochran's biggest hit was "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," a song Springsteen covered as far back as the Darkness Tour. But that's not the only song of Cochran's that Bruce covered.

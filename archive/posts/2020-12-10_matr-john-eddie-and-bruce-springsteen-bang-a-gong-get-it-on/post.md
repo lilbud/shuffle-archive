@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: John Eddie, Bruce Springsteen, and Friends: Bang a Gong (Get It On)"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen, John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy team up on the T. Rex/Power Station classic."
+tags: bang-a-gong-get-it-on elliott-murphy get-it-on greg-kihn john-eddie marshall-crenshaw t-rex
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/Get-It-On.jpg
+post_id: 8423
+---
 One of rock’s greatest riffs was based on another one of rock’s greatest riffs, and Bruce has played them both.
 
 “[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)” is the more common of the two (forever associated by fans with the infamous “bomb scare show” of 1975); Bruce’s version of “Get It On” is a lot more obscure.

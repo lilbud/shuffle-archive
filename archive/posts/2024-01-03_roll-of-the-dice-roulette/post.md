@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Roulette"
+author: "Ken"
+excerpt: "Just days after the worst accident in American nuclear power history, Bruce wrote his most urgent and topical song yet."
+tags: roulette the-river-outtakes tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/roulette.jpg
+post_id: 33513
+---
 On December 30, 1978, Three Mile Island Unit 2 began commercial operation near Harrisburg in western Pennsylvania. Eighty-eight days later, the nuclear reactor suffered a partial meltdown when its cooling system malfunctioned, releasing deadly radiation into the atmosphere. To this date, the Three Mile Island incident remains the most significant accident in U.S. commercial nuclear power history.
 
 [Watch on Youtube: March 28, 1979​: ​​​Three Mile Island nuclear power plant accident](https://www.youtube.com/watch?v=Ev6IJOlROto)

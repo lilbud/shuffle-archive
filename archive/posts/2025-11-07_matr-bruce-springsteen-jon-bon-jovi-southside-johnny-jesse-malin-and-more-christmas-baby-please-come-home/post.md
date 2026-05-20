@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Christmas (Baby Please Come Home)"
+author: "Ken"
+excerpt: "What else could Bruce close his holiday show sets with but the greatest rock and roll Christmas song of all time?"
+tags: christmas-baby-please-come-home darlene-love garland-jeffreys jesse-malin jon-bon-jovi lisa-lowell nils-lofgren southside-johnny
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/christmas.jpg
+post_id: 30868
+---
 *Rolling Stone* named it the Greatest Rock and Roll Christmas Song of all time.
 
 It didn't start out that way, though.

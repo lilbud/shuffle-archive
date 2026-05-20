@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Empty Sky"
+author: "Ken"
+excerpt: "This quiet expression of grief was the last song written for The Rising and the most frequently misunderstood."
+tags: empty-sky the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/Empty-Sky-Memorial.jpg
+post_id: 37606
+---
 > On the morning of September 11, 2001, with the skies so clear that the Twin Towers across the river appeared to be within reach, the very essence of what our country stands for – freedom, tolerance, and the pursuit of happiness – was attacked.
 >
 > This memorial is dedicated to New Jersey's innocent loved ones who were violently and senselessly murdered that day at the World Trade Center, The Pentagon, and in Shanksville, PA.

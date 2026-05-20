@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: See My Friends"
+author: "Ken"
+excerpt: "One time only: a very young Bruce Springsteen and his high school band The Castiles tackle one of the earliest songs to introduce the Indian raga sound to western rock music."
+tags: see-my-friends the-castiles the-kinks
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/kinks-see-my-friends.jpg
+post_id: 17544
+---
 They may have been a high school band, but we have to give The Castiles some extra credit, because they certainly did not shy away from challenging material.
 
 Whether tackling guitar hero challenges like “[Purple Haze](../2019-02-19_cover-me-purple-haze/post.md)” and “[Jeff’s Boogie](https://estreetshuffle.com/?p=17364)” or covering the Indian-influenced “See My Friends,” The Castiles were always stretching themselves, because Bruce Springsteen always had something to prove.

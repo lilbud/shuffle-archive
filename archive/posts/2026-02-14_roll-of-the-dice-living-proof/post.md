@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Living Proof"
+author: "Ken"
+excerpt: "In 1991, Bruce shed his skin and embraced life as a family man with “Living Proof,” one of the most important and influential songs in his catalog. Analysis and great performances inside."
+tags: living-proof lucky-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/67096780_3104924242868599_1128697283467018240_n.jpg
+post_id: 15113
+---
 > "When I wrote ["Living Proof"], I said: ‘Yeah *that's* what I'm trying to say. That's how I feel.' And that was a big moment, because I landed hard in the present, and that was where I wanted to be. I'd spent a lot of my life writing about my past, real and imagined… This is what's important in my life *right now*.'" *–Bruce Springsteen to James Henke, Rolling Stone, August 6, 1992*<br>
 
 Ask any fan for a short-list of Bruce Springsteen's most "important" songs, and I doubt "Living Proof" will be on most of those lists.

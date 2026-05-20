@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Dry Lightning"
+author: "Ken"
+excerpt: "The closes thing to an E Street Band track on The Ghost of Tom Joad, this post-romantic ballad points the way to Western Stars in more ways than one."
+tags: dry-lightning the-ghost-of-tom-joad
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/drylight.jpg
+post_id: 21640
+---
 "Dry Lightning" might be the first song Bruce ever wrote for *Western Stars*, even if his 2019 masterpiece album wasn't even a gleam in his eye at the time.
 
 It certainly strikes all the right thematic beats: western imagery, a protagonist unable to move forward, a gentle, wistfully romantic melody… just add an orchestral arrangement and "Dry Lightning" would have made a perfect addition to the *Western Stars* Tour that never was.

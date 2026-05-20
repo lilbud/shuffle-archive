@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Times They Are A-Changin'"
+author: "Ken"
+excerpt: "One time only: Bruce performs one of the most beloved protest songs of all time for its author and original artist at the 1997 Kennedy Center Honors."
+tags: bob-dylan the-times-they-are-a-changin
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/timeschange.jpg
+post_id: 28465
+---
 > "The song I'm gonna sing was written at a moment in our country's history when people's yearning for a more open and just society just exploded. Bob Dylan had the courage to stand in that fire, and he caught the sound of that explosion. This song remains a beautiful call to arms. The meaning of this song and the echo of that explosion live on in the struggle for social justice in America that continues so fiercely today." *–Bruce Springsteen, Kennedy Center Honors, December 7, 1997*<br>
 
 Bob Dylan recorded "The Times They Are A-Changin'" on October 24, 1963, during the one-year anniversary of the Cuban Missile Crisis and only weeks after the March on Washington and Dr. King's "I Have a Dream" speech.

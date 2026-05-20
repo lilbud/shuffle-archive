@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Ghostbusters"
+author: "Ken"
+excerpt: "We now have an Album-by-Album Index for the Roll of the Dice series! Check it out and see if we’ve covered your favorite song yet."
+tags: index roll-of-the-dice
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/c1e7a8-20140806-ghostbusters.jpg
+post_id: 7341
+---
 Lindsey Buckingham passed on it. So did Kenny Loggins and Huey Lewis.
 
 All three are masters at creating memorable songs for movies, but none of them could figure out how to write a song with rhymes for "Ghostbusters."
@@ -8,11 +18,11 @@ But time was running out. Columbia's destined-to-be-a-classic summer blockbuster
 
 Parker was a big name, but he was known for writing R&B love songs, not motion picture theme songs. But he was in the rolodex of Columbia SVP Gary LeMel, who reached out in desperation with offer equally desperate: a $50,000 advance for two days' work (that's all the time that was left in the schedule), and Parker could keep the money even if the song was unusable.
 
-Even so, Parker was reluctant. "[Ghostbusters]... that's a really terrible word to try and sing," he recalled in a recent interview. But the film's director was insistent: the title needed to be in the song.
+Even so, Parker was reluctant. "[Ghostbusters]… that's a really terrible word to try and sing," he recalled in a recent interview. But the film's director was insistent: the title needed to be in the song.
 
 Parker took the job, and the studio gave him the movie's montage scene (where the song was meant to play) temporarily backed with "I Want a New Drug" by Huey Lewis and the News, a decision that proved fateful.
 
-[Watch on Youtube: RAY PARKER JR. Details How He Wrote The Hit Song "Ghostbusters"](https://www.youtube.com/watch?v=U4VIf26oPuc?start=404)
+[Watch on Youtube: RAY PARKER JR. Details How He Wrote The Hit Song "Ghostbusters"](https://www.youtube.com/watch?v=U4VIf26oPuc)
 
 Parker's a-ha moment came just as time was running out. Forcing himself to stay awake on the final evening, he saw a late-night commercial for an exterminator that inspired the song's classic call-and response tagline.
 
@@ -30,18 +40,17 @@ How close were the two songs? Compare for yourself below.
 
 Whether reasonable coincidence or not, the parties eventually settled out of court,
 
-Lewis ended up with the movie song of the summer the following year, and Parker... well, "Who you gonna call?" became a global pop culture phrase still recognized to this day.
+Lewis ended up with the movie song of the summer the following year, and Parker… well, "Who you gonna call?" became a global pop culture phrase still recognized to this day.
 
 Which is why when Bruce Springsteen opened his Halloween 2024 show in Montreal with it, every fan in the arena immediately understood their assignment.
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + "Ghost Busters" - Montréal, QC - Oct. 31, 2024](https://www.youtube.com/watch?v=c-vpHs9FiRQ)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=c-vpHs9FiRQ)
 
 Bruce has been known to feature one-time-only performances in his Halloween shows. (There are a couple in this book, in fact.) But even so, "Ghostbusters" was a surprise–a fun one that kicked off a great show.
 
 [Watch on Youtube: Ghostbusters (Live at Centre Bell, Montreal, PQ - 10/31/2024)](https://www.youtube.com/watch?v=e9-rlT7p-Xw)
 
 **Ghostbusters**<br>
-**First performed:** October 31, 2024 (Montreal, QC)<br>
-**Last performed:** October 31, 2024 (Montreal, QC)<br>
+**First performed:** October 31, 2024 (Montreal, QC)**Last performed:** October 31, 2024 (Montreal, QC)<br>
 
 © December 9, 2025

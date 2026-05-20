@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Hang on Sloopy"
+author: "Ken"
+excerpt: "Bruce’s first concert performance of “Hang On Sloopy” gets the entire Greensboro Coliseum crowd on its feet for a deafening singalong. Watch the electrifying moment inside."
+tags: hang-on-sloopy my-girl-sloopy the-mccoys the-strangeloves the-vibrations
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/The-McCoys-Hang-On-Sloopy-1534271136-compressed.jpg
+post_id: 17118
+---
 Somewhat improbably, I find myself pulling into Greensboro, North Carolina on the first evening of a ten-day cross-country bus trip/publicity stunt for work (long story, not relevant), about an hour before Bruce Springsteen is due to take the stage at the Coliseum.
 
 I manage to snag an entire row of late-breaking side-stage tickets and drag my co-workers (some fans, some newbies) to the show. I'm fully expecting a standard Working on a Dream show, but that's fine by me–this is a "bonus" show, after all.
@@ -30,7 +40,7 @@ Well, except for the history. "Hang On Sloopy" actually started life as "My Girl
 
 But it was The McCoys/Strangeloves version that most people remember today, and remember it they do–at least in Greensboro.
 
-**Bonus:** Although that 2009 Greensboro performance was the first time Bruce performed "Hang On Sloopy" at an "official" concert, he'd actually played it fourteen years earlier on a whim when The Del Fuegos invited Bruce to the stage when he and Nils stopped by to see the band perform at a local club... in Greensboro.<br>
+**Bonus:** Although that 2009 Greensboro performance was the first time Bruce performed "Hang On Sloopy" at an "official" concert, he'd actually played it fourteen years earlier on a whim when The Del Fuegos invited Bruce to the stage when he and Nils stopped by to see the band perform at a local club… in Greensboro.<br>
 
 But even that wasn't Bruce's first performance of "Hang On Sloopy." For that, you've got to go back one year further, to the night of January 14, 1984 at the Patrix in New Brunswick, New Jersey.
 

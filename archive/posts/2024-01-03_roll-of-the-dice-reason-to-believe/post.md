@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Reason to Believe"
+author: "Ken"
+excerpt: "Bruce’s existential, soul-searching, Rorschach Test of a song ranks among is either one of his most haunting or uplifting–it just depends on the arrangement."
+tags: nebraska reason-to-believe
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/groomriver.jpeg
+post_id: 25179
+---
 > "We love you, Bruce!" —*a voice from the crowd on November 16, 1990*<br>
 >
 > "But you don't really know me." *–Bruce Springsteen's response, immediately before playing "Reason to Believe"*<br>

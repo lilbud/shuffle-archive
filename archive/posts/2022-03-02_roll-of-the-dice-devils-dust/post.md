@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Devils & Dust"
+author: "Ken"
+excerpt: "In the early years of the Iraq War, Bruce warned us about the cost of moral compromise."
+tags: devils-and-dust
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/devils.jpg
+post_id: 32478
+---
 > "How much of this was I thinking about when I wrote the song? None of it… How much of it was I feeling when I wrote the song? All of it." — Bruce Springsteen after explaining the meaning of "Devils & Dust," April 4, 2005
 
 It's always challenging to write one of these *Roll of the Dice* entries for a song Bruce has already publicly broken down line by line.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Chains"
+author: "Ken"
+excerpt: "One time only: The Bruce Springsteen Band takes a swing at a girl group classic."
+tags: chains the-beatles the-bruce-springsteen-band the-cookies the-everly-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/chains.jpg
+post_id: 34072
+---
 In December 1962, a new single by The Cookies was climbing the Billboard Hot 100.
 
 “Chains” was one of a long string of hits by the songwriting team of Gerry Goffin and Carole King. Although The Everly Brothers were the first to record it, their version remained in the vault until it was finally released in 1984.

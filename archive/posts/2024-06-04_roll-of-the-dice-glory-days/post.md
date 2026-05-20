@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Glory Days"
+author: "Ken"
+excerpt: "“The first verse actually happened. The second verse mostly happened, and the third verse, of course, is happening now.” –Bruce Springsteen, Greatest Hits, 1994…"
+tags: born-in-the-u-s-a glory-days
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/s-l1600.jpg
+post_id: 51596
+---
 > "The first verse actually happened. The second verse mostly happened, and the third verse, of course, is happening now." *–Bruce Springsteen, Greatest Hits, 1994*<br>
 
 That was thirty years ago.

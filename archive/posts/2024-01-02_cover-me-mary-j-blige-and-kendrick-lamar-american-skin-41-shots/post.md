@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Mary J. Blige and Kendrick Lamar: American Skin (41 Shots)"
+author: "Ken"
+excerpt: "If you’ve never heard Mary J. Blige’s cover of “American Skin (41 Shots)” with new lyrics and vocals by Kendrick Lamar, stop what you’re doing and listen to this magnificent performance."
+tags: american-skin-41-shots kendrick-lamarr mary-j-blige
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/maryblige.jpg
+post_id: 8271
+---
 Back in September 2016, when the U.S. presidential election was coming down to the home stretch (wow, that seems like so long ago), Mary J. Blige debuted a new show on Apple Music called *The 411 with Mary J. Blige.*
 
 The debut episode featured presidential candidate and former Secretary of State Hillary Clinton as Blige's guest, and during the episode (and in the trailer below), while discussing police brutality Blige spontaneously sings a verse from Bruce's "American Skin (41 Shots)" to Secretary Clinton:

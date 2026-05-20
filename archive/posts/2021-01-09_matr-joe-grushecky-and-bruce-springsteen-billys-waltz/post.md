@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky and Bruce Springsteen: Billy's Waltz"
+author: "Ken"
+excerpt: "Bruce plays a beautiful, evocative mandolin and adds his backing vocals on this beautiful American Babylon deep cut."
+tags: billys-waltz joe-grushecky
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/american-babylon.jpg
+post_id: 23584
+---
 Towards the end of Joe Grushecky's [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md), there's a lovely but dark and evocative ballad.
 
 The nondescriptively named "Billy's Waltz" is the kind of song we'd expect to find on *Nebraska:* a confessional by a man who left his home and family to find work, promising to return for them but knowing he won't keep his promise.

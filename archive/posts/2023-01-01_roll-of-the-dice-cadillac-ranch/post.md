@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Cadillac Ranch"
+author: "Ken"
+excerpt: "Simultaneously morbid and mirthful, “Cadillac Ranch” bears surprisingly deep substance beneath its rollicking veneer."
+tags: cadillac-ranch the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/caddyranch.jpg
+post_id: 19802
+---
 "Cadillac Ranch" is one of the brightest, zippiest, and just plain fun songs in Bruce Springsteen's catalog, as long as you don't actually pay attention to the words.
 
 Because if you *do* pay attention to the words, "Cadillac Ranch" is one of the darkest, fatalistic and just plain morbid songs in Bruce Springsteen's catalog.

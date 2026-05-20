@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Sting, Lady Gaga, Elton John, and more: Don't Stop Believin'"
+author: "Ken"
+excerpt: "Twice only: Bruce joins an all-star line-up of music icons to cover one of the most iconic rock songs of the 20th century."
+tags: ada-dyer bob-geldof debbie-harry dont-stop-believin elton-john james-taylor john-mellencamp journey lady-gaga mj-rodriguez ricky-martin shaggy shirley-bassey sting the-eurythmics
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/Dont_Stop_Believin_Single_Cover-2.jpg
+post_id: 23735
+---
 When I was in eighth grade, the very first song we learned and performed in choir that year was Journey's "Don't Stop Believin'."
 
 [Watch on Youtube: Journey - Don't Stop Believin' (Official Audio)](https://www.youtube.com/watch?v=1k8craCGpgs)

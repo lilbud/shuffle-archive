@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Look Towards the Land"
+author: "Ken"
+excerpt: "Lost in time: a lovely pre-E Street Band romantic ballad captured in gorgeous quality."
+tags: bruce-springsteen-band look-towards-the-land
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/admin-ajax-61.jpg
+post_id: 6209
+---
 "Look Towards the Land" is a gorgeous early Springsteen ballad, easy to listen to but tough to pin down.
 
 That's because we don't have a definitive studio recording or published lyrics to work from, and while we're fortunate enough to have three different live performances (two of which are absolutely stunning in their recording quality) over the course of a year to compare, it's clear that "Look Towards the Land" was a work in progress during that time. Even though the lyrical changes were small, they were significant, possibly shifting the meaning of the song in subtle ways each time.

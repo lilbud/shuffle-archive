@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Black Cowboys"
+author: "Ken"
+excerpt: "Inspired by a haunting expose of inner city poverty and his fascination with the American West, Bruce crafted a harrowing but redemptive story of a devoted mother and son."
+tags: black-cowbous devils-and-dust jonathan-kozol
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/Black_Cowboys-1.jpg
+post_id: 29011
+---
 > "God bless Mommy. God bless Nanny. God, don't punish me because I'm black."
 >
 > "Do they same prayer every night?" I ask their mother after she has tucked them in and closed their door. "Every night," she answers.

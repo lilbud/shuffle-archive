@@ -1,4 +1,14 @@
-> "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*
+---
+layout: post
+title: "Cautious Man"
+author: "Ken"
+excerpt: "One of the rarest and most revealing songs on Tunnel of Love, “Cautious Man” is an overlooked, unsettling gem."
+tags: cautious-man tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/cautious.jpg
+post_id: 18563
+---
+> "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*<br>
 
 It's an iconic scene in movie history: the Reverend Harry Powell's tale of Love vs. Hate in the 1955 film *Night of the Hunter.*
 
@@ -24,26 +34,26 @@ And while Bruce is almost always coy and careful when asked whether his songs ar
 
 While it's true that Bruce invented a character for "Cautious Man," the similarities between Bill Horton and Bruce Springsteen are evident from the first verse.
 
-> *Bill Horton was a cautious man of the road*
-> *He walked looking over his shoulder and remained faithful to its code*
-> *When something caught his eye he'd measure his need*
-> *And then very carefully he'd proceed*
+> *Bill Horton was a cautious man of the road*<br>
+> *He walked looking over his shoulder and remained faithful to its code*<br>
+> *When something caught his eye he'd measure his need*<br>
+> *And then very carefully he'd proceed*<br>
 
 Bruce introduces Bill as if he were a soldier of fortune, but what else is a rock star but a man of the road? The life of a touring musician isn't easily compatible with attachment, and so Bruce/Bill remained true to the code of the road. If something or someone caught his eye, he was careful to avoid prolonged entanglement.
 
 It's worth pausing here to note how carefully Bruce has arranged "Cautious Man." Bruce begins singing immediately after the first guitar note, and for the first two lines his guitar is the only instrument we hear. As he sings about something catching his eye, however, Bruce introduces a mandolin ("Cautious Man" is a solo effort–Bruce plays every instrument) to represent Bill's love interest. At first, the mandolin lingers between the lyrics, representing distraction rather than focus. But listen to how the mandolin intertwines with the guitar as Billy falls in love in the next verse.
 
-> *Billy met a young girl in the early days of May*
-> *It was there in her arms he let his cautiousness slip away*
-> *In their lovers' twilight as the evening sky grew dim*
-> *He'd lay back in her arms and laugh at what had happened to him*
+> *Billy met a young girl in the early days of May*<br>
+> *It was there in her arms he let his cautiousness slip away*<br>
+> *In their lovers' twilight as the evening sky grew dim*<br>
+> *He'd lay back in her arms and laugh at what had happened to him*<br>
 
 It's not coincidence that Bruce introduces his character as "Bill" in the first verse only to refer to him as "Billy" thereafter. That's a songwriter's shorthand for illustrating the young girl's immediate impact once he lets his guard down–his identity is now defined by the name she calls him, and although he laughs at it, he hardly recognizes himself.
 
-> *On his right hand Billy tattooed the word love and on his left hand was the word fear*
-> *And in which hand he held his fate was never clear*
-> *Come Indian summer he took his young lover for his bride*
-> *With his own hands built her a great house down by the riverside*
+> *On his right hand Billy tattooed the word love and on his left hand was the word fear*<br>
+> *And in which hand he held his fate was never clear*<br>
+> *Come Indian summer he took his young lover for his bride*<br>
+> *With his own hands built her a great house down by the riverside*<br>
 
 Here's the introduction of that iconic movie imagery we discussed above. It's not clear whether Bruce intends us to take that couplet literally or not. I've always considered it purely metaphorical. Either way, though, it's symbolic of the main character trying to keep his self-destructive tendencies in check.
 
@@ -51,26 +61,26 @@ Did I forget to mention that Bruce wrote "Cautious Man" when he was not-that-lon
 
 There's a brief musical interlude here, as Bruce introduces dreamy keyboards to convey the passage of idyllic time.
 
-> *Now Billy was an honest man he wanted to do what was right*
-> *He worked hard to fill their lives with happy days and loving nights*
-> *Alone on his knees in the darkness for steadiness he'd pray*
-> *For he knew in a restless heart the seed of betrayal lay*
+> *Now Billy was an honest man he wanted to do what was right*<br>
+> *He worked hard to fill their lives with happy days and loving nights*<br>
+> *Alone on his knees in the darkness for steadiness he'd pray*<br>
+> *For he knew in a restless heart the seed of betrayal lay*<br>
 
 Although they allowed the newlyweds a honeymoon phase, Billy's demons have started to reassert themselves. He's not meant for domesticity, and the road (and its temptations) call to him. He does his best to resist, but he knows it's only a matter of time.
 
 There's a bridge here that evokes the final verse from "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)," but rather than taking comfort from the presence of his wife, Billy feels distant. The road calls to him.
 
-> *One night Billy awoke from a terrible dream calling his wife's name*
-> *She lay breathing beside him in a peaceful sleep, a thousand miles away*
-> *He got dressed in the moonlight and down to the highway he strode*
-> *When he got there he didn't find nothing but road*
+> *One night Billy awoke from a terrible dream calling his wife's name*<br>
+> *She lay breathing beside him in a peaceful sleep, a thousand miles away*<br>
+> *He got dressed in the moonlight and down to the highway he strode*<br>
+> *When he got there he didn't find nothing but road*<br>
 
 Billy stands at the roadside for a long moment. He feels the urge to stray and knows that it's a part of him, even if he doesn't understand why. Tonight won't be that night, though–for now, he returns to his wife, Love momentarily in control over Fear.
 
-> *Billy felt a coldness rise up inside him that he couldn't name*
-> *Just as the words tattooed ‘cross his knuckles he knew would always remain*
-> *At their bedside he brushed the hair from his wife's face as the moon shone on her skin so white*
-> *Filling their room in the beauty of God's fallen light*
+> *Billy felt a coldness rise up inside him that he couldn't name*<br>
+> *Just as the words tattooed ‘cross his knuckles he knew would always remain*<br>
+> *At their bedside he brushed the hair from his wife's face as the moon shone on her skin so white*<br>
+> *Filling their room in the beauty of God's fallen light*<br>
 
 There's a long fade on that last note, underscoring the unresolved ending. Perhaps it should feel like a happy ending, but it doesn't.
 

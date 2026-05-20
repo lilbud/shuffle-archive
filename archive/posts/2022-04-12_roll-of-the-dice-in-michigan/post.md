@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: In Michigan"
+author: "Ken"
+excerpt: "In a bolt of pre-show inspiration, Bruce wrote one of his all-time greatest songs for an appreciative Michigan audience."
+tags: in-michigan
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/michigan.webp
+post_id: 33851
+---
 That Bruce Springsteen is a pretty shrewd fellow.
 
 After a quarter-century of touring the country, he'd gleaned a few insights about audiences, one of which was:

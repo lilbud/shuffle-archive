@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Meeting Across the River"
+author: "Ken"
+excerpt: "Whether you take it seriously or comedically, “Meeting Across the River” ranks high in Bruce’s catalog and represents a leap forward in his songwriting. Insights, early versions, and rare performances inside."
+tags: born-to-run meeting-across-the-river randy-brecker richard-davis the-heist
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/bruce-springsteen-meeting-across-the-river-cbs-9.jpg
+post_id: 11449
+---
 Bruce is a pretty funny guy, but it took a while before he let his sense of humor show through in his songs. When he did, it was hard to miss.
 
 You can hear it on display in more recent songs like "[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)" and as far back as "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" on *The River*, but most of his funnier songs have been relegated to *Tracks* and other outtake collections. "[Ain't Good Enough For You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)," "[Talk to Me,](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" and "[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)" all showcase Bruce's flair for cornball.

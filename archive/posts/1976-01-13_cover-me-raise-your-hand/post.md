@@ -1,5 +1,15 @@
-> "I met Bruce in Memphis and he wanted me to come to his show, and I did go, and I went on stage, but I sung both of the songs, and he didn't really sing them with me. But after, I saw his version [of "Raise Your Hand"] is *so close* to mine as far as performance... I see Bruce's version of it doing it the very same way, dropping down on his knees and all the way up. Back in Memphis, I didn't know he did all that." — *Eddie Floyd, American Songwriter Spotlight on Songwriters, Episode 148 (2020)*
-> "Mr. Eddie Floyd! The great Eddie Floyd! That's the man that wrote the book! Oh yeah, goddamn, that's the man that wrote the book!" *— Bruce Springsteen, Memphis, Tennessee, April 29, 1976*
+---
+layout: post
+title: "Raise Your Hand"
+author: "Ken"
+excerpt: "Eddie Floyd contributed more than just a song to Bruce’s sets. Let’s take a look at how one of Bruce’ great musical influences inspired Bruce’s on-stage presence as well."
+tags: eddie-floyd raise-your-hand
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/raisehand.jpg
+post_id: 25696
+---
+> "I met Bruce in Memphis and he wanted me to come to his show, and I did go, and I went on stage, but I sung both of the songs, and he didn't really sing them with me. But after, I saw his version [of "Raise Your Hand"] is *so close* to mine as far as performance… I see Bruce's version of it doing it the very same way, dropping down on his knees and all the way up. Back in Memphis, I didn't know he did all that." — *Eddie Floyd, American Songwriter Spotlight on Songwriters, Episode 148 (2020)*<br>
+> "Mr. Eddie Floyd! The great Eddie Floyd! That's the man that wrote the book! Oh yeah, goddamn, that's the man that wrote the book!" *— Bruce Springsteen, Memphis, Tennessee, April 29, 1976*<br>
 
 How much of an influence was Eddie Floyd on Bruce Springsteen?
 
@@ -39,7 +49,7 @@ Originally an encore or show-closer, in recent years Bruce has used "Raise Your 
 
 [Watch on Youtube: Bruce Springsteen Raise Your Hand-Mohegan](https://www.youtube.com/watch?v=IrQSfgjz4BY)
 
-And while it's now been more than seven years since Bruce last uttered those immortal words, "If there's something you *want*... if there's something you *need*...." you can bet we'll be raising our hands again someday soon.
+And while it's now been more than seven years since Bruce last uttered those immortal words, "If there's something you *want*… if there's something you *need*…." you can bet we'll be raising our hands again someday soon.
 
 **Bonus:** Here's that performance Eddie alluded to in that *American Songwriter* interview, from Eddie and Bruce's only on-stage meeting–the night of April 29, 1976. Eddie sings lead vocals on his own; Bruce relegates himself to the background. But keep in mind as you listen: Eddie had never seen Bruce perform his song before. Bruce leads the E Street Band through their standard arrangement, so close to Eddie's own live arrangement that Eddie wears it like a comfortable shoe.<br>
 

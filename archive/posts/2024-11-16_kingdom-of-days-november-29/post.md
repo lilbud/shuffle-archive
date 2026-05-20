@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: November 29"
+author: "Ken"
+excerpt: "On this date: Bruce releases the video for “War,” gets his first opening act in 20 years, and plays his last show of the 20th century. More highlights inside."
+tags: backstreets berkeley born-in-the-usa-tour born-to-run-book cincinnati darkness-tour ghost-of-tom-joad-tour houston john-wesley-harding live-1975-85 minneapolis murder-incorporated my-love-will-not-let-you-down new-york-city reunion-tour springsteen-on-broadway st-paul toni-cornell trenton war
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/19991129_front.jpg
+post_id: 55134
+---
 ***New for 2024:** Audio for 1974*<br>
 
 **1974:** Bruce and the E Street Band perform their first of two shows at the War Memorial Theater in Trenton.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Trenton, NJ 1974-11-29 (2 Source Merge)](https://www.youtube.com/watch?v=nLA-tppfDYk)
 
-**1977:** At the Record Plant in New York City, Bruce records “[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md).” He won’t release it for another 33 years.<br>
+**1977:** At the Record Plant in New York City, Bruce records "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md)." He won't release it for another 33 years.<br>
 
 [Watch on Youtube: The Brokenhearted](https://www.youtube.com/watch?v=YvilYiGDmoM)
 
@@ -16,11 +26,11 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/1978-11-29b.png.webp)
 
-**1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” gets its last outing for fifteen years.<br>
+**1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" gets its last outing for fifteen years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/7IdXR5EB)
 
-**1986:** Bruce debuts the video for his new single, “[War](../2019-05-27_cover-me-war/post.md),” from his *Live 1975-85* box set.<br>
+**1986:** Bruce debuts the video for his new single, "[War](../2019-05-27_cover-me-war/post.md)," from his *Live 1975-85* box set.<br>
 
 [Watch on Youtube: Bruce Springsteen - War](https://www.youtube.com/watch?v=mn91L9goKfQ)
 
@@ -38,7 +48,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1999-11-29.png.webp)
 
-**2016:** Bruce’s promotional book tour continues with an appearance at Joseph-Beth Booksellers in Cincinnati.<br>
+**2016:** Bruce's promotional book tour continues with an appearance at Joseph-Beth Booksellers in Cincinnati.<br>
 
 [Watch on Youtube: Bruce Springsteen meets fans at Joseph-Beth Booksellers](https://www.youtube.com/watch?v=d5k9aLewujE)
 

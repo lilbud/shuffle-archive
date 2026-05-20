@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Janey, Don't You Lose Heart"
+author: "Ken"
+excerpt: "One of Bruce’s lightest but truest songs of love and friendship, “Janey, Don’t You Lose Heart” is an instant highlight wherever she turns up."
+tags: janey-dont-you-lose-heart nils-lofgren tracks true-love-is-hard-to-come-by
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/janey.jpg
+post_id: 8274
+---
 Bruce's catalog is filled with songs that contain dense imagery and layered metaphor, that demand attention and considered interpretation.
 
 "Janey, Don't You Lose Heart" is most certainly *not* one of those songs.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Vaginal Vandals"
+author: "Ken"
+excerpt: "In 2010, an on-line auction site featured a page of untitled, original early Springsteen lyrics. Despite the deceptively provocative name they assigned, “Vaginal Vandals” is a fascinating seed of what might have developed into an early tale of youthful rebellion."
+tags: vaginal-vandals
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/vandals.jpg
+post_id: 15838
+---
 Poor Bruce.
 
 I know it's hard to work up sympathy for one of the most talented, respected, and successful rock stars of all time.

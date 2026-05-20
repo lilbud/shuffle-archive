@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 30"
+author: "Ken"
+excerpt: "“Streets of Philadelphia,” “Because the Night” and Jessica Rae Springsteen all debuted on this date. Video and more highlights inside."
+tags: because-the-night born-to-run-tour bryn-mawr columbus darkness-tour detroit ed-sciaky jessica-springsteen main-point new-york-city patti-smith philadelphia point-blank sha-na-na springsteen-on-broadway streets-of-philadelphia wmmr
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/philly.jpg
+post_id: 55449
+---
 ***New for 2024:** No updates*<br>
 
 **1972:** Bruce and the E Street Band open for Sha Na Na at the Ohio Theater in Columbus.<br>

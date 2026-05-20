@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Come On, Let's Go"
+author: "Ken"
+excerpt: "Bruce and Cats on a Smooth Surface cover Ritchie Valens’ very first hit."
+tags: cats-on-a-smooth-surface come-on-lets-go ritchie-valens stone-pony
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/ritchie-valens-come-on-lets-go-london-2.jpg
+post_id: 5124
+---
 Rock and roll singer/songwriter Ritchie Valens' life and career were both cut tragically short: he died at the age of seventeen not even a year into his recording career, in a plane crash that also took the lives of Buddy Holly and J.P. Richardson.
 
 Those few months were productive, though–Valens charted three bona fide and enduring hits in the second half of 1958, "Donna," "La Bamba," and his very first single, "Come On, Let's Go."

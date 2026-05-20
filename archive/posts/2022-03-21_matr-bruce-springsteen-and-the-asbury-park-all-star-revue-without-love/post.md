@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and the Asbury Park All-Star Revue: Without Love"
+author: "Ken"
+excerpt: "When Southside Johnny took ill, Bruce joined Steven Van Zandt’s one-time-only supergroup to cover a song that would many years later inspire one of his own."
+tags: aretha-franklin asbury-park-all-star-revue southside-johnny steven-van-zandt without-love
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/withoutlove.jpg
+post_id: 32954
+---
 Technically, Bruce Springsteen covered Aretha Franklin's "Without Love" three times only, way back in 1977.
 
 But one could make a fairly compelling argument that he covers it in part every time he sings "[Back in Your Arms,](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" because the first twenty seconds of those songs are way too similar to be coincidental.

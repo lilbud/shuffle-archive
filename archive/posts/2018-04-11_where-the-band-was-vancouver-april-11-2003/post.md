@@ -1,3 +1,14 @@
+---
+layout: post
+title: "Where the Band Was: Vancouver, April 11, 2003"
+author: "Ken"
+excerpt: "My first out-of-town show, and my first time in the pit. Too bad Bruce was sick."
+tags: devils-and-dust my-hometown rising-tour this-hard-land vancouver
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/20030411_front-1.jpg
+post_id: 1555
+---
+
 This show was a first for me in two significant ways:
 
 - It was the first show I'd ever travelled out of town for–out of the country, no less.
@@ -14,8 +25,6 @@ I wasn't dressed for the weather, but luckily, whoever was managing the line did
 I didn't leave from the moment I arrived back at the venue in the morning; once I started talking with the fans in line around me, I became engrossed in conversations and newfound friendships and the day flew by quickly.
 
 As showtime grew closer, the band arrived for soundcheck, and those of us in position were lucky enough to hear one of the first performances of an early version of "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)." The sound was too muffled for us to make out the words, but we heard the music and could tell we were bearing witness to a new song being worked out. That very performance leaked out last year–you can hear it here:
-
-[https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3)
 
 I have to admit: while I appreciate and prefer the lottery system for its relative lack of stress and expended energy, it's nice to know from the get-go that you'll have a great place in the pit–and I did. I was about 80th in line, so I knew I'd have a pretty good vantage point. On the advice of new friends, we made a beeline for the left side of the stage rather than the center, and I ended up with just one person between me and the stage.
 

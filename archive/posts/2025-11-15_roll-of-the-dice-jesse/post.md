@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Jesse"
+author: "Ken"
+excerpt: "“Jesse” is a lost demo from the pre-Columbia years, but its DNA would turn up later in “Sandy” and “New York City Serenade.” It’s well worth a listen and deserves an official release."
+tags: 4th-of-july-asbury-park-sandy jesse new-york-city-serenade
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/jesse.jpg
+post_id: 4182
+---
 Most of Bruce's outtakes are partially-formed works-in-progress, lyrical and musical ancestors to released songs we know and love. (Bruce certainly likes to cross-pollinate his lyrics.)
 
 Decades down the line, it seems like most of the really interesting ones have been released in box sets and compilations. Every once in a while, though, we come across a fully-formed unreleased gem that shines in its own right and deserves some love.

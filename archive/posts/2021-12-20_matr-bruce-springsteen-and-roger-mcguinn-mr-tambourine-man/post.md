@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Roger McGuinn, Mr. Tambourine Man"
+author: "Ken"
+excerpt: "One time only: Bruce and Roger McGuinn team up on the Magic Tour for a special performance of Bob Dylan’s (and The Byrds’) “Mr. Tambourine Man.”"
+tags: bob-dylan mr-tambourine-man roger-mcguinn the-byrds
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/tambourine.jpg
+post_id: 15051
+---
 On April 23, 2008, the E Street Band was still raw from the recent loss of Danny Federici when they arrived in Orlando.
 
 It was only their second show since Danny’s funeral, and the set list was still emotional, opening with a rare “[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md),” and featuring a dedicated-to-Danny “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/).” For the encore, though, Bruce wanted something uplifting, so he turned to one of his influences, Florida resident Roger McGuinn of The Byrds.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Soul Asylum and Bruce Springsteen, The Tracks of My Tears"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen makes a surprise appearance with Soul Asylum in 1995, joining the band for Smokey Robinson’s classic, “The Tracks of My Tears.”"
+tags: elvis-costello smokey-robinson soul-asylum the-miracles
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/tracks-of-my-tears.jpg
+post_id: 13791
+---
 Bruce Springsteen is such a self-professed fan of Smokey Robinson (both in interviews and on stage), that it's surprising that he doesn't cover him more often. "[The Way You Do the Things You Do](../2020-11-20_cover-me-the-way-you-do-the-things-you-do/post.md)" certainly got a workout nightly on the Wrecking Ball Tour's "Apollo Medley," but even that was part of a medley rather than a full performance.
 
 But Bruce did once cover one particular greatest hit in full–and it happened via a most unusual team-up.

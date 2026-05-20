@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Blowin' in the Wind"
+author: "Ken"
+excerpt: "Watch Bruce’s powerful rendition of Bob Dylan’s immortal “Blowin’ in the Wind” from the televised S.O.S. Racisme Concert in 1988."
+tags: blowin-in-the-wind bob-dylan
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/blowin.jpg
+post_id: 14886
+---
 Every musician has a list of songs they didn't write but wished they had. I have to believe that Bob Dylan's "Blowin' in the Wind" is high on Bruce Springsteen's list.
 
 [Watch on Youtube: Bob Dylan - Blowin' in the Wind (Official Audio)](https://www.youtube.com/watch?v=MMFj8uDubsE)

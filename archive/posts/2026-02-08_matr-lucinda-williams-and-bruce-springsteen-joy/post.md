@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Joy"
+author: "Ken"
+excerpt: "One time only: Bruce joins Lucinda Williams on stage during a night off on the Seeger Sessions Tour for an epic, hard-rocking version of Lucinda’s “Joy.”"
+tags: joy lucinda-williams
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/joy.jpg
+post_id: 10634
+---
 In November 2006, the Seeger Sessions Tour was in full swing. But on a night off in London, Bruce reminded us that he hadn't forgotten how to rock.
 
 Lucinda Williams was in town as well, and Bruce joined her on stage at her performance at Shepherds Bush Empire on November 10th for two songs. The first was a cover of Lil' Son Jackson's "Disgusted."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: You Really Got Me"
+author: "Ken"
+excerpt: "How in the world did it take Bruce until 2009 to cover The Kinks’ breakthrough hit?"
+tags: the-kinks van-halen you-really-got-me
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/the-kinks-you-really-got-me.jpg
+post_id: 22911
+---
 How in the world did it take Bruce 45 years to cover the breakthrough hit from one of his favorite bands?
 
 We know The Kinks were on Bruce’s radar from the very beginning: he’s on record for having seen the band’s 1964 appearance on *The Red Skelton Show*, and surviving Castiles set lists reveal covers of “Tired of Waiting For You” and “[See My Friends](../2020-04-30_cover-me-see-my-friends/post.md).” (We even have a recording of the latter one.)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Ray Davies and Bruce Springsteen, Better Things"
+author: "Ken"
+excerpt: "Inspired by the legendary collaborations at the Rock and Roll Hall of Fame 25th Anniversary Concerts, Ray Davies kicked off his album of revitalized Kinks songs with “Better Things” as a duet with Bruce."
+tags: better-things ray-davies the-kinks
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/betterthings.jpg
+post_id: 7527
+---
 "Better Things" was something of a comeback single for The Kinks when they released it in 1981; it placed them back on the charts in the US and the UK after being absent for more than a decade. Never reaching past the #92 spot on the Hot 100, it still provided the venerable band a foothold they very much needed.
 
 Their follow-up single "Destroyer" would notch slightly higher, but their next single "Come Dancing" would go all the way to #6, tying "Tired of Waiting for You" as their most successful single. "Better Things" made it all possible.

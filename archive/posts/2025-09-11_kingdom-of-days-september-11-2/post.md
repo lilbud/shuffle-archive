@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 11"
+author: "Ken"
+excerpt: "On this date: Phantom Dan earns his nickname, Bruce and the band kick off a six-night stand at the Philadelphia Spectrum, Bruce plays his first 9/11 show since the tragic attacks, and more."
+tags: 9-11 bobby-bandiera born-in-the-usa-tour bruce-springsteen-band chicago clearwater-swim-club danny-federici detroit-medley into-the-fire joe-grushecky max-weinberg philadelphia pittsburgh river-tour river-tour-2016 rosemont southside-johnny steel-mill stone-pony student-prince vini-lopez
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/officiallivedownloads_2016-09-11.jpg
+post_id: 59634
+---
 ***New for 2025:** New entry for 1972*<br>
 
 **1970:** The famous Clearwater Swim Club show in Atlantic Highlands, New Jersey, where Steel Mill headlines a five-hour outdoor show with a fill-in drummer, Dave Hazlett, subbing for Vini Lopez who is sorting out legal difficulties in Richmond. Due to resident complaints from an earlier concert, authorities enforce an early curfew of 10pm, which Bruce and the band definitely do not honor. In the resulting chaos, Danny Federici earns his forever-after nickname. As Bruce puts it (in Danny’s eulogy):<br>

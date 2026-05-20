@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Magic"
+author: "Ken"
+excerpt: "Let’s break through the deception and illusion and get real."
+tags: magic
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/gaslighting.png
+post_id: 20801
+---
 > "We live in an Orwellian time when what´s true can be made to seem like a lie, and what´s a lie can be made to seem true. So this song is not really about magic–it´s about tricks. And their consequences." *–Bruce Springsteen, October 15, 2007*
 
 It's about gaslighting. And division.

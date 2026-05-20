@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Dropkick Murphys and Bruce Springsteen: Peg o' My Heart"
+author: "Ken"
+excerpt: "One time only, in the studio and on stage: Bruce joins Dropkick Murphys on their Celtic punk transformation of the sweet standard “Peg o’ My Heart.”"
+tags: charles-harrison dropkick-murphys going-out-in-style peg-o-my-heart
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/dropkick.jpg
+post_id: 15624
+---
 When Alfred Bryan and Fred Fisher first wrote "Peg o' My Heart" after the 1912 play of the same name, they probably envisioned arrangements like the one Charles Harrison recorded the following year.
 
 [Watch on Youtube: Charles Harrison - Peg O' My Heart (1913)](https://www.youtube.com/watch?v=mWODupYEMDI)

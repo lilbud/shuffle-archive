@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Cover Me, Bettye LaVette: Streets of Philadelphia"
+author: "Ken"
+excerpt: "What can possibly be more powerful than Bettye LaVette’s 2007 cover of “Streets of Philadelphia?” A live performance from a decade later. Both are required listening."
+tags: bettye-lavette streets-of-philadelphia
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/song-of-america.jpg
+post_id: 13703
+---
 Wow.
 
-Just... wow.
+Just… wow.
 
 I've been familiar with Bettye LaVette's incredibly powerful cover of Bruce's elegiac "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" since it was released on the outstanding *Song of America* triple CD collection back in 2007. (Thank you, Janet Reno!)
 
-But as I searched for the video to include with this post, I came across a live performance from December 2017, and like I said... wow.
+But as I searched for the video to include with this post, I came across a live performance from December 2017, and like I said… wow.
 
 [Watch on Youtube: Bettye LaVette @ Outpost in the Burbs - "Streets of Philadelphia"](https://www.youtube.com/watch?v=9sg0Gj6EAYM)
 

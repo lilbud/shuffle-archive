@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Philadelphia, September 9, 2016"
+author: "Ken"
+excerpt: "If Night Two in Philadelphia wasn’t longer than Night One, it certainly was looser–and that unpredictability made for a great show on a thick and humid Friday night."
+tags: from-small-things-big-things-one-day-come im-goin-down its-hard-to-be-a-saint-in-the-city jersey-girl loose-ends lucky-town new-york-city-serenade no-surrender philadelphia racing-in-the-street river-tour-2016 streets-of-philadelphia vini-lopez
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/philly2.jpg
+post_id: 4262
+---
 The big question in my mind coming out of [Night One in Philadelphia](../2018-09-07_where-the-band-was-philadelphia-september-7-2016/post.md): how do you top a show that includes “New York City Serenade,” “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/),” “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md), “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” “[The Fever,](../2020-10-04_roll-of-the-dice-the-fever/post.md)” “[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md), “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md),” and “Jungleland” on Night Two?
 
 Or would this be the exception that disproves the Night One/Night Two truism?

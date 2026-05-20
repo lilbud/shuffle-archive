@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Chevrolet Deluxe"
+author: "Ken"
+excerpt: "Bruce seems to have spent a lot of time working on “Chevrolet Deluxe,” but in the end, he sold it for parts."
+tags: chevrolet-deluxe my-hometown stolen-car the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/chevdelux.jpeg
+post_id: 5059
+---
 For a song that never made it out of the incubator, we certainly have a lot of insight into the development of "Chevrolet Deluxe."
 
 Bruce started working on this song at home in the autumn of 1979. By November, he was developing a full-band arrangement with the E Street Band. We have bootlegs of both sessions, and each one traces a step in the song's lyrical and musical development.

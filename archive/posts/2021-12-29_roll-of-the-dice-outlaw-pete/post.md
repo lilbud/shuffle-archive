@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Outlaw Pete"
+author: "Ken"
+excerpt: "Bruce opened his 2009 album-length meditation on aging with an overture every bit as epic and powerful as “Jungleland.” Maybe even more."
+tags: jungleland outlaw-pete working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/outlaw.jpg
+post_id: 31274
+---
 > The past is never the past. It is always present. And you better reckon with it in your life and in your daily experience, or it will get you. It will get you really bad. It will come and devour you, it will remove you from the present. It will steal your future and this happens every day…
 >
 > In other words, your past is your past. You carry it with you always. These are your sins. You carry them with you always. You better learn how to live with them, learn the story that they're telling you. Because they're whispering your future in your ear, and if you don't listen, it will be contaminated by the toxicity of your past.

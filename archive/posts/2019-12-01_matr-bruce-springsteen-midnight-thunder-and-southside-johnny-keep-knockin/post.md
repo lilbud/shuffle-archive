@@ -1,3 +1,12 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Midnight Thunder, and Southside Johnny, Keep A-Knockin'"
+author: "Ken"
+excerpt: "Bruce took a few runs at Little Richard’s “Keep A-Knockin’.” Listen to two of them here: one with Midnight Thunder, the other with Southside Johnny and The Asbury Jukes."
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/keep.jpg
+post_id: 5723
+---
 Some songs get passed down from generation to generation, with one artist inspiring the next.
 
 "Keep A-Knockin" was first recorded by blues artist James Wiggins in 1928…

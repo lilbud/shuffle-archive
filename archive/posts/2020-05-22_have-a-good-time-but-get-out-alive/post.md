@@ -1,16 +1,26 @@
-"...the strongest album an American band has made this year, and when the year ends, the word "American" may come off." — *Village Voice*
+---
+layout: post
+title: "Have a Good Time… But Get Out Alive!"
+author: "Ken"
+excerpt: "The album that led to a legendary lifelong friendship gets a 40th anniversary reissue today. Let’s take a listen and look back on Joe Grushecky and the Iron City Houserockers’ watershed album."
+tags: have-a-good-time-but-get-out-alive joe-grushecky steve-van-zandt
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/have-a-good-time.jpg
+post_id: 18388
+---
+"…the strongest album an American band has made this year, and when the year ends, the word "American" may come off." — *Village Voice*
 
-"A new American classic... the Iron City Houserockers take for granted an authenticity that Springsteen has to strive for." — *Rolling Stone*
+"A new American classic… the Iron City Houserockers take for granted an authenticity that Springsteen has to strive for." — *Rolling Stone*
 
-"One of the strongest, most uncompromising and impassioned pieces of vinyl to come across this year... one of the most important rock bands to hit the streets since Graham Parker and the Rumour." – *Detroit Free Press*
+"One of the strongest, most uncompromising and impassioned pieces of vinyl to come across this year… one of the most important rock bands to hit the streets since Graham Parker and the Rumour." – *Detroit Free Press*
 
-"One of the best albums released so far this year... in intelligence, perspective and rock 'n' roll it is not unlike an American version of The Clash." —*Lincoln Journal Star*
+"One of the best albums released so far this year… in intelligence, perspective and rock ‘n' roll it is not unlike an American version of The Clash." —*Lincoln Journal Star*
 
-"If you're tired of listening to the sort of pseudo-punks who sound like they can always re-enroll in art school, check out the genuinely passionate Houserockers. These guys know what it means to play rock 'n' roll as if there were no other salvation." — *Boston Globe*
+"If you're tired of listening to the sort of pseudo-punks who sound like they can always re-enroll in art school, check out the genuinely passionate Houserockers. These guys know what it means to play rock ‘n' roll as if there were no other salvation." — *Boston Globe*
 
-In the summer of 1980, the music press was abuzz with the arrival of the album that many felt would come to define rock and roll in the eighties: The Iron City Houserockers' *Have a Good Time But... Get Out Alive*.
+In the summer of 1980, the music press was abuzz with the arrival of the album that many felt would come to define rock and roll in the eighties: The Iron City Houserockers' *Have a Good Time But… Get Out Alive*.
 
-History played out a little differently, of course. Still, four decades on, the 40th anniversary reissue of *Have a Good Time But...Get Out Alive* ([released today](https://store.clevelandinternational.com/) digitally, available June 19th on LP and CD) still stands as the epitome of Pittsburgh rock. The reissue sounds as fresh and fierce as ever–more so in fact, thanks to a noticeable sonic upgrade.
+History played out a little differently, of course. Still, four decades on, the 40th anniversary reissue of *Have a Good Time But…Get Out Alive* ([released today](https://store.clevelandinternational.com/) digitally, available June 19th on LP and CD) still stands as the epitome of Pittsburgh rock. The reissue sounds as fresh and fierce as ever–more so in fact, thanks to a noticeable sonic upgrade.
 
 [Watch on Youtube: Have a Good Time (But Get Out Alive)](https://www.youtube.com/watch?v=L3B7gGs5FyE)
 
@@ -38,7 +48,7 @@ I've always been fascinated by the fact of Joe's dual identity. (Who among us ha
 
 "Oh, I'm a musician," he responded. "I like teaching, but music's my passion."
 
-He's spent his life doing both. He started teaching back in the seventies, and the first job he stuck with was working with kids with severe developmental, physical, and emotional disabilities. "One kid could talk, nobody could walk, nobody was toilet trained... Older people didn't want to work there, but I was a young buck." It was a challenging environment for a teacher of any age: "I had to tell them, please have these kids dressed when they're here!"
+He's spent his life doing both. He started teaching back in the seventies, and the first job he stuck with was working with kids with severe developmental, physical, and emotional disabilities. "One kid could talk, nobody could walk, nobody was toilet trained… Older people didn't want to work there, but I was a young buck." It was a challenging environment for a teacher of any age: "I had to tell them, please have these kids dressed when they're here!"
 
 Not many people have the empathy and stamina to last in a role like that, but while Joe left teaching temporarily when he embarked on his music career, he came back to it when he needed the supplemental income–this time as a special education teacher in a public high school–and has stuck with it ever since.
 
@@ -58,7 +68,7 @@ One of the songs Bruce and Joe played that night was "[Pumping Iron](../2018-11-
 
 "Pumping Iron" was even one of the last songs Bruce performed live before the great pandemic of 2020 took him, Joe, and every other musician off the stage for the time being.
 
-[Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen "Pumping Iron" LOD20 ~ Rose A Montana Video](https://www.youtube.com/watch?v=5TrjyioI4IQ)
+[Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen](https://www.youtube.com/watch?v=5TrjyioI4IQ)
 
 But the *Have a Good Time* reissue offers far more treasures for both long-time and new-found fans alike–in the form of a bonus disc of outtakes and covers, carefully transferred from cassette and decades-old reel-to-reel. "I could've made three discs from those tapes," he admitted, but he had to be careful. The reels hadn't been played in a long time, and Joe was worried they would fall apart.
 
@@ -66,7 +76,7 @@ Of the bonus tracks, the one that stopped me in my tracks was the six-and-a-half
 
 "That one stopped me in my tracks too!" Joe laughed. It's not just the length, I remarked–it's how much is going on. I was about to compare it to Bruce's "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" or "[Kitty's Back,](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" when Joe beat me to the punch:
 
-"It was my epic, you know, like 'Freebird,' or 'Rosalita,'" the kind of song you play at the end of the night when it's time to pull out all the stops.
+"It was my epic, you know, like ‘Freebird,' or ‘Rosalita,'" the kind of song you play at the end of the night when it's time to pull out all the stops.
 
 You can definitely hear the punk vein, I said, especially at the outset. "But then it just takes a left turn. On the album, you lean all the way in and just *commit* to the punk–is that Steve's influence?"
 
@@ -90,4 +100,4 @@ Joe admitted to me that even the eight-minute outtake was actually a lot longer 
 
 Why *Have a Good Time* (or for that matter, the Iron City Houserockers themselves) never achieved the success they so richly deserved is one of the great mysteries of rock and roll. But thanks to the wonderful new 40th anniversary edition, there's a new opportunity to discover the best band most of us never got to know at the time.
 
-*Have a Good Time But... Get Out Alive* is [available to order today](https://store.clevelandinternational.com/) on digital; coming June 19th on LP and CD. If you're a Houserockers fan, you already know you want it; if you're an E Street Band fan, trust me: this is an album you should own.
+*Have a Good Time But… Get Out Alive* is [available to order today](https://store.clevelandinternational.com/) on digital; coming June 19th on LP and CD. If you're a Houserockers fan, you already know you want it; if you're an E Street Band fan, trust me: this is an album you should own.

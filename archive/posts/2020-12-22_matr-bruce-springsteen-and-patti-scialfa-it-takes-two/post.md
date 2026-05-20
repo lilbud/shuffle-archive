@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Patti Scialfa: It Takes Two"
+author: "Ken"
+excerpt: "We’ve seen Patti back Bruce countless times, and Bruce back Patti for at least a few. But rarely do we hear them share a lead vocal, like they did in their wonderful 2004 cover of “It Takes Two.”"
+tags: it-takes-two kim-weston marvin-gaye patti-scialfa
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/takestwo.jpg
+post_id: 17490
+---
 For all of the countless hours they’ve shared a stage together, it’s surprisingly difficult to come across a true duet between Bruce Springsteen and Patti Scialfa.
 
 You can trip over performances where Patti’s vocals back her husband’s, of course–just pick any E Street Band show since 1984. The converse is a lot rarer, but [those performances](../2020-03-22_matr-patti-scialfa-and-bruce-springsteen-tell-him/post.md) are [out there, too](../2018-10-02_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/post.md).

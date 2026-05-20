@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Zurich, July 31, 2016 (Barry Rebo's story)"
+author: "Ken"
+excerpt: "The Locarno Film Festival (Locarno, Switzerland) always plays the first week of August. It mixes the passion of the Italians with the organization and graciousness…"
+tags: barry-rebo river-tour-2016 switzerland zurich
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/zurich.jpg
+post_id: 20245
+---
 Editor's Note
 
 ***Editor's Note:*** *Today's guest blogger is friend of the blog and long-time Springsteen fan Barry Rebo. Even if you don't know his name (and many of you certainly do), if you read this blog I guarantee you're familiar with his work.*<br>

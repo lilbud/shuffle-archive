@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Dark End of the Street"
+author: "Ken"
+excerpt: "One time only: Bruce does his best Clarence Carter homage when a fan requests James Carr’s classic cheating song."
+tags: clarence-carter james-carr the-dark-end-of-the-street
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/darkendstreet.jpg
+post_id: 11223
+---
 Every once in a while, a fan brings a seriously great request sign to a show. One that would never even occur to me to ask for, but one that makes me immediately think "oooooh yeah, that's a great choice."
 
 One of my favorite examples is the fan who requested James Carr's "The Dark End of the Street" in (of all places) Tampere, Finland, on June 2, 2009.
@@ -14,7 +24,7 @@ But it was Clarence Carter's 1969 version that lodged itself in Bruce's memory, 
 
 Bruce referenced that speech when he honored that request in Tampere, pausing mid-song to pay homage to Carter with a story of his own.
 
-Bruce acknowledged the song's theme as one he was personally very familiar with... but not for many, many, *many* years. Take a listen below.
+Bruce acknowledged the song's theme as one he was personally very familiar with… but not for many, many, *many* years. Take a listen below.
 
 [Watch Video Highlight](https://videopress.com/embed/76xBJLMt)
 

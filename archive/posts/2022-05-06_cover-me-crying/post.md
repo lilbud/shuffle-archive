@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Crying"
+author: "Ken"
+excerpt: "In 1989, Bruce paid tribute to the late, great Roy Orbison by performing Roy’s signature ballad at the Rock and Roll Hall of Fame."
+tags: crying roy-orbison
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/crying.jpg
+post_id: 34460
+---
 **Update 5/6/2022:** Purely by coincidence (I have no advance knowledge of these things), Bruce's cover of "Crying" was released this morning along with the rest of his May 16, 1988 show as part of his official archive series. Get it [here](https://live.brucespringsteen.net/live-music/0,28984/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-5-16-1988-Madison-Square-Garden-New-York-NY.html) to listen to it in much better quality than the sound check version below.<br>
 
 ---
@@ -12,11 +22,11 @@ In 1978, Don McLean covered Orbison's song for his *Chain Lightning* album; in 1
 
 [Watch on Youtube: Don McLean - Crying • TopPop](https://www.youtube.com/watch?v=ud9tDPd1FL0)
 
-That same year, Bruce Springsteen spoke of his admiration for Orbison in a filmed interview...
+That same year, Bruce Springsteen spoke of his admiration for Orbison in a filmed interview…
 
 [Watch on Youtube: Bruce Springsteen talks about Roy Orbison 1981](https://www.youtube.com/watch?v=gVYCtCZ6c5o)
 
-...and only six years later found himself inducting his idol into the Rock and Roll Hall of Fame, where he cited "Crying" as one of the ballads that had profoundly affected him.
+…and only six years later found himself inducting his idol into the Rock and Roll Hall of Fame, where he cited "Crying" as one of the ballads that had profoundly affected him.
 
 [Watch on Youtube: Bruce Springsteen inducts Roy Orbison into the Rock and Roll Hall of Fame 1987](https://www.youtube.com/watch?v=NEZ5TRBE49M)
 

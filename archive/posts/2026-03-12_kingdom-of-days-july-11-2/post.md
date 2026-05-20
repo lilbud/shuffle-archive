@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 11"
+author: "Ken"
+excerpt: "The power goes out in Paris, the strings come out in Rome, Jake and Clarence share the stage, and it’s Christmas in July. It’s a date for unusual events in Springsteen history!"
+tags: american-land big-mans-west bruce-springsteen-band clarence-clemons czech-republic dublin elliott-murphy finland france helsinki humble-pie incident-on-57th-street ireland italy jake-clemons jole-blon magic-tour new-york-city-serenade paris peter-frampton prague ramrod river-tour-2016 rome santa-claus-is-comin-to-town tenth-avenue-freeze-out this-hard-land working-on-a-dream-tour working-on-the-highway wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/2013-07-11-rome-it.jpg
+post_id: 57666
+---
 **1971:** The Bruce Springsteen Band opens for Humble Pie at Asbury Park's Sunshine In. Peter Frampton is impressed enough by Bruce and the band to offer them a gig opening for Humble Pie around the country, as well as an introduction to their record label. Mystifyingly, Tinker West (Bruce's manager at the time) declines the offers.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/1971-07-11.jpg.webp)

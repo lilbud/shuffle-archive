@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: One Minute You're Here"
+author: "Ken"
+excerpt: "Bruce opens his most recent album by directly reckoning with death."
+tags: letter-to-you one-minute-youre-here
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/oneminute.jpg
+post_id: 27150
+---
 > "There were trains–passenger and freight–that came through Freehold in the fifties during long summer afternoons. We waited for them to jump and ride from one end of town to the other, or just to lay our pennies down on the rails and pick them up hot and flat. Those trains came and went as sudden as death.
 >
 > "Back home you knelt at home at your bedside and recited [The Lord's Prayer]. ‘For if I die before I wake…' I never cared for that part. It impressed upon my young mind that someday we will close our eyes and the gray evening sky will unfold above us, bringing that long and endless sleep." — *Bruce Springsteen, Letter to You (2020)*<br>

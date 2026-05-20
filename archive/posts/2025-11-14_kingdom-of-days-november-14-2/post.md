@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 14"
+author: "Ken"
+excerpt: "“Streets of Fire” returns after almost a quarter-century, “Youngstown” gets Seeger-fied, and more."
+tags: born-to-run-book bruce-springsteen-band child cleveland code-of-silence darkness-tour england ghost-of-tom-joad-tour houston in-the-midnight-hour joe-grushecky lexington lowell magic-tour my-fathers-place nebraska omaha pittsburgh rave-on reunion-tour rising-tour river-tour roslyn seeger-sessions-tour sheffield spirit-in-the-night springsteen-on-broadway steel-mill streets-of-fire student-prince the-river uk utica wrecking-ball-tour youngstown
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/20061114_front.jpg
+post_id: 61366
+---
 ***New for 2025:** Review for 1980; audio for 2006*<br>
 
 **1969:** Child (now named Steel Mill, but using both names during their transition) makes a brief appearance at Monmouth College's Vietnam Peace Offensive.<br>

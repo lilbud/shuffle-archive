@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Phantom Love (Just 16)"
+author: "Ken"
+excerpt: "Let’s take another trip into the Bruce’s notebook archive and look at an early work-in-progress that never made it to a full song."
+tags: notebook phantom-love-just-16
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/phantomlove.jpg
+post_id: 19806
+---
 For every song that escapes, another never even makes it out of the notebook.
 
 Today we take another trip back into young Bruce Springsteen's songwriting notebook. While today's entry is undated, lyrically it seems in keeping with Bruce's post Steel Mill but pre-label days, so let's peg it to the early 1970s.

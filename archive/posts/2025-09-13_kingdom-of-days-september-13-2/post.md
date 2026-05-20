@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 13"
+author: "Ken"
+excerpt: "On this date: video footage from Bruce’s 1975 show in Houston, Bruce wins two MTV VMAs, and Bruce’s first performance of “I Walk the Line.” Watch them all, plus more highlights here."
+tags: born-in-the-usa-tour born-to-run-tour cincinnati costa-rica dallas darkness-tour earth houston human-rights-now-tour i-walk-the-line landover mtv-vmas paradise philadelphia pink-cadillac reunion-tour rising-tour river-tour san-jose southside-johnny springfield steve-van-zandt stone-pony sunrise working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/09/bs240913_01.jpg
+post_id: 59654
+---
 ***New for 2025:** Reviews for 1975; new entry for 1993 and 2024*<br>
 
 **1968:** Earth plays two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.<br>

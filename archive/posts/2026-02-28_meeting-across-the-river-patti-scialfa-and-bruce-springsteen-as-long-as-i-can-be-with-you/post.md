@@ -1,3 +1,13 @@
+---
+layout: post
+title: "As Long As I (Can Be With You)"
+author: "Ken"
+excerpt: "Spotlight on Patti Scialfa today, and her wonderful Rumble Doll single, “As Long as I Can Be With You.” Check out the rare performance (with Bruce on backup) inside."
+tags: as-long-as-i-can-be-with-you patti-scialfa rumble-doll
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/admin-ajax-48.jpg
+post_id: 4776
+---
 Spotlight on Patti Scialfa today (but Bruce is standing right behind her).
 
 Patti's *Rumble Doll* album was a tremendous debut, firmly establishing her singer/songwriter chops completely outside the shadow of her more famous husband. One of the best songs (and singles) off the album: "As Long as I (Can Be With You)."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Honeymooners"
+author: "Ken"
+excerpt: "“The Honeymooners,” like “County Fair,” chronicles a single perfect day, time-out-of-time, through a delicate series of fleeting wedding day impressions."
+tags: the-honeymooners tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/Honeymooners.jpg
+post_id: 1412
+---
 A month or so ago, I wrote about "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)," and called it a perfect song about a perfect day.
 
 > *"There's no plot to "County Fair," no character development, transformation, or revelation. It's just a song about being young and in love, in a small town on a perfect day."*<br>

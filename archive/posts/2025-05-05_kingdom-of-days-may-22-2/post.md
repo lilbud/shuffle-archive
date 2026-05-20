@@ -1,12 +1,22 @@
+---
+layout: post
+title: "Kingdom of Days: May 22"
+author: "Ken"
+excerpt: "Bruce serenades and conducts a sing-along from an Italian balcony, Joe Grushecky joins Bruce for a wildly unpredictable show in Pittsburgh, and more."
+tags: adam-raised-a-cain anaheim bruce-springsteen-and-the-hot-mammas dublin frankie-fell-in-love gelsenkirchen germany ghost-of-tom-joad-tour incident-on-57th-street italy joe-grushecky land-of-hope-and-dreams leavin-train lonely-teardrops madison-square-garden magic-tour milton-keynes naples new-york-city reunion-tour rising-tour roll-of-the-dice springsteen-on-broadway sundance-blues-band the-river thunder-road tunnel-of-love-express-tour two-for-the-road uk waitin-on-a-sunny-day world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/anaheim2000.webp
+post_id: 56799
+---
 ***New for 2025:** New entry for 1979 and 2024; audio for 1988*<br>
 
-**1971:** Three–count ’em–*three* Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a *fourth* show at 1am, but that’s technically the following day.)<br>
+**1971:** Three–count 'em–*three* Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a *fourth* show at 1am, but that's technically the following day.)<br>
 
-**1979:** Bruce and the E Street Band work on “[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)” at the Power Station in New York City.<br>
+**1979:** Bruce and the E Street Band work on "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" at the Power Station in New York City.<br>
 
-**1984:** Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man’s West in Red Bank.<br>
+**1984:** Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.<br>
 
-**1988**: Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of “[Lonely Teardrops](../2021-01-22_cover-me-lonely-teardrops/post.md)” as the final encore.<br>
+**1988:** Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "[Lonely Teardrops](../2021-01-22_cover-me-lonely-teardrops/post.md)" as the final encore.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NfdXRn6j)
 
@@ -14,7 +24,7 @@
 
 [Watch on Youtube: MSG New York 22/05/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zD_0qbZ6tPm02uPd4dUaeRf)
 
-**1993:** Bruce’s World Tour 1993 makes a stop at The National Bowl in Milton Keynes, England.<br>
+**1993:** Bruce's World Tour 1993 makes a stop at The National Bowl in Milton Keynes, England.<br>
 
 [Watch on Youtube: Bruce Springsteen | Viva Las Vegas/Glory Days | May 22, 1993](https://www.youtube.com/watch?v=rycHB4XH76w)
 
@@ -30,7 +40,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1993-05-22-scaled.jpg.webp)
 
-**1997:** Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings “O Sole Mio”(which Bruce performed briefly during the show), prompting Bruce to appear on the theater’s balcony with Kevin Buell to play and lead the crowd in a sing-along of “Thunder Road.” Watch this moment–it’s magical.<br>
+**1997:** Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings "O Sole Mio"(which Bruce performed briefly during the show), prompting Bruce to appear on the theater's balcony with Kevin Buell to play and lead the crowd in a sing-along of "Thunder Road." Watch this moment–it's magical.<br>
 
 [Watch on Youtube: Bruce Springsteen - 'O sole mio - Napoli 1997](https://www.youtube.com/watch?v=zij-yhyGwO4)
 
@@ -38,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/kQppxAQT)
 
-**2000:** The E Street Band plays “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)” for the very first time and tour premieres “[Gloria](../2018-03-16_cover-me-gloria/post.md)” at the second of two Reunion shows in Anaheim. This show is available as part of Bruce’s official archive series–get it here.<br>
+**2000:** The E Street Band plays "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)" for the very first time and tour premieres "[Gloria](../2018-03-16_cover-me-gloria/post.md)" at the second of two Reunion shows in Anaheim. This show is available as part of Bruce's official archive series–get it here.<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band "No Surrender" 5/22/2000](https://www.youtube.com/watch?v=mc6fmduuvNg)
 
@@ -62,9 +72,9 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 22/05/2008 Full Concert](https://www.youtube.com/watch?v=EcX1ECHblrU)
 
-**2010**: Bruce and Patti perform at a benefit show (along with Jon Stewart) for Gateway Schools at the Nokia Theater in New York City.<br>
+**2010:** Bruce and Patti perform at a benefit show (along with Jon Stewart) for Gateway Schools at the Nokia Theater in New York City.<br>
 
-**2014:** Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of “[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/),” “[Two for the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md),” “[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md),” “[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md),” and “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” along with the world premiere of “[Leavin’ Train](../2021-04-15_roll-of-the-dice-leavin-train/post.md).”<br>
+**2014:** Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of "[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)," "[Two for the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)," "[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)," "[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)," and "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," along with the world premiere of "[Leavin' Train](../2021-04-15_roll-of-the-dice-leavin-train/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - 2014-05-22 Pittsburgh - Two For The Road (solo acoustic)](https://www.youtube.com/watch?v=sOAq73Dv6_I)
 
@@ -84,7 +94,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2024:** Bruce opens a rainy show in Sunderland with the tour premiere of “[Waitin’ on a Sunny Day.](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)” Buy or stream this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-stadium-of-light-sunderland-uk-05-22-2024-mp3-flac-or-online-music-streaming/35844.html).<br>
+**2024:** Bruce opens a rainy show in Sunderland with the tour premiere of "[Waitin' on a Sunny Day.](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" Buy or stream this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-stadium-of-light-sunderland-uk-05-22-2024-mp3-flac-or-online-music-streaming/35844.html).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Waitin' on a Sunny Day 22/5/24 Stadium of Light, Sunderland](https://www.youtube.com/watch?v=VMZJMttAMms)
 

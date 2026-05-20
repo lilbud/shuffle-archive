@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Death to My Hometown"
+author: "Ken"
+excerpt: "The title’s not a coincidence: This Wrecking Ball deep cut is a direct sequel to Bruce’s 1985 Top Ten single."
+tags: death-to-my-hometown tom-morello wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/deathhome.jpg
+post_id: 33129
+---
 No, it's not a coincidence.
 
 Just as its name implies, "Death to My Hometown" is a direct sequel to "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)"–certainly thematically, and a strong argument could be made for literally as well.

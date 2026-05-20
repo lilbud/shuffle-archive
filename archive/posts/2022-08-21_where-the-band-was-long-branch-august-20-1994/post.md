@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Long Branch, August 20, 1994 (Terry's story)"
+author: "Ken"
+excerpt: "Stop me if you’ve heard this one: Bruce Springsteen, Joe Grushecky, John Eddie, and Dion walk into a bar. Guest blogger Terry Camp tells what happens next."
+tags: dion joe-grushecky john-eddie terry-camp
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/terry-and-bruce.jpg
+post_id: 12242
+---
 Editor's Note
 
 ***Editor's Note:*** *After I chronicled the events of August 20th in Springsteen history a year ago, Attorney and Jersey Shore Music Scene Aficionado, Terry Camp reached out to me to provide a LOT of first-hand additional detail about the events of (and leading up to) that unexpectedly amazing night of August 20, 1994).*<br>

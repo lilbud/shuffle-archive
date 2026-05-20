@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Shut Out the Light"
+author: "Ken"
+excerpt: "It’s not nearly as well-known as its famous A-side, but “Shut Out the Light” is every bit as powerful (and even more harrowing) than “Born in the U.S.A.”"
+tags: shut-out-the-light tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/shutout-1.png
+post_id: 21387
+---
 **Author's Note:** It's impossible to discuss the genesis and evolution of "Shut Out the Light" without referencing the two songs with which it's inseparably intertwined. "Vietnam" has essential backstory for fully appreciating "Shut Out the Light," and "Born in the U.S.A." is a fraternal twin to it, developed by the songwriter in parallel. However, those tracks won't be available in print until later this year, so I apologize for starting this story in the middle.<br>
 
 ---

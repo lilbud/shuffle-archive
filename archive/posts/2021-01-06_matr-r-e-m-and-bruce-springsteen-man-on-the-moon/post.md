@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: R.E.M. and Bruce Springsteen: Man on the Moon"
+author: "Ken"
+excerpt: "A nightly highlight of the Vote for Change Tour wasn’t political at all–it was the Stipe/Springsteen team-up on the Andy Kaufman tribute, “Man on the Moon.”"
+tags: man-on-the-moon r-e-m vote-for-change
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/manmoon.jpg
+post_id: 24158
+---
 It had been a long time since Bruce Springsteen and the E Street Band had a regular opening act, let alone one that could have been a headliner on its own, but as Election Day 2004 approached, artists across America joined forces in an all-out, last-mile push to mobilize voters in support of the Democratic presidential ticket.
 
 The Vote for Change Tour was actually a collection of mini-tours under a common banner, each featuring a collection of stellar acts teaming up for a night of galvanizing music designed to draw big audiences.

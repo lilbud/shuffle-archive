@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Charlotte, April 19, 2014"
+author: "Ken"
+excerpt: "Bruce took more sign requests and called more audibles than I’ve ever witnessed at this unpredictable show from the High Hopes tour. When the opener is “Iceman,” you know you’re in for a wild night."
+tags: brown-eyed-girl charlotte high-hopes-tour iceman just-like-fire-would louie-louie mustang-sally north-carolina the-wall
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/officiallivedownloads_2014-04-19.jpg
+post_id: 1734
+---
 What is it about Bruce and North Carolina?
 
 I’m not a local, and I have no vested interest in promoting the state. The sum total of my time in North Carolina is the time I’ve spent seeing Bruce’s concerts there or driving through it. Yet I can’t deny how fantastic his shows are there. As long as Bruce keeps touring, I’ll be at those NC shows.

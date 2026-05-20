@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and The Shots: Funky Broadway"
+author: "Ken"
+excerpt: "One time only: Bruce joins short-lived Stone Pony house band The Shots for a cover of Wilson Pickett’s hit, “Funky Broadway.”"
+tags: dyke-and-the-blazers funky-broadway the-shots wilson-pickett
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/funky.jpg
+post_id: 13620
+---
 Here's one of the more obscure covers Bruce has performed.
 
 Not the song itself, though: "Funky Broadway" is notable both for being the first-ever song with the word "Funky" in the title when it was originally released by Dyke & The Blazers in 1967...

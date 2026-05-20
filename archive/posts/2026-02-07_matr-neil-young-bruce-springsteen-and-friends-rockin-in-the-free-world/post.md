@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Rockin' in the Free World"
+author: "Ken"
+excerpt: "Bruce has played Neil Young’s signature anthem “Rockin’ in the Free World” twice–each with Neil himself. Listen to both performances inside."
+tags: bridge-school-benefit neil-young rockin-in-the-free-world vote-for-change
+categories: cover-me meeting-across-the-river
+post_id: 8422
+---
 Neil Young's "Rockin' in the Free World" became an instant classic upon its debut in 1989, stopping just shy of the top spot on Billboard's Mainstream Rock chart and securing a berth (#216) on Rolling Stone's 500 Greatest Songs of All Time list.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DvxxdZpMFHg)

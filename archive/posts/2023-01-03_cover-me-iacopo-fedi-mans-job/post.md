@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Iacopo Fedi: Man's Job"
+author: "Ken"
+excerpt: "At the Cover Me finals in Bergamo, the surprise of the night was Iacopo Fedi’s powerful, acoustic reinvention of “Man’s Job.”"
+tags: cover-me iacopo-fedi mans-job
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/iacopo.png
+post_id: 29281
+---
 There I was…
 
 Last Sunday evening in the medieval town of Bergamo, Italy, fifteen finalists reported for competition on a single stage before an audience of avid Italian Springsteen fans, critics, fellow musicians. industry notables, and one American blogger.

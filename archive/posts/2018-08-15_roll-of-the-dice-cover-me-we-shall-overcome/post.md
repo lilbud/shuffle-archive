@@ -1,4 +1,14 @@
-> *It was the most powerful song of the 20th century. It started out in church pews and picket lines, inspired one of the greatest freedom movements in U.S. history, and went on to topple governments and bring about reform all over the world. Word for word, the short, simple lyrics of "We Shall Overcome" might be some of the most influential words in the English language.*
+---
+layout: post
+title: "Roll of the Dice/Cover Me: We Shall Overcome"
+author: "Ken"
+excerpt: "Bruce’s 1998 cover of “We Shall Overcome” helps keep this most potent of protest songs alive and fresh for a new generation."
+tags: cape-town pete-seeger we-shall-overcome
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/overcome.jpeg
+post_id: 3565
+---
+> *It was the most powerful song of the 20th century. It started out in church pews and picket lines, inspired one of the greatest freedom movements in U.S. history, and went on to topple governments and bring about reform all over the world. Word for word, the short, simple lyrics of "We Shall Overcome" might be some of the most influential words in the English language.*<br>
 
 Those words are from the U.S. Library of Congress, describing the global societal impact of "We Shall Overcome."
 

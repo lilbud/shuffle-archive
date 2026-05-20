@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Found Wandering: I'm on Fire"
+author: "Ken"
+excerpt: "From their 2015 EP “The Living Room Sessions,” watch indie/folk/Americana trio Found Wandering’s spirited cover of Bruce’s “I’m on Fire.”"
+tags: found-wandering im-on-fire
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/foundwaner.jpg
+post_id: 11844
+---
 In 2015, indie/folk/Americana trio Found Wandering recorded a live EP of covers in the living room of Sarah and Colin Comstock (two members of the trio).
 
 Called (appropriately) *The Living Room Sessions*, the EP features a gorgeous Springsteen cover amongst a good company of songs written by Tom Waits, Bob Dylan, and more.

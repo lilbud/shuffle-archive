@@ -1,3 +1,13 @@
+---
+layout: post
+title: "God Don't Make Lonely Girls"
+author: "Ken"
+excerpt: "One time only: Bruce joins The Wallflowers on their 1996 deep cut, “God Don’t Make Lonely Girls,” when the band’s 1997 tour brings them to Bruce’s neck of the woods."
+tags: god-dont-make-lonely-girls the-wallflowers
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/lonelygirls.jpg
+post_id: 10319
+---
 When The Wallflowers showed up for their gig at Tradewinds on the Jersey shore on March 8, 1997, the hype was already at fever pitch: would Bruce show tonight? Undoubtedly, since he'd already been spotted at the afternoon soundcheck.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=naXXxj6IGqY)

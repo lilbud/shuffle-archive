@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Vibes Man"
+author: "Ken"
+excerpt: "The secret origin of “New York City Serenade” starts here."
+tags: new-york-city-serenade vibes-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/vibes.jpg
+post_id: 11793
+---
 Someday the dice will assign me "New York City Serenade" to write about, and we'll go to town on it. It's fitting that "Vibes Man" gets the *Roll of the Dice* treatment first, however, because as we're about to see, the story of "New York City Serenade" begins with (and largely derives from) this early demo.
 
 Throughout the first half of 1973, while Bruce was touring behind his first album, he frequently performed a work-in-progress "New York Song" (which we'll also cover here someday). When Bruce's second album dropped toward the end of the year with a song called "New York City Serenade," fans (such few as there were back then) might have expected to hear a polished version of the "New York Song" they'd been hearing evolve on stage.

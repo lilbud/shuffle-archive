@@ -1,22 +1,32 @@
+---
+layout: post
+title: "Kingdom of Days: August 13"
+author: "Ken"
+excerpt: "Bruce’s legendary 1975 stand at The Bottom Line begins on this date; 30 years later, Bruce wraps his summer solo acoustic tour. Check out both shows plus more highlights inside."
+tags: because-the-night born-to-run-tour bottom-line canada cats-on-a-smooth-surface chicago delaware devils-and-dust-tour fenway-park maxs-kansas-city new-york-city newark-de rising-tour vancouver worcester world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/19750813_2_front.jpg
+post_id: 58376
+---
 ***New for 2025:** Audio for 2005*<br>
 
-**1972:** Bruce plays his fifth of six two-shows-a-night solo gigs at Max’s Kansas City this week.<br>
+**1972:** Bruce plays his fifth of six two-shows-a-night solo gigs at Max's Kansas City this week.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1972-08-11.jpg.webp)
 
-**1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions. Bruce does play a show that evening at the Stone Balloon in Newark, though–his one and only show ever in the state of Delaware.<br>
+**1974:** Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions. Bruce does play a show that evening at the Stone Balloon in Newark, though–his one and only show ever in the state of Delaware.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1974-0813.jpg.webp)
 
-**1975:** Bruce’s legendary stand at the Bottom Line in New York City begins here, on Night One of a five-night/ten-show residency, during which 25% of all tickets are distributed by Columbia Records to journalists and employees, establishing high stakes for Bruce and the E Street Band throughout the stand. The early show is mostly undocumented but known to feature Bruce’s first performance of “[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)” and only the second-ever performance of “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md).” The late show features the first ever performance of “[Night](../2019-10-31_roll-of-the-dice-night/post.md)” and the last recorded “New York City Serenade” until the Reunion Tour almost a quarter-century later.<br>
+**1975:** Bruce's legendary stand at the Bottom Line in New York City begins here, on Night One of a five-night/ten-show residency, during which 25% of all tickets are distributed by Columbia Records to journalists and employees, establishing high stakes for Bruce and the E Street Band throughout the stand. The early show is mostly undocumented but known to feature Bruce's first performance of "[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)" and only the second-ever performance of "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)." The late show features the first ever performance of "[Night](../2019-10-31_roll-of-the-dice-night/post.md)" and the last recorded "New York City Serenade" until the Reunion Tour almost a quarter-century later.<br>
 
 [Watch on Youtube: New York (8/13/1975)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CLkG-HsMGH8NAjlqyweKD5)
 
-As for the journalists and critics in attendance, most are won over… but not all.
+As for the journalists and critics in attendance, most are won over... but not all.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1975-08-13d-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1975-08-13c-1.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1975-08-13c.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1975-08-13a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1975-08-13a.png.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1975-08-13b.png.webp)
 
@@ -32,15 +42,15 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1992-08-13b.png.webp)
 
-**2003:** The Rising Tour’s stadium leg moves on to U.S. Cellular Field in Chicago, where Bruce opens with “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)” and plays a rare “[Where the Bands Are.](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)”<br>
+**2003:** The Rising Tour's stadium leg moves on to U.S. Cellular Field in Chicago, where Bruce opens with "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" and plays a rare "[Where the Bands Are.](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iuSfc17q)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2003-08-13.png.webp)
 
-**2005:[../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md)**Bruce wraps up his solo “summer extravaganza” at GM Place in Vancouver, BC, tour premiering “Because the Night” and giving “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” a rare outing. Fore more highlights from this show, see my [*Where the Band Was* report](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md).<br>
+**2005:[../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md)**Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour premiering "Because the Night" and giving "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" a rare outing. Fore more highlights from this show, see my [*Where the Band Was* report](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md).<br>
 
-[Watch on Youtube: Bruce Springsteen - Living Proof on Pump Organ, August 13, 2005](https://www.youtube.com/watch?v=PxtqtXjKuSo)
+[Watch on Youtube: Bruce Springsteen - Living Proof on Pump Organ, August 13, 2005](https://www.youtube.com/watch?v=PxtqtXjKuSo?list=PLnbVaK2f4rag5C9NKr6BBJqJ78CeJTqSg)
 
 [Watch on Youtube: Bruce Springsteen Because The Night Solo Perfomance Live From Vancouver 13/08/2005](https://www.youtube.com/watch?v=qjnAIIAbok8)
 

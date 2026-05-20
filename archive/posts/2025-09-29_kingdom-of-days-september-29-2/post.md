@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 29"
+author: "Ken"
+excerpt: "Bruce plays with Pete Seeger for the first time, holds a rehearsal show for the Magic Tour, and gives a Philly schoolboy a great absence note."
+tags: billy-rancher birmingham born-in-the-usa-tour born-to-run-book candys-room cleveland darkness-tour john-fogerty lawsuit-tour los-angeles magic-tour pete-seeger philadelphia phoenix san-diego santa-monica springsteen-on-broadway the-promise world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/1996-0929.jpg
+post_id: 59734
+---
 ***New for 2025:** New entry for 1977 and 1987*<br>
 
 **1973:** Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in Pennsylvania.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Downbound Train"
+author: "Ken"
+excerpt: "“Downbound Train” is a master class in cinematic songwriting. Let’s look at how the director skillfully crafted his “movie” inside."
+tags: born-in-the-usa downbound-train nebraska
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/dbtrainbig.jpg
+post_id: 6887
+---
 Of the many adjectives used to describe Bruce Springsteen's songwriting, "cinematic" is one of the most frequent.
 
 "Cinematic" is a hard term to define, however. Ask three different motion picture professionals, and you'll likely get three different answers. Often, it refers to the use of screenplay-like stage direction to more effectively paint the scene. For example:

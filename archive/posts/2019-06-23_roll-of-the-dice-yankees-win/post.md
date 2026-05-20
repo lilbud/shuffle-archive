@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Yankees Win"
+author: "Ken"
+excerpt: "One time only: Bruce pays homage to (and pokes fun at) outgoing Yankees manager Joe Torre at a 2007 benefit for his Safe at Home foundation."
+tags: yankees-win
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/yankees.jpg
+post_id: 10924
+---
 Joe Torre is a an American baseball legend–an all-star player, New York Yankees manager, hall-of-famer, and the current chief baseball officer for Major League Baseball.
 
 Torre is also a child victim of domestic violence, and his commitment to helping others like him led him to create Safe at Home, a foundation that serves young people traumatized by exposure to domestic violence, child abuse, and sexual assault.

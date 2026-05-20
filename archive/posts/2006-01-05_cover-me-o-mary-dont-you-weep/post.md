@@ -1,3 +1,13 @@
+---
+layout: post
+title: "O Mary Don't You Weep"
+author: "Ken"
+excerpt: "Bruce joined a long line of artists in keeping an important African-American spiritual protest song alive and vibrant for generations to come."
+tags: aretha-franklin fisk-jubilee-singers james-brown o-mary-dont-you-weep pete-seeger prince take-6 the-caravans the-swan-silvertones we-shall-overcome-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/Oh-Mary-Dont-You-Weep.jpg
+post_id: 36168
+---
 Of all the traditional songs that Bruce Springsteen arranged and recorded for *We Shall Overcome: The Seeger Sessions*, none have proved more musically versatile than "O Mary Don't You Weep."
 
 "O Mary Don't You Weep" is a pre-Civil War African-American spiritual that draws heavily on biblical imagery from both testaments. Contrary to popular belief, the titular Mary is not the mother of Jesus; nor is it Mary Magdalene. The song refers to Mary of Bethany, who grieved with Jesus over the death of her brother Lazarus. (Many versions of the song refer to Mary's sister Martha also.) Moved by Mary's grief, Jesus raised Lazarus from the dead.
@@ -38,11 +48,11 @@ Aretha Franklin went with the traditional lyrics (mostly) in her live recording 
 
 [Watch on Youtube: Aretha Franklin - Mary, Don't You Weep (Atlantic Records 1972)](https://www.youtube.com/watch?v=yJ_m7Yu3H3A)
 
-And the arrangements kept coming well into the 1980s and beyond–most notably from Prince...
+And the arrangements kept coming well into the 1980s and beyond–most notably from Prince…
 
 [Watch on Youtube: Prince - Mary Don't You Weep (Official Music Video)](https://www.youtube.com/watch?v=e5-HEBGPzFM)
 
-...and an a capella version by Take 6 that took the song back to its choral chant roots.
+…and an a capella version by Take 6 that took the song back to its choral chant roots.
 
 [Watch on Youtube: Take 6 Mary Don't You Weep 1988](https://www.youtube.com/watch?v=jD1zH8YEyI0)
 

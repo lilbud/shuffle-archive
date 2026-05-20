@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jennie Abrahamson: Lift Me Up"
+author: "Ken"
+excerpt: "There are so many covers of Bruce Springsteen’s songs out there that I sometimes wonder if I’ll ever be able to catalog them all. Most…"
+tags: jennie-abrahamson lift-me-up
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/Reverseries-Jennie-Abrahamson-Cover-1024x1024.jpeg
+post_id: 12295
+---
 There are so many covers of Bruce Springsteen's songs out there that I sometimes wonder if I'll ever be able to catalog them all.
 
 Most are the usual suspects: "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "Because the Night," "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" all get lots and lots of love.

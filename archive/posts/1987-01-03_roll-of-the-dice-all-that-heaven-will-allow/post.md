@@ -1,3 +1,13 @@
+---
+layout: post
+title: "All That Heaven Will Allow"
+author: "Ken"
+excerpt: "The brightest song on Tunnel of Love is a hat tip to a classic 1955 romance film."
+tags: all-that-heaven-will-allow tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/1200px-All_That_Heaven_Allows_1955_trailer_1.jpg
+post_id: 36657
+---
 It was a tale of… well, if not forbidden then at least frowned-upon love.
 
 The year was 1955, and the film was *All That Heaven Allows*. Directed by Douglas Sirk, the film starred Jane Wyman as Cary, a wealthy widow, and Rock Hudson as Ron, her gardener turned suitor.
@@ -16,31 +26,31 @@ Bruce is notorious for borrowing film titles for his songs, but rarely do the so
 
 If we pay attention though, Bruce gives us just enough context clues to establish that the link to Sirk's 1955 film is more than just titular.
 
-> *I got a dollar in my pocket, there ain't a cloud up above*
-> *I got a picture in a locket that says baby I love you*
-> *Well if you didn't look then boys then fellas don't go looking now*
-> *Well here she comes a-walking, yeah all that heaven will allow*
+> *I got a dollar in my pocket, there ain't a cloud up above*<br>
+> *I got a picture in a locket that says baby I love you*<br>
+> *Well if you didn't look then boys then fellas don't go looking now*<br>
+> *Well here she comes a-walking, yeah all that heaven will allow*<br>
 
-> *Say hey there mister bouncer now all I wanna do is dance*
-> *But I swear I left my wallet back home in my working pants*
-> *C'mon Slim slip me in, man, I'll make it up to you somehow*
-> *I can't be late I got a date with all that heaven will allow*
+> *Say hey there mister bouncer now all I wanna do is dance*<br>
+> *But I swear I left my wallet back home in my working pants*<br>
+> *C'mon Slim slip me in, man, I'll make it up to you somehow*<br>
+> *I can't be late I got a date with all that heaven will allow*<br>
 
 Our narrator has a dollar in his pocket–a modest sum signifying a man of modest means. Whatever other money he may have is in his working pants, a detail meant to paint him as a laborer like Hudson's character in *All That Heaven Allows*.
 
 Bruce's character is a bit more carefree, though. He's in love, and while there's nothing explicitly stated in Bruce's lyrics that establishes his love interest in a higher social stratum, he certainly signals his awareness that the road ahead for them is not a smooth one:
 
-> *Rain and storm and dark skies, well now they don't mean a thing*
-> *If you got a girl that loves you and who wants to wear your ring*
-> *So c'mon Mister Trouble, we'll make it through you somehow*
-> *We'll fill this house with all the love and all that heaven will allow*
+> *Rain and storm and dark skies, well now they don't mean a thing*<br>
+> *If you got a girl that loves you and who wants to wear your ring*<br>
+> *So c'mon Mister Trouble, we'll make it through you somehow*<br>
+> *We'll fill this house with all the love and all that heaven will allow*<br>
 
 If it was just the bridge's reference to dark skies and Mister Trouble, we might assume that Bruce is simply referring to the inevitable travails that life throws any couple's way, but the last verse takes a strange turn.
 
-> *Now some may wanna die young, man, young and gloriously*
-> *Get it straight now, mister, hey buddy that ain't me*
-> *‘Cause I got something on my mind, yeah, that sets me straight and walking proud*
-> *And I want all the time, yeah all that heaven will allow*
+> *Now some may wanna die young, man, young and gloriously*<br>
+> *Get it straight now, mister, hey buddy that ain't me*<br>
+> *‘Cause I got something on my mind, yeah, that sets me straight and walking proud*<br>
+> *And I want all the time, yeah all that heaven will allow*<br>
 
 Bruce swiped that first couplet from his *Darkness* outtake "[City of Night](../2020-06-28_roll-of-the-dice-city-of-night/post.md)." He certainly could have written new lyrics if he'd wanted to, so we have to assume he raided his notebook for those specific lines for a reason.
 

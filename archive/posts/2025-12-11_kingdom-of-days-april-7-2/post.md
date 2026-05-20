@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 7"
+author: "Ken"
+excerpt: "Bruce meets Max for the first time, debuts a new arrangement for “The Ghost of Tom Joad” with Tom Morello, kicks off the European leg of the first River Tour, and subjects himself to a deeply insightful 90-minute interview."
+tags: anaheim beach-boys bobby-bandiera chicken-scratch-tour cleveland germany glorias-eyes greatest-hits hamburg im-goin-down kansas-city live-in-new-york-city magic-tour marc-anthony-thompson marty-rifkin max-weinberg molly-meldrum norfolk river-tour river-tour-2016 seton-hall switzerland the-ghost-of-tom-joad the-price-you-pay the-promised-land tom-morello tulsa working-on-a-dream-tour world-tour-1993 zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/april-7th-2024-inglewood-ca-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56402
+---
 **1973:** Bruce and the E Street Band open for The Beach Boys in Norfolk.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1973-0407.jpg.webp)

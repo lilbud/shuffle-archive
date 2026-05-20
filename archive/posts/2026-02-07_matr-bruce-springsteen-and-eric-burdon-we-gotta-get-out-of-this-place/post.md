@@ -1,3 +1,13 @@
+---
+layout: post
+title: "We Gotta Get Out of This Place"
+author: "Ken"
+excerpt: "47 years after he first performed it, Bruce got a chance to cover one of his biggest influences with the original artist."
+tags: eric-burdon the-animals we-gotta-get-out-of-this-place
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/gottaget.jpg
+post_id: 33062
+---
 > "[F]or me, it was The Animals. For some, they were just another one of the really good beat groups that came of the 60s. But to me, The Animals were a revelation. The first records with full blown class consciousness that I had ever heard." *–Bruce Springsteen, SXSW Keynote, March 15, 2012*<br>
 
 Bruce Springsteen was and is a serious fan of Eric Burdon and The Animals. There are surviving bootleg recordings of him performing their songs when they were brand new, like "San Franciscan Nights" in 1967. (The song was only a month old.)

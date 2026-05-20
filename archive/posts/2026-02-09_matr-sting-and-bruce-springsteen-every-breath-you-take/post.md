@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Every Breath You Take"
+author: "Ken"
+excerpt: "One of the nightly highlights of the Human Rights Now! Tour was Sting’s set-closing team-up with Bruce on “Every Breath You Take.” Watch their infectiously joyous performance inside."
+tags: every-breath-you-take sting the-police
+categories: cover-me meeting-across-the-river
+post_id: 8407
+---
 The *Human Rights Now!* Tour of 1988 was a victory lap of sorts for Bruce Springsteen and the E Street Band, although we didn't know it then. The E Street Band went on hiatus after that tour; they wouldn't tour again for more than a decade.
 
 But that tour was notable for more than its closure of a chapter of E Street history–it also marked the birth of a friendship that has stood the test of time ever since.

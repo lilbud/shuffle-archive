@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 25"
+author: "Ken"
+excerpt: "On this date: the release of Magic, guest appearances with U2 and Eddie Vedder, and a spectacular night with Elvis Costello. More highlights inside."
+tags: akron born-in-the-usa-tour born-to-run-tour boston bruce-springsteen-band buffalo cats-on-a-smooth-surface chicago darkness-tour denver eddie-vedder elvis-costello get-out-of-denver ghost-of-tom-joad-tour los-angeles magic patti-scialfa philadelphia radio-nowhere reunion-tour rising-tour spectacle-elvis-costello-with stand-by-me stone-pony student-prince tom-joad u2 world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/bruce-springsteen-magic-2017-billboard-1548.jpg
+post_id: 59712
+---
 ***New for 2025:** Audio for 1996 and 1999*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

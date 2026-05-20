@@ -1,3 +1,13 @@
+---
+layout: post
+title: "One Love"
+author: "Ken"
+excerpt: "An almost B-side for an almost album, “One Love” remains locked away in Bruce’s vault (except for the demo escapee, which you can hear inside)."
+tags: one-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/one-love-1.png
+post_id: 8491
+---
 Bruce's recording sessions for what would become *Born in the U.S.A.* spanned more than two years. "Cover Me" (recorded in January, 1982) would end up as the earliest recorded song on the album; "Dancing in the Dark" would complete the album when it was recorded almost 25 months later.
 
 By the halfway mark in early 1983, Bruce had already written, recorded, and assembled enough material to release as an album–and he came fairly close to doing so, under a working title of *Murder Incorporated.*
@@ -26,30 +36,30 @@ When I wrote about "Little Girl (Like You)" last spring, I wasn't very kind in m
 
 "One Love" doesn't demand much in the way of lyrical analysis; Bruce never even dips a toe into metaphor.
 
-> *One girl, one love*
-> *One dream in our heart*
-> *Two hearts as one*
-> *One hope, never to be torn apart*
+> *One girl, one love*<br>
+> *One dream in our heart*<br>
+> *Two hearts as one*<br>
+> *One hope, never to be torn apart*<br>
 
-> *Yeah, come on baby, rock me way down low*
-> *Shake me darling, shake me, don't let me go*
-> *You're the one, yeah, you're the one for me*
+> *Yeah, come on baby, rock me way down low*<br>
+> *Shake me darling, shake me, don't let me go*<br>
+> *You're the one, yeah, you're the one for me*<br>
 
 By the time we've finished that first verse, we pretty much get the idea: like the man says (here and elsewhere), two hearts are better than one. But just to make sure that we don't miss the point, the song continues:
 
-> *One dream, one dream*
-> *Is all, is all I need*
-> *One reason to believe*
-> *In you I've found the thing I need*
+> *One dream, one dream*<br>
+> *Is all, is all I need*<br>
+> *One reason to believe*<br>
+> *In you I've found the thing I need*<br>
 
-> *Once I was alone*
-> *So alone, so all alone*
-> *Then you came along*
-> *With a love you said I could call home*
+> *Once I was alone*<br>
+> *So alone, so all alone*<br>
+> *Then you came along*<br>
+> *With a love you said I could call home*<br>
 
-> *Come on baby, rock me all night long*
-> *I've been searching for you for so long*
-> *You're the one, yeah, you're the one for me*
+> *Come on baby, rock me all night long*<br>
+> *I've been searching for you for so long*<br>
+> *You're the one, yeah, you're the one for me*<br>
 
 When *Tracks II: The Lost Albums* was announced with "One Love" included, I wondered if we'd finally hear a more polished version of the song. In a sense, I guess we do: the official release lops off the extended intro and fade-out, so the album version is considerably shorter. But it's still the same recording otherwise.
 

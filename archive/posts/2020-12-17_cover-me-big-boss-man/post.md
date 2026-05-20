@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Big Boss Man"
+author: "Ken"
+excerpt: "One time only: Listen in on a 1988 soundcheck, where Bruce and the E Street Band played their only known cover of Jimmy Reed’s “Big Boss Man.”"
+tags: big-boss-man jimmy-reed
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/bigbossman.png
+post_id: 14034
+---
 Talk about a pedigree: Jimmy Reed’s “Big Boss Man” may only have been a modest hit when it was first released in 1960 (it only reached #78 on the Billboard Hot 100, although it made it to #13 on the R&B chart)…
 
 [Watch on Youtube: Jimmy Reed - Big Boss Man](https://www.youtube.com/watch?v=Dd-o_kLONVI)

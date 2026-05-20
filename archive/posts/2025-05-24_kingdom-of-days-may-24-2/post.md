@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 24"
+author: "Ken"
+excerpt: "On this date: Bruce plays in Washington DC for the first time, sings karaoke in London, and treats French fans to an acoustic pre-show."
+tags: albany darkness-tour david-sancious devils-and-dust-tour dublin france london new-york-city paris rising-tour springsteen-on-broadway the-promise trenton uk washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/cover.jpg
+post_id: 56835
+---
 ***New for 2025:** New entry for 1983*<br>
 
 **1973:** Bruce plays his first ever show in Washington, D.C. at Childe Harold. David Sancious (not yet a member of the E Street Band) sits in.<br>

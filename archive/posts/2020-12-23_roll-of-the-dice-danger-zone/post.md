@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Danger Zone"
+author: "Ken"
+excerpt: "One of the earliest songs Bruce wrote in the Nebraska era, the unfinished “Danger Zone” stands apart as a warm and tender ballad deserving of attention."
+tags: danger-zone
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/danger-zone.jpg
+post_id: 17932
+---
 We've listened to a lot of Bruce's unreleased (but leaked) home demos together over the past few years, and I'll be the first to admit that most of them are interesting only as insight into Bruce's songwriting process and influences, or to trace the ancestry of Bruce's released catalog back to early prototypes.
 
 But this one's an exception.

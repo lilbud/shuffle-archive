@@ -1,3 +1,11 @@
+---
+layout: post
+title: "ROTD Born In The U.S.A. Preface"
+author: "Ken"
+excerpt: "I thought this would be one of the easiest Roll of the Dice volumes to produce. I was certain of it, in fact. I’d long ago completed…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/04/819qdTNLMxL._UF10001000_QL80_.jpg
+post_id: 68553
+---
 I thought this would be one of the easiest *Roll of the Dice* volumes to produce.
 
 I was certain of it, in fact.

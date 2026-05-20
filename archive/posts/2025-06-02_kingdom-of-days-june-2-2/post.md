@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 2"
+author: "Ken"
+excerpt: "Darkness on the Edge of Town was released on this date in 1978! Also on this date: a historic radio performance, the only known performance of “A Night Like This,” and more. Great audio and video inside."
+tags: a-night-like-this annapolis baltimore chicago darkness-on-the-edge-of-town darkness-tour devils-and-dust-tour elliot-murphy finland france link-wray london madrid mary-queen-of-arkansas new-york-city-serenade paris reunion-tour river-tour san-sebastian spain stone-pony tampere the-dark-end-of-the-street toledo uk wholl-stop-the-rain working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/darkness.jpg
+post_id: 56994
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1973:** Bruce and the E Street Band open for Chicago at the Baltimore Civic Center. Prior to the show, Bruce stops by WHFS-FM in Bethesda for an interview and in-station performance.<br>

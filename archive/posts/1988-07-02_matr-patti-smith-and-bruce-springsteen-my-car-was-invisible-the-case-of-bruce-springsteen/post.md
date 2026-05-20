@@ -1,3 +1,13 @@
+---
+layout: post
+title: "My Car Was Invisible (The Case of Bruce Springsteen)"
+author: "Ken"
+excerpt: "Way back in 1976, Bruce invented some on-the-fly accompaniment for one of Patti Smith’s legendary improvised musical monologues."
+tags: my-car-was-invisible patti-smith the-case-of-bruce-springsteen
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/19761126_3_front.jpg
+post_id: 38786
+---
 We've made several trips over the years back to Black Friday in 1976. That was the night the Bruce Springsteen joined Patti Smith and her band on stage for two shows at The Bottom Line in New York City.
 
 Bruce didn't provide any vocals that night; in fact, at times he was barely hanging on at the piano. That's because this wasn't just the first time Bruce played some of these songs. It was the first and only time Patti performed them, too.
@@ -6,7 +16,7 @@ Patti's shows were already famous for her improvisational setpieces that bordere
 
 "My Car Was Invisible" followed immediately after, serving as Patti's explanation for why she had to hang around the club a little later than she wanted to the previous night.
 
-[https://videopress.com/embed/vvRhL0zj](https://videopress.com/embed/vvRhL0zj)
+[Watch Video Highlight](https://videopress.com/embed/vvRhL0zj)
 
 As Patti's vocals grew in power (and distortion, unfortunately), Bruce's piano accompaniment grew more confident as well. After a few minutes, Patti segued her musical monologue into a plea for all present to write letters to the musician's union to plead the case of Bruce Springsteen. For what, I cannot tell–the audio is too muddy. (If you can figure it out, though, please leave a comment and let me know!)
 

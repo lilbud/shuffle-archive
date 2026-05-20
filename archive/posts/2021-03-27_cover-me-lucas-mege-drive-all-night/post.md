@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Lucas Mege: Drive All Night"
+author: "Ken"
+excerpt: "Springsteen fan Lucas Mège shares his gorgeous, passionate, and powerful solo piano performance of “Drive All NIght.”"
+tags: drive-all-night lucas-mege
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/lucas.jpg
+post_id: 26076
+---
 We have a rule here on the Shuffle: If you're going to cover a Bruce Springsteen song, either do it different or do it better.
 
 Every once in a while, though, it's worth making an exception for someone who simply and powerfully *connects* with the song.

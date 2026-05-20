@@ -1,3 +1,13 @@
+---
+layout: post
+title: "A Fine Fine Boy"
+author: "Ken"
+excerpt: "Thirty-three years after he first covered it in concert, Bruce joins Darlene Love on stage for one of her greatest hits. Listen to both performances inside."
+tags: a-fine-fine-boy a-fine-fine-girl darlene-love rock-and-roll-hall-of-fame
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/darlene-lovedef.png
+post_id: 7166
+---
 When "A Fine Fine Boy" was released in 1963, it became Darlene Love's ninth single to crack the Hot 100, but only the third under her own name. It never notched any higher than #53, but that was high enough to catch Bruce's attention.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QWHoI3W8pns)

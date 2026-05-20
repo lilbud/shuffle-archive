@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 27"
+author: "Ken"
+excerpt: "Happy birthday, Cindy Mizelle! Also on this date: Bruce sues Mike Appel, plays the first “Candy’s Room” in 15 years, duets with Glen Hansard, and more."
+tags: because-the-night boom-boom born-in-the-usa-tour cindy-mizelle drive-all-night east-rutherford funky-dusty-and-the-soul-broom giants-stadium gothenburg ireland kilkenny lonesome-day magic-tour mike-appel new-york-city norway oslo phoenix radio-nowhere reunion-tour rising-tour saratoga springsteen-on-broadway sweden the-fabulous-greaseband tunnel-of-love tunnel-of-love-tour uk wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/july-27th-2024-london-uk-wembley-stadium-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 57867
+---
 **1964:** Cindy Mizelle, backing vocalist on "Shackled and Drawn," "High Hopes," "American Skin (41 Shots)," "Just Like Fire Would," and "Heaven's Wall" — and of course, throughout the entire Seeger Sessions, Working on a Dream, Wrecking Ball, and High Hopes tours — is born in Englewood, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/cindy.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Marah and Bruce Springsteen: Float Away"
+author: "Ken"
+excerpt: "The story of how a Philly garage rock band landed a Bruce Springsteen cameo on their breakthrough album."
+tags: float-away marah
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/floataway.jpg
+post_id: 20376
+---
 Marah could have made it big. They *should* have made it big.
 
 The Kids in Philly had a great garage sound (they literally recorded in an auto garage), tons of street cred, and some pretty big-name boosters, including a guy from across the river on the Jersey side.

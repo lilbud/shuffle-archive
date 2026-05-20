@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lion's Den"
+author: "Ken"
+excerpt: "Dum dum dee-dum dum dee-dee dum dum!"
+tags: lions-den tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/lionsden.jpg
+post_id: 10411
+---
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/twitter.jpg.webp)
 
 I often get asked about my favorite Springsteen song, and I agonize over it each and every time. My answer tends to vary by the day. Bruce's catalog is too vast and too stellar to latch onto any one song as an ultimate favorite.

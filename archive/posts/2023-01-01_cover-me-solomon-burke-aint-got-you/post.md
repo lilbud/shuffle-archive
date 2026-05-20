@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Solomon Burke: Ain't Got You"
+author: "Ken"
+excerpt: "The late, great Solomon Burke adapted Bruce’s sweet “Ain’t Got You” into a bombastic country roots romp. The result is a *very* different song. You need to hear this one."
+tags: aint-got-you garry-tallent solomon-burke
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/nashv.jpg
+post_id: 7155
+---
 Turnabout is fair play, I suppose.
 
 I often wonder what artists *really* think when instead of merely covering their songs, or even rearranging them, Bruce changes the lyrics and reinvents the song entirely.

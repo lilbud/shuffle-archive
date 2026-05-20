@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 24"
+author: "Ken"
+excerpt: "A fantastic 1974 interview, the only performance of “You’ll Be Comin’ Down,” and a guest-appearance by Eddie Vedder in Seattle lead the highlights from this eventful date in Springsteen history."
+tags: asbury-park australia born-in-the-usa-tour boston columbus county-fair eddie-vedder lawsuit-tour lewiston magic-tour melbourne michael-gudinski phoenix river-tour-2016 seattle sydney the-blasters working-on-a-dream-tour wrecking-ball-tour youll-be-comin-down
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/20080324_front.jpg
+post_id: 56286
+---
 **1973:** Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce’s recently released debut album. Keep an eye on him, the reviewer advises.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1973-03-24.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Moonlight Motel"
+author: "Ken"
+excerpt: "Dripping in symbolism and gorgeous imagery, “Moonlight Motel” is lyrically Bruce Springsteen’s best song. Full stop."
+tags: moonlight-motel western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/moonlight.jpg
+post_id: 21118
+---
 Please excuse me for a moment while I get something out of my system:
 
 *There are only two shots poured in "Moonlight Motel." **Two!***

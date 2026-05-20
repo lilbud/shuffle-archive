@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mr. Outside"
+author: "Ken"
+excerpt: "The curious case of a bootleg turned official release (and the mystery of why bother)."
+tags: mr-outside the-ties-that-bind-the-river-collection whitetown you-gotta-be-kind
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Mr.-Outside-Front.jpg
+post_id: 10317
+---
 Now here's a curiosity: an officially released song that's actually an edited version of a bootlegged home demo.
 
 When Bruce compiled a group of contemporary outtakes to include in his *The Ties That Bind: The River Collection* box set, he wanted to include "Mr. Outside." Unfortunately, though, archivist Toby Scott couldn't locate an "official" recording.
@@ -18,26 +28,26 @@ Musically, "Mr. Outside" is just one of a trilogy of never-finished songs that s
 
 About those lyrics: it seems as if Bruce was reaching for a "Nowhere Man." Written and recorded in 1979, Bruce's titular character seems to foretell the stereotype that would come to define the coming decade:
 
-> *They call him Mr. Outside 'cause he don't care*
-> *Mr. Outside, he's just having his fun*
-> *Mr. Outside, he's just looking out for number one*
+> *They call him Mr. Outside 'cause he don't care*<br>
+> *Mr. Outside, he's just having his fun*<br>
+> *Mr. Outside, he's just looking out for number one*<br>
 
-> *Well Mr. Outside, oh your money and your power*
-> *Won't help you come the dark hour*
-> *Kingdoms crumble to your feet*
-> *You're left another thief out on the street*
+> *Well Mr. Outside, oh your money and your power*<br>
+> *Won't help you come the dark hour*<br>
+> *Kingdoms crumble to your feet*<br>
+> *You're left another thief out on the street*<br>
 
-> *Dark glasses and money for hire*
-> *All the riches and high-tension wire*
-> *He got long dark, dark Cadillac*
-> *He got pretty little little girl in back*
+> *Dark glasses and money for hire*<br>
+> *All the riches and high-tension wire*<br>
+> *He got long dark, dark Cadillac*<br>
+> *He got pretty little little girl in back*<br>
 
 Nothing really happens in "Mr. Outside." Essentially, the song is just a character sketch, and the excised verse from the bootleg version reveals the Bruce may have intended Mr. Outside to be even less sympathetic than the previous verses paint him.
 
-> *Little baby got no diamond rings*
-> *You cry 'cause you ain't got no pretty things*
-> *Them pretty things, babe, just look dumb*
-> *When you gotta take 'em when they come*
+> *Little baby got no diamond rings*<br>
+> *You cry 'cause you ain't got no pretty things*<br>
+> *Them pretty things, babe, just look dumb*<br>
+> *When you gotta take 'em when they come*<br>
 
 None of the lyrics are particularly artful or insightful, and other than the early hints of songs yet to come ("[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and "[Take ‘Em When They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)"), there's not a lot of interest here.
 

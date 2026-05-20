@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'm Your Detail Man"
+author: "Ken"
+excerpt: "At John Fogerty’s 50th birthday party. Bruce debuted what may be a lost original song–and it’s a fun one, to boot."
+tags: im-your-detail-man john-fogerty
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/detailman.jpg
+post_id: 34745
+---
 I only *think* I'm cataloging every song Bruce has ever written or covered.
 
 Every once in a while I get a reminder that there are probably hundreds, maybe thousands of unknown performances that either weren't captured on tape or are sitting in someone's private collection.

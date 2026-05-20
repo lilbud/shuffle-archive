@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Pete Townshend, Roger Daltrey, and Bruce Springsteen – "My Generation""
+author: "Ken"
+excerpt: "Bruce joins Pete Townshend and Roger Daltry on stage to play The Who’s classic anthem."
+tags: my-generation pete-townshend roger-daltry the-who
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/mygeneration.jpg
+post_id: 1229
+---
 In 2015, the MusicCares MAP fund honored Pete Townshend, and Bruce was in attendance both to pay tribute and to join Pete Townshend and Roger Daltrey on stage for “My Generation.”
 
 [Watch on Youtube: Pete Townshend, Roger Daltrey w/Bruce Springsteen - My Generation - NYC - 5-28-15](https://www.youtube.com/watch?v=a6BrJJgDtxM)

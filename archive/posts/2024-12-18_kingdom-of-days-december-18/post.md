@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 18"
+author: "Ken"
+excerpt: "Bruce plays “Who’ll Stop the Rain” for the first time. Plus: Listen to Bruce’s Asbury Park holiday show from 2000."
+tags: asbury-park bobby-bandiera bruce-springsteen-band holiday-shows madison-square-garden marah max-weinberg-7 new-york-city river-tour southside-johnny stone-pony student-prince
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/19801218_3_front.jpg
+post_id: 55360
+---
 **New for 2024:** *No updates*
 
 **1971:**<br>

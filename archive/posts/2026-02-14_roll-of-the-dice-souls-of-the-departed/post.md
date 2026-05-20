@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Souls of the Departed"
+author: "Ken"
+excerpt: "“Souls of the Departed” serves as the mirror image and bookend to “Better Days” on Bruce’s Lucky Town album–a deeply unsettling song about the hidden costs of a charmed life."
+tags: better-days lucky-town souls-of-the-departed
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/candles.png
+post_id: 7820
+---
 Even when Bruce is happiest with his lot in life, he grapples with the systemic social inequality that made it possible.
 
 There's probably no better example of this duality at work in his music than "Souls of the Departed."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 7"
+author: "Ken"
+excerpt: "On this date: recording sessions begin for Bruce’s first album, Pete Townshend makes a guest appearance, and more."
+tags: birmingham chicago child crawdaddy dancing-in-the-dark devils-and-dust-tour drive-all-night fade-away italy madrid milan new-york-city pete-townshend reunion-tour san-siro spain springsteen-on-broadway stockholm sweden syracuse the-river uk working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/bs250607_02.jpg
+post_id: 57022
+---
 **1969:** Child headlines at the eighth grade graduation concert at Blessed Sacrament Regional School in Margate, New Jersey.<br>
 
 **1972:** Recording sessions begin for Bruce's first album, *Greetings From Asbury Park, N.J.* Bruce records five solo tracks today: "Arabian Nights," "Cowboys of the Sea," "Growin' Up," "Lady and the Doctor," and "Street Queen." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>

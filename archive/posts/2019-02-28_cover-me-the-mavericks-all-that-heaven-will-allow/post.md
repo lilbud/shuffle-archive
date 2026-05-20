@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Mavericks: All That Heaven Will Allow"
+author: "Ken"
+excerpt: "Rockabilly punk-turned-country band The Mavericks covered Bruce’s “All That Heaven Will Allow” as the fifth single from their 1994 album. Take a listen and watch a great live performance inside."
+tags: all-that-heaven-will-allow the-mavericks
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/mavs.jpg
+post_id: 6942
+---
 Since we're celebrating the anniversary of the kick-off of the Tunnel of Love Express Tour this week, it seems fitting to spotlight a cover of one of the centerpieces of that tour.
 
 The Mavericks may be a country music band, but they weren't always. They started out as rockabilly punk, playing gigs with such artists as Marilyn Manson, before eventually cementing themselves as a country band in the 1990s.

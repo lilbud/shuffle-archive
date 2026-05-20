@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Talk to Me"
+author: "Ken"
+excerpt: "“Talk to Me” took a strange and winding path from the studio to vinyl to the E Street stage, but it’s guaranteed to make us laugh anytime Bruce pulls it out. But let’s not think too hard about the lyrics."
+tags: darkness-on-the-edge-of-town hearts-of-stone southside-johnny talk-to-me the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/talk-to-me.png
+post_id: 7531
+---
 No other song in Bruce's catalog brings out his inner ham more than "Talk to Me."
 
 If you're lucky enough to get it at one of your shows, it means that Bruce is in a goofy mood. ("Talk to Me" is rarely setlisted; it's almost always an audible or a sign request.)

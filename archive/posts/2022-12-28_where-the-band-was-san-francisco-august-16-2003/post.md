@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: San Francisco, August 16, 2003"
+author: "Ken"
+excerpt: "Sometimes the journey is better than the destination, and sometimes the wait is even better than the show."
+tags: across-the-border pacific-bell-park rising-tour san-francisco
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/pacbell.jpg
+post_id: 3752
+---
 Some shows stand out more for the setting than the show, and this was one of them.
 
 Not that the performance was lacking–in fact, it was full of highlights, from the full-band world premiere of “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md),” to a rare “[Something in the Night,](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” to an always-welcome “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” to my very first “Rosalita (Come Out Tonight),” which until the summer of 2003 had gone AWOL from non-NJ shows for almost two decades. “Across the Border” in particular was a revelation–it was the first time I realized that the mighty E Street Band is as versatile as it is powerful, delivering a performance of delicate beauty that held an entire ballpark under its spell.

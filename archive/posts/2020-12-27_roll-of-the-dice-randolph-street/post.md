@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Randolph Street"
+author: "Ken"
+excerpt: "Part therapy and part love letter, “Randolph Street” is a breathtakingly intimate remembrance of his grandparents."
+tags: randolph-street
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/randolph.jpg
+post_id: 23579
+---
 > *The "radio man" is coming. That's how my grandfather is known… I am simply the young protégé grandson of the "radio man."*<br>
 >
 > *[My grandparents'] house was old and soon to be noticeably decrepit. One kerosene stove in the living room was* *all we had to heat the whole place.*<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Sting and Bruce Springsteen: Guitar Man"
+author: "Ken"
+excerpt: "One time only: Bruce joins Sting for a rocking cover of Jerry Reed’s and Elvis Presley’s 1967 single."
+tags: elvis-presley guitar-man jerry-reed sting
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/guitar-man.jpg
+post_id: 26454
+---
 Looks like the dice turned up an Elvis double-shot! Yesterday we heard Bruce cover Elvis’ breakthrough smash hit; today’s entry is a bit more obscure.
 
 “Guitar Man” actually originated with Jerry Reed, who took it to #53 on the Billboard Hot Country Singles chart in 1967.

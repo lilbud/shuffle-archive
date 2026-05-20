@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sinaloa Cowboys"
+author: "Ken"
+excerpt: "Inspired by actual headlines and a personal story, Bruce crafted the quiet, tragic tale of the Rosales Brothers."
+tags: sinaloa-cowboys the-ghost-of-tom-joad
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/sinaloa-1.jpg
+post_id: 29797
+---
 > "The cookers themselves–recruited from the fields–sometimes are not aware of the dangers. Hydriodic acid… eats through not only skin but concrete. If inhaled, its fumes cause chemical pneumonia, which can bring a quick, painful death.
 >
 > "‘We have no idea how may dead Mexicans we find in the desert died from breathing in meth fumes,' one DEA agent said."

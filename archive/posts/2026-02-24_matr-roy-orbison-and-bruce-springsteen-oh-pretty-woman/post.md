@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Oh, Pretty Woman"
+author: "Ken"
+excerpt: "Why does Bruce have so much trouble getting through “Oh, Pretty Woman?” Who knows, but it’s fun to watch him try. Check out a bevy of great performances with Roy Orbison, Elvis Costello, and John Fogerty."
+tags: black-and-white-night elvis-costello john-fogerty rock-and-roll-hall-of-fame roy-orbison spectacle-elvis-costello-with
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/480699073_1161838361960903_8279953581274662997_n.jpg
+post_id: 11847
+---
 Bruce Springsteen has covered hundreds–many hundreds–of songs in concert, so we count ourselves fortunate if even a single performance of a song was captured on tape or video.
 
 So how lucky are we to have not just one but *five* versions of Roy Orbison's all-time great on video in spectacular quality?

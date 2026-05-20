@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Love Me Tender"
+author: "Ken"
+excerpt: "During the early weeks of the Tunnel of Love Express Tour, Bruce often closed the show with a mid-encore performance of Elvis Presley’s enduring classic, “Love Me Tender.” Watch a 31-year old performance captured on video inside."
+tags: aura-lea elvis-presley frances-farmer love-me-tender
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/elvis-presley-love-me-tender-rca-12.jpg
+post_id: 7794
+---
 For today's entry, we need to travel *way*, way back–all the way to the American Civil War, in fact.
 
 In 1861, George Poulton and W.W. Fosdick published a love song called "Aura Lea." Popular during the war, "Aura Lea" lingered in the periphery of American popular culture for decades after, notably appearing in the 1936 film adaptation of *Come and Get It*, where it was sung by Frances Farmer.

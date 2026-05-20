@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Roger Daltrey: Born to Run"
+author: "Ken"
+excerpt: "It may have taken him two attempts to get started, but Roger Daltrey absolutely nails his “Born to Run” cover."
+tags: born-to-run roger-daltrey
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/daltrey.jpg
+post_id: 4538
+---
 It may have taken him two attempts to get started, but dang–Roger Daltrey absolutely *nails* his "Born to Run" cover.
 
 [Watch on Youtube: Roger Daltrey covers Born to Run by Bruce Springsteen](https://www.youtube.com/watch?v=JNyut-S5fWs)

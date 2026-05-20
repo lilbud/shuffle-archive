@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 10"
+author: "Ken"
+excerpt: "Listen to the never-released “Sell It and They Will Come,” first performed on this day in 1996, an E Street Radio interview from 2014, and more."
+tags: born-in-the-usa-tour boston e-street-radio ghost-of-tom-joad-tour high-hopes louisville sell-it-and-they-will-come springsteen-on-broadway steel-mill
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/Detroit_Free_Press_1996_01_11_Page_15.jpg
+post_id: 55576
+---
 **1970:** Steel Mill plays the College of Marin during their California sojourn.<br>
 
 **1973:** Bruce and the band continue their Boston residency with two shows at Paul’s Mall.<br>

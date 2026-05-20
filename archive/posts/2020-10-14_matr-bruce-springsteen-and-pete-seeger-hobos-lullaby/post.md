@@ -1,4 +1,14 @@
-There aren't a lot of outtakes floating around from Bruce's original Seeger Sessions, but there are a couple hiding in plain sight… if you know where to look for them.
+---
+layout: post
+title: "MatR: Bruce Springsteen and Pete Seeger: Hobo's Lullaby"
+author: "Ken"
+excerpt: "One of the rare outtakes from the Seeger Sessions, “Hobo’s Lullaby” features Bruce and Pete Seeger in one of their few studio recordings together."
+tags: arlo-guthrie give-us-your-poor hobos-lullaby pete-seeger
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/yourpoor.jpg
+post_id: 20113
+---
+There aren't a lot of outtakes floating around from Bruce's original Seeger Sessions, but there are a couple hiding in plain sight... if you know where to look for them.
 
 We shone a spotlight on one of them ("[If I Had a Hammer](../2019-10-07_cover-me-if-i-had-a-hammer/post.md)") about a year ago; now let's take a look at another.
 
@@ -25,7 +35,7 @@ Bruce and Pete recorded "Hobo's Lullaby" from different locations, but they did 
 However, that lone live performance wasn't a duet; Bruce and Pete were joined by Joe Ely, The Indigo Girls, Ani DiFranco, Arlo Guthrie, and others, so that very rare studio recording (it doesn't stream on the major services, and the CD itself is out of print) is our only chance to hear Bruce and Pete perform "Hobo's Lullaby" together.
 
 **Hobo's Lullaby**<br>
-**Recorded** November 2, 1997 – July 4, 2008<br>
+**Recorded:** November 2, 1997 – July 4, 2008<br>
 **Released:** *Give US Your Poor* (2007)<br>
 **First performed:** September 29, 1996 (Cleveland, OH)<br>
 **Last performed:** September 29, 1996 (Cleveland, OH)<br>

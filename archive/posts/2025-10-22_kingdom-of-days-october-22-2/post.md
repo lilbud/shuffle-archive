@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 22"
+author: "Ken"
+excerpt: "The first “Shut Out the Light,” the last “The Long Goodbye,” and Bruce’s first appearance with Gary U.S. Bonds–all this and more on this date in Springsteen history."
+tags: adam-raised-a-cain bobby-bandiera born-in-the-usa-tour boston-college chicago further-on-up-the-road gary-u-s-bonds ghost-of-tom-joad-tour granada john-henry magic-tour mountain-view oakland old-dan-tucker rising-tour rotterdam san-diego seeger-sessions-tour shut-out-the-light spain spirit-in-the-night stone-pony the-long-goodbye the-netherlands the-river thunder-road waitin-on-a-sunny-day world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/19841022_front.jpg
+post_id: 61184
+---
 ***New for 2025:** Audio for 2006; new entry for 2024*<br>
 
 **1976:** Bruce drops by The Hanger in Hazlet, New Jersey, to see Gary U.S. Bonds perform–unknown to Gary. Mid-show, the owner whispers to Gary that Bruce is in the audience and is interested in joining him on stage. Gary has no idea who Bruce is, but his band does and they encourage Bonds to say yes. He does, and Bruce and Gary meet for the first time. Bruce borrows a guitar and plays with Bonds and the band for about an hour, and afterwards Bruce invites Gary to join him at his show at the Palladium the following week.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 29"
+author: "Ken"
+excerpt: "On this date: Listen to a great Springsteen concert recording from 1974, watch Bruce’s first press conference in 20 years, and more."
+tags: ames big-bad-bobby-williams-band bobby-bandiera bruce-springsteen-band cape-town castiles ghost-of-tom-joad-tour goin-cali high-hopes-tour i-wanna-marry-you japan max-weinberg mos-def nashville river-tour river-tour-2016 south-africa southside-johnny stolen-car stone-pony super-bowl tokyo tougher-than-the-rest washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/dc2016.jpg
+post_id: 55812
+---
 **1966:** The Castiles play the Matawan-Keyport Roller Drome in Matawan, New Jersey. Can you believe you could once see Bruce play for $1.25?<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1966-0129.jpg.webp)
@@ -8,9 +18,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/bobbywilliams.jpg.webp)
 
-**1972:** The Bruce Springsteen Band continues a three-night gig at The Captain's Garter in Neptune, New Jersey.<br>
+**1972:** The Bruce Springsteen Band continues a three-night gig at The Captain’s Garter in Neptune, New Jersey.<br>
 
-**1974:** Bruce and the band open for Freddie King at Muther's Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he'd hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" below.<br>
+**1974:** Bruce and the band open for Freddie King at Muther’s Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he’d hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)” below.<br>
 
 [Watch on Youtube: Bruce Springsteen - INCIDENT ON 57TH STREET 1974 (audio)](https://www.youtube.com/watch?v=vi3gv3GLZ3s)
 
@@ -28,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1981-01-29a.jpg.webp)
 
-**1991:** Bruce records "[Goin' Cali](../2019-01-01_roll-of-the-dice-goin-cali/post.md)" at A&M Studios in Los Angeles. It will be released seven years later on *Tracks*.<br>
+**1991:** Bruce records “[Goin’ Cali](../2019-01-01_roll-of-the-dice-goin-cali/post.md)” at A&M Studios in Los Angeles. It will be released seven years later on *Tracks*.<br>
 
 [Watch on Youtube: Goin' Cali (Studio Outtake - 1991)](https://www.youtube.com/watch?v=hSwtuwgZ9J4)
 
@@ -40,19 +50,19 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Asbury_Park_Press_1998_01_30_Page_2.jpg.webp)
 
-**2009:** Bruce and the E Street Band hold a press conference (Bruce's first in over twenty years) and a dress rehearsal for their upcoming Super Bowl performance.<br>
+**2009:** Bruce and the E Street Band hold a press conference (Bruce’s first in over twenty years) and a dress rehearsal for their upcoming Super Bowl performance.<br>
 
 [Watch on Youtube: Bruce Springsteen taking Viagra](https://www.youtube.com/watch?v=b5-nERmAwo8)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Pittsburgh_Post_Gazette_2009_01_30_Page_48.jpg.webp)
 
-**2011:** Bruce plays a benefit for his kids' school at The Stone Pony in Asbury Park, joined by Bobby Bandiera, Max Weinberg, and Southside Johnny.<br>
+**2011:** Bruce plays a benefit for his kids’ school at The Stone Pony in Asbury Park, joined by Bobby Bandiera, Max Weinberg, and Southside Johnny.<br>
 
 [Watch on Youtube: BRUCE SPRINSTEEN @THE STONE PONY from the stage.](https://www.youtube.com/watch?v=6V07k6CHBHA)
 
 [Watch on Youtube: Bruce stone pony 1/30/2011](https://www.youtube.com/watch?v=l7420VsTrPU)
 
-**2014:** The final night in Cape Town brings *sixteen* tour premieres, including the first-ever performance of "[This Is Your Sword.](../2021-02-04_roll-of-the-dice-this-is-your-sword/post.md)" Mos Def guest-stars in the encore for "Sun City."<br>
+**2014:** The final night in Cape Town brings *sixteen* tour premieres, including the first-ever performance of “[This Is Your Sword.](../2021-02-04_roll-of-the-dice-this-is-your-sword/post.md)” Mos Def guest-stars in the encore for “Sun City.”<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/20140129-CapeTown-Centermic-After.jpg.webp)
 
@@ -60,7 +70,7 @@
 
 [Watch on Youtube: 2014-01-29 - Bruce Springsteen - Cape Town Bellville Velodrome - Thunder Road - HD](https://www.youtube.com/watch?v=bWMS6wt_A5I)
 
-Also today: Le Grand Journal publishes Antoine de Caunes' interview with Bruce.
+Also today: Le Grand Journal publishes Antoine de Caunes’ interview with Bruce.
 
 [Watch on Youtube: Bruce Springsteen, l'interview - Le Grand Journal](https://www.youtube.com/watch?v=js0SOEnIOlw)
 

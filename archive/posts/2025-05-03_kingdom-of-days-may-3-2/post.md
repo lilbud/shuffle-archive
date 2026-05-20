@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 3"
+author: "Ken"
+excerpt: "On this date: Bruce records his first demos for Columbia Records, honors Pete Seeger and Dr. John, makes a return visit to Jazz Fest, and more."
+tags: arkansas canada columbia-records devils-and-dust-tour dr-john elliott-murphy gaslight-anthem gothenburg green-river high-hopes-tour history-books hollywood im-a-coward im-so-lonesome-i-could-cry jazz-fest john-fogerty john-hammond light-of-day little-latin-lupe-lu little-rock mary-queen-of-arkansas mountain-view new-orleans new-york pete-seeger reunion-tour rickie-lee-jones right-place-wrong-time river-tour stockholm sweden tenth-avenue-freeze-out toronto tracks tunnel-of-love-express-tour twist-and-shout when-the-saints-go-marching-in wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/20140503_front.jpg
+post_id: 56669
+---
 ***New for 2025:** Audio for 1972; new entry for 1982; video for 1988*<br>
 
 **1972:** After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them ("[Mary Queen of Arkansas,](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" "[It's Hard to Be a Saint in the City,](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and "[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" will be released more than a quarter century later on *Tracks*. Others, like "[Two Hearts in True Waltz Time](../2019-09-10_roll-of-the-dice-two-hearts-in-true-waltz-time/post.md)" and "[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)," remain unreleased.<br>

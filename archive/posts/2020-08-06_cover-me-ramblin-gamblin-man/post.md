@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Ramblin' Gamblin' Man"
+author: "Ken"
+excerpt: "Two bands, one venue, and one great tribute: watch Bruce Springsteen cover Bob Seger’s first great hit."
+tags: bob-seger bob-seger-system ramblin-gamblin-man
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/gamblin.jpg
+post_id: 17366
+---
 Bob Seger is to Detroit what Bruce Springsteen is to New Jersey, so if you’re catching one of Bruce’s shows in the Motor City area, make sure your set list bingo card has a Seger cover on it–and “Ramblin’ Gamblin’ Man” would be a great place to start.
 
 “Ramblin’ Gamblin’ Man was Seger’s first Top 40 hit (with his original Bob Seger System band), peaking at #17 on the Billboard Hot 100 when it was released all the way back in 1968.

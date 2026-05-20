@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Price You Pay"
+author: "Ken"
+excerpt: "“The Price You Pay” is considered to be one of Bruce’s most enigmatic songs, but it’s only the backstory that’s mysterious–the song reveals itself when we pay close attention."
+tags: the-price-you-pay the-river the-ties-that-bind-the-river-collection
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/The-price-you-pay_front.jpg
+post_id: 12486
+---
 I have a theory about "The Price You Pay."
 
 "The Price You Pay" is widely considered to be one of Bruce's most enigmatic songs. Pick up a book, or consult your favorite blog (besides this one) about this song, and you'll likely find adjectives like "enigmatic," "existential," or "biblical" attached to it. (That's if they address the song's meaning at all; some are quite careful to avoid doing so.)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Two Hearts"
+author: "Ken"
+excerpt: "“Two Hearts” is one of Bruce’s early songwriting masterpieces, and one that is best listened to acoustically than in its original arrangement."
+tags: patti-scialfa steve-van-zandt the-river two-hearts
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/twohearts-1.jpg
+post_id: 2293
+---
 Let's establish up front: the definitive version of "Two Hearts" can't be found on *The River*. To do justice to one of Bruce's greatest songwriting accomplishments, we must look to his hometown acoustic performance from 1996, available as an official archive series recording.
 
 Here, at his old high school, in front of a crowd of Freehold locals, accompanied by Soozie on violin and supporting vocals from both Soozie and Patti, "Two Hearts" gets its first public concert outing in over a decade (other than a couple of one-offs at promotional events for *Greatest Hits*), rearranged and reinvented with the wisdom of age and the tenderness of compassion that is missing in the original recording:

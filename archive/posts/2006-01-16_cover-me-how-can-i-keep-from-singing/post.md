@@ -1,12 +1,22 @@
+---
+layout: post
+title: "How Can I Keep From Singing"
+author: "Ken"
+excerpt: "Buried away on the bonus DVD that accompanied the original Seeger Sessions album release, Bruce’s arrangement of “How Can I Keep From Singing” was too beautiful to keep hidden away for long. Listen to beautiful choral performances inside."
+tags: how-can-i-keep-from-singing pete-seeger we-shall-overcome-the-seeger-sessions-american-land-edition
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/singing.jpg
+post_id: 13196
+---
 Here's one of the most under-the-radar officially released Springsteen tracks: a cover of a Christian hymn that dates back to at least the American Civil War era, about a devout but persecuted worshiper who refuses to surrender his faith.
 
 The most notable recording–and probably the one that caught Bruce's attention–was Pete Seeger's rendition. Seeger's version of "How Can I Keep From Singing" updates the song with a modern verse that refers to persecution that's more political than religious:
 
-> *When tyrants tremble, sick with fear, and hear their death-knell ringing*
-> *When friends rejoice both far and near, how can I keep from singing?*
+> *When tyrants tremble, sick with fear, and hear their death-knell ringing*<br>
+> *When friends rejoice both far and near, how can I keep from singing?*<br>
 
-> *In prison cell and dungeon vile, our thoughts to them go winging*
-> *When friends by shame are undefiled, how can I keep from singing?*
+> *In prison cell and dungeon vile, our thoughts to them go winging*<br>
+> *When friends by shame are undefiled, how can I keep from singing?*<br>
 
 [Watch on Youtube: How Can I Keep from Singing (Live)](https://www.youtube.com/watch?v=SRIY2SrYq98)
 

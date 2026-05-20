@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meet Me at the End of the World"
+author: "Ken"
+excerpt: "Bruce’s last public premiere to date was an eerily prescient one: Jesse Malin’s “Meet Me at the End of the World.”"
+tags: jesse-malin meet-me-at-the-end-of-the-world sunset-kids
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/meetmeend.jpg
+post_id: 24351
+---
 Fun fact #1: Bruce's last "first-ever" at an in-person, public concert to date (as of this writing, anyway) was an eerily prescient team-up with Jesse Malin at Light of Day 20, almost exactly a year ago.
 
 Jesse wrote "Meet Me at the End of the World" as a commentary on the dire state of world affairs… in 2017. (If he only knew what was coming.)

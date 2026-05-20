@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: She's Sure the Girl I Love"
+author: "Ken"
+excerpt: "One time only: Bruce covers Darlene Love (in a song for which she was never credited) for the first time in the summer of 1976."
+tags: darlene-love hes-sure-the-boy-i-love the-blossoms the-crystals
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/crystals-hes-sure-the-boy-i-love.jpg
+post_id: 20490
+---
 Like “[He’s a Rebel](../2021-10-02_matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/post.md)” and “[Da Doo Ron Ron](../2019-01-02_matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/post.md),” figuring out who to credit for “He’s Sure the Boy I Love” isn’t straightforward.
 
 Legally, the 1962 Top 20 Hit (it peaked at #11 on the Billboard Hot 100 and #18 on the Hot R&B Singles chart) was credited to The Crystals. But that was news to The Crystals, because the song was actually recorded by a group called The Blossoms, fronted by one Darlene Love.

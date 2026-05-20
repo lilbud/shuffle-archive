@@ -1,12 +1,25 @@
+---
+layout: post
+title: "Where the Band Was: Detroit, October 3, 2004"
+author: "Ken"
+excerpt: "The Dixie Chicks make a surprise appearance in Detroit, joining Bruce, REM, and company on the Vote for Change stage."
+tags: bright-eyes detroit dixie-chicks john-fogerty rem vote-for-change-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/vfcdet.jpg
+post_id: 4718
+---
+
 The nice thing about the 2004 "swing states" is that most of them were pretty close to each other. The drive from Cleveland to Detroit took less than three hours, so it was a pretty low-stress travel day considering I was doing back-to-back shows.
 
-Vote for Change Night Three was pretty similar to [Night Two](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)–the wild cards were tame by Bruce's standards ("[The Ties that Bind,](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," and "Travelin' Band"), but that was okay by me. These shows weren't about the setlists.
+Vote for Change Night Three was pretty similar to –the wild cards were tame by Bruce's standards ("" "," and "Travelin' Band"), but that was okay by me. These shows weren't about the setlists.
 
-[Watch Video Highlight](https://videopress.com/embed/vUaSHbY3)
+[Night Two](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)[The Ties that Bind,](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)
 
-[Watch Video Highlight](https://videopress.com/embed/1wwST4YS)
+[https://videopress.com/embed/vUaSHbY3](https://videopress.com/embed/vUaSHbY3)
 
-[Watch Video Highlight](https://videopress.com/embed/i887Mjrt)
+[https://videopress.com/embed/1wwST4YS](https://videopress.com/embed/1wwST4YS)
+
+[https://videopress.com/embed/i887Mjrt](https://videopress.com/embed/i887Mjrt)
 
 These were different than "normal" Bruce shows–not just because of the presence of other artists and the abbreviated set length, but also because of the fans that chose to show up: an unabashedly partisan affair, these shows drew out-and-out progressives.
 
@@ -14,6 +27,8 @@ Even though I knew it was coming–I knew this was a show with a message and a g
 
 By the end of those two shows, however, I was galvanized and in motion. Upon returning home, I immediately volunteered for the final push of the Kerry/Edwards campaign, and that started a journey of volunteer activism that led me four years later to become a state delegate for Hillary Clinton. I can and do thank Bruce for the motivation and exhortation to step up–he definitely added an unanticipated and exhilarating new dimension to my life.
 
-And if we needed any more encouragement before heading out into the night, we got it from The Dixie Chicks, who dashed over from their own Vote for Change show which had *just* finished nearby. They arrived just in time to join the assembled performers for the show-closing "[People Have the Power](../2020-01-09-matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/post.md/)."
+And if we needed any more encouragement before heading out into the night, we got it from The Dixie Chicks, who dashed over from their own Vote for Change show which had finished nearby. They arrived just in time to join the assembled performers for the show-closing "."
+
+*just* [People Have the Power](../2020-01-09-matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/post.md/)
 
 Before they launched into the song, Bruce asked the Chicks (with a twinkle in his eye), "You girls aren't starting any trouble tonight, are you?" — referring of course, to their famous on-stage criticism of President Bush at their show in Texas earlier that year, and the backlash it created. There couldn't have been a more perfect song for them to join in on.

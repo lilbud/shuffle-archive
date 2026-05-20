@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Alejandro Escovedo and Bruce Springsteen: Always a Friend"
+author: "Ken"
+excerpt: "In 2008, Alejandro Escovedo’s upcoming single received an unexpected boost from The Boss when Bruce asked Alejandro to perform it with him live in concert–their first joint appearance of many."
+tags: alejandro-escovedo always-a-friend
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/always-friend.jpg
+post_id: 20799
+---
 > "Those four minutes on stage with Bruce were more important than the 33 years I've been playing music. It just changed my life. It was like being blessed by the Dalai Lama. Suddenly all those years of working really hard and struggling, someone said, ‘You're alright. You're good at what you do. You deserve to be up here.'" *–Alejandro Escovedo, Backstreets interview, July 2008*<br>
 
 Bruce Springsteen has long been a fan of Alejandro Escovedo. The two singer-songwriters performed together five times in as many years, trading stages in their home states of New Jersey and Texas.

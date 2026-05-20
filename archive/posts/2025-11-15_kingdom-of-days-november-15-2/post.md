@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 15"
+author: "Ken"
+excerpt: "Bruce debuts “Turn Back the Hands of Time” and a country arrangement of “No Surrender,” takes over the Tonight Show, and teaches us how to count."
+tags: 4th-of-july-asbury-park-sandy albany ben-stiller born-in-the-usa-tour born-to-run-30th-anniversary cleveland crush-on-you dont-look-back easton hartford houston jole-blon land-of-hope-and-dreams living-proof magic-tour milwaukee my-fathers-place no-surrender npr point-blank reunion-tour river-tour roslyn springsteen-on-broadway st-louis state-trooper terry-gross working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/Bruce_Springsteen_Born_To_Run_30_Main.jpg
+post_id: 61367
+---
 ***New for 2025:** Expanded entry and audio for 1979; review for 1980*<br>
 
 **1973:** Bruce and his band headline two shows at My Father's Place in Roslyn, New York.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Held Up Without a Gun"
+author: "Ken"
+excerpt: "At 77 seconds, this furious 1980 B-side is Bruce’s shortest studio track on record."
+tags: held-up-without-a-gun the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/heldup.jpg
+post_id: 29687
+---
 "Held Up Without a Gun" came darn close to making the final pressing of *The River*.
 
 How close? This close:

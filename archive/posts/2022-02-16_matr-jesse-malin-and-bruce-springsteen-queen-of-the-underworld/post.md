@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Jesse Malin and Bruce Springsteen: Queen of the Underworld"
+author: "Ken"
+excerpt: "Bruce and Jesse’s first-ever on-stage performance was the lead single from Jesse’s debut album."
+tags: jesse-malin queen-of-the-underworld
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/51626WmERL.jpg
+post_id: 32830
+---
 > "Jesse's got one of those rare albums out these days that's *really* an album... it's got all good songs on it." — Bruce Springsteen, December 7, 2003
 
 True enough.

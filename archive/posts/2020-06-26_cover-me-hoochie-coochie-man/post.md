@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Hoochie Coochie Man"
+author: "Ken"
+excerpt: "Almost 50 years ago, The Bruce Springsteen Band put their own stamp on Muddy Waters’ biggest hit. Listen to their absolutely epic “Hoochie Coochie Man” inside."
+tags: hoochie-coochie-man muddy-waters the-bruce-springsteen-band
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/hoochie.jpg
+post_id: 19180
+---
 When Muddy Waters released "Hoochie Coochie Man" in 1954, he introduced a vocal stop-time device that would quickly become one of the most recognizable riffs in any form of music, let alone the blues.
 
 [Watch on Youtube: Muddy Waters - Hoochie Coochie Man ( Chess 1954)](https://www.youtube.com/watch?v=AFxrLOVwsEE)

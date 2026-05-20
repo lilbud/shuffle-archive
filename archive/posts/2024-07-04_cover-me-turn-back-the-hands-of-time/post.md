@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Turn Back the Hands of Time"
+author: "Ken"
+excerpt: "One of the strongest tracks on the album and one of the few to receive a promotional push, we’re still waiting for the proper concert debut for Bruce’s cover of Tyrone Davis’ 1970 classic."
+tags: only-the-strong-survive turn-back-the-hands-of-time tyrone-davis
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/51SLlhhNGL._UF10001000_QL80_.jpg
+post_id: 52381
+---
 "Wanna sing, son?"
 
 The way the story goes, Tyrone Davis was dressed to kill that night.

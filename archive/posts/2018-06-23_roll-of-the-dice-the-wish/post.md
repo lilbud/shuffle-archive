@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Wish"
+author: "Ken"
+excerpt: "“The Wish” is Bruce’s most autobiographical song, and it’s more resonant and poignantly powerful today than ever."
+tags: springsteen-on-broadway the-wish tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/thewish-2.jpg
+post_id: 2879
+---
 I'm about to break my own rules–three of them, in fact:
 
 - I'm ignoring the randomizer and choosing the song I want to write about, something I haven't done since my very first post.
@@ -14,38 +24,38 @@ Here's the very first time Bruce played "The Wish," eight years before he releas
 
 [Watch on Youtube: Springsteen The Wish](https://www.youtube.com/watch?v=8QZMvgAu1lA)
 
-> *Dirty old street all slushed up in the rain and snow*
-> *Little boy and his ma shivering outside a rundown music store window*
-> *That night on top of a Christmas tree shines one beautiful star*
-> *And lying underneath a brand-new Japanese guitar*
+> *Dirty old street all slushed up in the rain and snow*<br>
+> *Little boy and his ma shivering outside a rundown music store window*<br>
+> *That night on top of a Christmas tree shines one beautiful star*<br>
+> *And lying underneath a brand-new Japanese guitar*<br>
 
-> *I remember in the morning, ma, hearing your alarm clock ring*
-> *I'd lie in bed and listen to you gettin' ready for work*
-> *The sound of your makeup case on the sink*
-> *And the ladies at the office, all lipstick, perfume and rustlin' skirts*
-> *And how proud and happy you always looked walking home from work*
+> *I remember in the morning, ma, hearing your alarm clock ring*<br>
+> *I'd lie in bed and listen to you gettin' ready for work*<br>
+> *The sound of your makeup case on the sink*<br>
+> *And the ladies at the office, all lipstick, perfume and rustlin' skirts*<br>
+> *And how proud and happy you always looked walking home from work*<br>
 
-> *If pa's eyes were windows into a world so deadly and true*
-> *You couldn't stop me from looking but you kept me from crawlin' through*
-> *And if it's a funny old world, mama, where a little boy's wishes come true*
-> *Well I got a few in my pocket and a special one just for you*
+> *If pa's eyes were windows into a world so deadly and true*<br>
+> *You couldn't stop me from looking but you kept me from crawlin' through*<br>
+> *And if it's a funny old world, mama, where a little boy's wishes come true*<br>
+> *Well I got a few in my pocket and a special one just for you*<br>
 
-> *It ain't no phone call on Sunday, flowers or a mother's day card*
-> *It ain't no house on a hill with a garden and a nice little yard*
-> *I got my hot rod down on Bond Street, I'm older but you'll know me in a glance*
-> *We'll find us a little rock ‘n roll bar and baby we'll go out and dance*
+> *It ain't no phone call on Sunday, flowers or a mother's day card*<br>
+> *It ain't no house on a hill with a garden and a nice little yard*<br>
+> *I got my hot rod down on Bond Street, I'm older but you'll know me in a glance*<br>
+> *We'll find us a little rock ‘n roll bar and baby we'll go out and dance*<br>
 
-> *Well it was me in my Beatle boots, you in pink curlers and matador pants*
-> *Pullin' me up of the couch to do the twist for my uncles and aunts*
-> *Well I found a girl of my own now, ma, I popped the question on your birthday*
-> *She stood waiting on the front porch while you were telling me to get out there*
-> *And say what it was that I had to say*
+> *Well it was me in my Beatle boots, you in pink curlers and matador pants*<br>
+> *Pullin' me up of the couch to do the twist for my uncles and aunts*<br>
+> *Well I found a girl of my own now, ma, I popped the question on your birthday*<br>
+> *She stood waiting on the front porch while you were telling me to get out there*<br>
+> *And say what it was that I had to say*<br>
 
-> *Last night we all sat around laughing at the things that guitar brought us*
-> *And I layed awake thinking 'bout the other things it's brought us*
-> *Well tonight I'm takin's requests here in the kitchen*
-> *This one's for you, ma, let me come right out and say it*
-> *It's overdue, but baby, if you're looking for a sad song, well I ain't gonna play it*
+> *Last night we all sat around laughing at the things that guitar brought us*<br>
+> *And I layed awake thinking 'bout the other things it's brought us*<br>
+> *Well tonight I'm takin's requests here in the kitchen*<br>
+> *This one's for you, ma, let me come right out and say it*<br>
+> *It's overdue, but baby, if you're looking for a sad song, well I ain't gonna play it*<br>
 
 Bruce recorded the song during the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) sessions, but he sat on the song for more than a decade before releasing it on *Tracks*.
 
@@ -69,10 +79,10 @@ At that very moment, I instantly recollected a story and video that went viral a
 
 I remembered that video, and I remember wondering why Bruce would brave the cameras and the elements just to dance at a Saturday afternoon bar gig. And as Bruce started to sing, I knew what lyrics were coming up:
 
-> *It ain't no phone call on Sunday, flowers or a mother's day card*
-> *It ain't no house on a hill with a garden and a nice little yard*
-> *I got my hot rod down on Bond Street, I'm older but you'll know me in a glance*
-> *We'll find us a little rock ‘n roll bar and baby we'll go out and dance*
+> *It ain't no phone call on Sunday, flowers or a mother's day card*<br>
+> *It ain't no house on a hill with a garden and a nice little yard*<br>
+> *I got my hot rod down on Bond Street, I'm older but you'll know me in a glance*<br>
+> *We'll find us a little rock ‘n roll bar and baby we'll go out and dance*<br>
 
 And I knew… I absolutely *knew* what was about to happen. And I started crying before it even happened.
 

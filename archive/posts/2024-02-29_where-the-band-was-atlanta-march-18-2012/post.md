@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Atlanta, March 18, 2012"
+author: "Ken"
+excerpt: "The E Street Band returns at an emotional opener to the Wrecking Ball tour."
+tags: atlanta easy-money my-city-of-ruins tenth-avenue-freeze-out wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/20120318_front.jpg
+post_id: 1137
+---
 If you’re one of those fans who goes to concerts for the classics and makes a beer run during the new songs, don’t go to the first night of a tour.
 
 Me, I try to always make opening night, because I love hearing new material–and since [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)is right up there near the very top of my favorite albums list, I was thrilled to be at the kick-off for the tour.

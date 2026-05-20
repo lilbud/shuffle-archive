@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Scialfa and Bruce Springsteen: You Can't Go Back"
+author: "Ken"
+excerpt: "It may be called 23rd Street Lullaby, but “You Can’t Go Back” is the song that best captures the spirit of Patti’s second album."
+tags: 23rd-street-lullaby patti-scialfa you-cant-go-back
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/youcant.jpg
+post_id: 30171
+---
 The first track may have lent the album its title, but the second track captures its spirit.
 
 In 2004, Patti Scialfa released her second solo album*.* She was fifty years old at the time, and *23rd Street Lullaby* is a very fifty album, filled with layered, beautifully arranged and performed tracks that look back at the songwriter's youth from a vantage point decades down the road.

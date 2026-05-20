@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Lady and the Doctor"
+author: "Ken"
+excerpt: "This pre-label story of a doomed love affair features some dazzlingly clever lyrics from our 22-year-old songwriter."
+tags: lady-and-the-doctor
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/ladydoc.jpg
+post_id: 20495
+---
 One of the first songs recorded for *Greetings from Asbury Park, N.J.*, but ultimately discarded from the final release, "Lady and the Doctor" mines a common early Springsteen theme: lovers from different worlds, unable to make it work but unwilling to break it off.
 
 Bruce's recent autobiographical openness sheds light on his penchant for getting himself into toxic relationships in his younger days, so it's not a stretch for us to suspect that "Lady and the Doctor," like fellow immediately pre-label songs like "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" and "[Two Hearts in True Waltz Time](../2019-09-10_roll-of-the-dice-two-hearts-in-true-waltz-time/post.md)," are at least informed if not inspired by Bruce's romantic misfires. They certainly all till similar earth.

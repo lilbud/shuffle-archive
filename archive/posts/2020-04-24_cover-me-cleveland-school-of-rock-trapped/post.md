@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Cleveland School of Rock: Trapped"
+author: "Ken"
+excerpt: "If you ever wonder whether Bruce’s music will stay relevant to new generations, watch this clip of the Cleveland School of Rock performing “Trapped” and put your mind at ease."
+tags: cleveland-school-of-rock trapped
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/6bdc5a3b_school-of-rock-guitar-logo.jpg
+post_id: 17740
+---
 Okay, I'm about to break my own rules, because technically "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" is not a Springsteen original–therefore this is really a Jimmy Cliff cover rather than a Springsteen cover.
 
 But I'm making an exception for two reasons:

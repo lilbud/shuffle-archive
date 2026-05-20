@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Tempe, November 5, 1980 (Barry Rebo's story)"
+author: "Ken"
+excerpt: "Guest-blogger Barry Rebo shares his unique recollections from one of Bruce’s most well-known shows."
+tags: barry-rebo river-tour tempe
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/1980-11-05.jpg
+post_id: 30675
+---
 Editor's Note
 
 **Editor's Note:** Today's guest blogger is friend of the blog and long-time Springsteen fan Barry Rebo. Even if you don't know his name (and many of you certainly do), if you read this blog I guarantee you're familiar with his work.<br>

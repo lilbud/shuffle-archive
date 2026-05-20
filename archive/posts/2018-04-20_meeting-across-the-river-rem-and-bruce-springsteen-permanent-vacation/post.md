@@ -1,4 +1,14 @@
-Seeing REM perform "Permanent Vacation" in concert had to be a thrill for the band's fans–it's an obscure pre-label rocker that the band hadn't played for 20 years, before they unearthed it briefly in 2003.
+---
+layout: post
+title: "Meeting Across the River: REM and Bruce Springsteen, Permanent Vacation"
+author: "Ken"
+excerpt: "One time only: Bruce and REM team go old-old-school (in REM years, at least) on “Permanent Vacation” at the Orlando Vote for Change show in 2004."
+tags: permanent-vacation rem
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/rem.jpg
+post_id: 1644
+---
+Seeing REM perform “Permanent Vacation” in concert had to be a thrill for the band’s fans–it’s an obscure pre-label rocker that the band hadn’t played for 20 years, before they unearthed it briefly in 2003.
 
 [Watch on Youtube: R.E.M. Permanent Vacation](https://www.youtube.com/watch?v=VJzXCdXXiA4)
 

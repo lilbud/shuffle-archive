@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 23"
+author: "Ken"
+excerpt: "Bruce’s video for “Born in the U.S.A.” premiered on MTV on this date–check out the coverage, plus: guest appearances by Bono, Dave Stewart, and Dion, Bruce’s first-ever show in the Netherlands, and more."
+tags: amsterdam austin because-the-night bono born-in-the-usa born-to-run born-to-run-tour bruce-springsteen-band dave-stewart dion if-i-should-fall-behind largo mansion-on-the-hill miami mtv netherlands orlando pat-karwin rising-tour river-tour salem student-prince the-big-muddy vincent-pastore washington-dc world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/bitusa.gif
+post_id: 62429
+---
 ***New for 2025:** Review for 1975*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park. Afterward, Bruce zips over to Linden to join Pat Karwin and the Psychotic Blues Band in a late-night jam session at the New Plaza Theater.<br>
@@ -28,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1980-11-23.png.webp)
 
-**1984:** MTV premieres Bruce’s new video, “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.<br>
+**1984:** MTV premieres Bruce's new video, "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.<br>
 
 [Watch on Youtube: Bruce Springsteen - premiere of "Born in the USA" video on MTV 1984-11-23](https://www.youtube.com/watch?v=vqE08ZnTQNk)
 
@@ -44,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-23b.png.webp)
 
-**2002:** Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: “[Out in the Street,](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)” “Because the Night” (with Bono and Dave Stewart), “So Young and in Love,” and “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.<br>
+**2002:** Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: "[Out in the Street,](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" "Because the Night" (with Bono and Dave Stewart), "So Young and in Love," and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen & Bono - Because The Night (Live in Miami)](https://www.youtube.com/watch?v=hFOLwjmjRR4)
 
@@ -54,7 +64,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2002-11-23.png.webp)
 
-**2019:** Bruce contributes a brief video salute for Steve Van Zandt’s tribute at the Rock and Roll Forever Foundation’s First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their *[Letter to You](../2023-07-10_album-companion-letter-to-you/post.md)*recording session that finished just the day before.<br>
+**2019:** Bruce contributes a brief video salute for Steve Van Zandt's tribute at the Rock and Roll Forever Foundation's First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their *[Letter to You](../2023-07-10_album-companion-letter-to-you/post.md)*recording session that finished just the day before.<br>
 
 [Watch on Youtube: Bruce Springsteen - Video Message - Rock And Roll Foundation Gala Honoring Little Steven](https://www.youtube.com/watch?v=oFdlLxrAAgI)
 
@@ -62,6 +72,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2023/11/2022-11-23-Bruce-on-E-St-Radio.mp3](https://estreetshuffle.com/wp-content/uploads/2023/11/2022-11-23-Bruce-on-E-St-Radio.mp3)
 
-[Watch on Youtube: Obama Inspired Bruce Springsteen to Write a Broadway Show](https://www.youtube.com/watch?v=u_YYMuZIOWU)
+[Watch on Youtube: Obama Inspired Bruce Springsteen to Write a Broadway Show](https://www.youtube.com/watch?v=u_YYMuZIOWU?list=PLnbVaK2f4rahqr0DhY5Jrxhit_eNGeuxh)
 
-[Watch on Youtube: Bruce Springsteen's Kids Ignore His Life as a Rock Star](https://www.youtube.com/watch?v=dbloeSEUojo)
+[Watch on Youtube: Bruce Springsteen's Kids Ignore His Life as a Rock Star](https://www.youtube.com/watch?v=dbloeSEUojo?list=PLnbVaK2f4rahqr0DhY5Jrxhit_eNGeuxh)

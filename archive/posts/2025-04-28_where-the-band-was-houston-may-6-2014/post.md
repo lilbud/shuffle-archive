@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Houston, May 6, 2014"
+author: "Ken"
+excerpt: "What a show! My best pit position ever at an unpredictable ride of rarities and crowd-pleasers. One of my favorite shows ever."
+tags: all-just-to-get-to-you all-or-nothin-at-all born-to-run great-balls-of-fire high-hopes-tour houston hunter-of-invisible-game lucille no-surrender one-step-up seeds thunder-road
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/houston.jpg
+post_id: 2027
+---
 I just listened to this show again the other day, and I can still feel the adrenaline rush.
 
 The pit was ridiculously small, and almost no one showed up for the lottery. We knew the odds of us making the pit were high–but not only did we make the pit, we were only seven behind the lottery winner! The venue was small, and the stage was smaller than usual. There wasn't a lot of room for Bruce to roam, and we were elbows-on-the-stage, at the center stage outcropping, closer than I've ever been before or since.

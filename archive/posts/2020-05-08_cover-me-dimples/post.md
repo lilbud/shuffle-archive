@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Dimples"
+author: "Ken"
+excerpt: "One time only: Bruce soundchecks “Dimples” in 1988 before settling on “Boom Boom” as his steamy early-set John Lee Hooker cover."
+tags: dimples john-lee-hooker
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/dimples.jpg
+post_id: 17746
+---
 Several weeks back, we took a look at "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)," the smoking hot John Lee Hooker song that worked its way into Bruce's set list right around the time he and Patti became a secret item–timing that was probably not coincidental.
 
 But only a few days before, it seemed like Bruce might be on the verge of choosing a different classic Hooker song to add to his set–one that was equally sexy (arguably moreso).

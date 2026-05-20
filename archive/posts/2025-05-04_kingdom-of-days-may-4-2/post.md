@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 4"
+author: "Ken"
+excerpt: "Happy birthday, Soozie Tyrell! Also on this date: Bruce is inducted into the New Jersey Hall of Fame, surprises Swedish fans with a full album performance, and more."
+tags: canada chicken-scratch-tour expressway-to-your-heart frank-sinatra incident-on-57th-street jackson mississippi new-jersey-hall-of-fame reunion-tour soozie-tyrell stockholm sweden toronto uniondale working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/nassau09.jpg
+post_id: 56697
+---
 ***New for 2025:** New entry for 1975, 1982, and 2024; audio for 2000 and 2009; video for 2023*<br>
 
 **1957:** E Street Band violinist Soozie Tyrell is born in Pisa, Italy.<br>

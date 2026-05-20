@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Love Will Get You Down"
+author: "Ken"
+excerpt: "A lost home demo, “Love Will Get You Down” offers us a window into Bruce’s songwriting process–but the final song (if there is one) is still locked away."
+tags: love-will-get-you-down
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/lovedown.jpg
+post_id: 9593
+---
 Not gonna lie: it's a stretch to call today's entry an original song.
 
 If anything, it's a glimpse into the earliest stages of how Bruce constructs a song. Except in this case, it's not clear that the exercise led anywhere.

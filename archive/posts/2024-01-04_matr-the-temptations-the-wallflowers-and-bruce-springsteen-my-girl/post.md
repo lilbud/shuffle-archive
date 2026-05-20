@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Temptations, The Wallflowers, and Bruce Springsteen: My Girl"
+author: "Ken"
+excerpt: "It takes some searching and stretching to find a Springsteen performance of one of the most beloved Motown songs ever."
+tags: little-richard mick-jagger my-girl rock-and-roll-hall-of-fame the-temptations the-wallflowers tina-turner
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/mygirl.jpg
+post_id: 38922
+---
 It’s arguably the greatest answer song of all time.
 
 It turned The Temptations into superstars, reached the top of the Billboard Hot 100 in 1965 and finished in the Top Ten for the entire year.

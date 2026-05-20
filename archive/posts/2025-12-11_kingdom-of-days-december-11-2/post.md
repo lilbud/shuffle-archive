@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 11"
+author: "Ken"
+excerpt: "Watch rare River Tour footage, a holiday performance with Conan O’Brien, an interview on Italian TV, and more."
+tags: bologna born-in-the-usa-tour born-to-run-tour bruce-springsteen-band columbus conan-obrien crush-on-you ghost-of-tom-joad-tour italy kittys-back lexington max-weinberg-7 merry-christmas-baby providence river-tour rosalita seton-hall sherry-darling stolen-car student-prince
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/19801211_4_front.jpg
+post_id: 62985
+---
 ***New for 2025:** No updates*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

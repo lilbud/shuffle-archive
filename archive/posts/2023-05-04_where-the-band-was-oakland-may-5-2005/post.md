@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Oakland, May 5, 2005"
+author: "Ken"
+excerpt: "In which I learn the downside of a celebrity encounter at a show."
+tags: devils-and-dust-tour land-of-hope-and-dreams nebraska oakland two-faces
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/20050505_front.jpg
+post_id: 1907
+---
 I was *so* looking forward to this show.
 
 It was my first chance to see Bruce perform acoustically in a small venue, and my friend Steve and I made the trip from Seattle because we weren't sure if there would be a Pacific Northwest leg later (there was).

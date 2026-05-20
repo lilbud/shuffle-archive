@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: September 10"
+author: "Ken"
+excerpt: "Bruce pays tribute to the late, great Warren Zevon in Toronto, Clarence appears on Late Night with David Letterman, and Gene Siskel reveals what he and Bruce have in common when it comes to movies. More highlights inside."
+tags: barcelona bruce-springsteen-band canada chicago chile cincinnati clarence-clemons darkness-tour david-letterman gene-siskel human-rights-now-tour into-the-fire magic-tour my-rides-here rising-tour river-tour rosemont santiago seven-nights-to-rock siskel-and-ebert spain student-prince toronto warren-zevon wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19880910_2_front.jpg
+post_id: 59633
+---
 ***New for 2025:** New entry for 1979; audio for 2003*<br>
 
 **1971:** The Bruce Springsteen Band continues their residency at The Student Prince.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1971-0910.jpg.webp)
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” makes its tour premiere. If you can’t make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" makes its tour premiere. If you can't make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1978-09-10a.jpg.webp)
 
@@ -12,17 +22,17 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1978-0910.jpg.webp)
 
-**1979:** Bruce records “Mr. Outside” on a cassette recorder at home in Holmdel. He will release it 36 years later on *The Ties That Bind: The River Collection*.<br>
+**1979:** Bruce records "Mr. Outside" on a cassette recorder at home in Holmdel. He will release it 36 years later on *The Ties That Bind: The River Collection*.<br>
 
 [Watch on Youtube: Mr. Outside (Studio Outtake - 1980)](https://www.youtube.com/watch?v=PLa8TaCNM28)
 
-**1981:** At Night Two on the River Tour at Chicago’s Rosemont Horizon, Bruce and the E Street Band play the one and only tour performance of “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md),” its last appearance for almost seven years.<br>
+**1981:** At Night Two on the River Tour at Chicago's Rosemont Horizon, Bruce and the E Street Band play the one and only tour performance of "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)," its last appearance for almost seven years.<br>
 
 [Watch on Youtube: Bruce Springsteen - MONA SHE'S THE ONE 1981 (audio)](https://www.youtube.com/watch?v=zHxCBO7yzCI)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1981-09-10.jpg.webp)
 
-**1984:** On a free day in between shows, Clarence appears as a guest on *Late Night with David Letterman,* and he performs a familiar song with the Red Bank Rockers.<br>
+**1984:** On a free day in between shows, Clarence appears as a guest on *Late Night with David Letterman*, and he performs a familiar song with the Red Bank Rockers.<br>
 
 [Watch on Youtube: Late Night with David Letterman - 9/10/1984](https://www.youtube.com/watch?v=-kpB6TJCrhs)
 
@@ -36,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1985-0909.jpg.webp)
 
-**1988:** The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/).”<br>
+**1988:** The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)."<br>
 
 [Watch on Youtube: Human Rights now! Europe1988 1](https://www.youtube.com/watch?v=VvG4cv96YiI)
 
@@ -54,7 +64,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ntJl0t6p)
 
-**2003:** One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of “[My Ride’s Here](../2022-03-24_cover-me-my-rides-here/post.md).”<br>
+**2003:** One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of "[My Ride's Here](../2022-03-24_cover-me-my-rides-here/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - My Ride's Here SkyDome 9/10/03](https://www.youtube.com/watch?v=SMKLoE5uUu0)
 
@@ -68,7 +78,7 @@
 
 [Watch on Youtube: Soundcheck Bruce Springsteen en Chile!](https://www.youtube.com/watch?v=LA-yNDJDNOM)
 
-**2020:** Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, “[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md).”<br>
+**2020:** Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 

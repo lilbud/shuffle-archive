@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Trouble River"
+author: "Ken"
+excerpt: "Undeservedly obscure, “Trouble River” is a fun Human Touch-era soul rocker with deceptively dark lyrics and a long, terrific guitar solo from Bruce–this one needs more attention."
+tags: 18-tracks trouble-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/Trouble-in-River-City.jpeg
+post_id: 7788
+---
 Talk about hiding in plain sight: For an officially released track, "Trouble River" remains about as obscure as they come.
 
 Recorded in the midst of the *Human Touch* sessions in 1990 but unreleased for almost a decade thereafter, "Trouble River" is an uptempo soul rocker that stands as tall as "[All or Nothin' at All](../2018-01-30_roll-of-the-dice-all-or-nothing-at-all/post.md)," "[Seven Angels](../2018-06-07_roll-of-the-dice-seven-angels/post.md)," and "[The Long Goodbye](../2021-12-05_roll-of-the-dice-the-long-goodbye/post.md)" (which combined with "Trouble River" would have made for a mighty fine EP). Bruce hid it on the unimaginatively named *18 Tracks*, which most casual fans assume is just an abridged version of his larger *Tracks* box set but which actually contains three tracks unique to that disc. "Trouble River" is one of those three.
@@ -12,17 +22,17 @@ In typical Springsteen fashion, it's easy to get caught up in the riff and the h
 
 But once you really listen to the lyrics, there's no mistaking it–especially because there are only eight lines in the entire song. (I did say it was taut, didn't I?)
 
-> *There's a river runs through this valley, cold and deep and black*
-> *Coming like a tombstone shadow across my back*
+> *There's a river runs through this valley, cold and deep and black*<br>
+> *Coming like a tombstone shadow across my back*<br>
 
-> *Woke up last night shaking, shaking from a dream*
-> *All I seen was smiling faces staring back at me*
+> *Woke up last night shaking, shaking from a dream*<br>
+> *All I seen was smiling faces staring back at me*<br>
 
-> *Snakes crawling in the house, I'm stuck in muddy ground*
-> *Tonight I'm gonna shed this skin 'cause water's rising and I'm going down to*
+> *Snakes crawling in the house, I'm stuck in muddy ground*<br>
+> *Tonight I'm gonna shed this skin 'cause water's rising and I'm going down to*<br>
 
-> *Trouble river, six foot high and rising*
-> *Trouble river, I can't keep from crying*
+> *Trouble river, six foot high and rising*<br>
+> *Trouble river, I can't keep from crying*<br>
 
 With a song this concise, Bruce doesn't leave us a lot to dissect, but there are a few things worth noting:
 

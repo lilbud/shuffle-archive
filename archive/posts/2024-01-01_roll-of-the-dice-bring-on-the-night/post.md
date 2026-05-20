@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Bring on the Night"
+author: "Ken"
+excerpt: "“Bring on the Night” is one of the weaker outtakes on Tracks, but it offers insight into its descendant, “My Love Will Not Let You Down.”"
+tags: bring-on-the-night my-love-will-not-let-you-down tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/bringon-1.jpg
+post_id: 2240
+---
 Twenty years ago, Bruce turned on the outtake faucet, first releasing *Tracks*, a four-disc box set of ones that got away, and following that up in subsequent years with a full disc of bonus songs on *The Essential Bruce Springsteen*, an album-that-never-was (*The Promise*), and even more outtakes in *The Ties That Bind* box set.
 
 And if there's one thing these last two decades of revealing outtakes have taught us, it's that Bruce cross-pollinates his lyrics and melodies until he finds a combination that brings to life the message he's trying to express.

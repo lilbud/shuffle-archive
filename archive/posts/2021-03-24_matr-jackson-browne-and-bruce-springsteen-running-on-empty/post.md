@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Jackson Browne and Bruce Springsteen: Running on Empty"
+author: "Ken"
+excerpt: "A contemporary contrast to “Born to Run,” Jackson Browne’s classic road song begs for a Jackson/Bruce team-up. Let’s check out a couple of them inside."
+tags: jackson-browne running-on-empty
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/running-empty.jpg
+post_id: 25186
+---
 In 1976, Jackson Browne was working with producer Jon Landau on what would turn out to be his breakthrough album: *The Pretender.*
 
 Jackson lived all of a few blocks from the recording studio, so it took a long while to drain his car's gas tank. And when the fuel gauge started to verge on "empty" he figured, why bother stopping to fill it up? It's only a few blocks.

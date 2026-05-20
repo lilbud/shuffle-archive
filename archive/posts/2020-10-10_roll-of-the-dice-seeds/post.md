@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Seeds"
+author: "Ken"
+excerpt: "Will the real “Seeds” please stand up? Let’s take a listen to the many forms of this unreleased but vital entry in the Springsteen catalog."
+tags: live-1975-85 seeds
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/seeds.jpg
+post_id: 21112
+---
 Will the real "Seeds" please stand up?
 
 "Seeds" is an original Springsteen song that Bruce has played live almost two hundred times, and yet it's never seen an official studio release (although live versions can be found on *Live 1975-85* and *London Calling: Live in Hyde Park*), no bootlegged outtake has ever escaped (at least to my knowledge), and rarely is Bruce asked about it let alone does he discuss it.
@@ -20,58 +30,58 @@ Originally recorded titled (and recorded) under the name "Gone, Gone, Gone" (ver
 
 Our point of view character is an unemployed worker, lured from his home up north (probably working in the steel mills or coal mines) by the promise of plentiful and secure work in Texas. He heads south with nothing to his name other than his family, only to find that by the time he gets there, the price of oil had dropped and the jobs along with it. With no work to do and no place to go, he and his family find themselves homeless in Houston.
 
-> *Well a great black river a man had found*
-> *So he put all his money in a hole in the ground*
-> *Sent a big steel arm driving down down down*
-> *Now I live on the streets of Houston town*
+> *Well a great black river a man had found*<br>
+> *So he put all his money in a hole in the ground*<br>
+> *Sent a big steel arm driving down down down*<br>
+> *Now I live on the streets of Houston town*<br>
 
-> *Packed up my wife and kids when winter came along*
-> *And I headed down south with just spit and a song*
+> *Packed up my wife and kids when winter came along*<br>
+> *And I headed down south with just spit and a song*<br>
 > *But they said, "Sorry son it's gone gone gone*,
-> *Yeah it's all gone… all work is gone"*
+> *Yeah it's all gone… all work is gone"*<br>
 
 The scene on the streets is grim. The homeless huddle by the railroad tracks or in tents by the highway. Our narrator's family sleeps in the only thing they have to their name: their car. His kids are sick–perhaps seriously so–from exposure to the elements, but they have nowhere else to go. And even the parking lot is no longer an option when a passing patrolman forces them to go somewhere, *anywhere* else.
 
-> *There's men hunkered down by the railroad tracks*
-> *The Elkhorn Special blowing my hair back*
-> *Tents pitched on the highway in the dirty moonlight*
-> *And I don't know where I'm gonna sleep tonight*
+> *There's men hunkered down by the railroad tracks*<br>
+> *The Elkhorn Special blowing my hair back*<br>
+> *Tents pitched on the highway in the dirty moonlight*<br>
+> *And I don't know where I'm gonna sleep tonight*<br>
 
-> *Parked in the lumberyard freezing our asses off*
-> *Kids in the back seat got a graveyard cough*
-> *I'm sleeping up in front with my wife*
-> *Billy club tapping on the windshield in the middle of the night*
-> *He says, "Move along son, move along"*
+> *Parked in the lumberyard freezing our asses off*<br>
+> *Kids in the back seat got a graveyard cough*<br>
+> *I'm sleeping up in front with my wife*<br>
+> *Billy club tapping on the windshield in the middle of the night*<br>
+> *He says, "Move along son, move along"*<br>
 
 (Note, by the way, the tracks/back paring that Bruce would use again a decade later in "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)." The imagery in "Seeds" rhymes with "The Ghost of Tom Joad" even more than the words do.)
 
 At this point, a limousine passes by (presumably carrying an oil executive, whose employment is secure), adding insult to injury.
 
-> *Big limousine, long shiny and black*
-> *You don't look ahead, you don't look back*
+> *Big limousine, long shiny and black*<br>
+> *You don't look ahead, you don't look back*<br>
 
 The bigwig doesn't even acknowledge the presence of his former workers now out on the street. Presumably the exec is rich enough to forget their names, a notion that Bruce would make more explicit in another song on *The Ghost of Tom Joad.*
 
 But Bruce's next lines are a callback to one of his most popular contemporary songs. Like the narrator of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," our hero in "Seeds" feels like a dog who's been beat too much and has hit the ground too many times. These next lines are among Bruce's angriest and most bitter:
 
-> *How many times can you get up after you've been hit*
-> *Well I swear if I could spare the spit*
-> *I'd lay one on your shiny chrome*
-> *And send you on your way back home*
+> *How many times can you get up after you've been hit*<br>
+> *Well I swear if I could spare the spit*<br>
+> *I'd lay one on your shiny chrome*<br>
+> *And send you on your way back home*<br>
 
-> *If you're gonna leave your town where the north wind blow*
-> *To come on down where the sweet soda river flow*
-> *You better think twice on it, Jack*
-> *You're better off buying a shotgun straight off a rack*
+> *If you're gonna leave your town where the north wind blow*<br>
+> *To come on down where the sweet soda river flow*<br>
+> *You better think twice on it, Jack*<br>
+> *You're better off buying a shotgun straight off a rack*<br>
 
 Seething with frustration and regret, our hero wishes he could spit on the passing limousine (or possibly the bald head of its passenger, so clever is the metaphor), but we know what he *really* wants is just to be seen and acknowledged for the economic injustice that's been done him.
 
 And for anyone else tempted to make the migration south, he offers sobering advice: you're better off just buying a gun and ending it slowly instead of drawn out. Because as Bruce points out in a final verse that reveals the reason for the song's title (but is too poetic for such an angry arrangement), all the jobs have scattered to the wind like dandelion seeds, the workers now rootless in more than one sense.
 
-> *The only thing you're gonna find here, friend*
-> *The seeds blowing up the highway in the south wind*
-> *Moving on, moving on*
-> *Now it's gone gone gone*
+> *The only thing you're gonna find here, friend*<br>
+> *The seeds blowing up the highway in the south wind*<br>
+> *Moving on, moving on*<br>
+> *Now it's gone gone gone*<br>
 
 Bruce played "Seeds" so regularly during the last leg of the Born in the U.S.A. Tour that fans quickly accepted the song as if it had been in Bruce's catalog all along. So it wasn't surprising that Bruce would continue playing it long after the tour ended.
 

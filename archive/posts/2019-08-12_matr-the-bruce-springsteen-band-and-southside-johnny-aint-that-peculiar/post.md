@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Bruce Springsteen Band and Southside Johnny, Ain't That Peculiar"
+author: "Ken"
+excerpt: "One time only: Southside Johnny fronts The Bruce Springsteen Band on Marvin Gaye’s Motown classic, but it’s David Sancious who steals the show."
+tags: aint-that-peculiar marvin-gaye southside-johnny the-bruce-springsteen-band
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/peculiar.jpg
+post_id: 12005
+---
 Most entries in this blog's *Meeting Across the River* series feature an already famous Bruce Springsteen teaming up with equally established artists. But today's pairing goes way, way, waaaaay back... all the way to 1971, when a 22-year-old Bruce Springsteen was fronting a band named after himself.
 
 Although you'd be hard pressed to tell the difference between The Bruce Springsteen Band and the E Street Band by its personnel (especially toward the end of its run, when it consisted only of Bruce, Steve Van Zandt, Garry Tallent, David Sancious, and Vini Lopez), you wouldn't have any trouble figuring out which band you were listening to by their sound.

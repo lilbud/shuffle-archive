@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Until the Rain Comes"
+author: "Ken"
+excerpt: "Unearthed handwritten lyrics by an 18-year-old Bruce Springsteen."
+tags: 1968-notebook until-the-rain-comes
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1968_lyricsnotebook-1.jpg
+post_id: 1762
+---
 Today's entry is an unusual one. I've covered unreleased songs and even work-in-progress snippets, but this is the first essay for which we don't even have a scrap of music to listen to.
 
 The only reason we know that "Until the Rain Comes" exists is that its lyrics were included in the 2006 public auction of a notebook containing lyrics from songs Bruce had written in 1968 at the tender age of eighteen.

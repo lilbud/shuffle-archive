@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 23"
+author: "Ken"
+excerpt: "It’s Bruce’s birthday! You’d think that’d be enough highlight for one date, but there’s more: the release of Chapter and Verse, the last E Street Band performance before the break-up, the origin of the Seeger Sessions Band, and more."
+tags: ann-arbor born-in-the-usa-tour chapter-verse denver detroit-medley gotham-playboys human-rights-now-tour i-aint-got-no-home incident-on-57th-street joan-baez oakland rosalita-come-out-tonight roy-orbison seeger-sessions
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/candv.jpeg
+post_id: 59726
+---
 ***New for 2025:** New entry for 1984; audio for 1988*<br>
 
 **1949:** Bruce Frederick Joseph Springsteen is born to Adele and Douglas Springsteen at Monmouth Medical Center in Long Branch, New Jersey.<br>

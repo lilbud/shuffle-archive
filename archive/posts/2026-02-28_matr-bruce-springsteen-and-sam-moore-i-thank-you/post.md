@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I Thank You"
+author: "Ken"
+excerpt: "Soul legend Sam Moore made nightly appearances at Bruce’s 2003 holiday shows–each one was a delight, but none more than this Sam and Bruce team-up on “I Thank You.”"
+tags: i-thank-you sam-and-dave sam-moore
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/ithankyou.jpg
+post_id: 20593
+---
 Bruce's team-ups are always fun, but this one's an absolute delight.
 
 It's no secret that Sam Moore is one of Bruce's longest and strongest influences. Bruce has spoken at length about it on many occasions, including in this clip from Elvis Costello's too short-lived *Spectacle* series.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Pilgrim in the Temple of Love"
+author: "Ken"
+excerpt: "Bruce plays his original holiday song for ribald laughs, but beneath its risque surface it has a lot to say."
+tags: pilgrim-in-the-temple-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/santacar-1.jpg
+post_id: 22142
+---
 > "Say *that* in your next interview, Mr. Social Consciousness!" — *Patti Scialfa to Bruce Springsteen (on many an occasion), as related by Bruce Springsteen (on many an occasion)*<br>
 
 Ho ho ho!

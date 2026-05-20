@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 30"
+author: "Ken"
+excerpt: "On this date: Bruce responds to President Trump’s attempt to ban Muslims from the U.S. with a pointed, timely speech and setlist in Adelaide. More highlights inside."
+tags: adelaide australia big-bad-bobby-williams-band brown-eyed-girl bruce-springsteen-band come-together donald-trump ghost-of-tom-joad-tour japan nashville red-bank springsteen-on-broadway tokyo trapped
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/adelaide.jpg
+post_id: 55825
+---
 **1971:** Bruce sits in with Steve Van Zandt and The Big Bad Bobby Williams Band (which included Garry Tallent, Dave Sancious, and Southside Johnny) at The Upstage in Asbury Park.<br>
 
 **1972:** The Bruce Springsteen Band completes a three-night gig at The Captain’s Garter in Neptune, New Jersey.<br>

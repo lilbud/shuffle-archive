@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Here She Comes Walkin'"
+author: "Ken"
+excerpt: "Bruce often leads in to live performances of “I Wanna Marry You” with a gorgeous, unreleased song that pre-dates it by several years."
+tags: here-she-comes-walkin i-wanna-marry-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/girl-walk.gif
+post_id: 21253
+---
 We're so used to hearing it performed as a lead-in to "[I Wanna Mary You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" (in fact, that's the only way we've *ever* heard it for all of its 69 live outings), that you'd be forgiven for not realizing that "Here She Comes Walkin'" is an original Springsteen song all on its own.
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Marry You (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=GRIpM_mrmX4)

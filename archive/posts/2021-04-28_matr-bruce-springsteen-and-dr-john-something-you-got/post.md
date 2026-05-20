@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Dr. John: Something You Got"
+author: "Ken"
+excerpt: "When Bruce and Dr. John performed together for the first time, they reached way back in both of their set lists to find the perfect song."
+tags: alvin-robinson chris-kenner dr-john something-you-got southside-johnny
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/somethinggot.jpg
+post_id: 26874
+---
 > "It's all about that *groove*! You can't make that groove exactly in New Jersey. That's all there is to it. Everybody's like 'No, that's too slow! That's too slow!' He comes down, he sits in that groove, man, and all of a sudden – oh my God, your sexual organs are stimulated, that's what happens! That's *exactly* what happens." — *Bruce Springsteen after Dr. John exits the stage, April 29, 2012*<br>
 
 Today's team-up brings together two musical icons for a cover of an elusive New Orleans classic that had long been associated with both of them.

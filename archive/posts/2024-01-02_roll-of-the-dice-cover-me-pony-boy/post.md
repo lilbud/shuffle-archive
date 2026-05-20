@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Pony Boy"
+author: "Ken"
+excerpt: "Trace the throughline from an obscure 1909 Broadway musical to Bruce’s lullaby for his newborn son."
+tags: ada-jones evan-springsteen my-pony-boy pony-boy
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/ponyboy.jpg
+post_id: 7700
+---
 A long time ago, in a tiny apartment far, far away, I spent a long evening pacing my living room floor.
 
 In my arms was my inconsolable newborn daughter, and I tried everything in my new-dad bag of tricks to quiet or distract her.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Trace Jory: Stolen Car"
+author: "Ken"
+excerpt: "Trace Jory was introduced to “Stolen Car” through X Ambassador’s creative cover, but he drew on Bruce’s original arrangement for his own rendition."
+tags: stolen-car trace-jory
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/trace.jpg
+post_id: 27453
+---
 Three years ago, singer-songwriter Trace Jory caught X Ambassadors in concert, and he was particularly enthralled by [their cover of a Bruce Springsteen song](../2019-05-15_cover-me-x-ambassadors-stolen-car/post.md) he'd never heard before.
 
 Rather than imitate the band's cover arrangement, Jory sought out and determined to learn the original, and he posted a work in progress to his Facebook page.

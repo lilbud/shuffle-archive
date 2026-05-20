@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: She's the One"
+author: "Ken"
+excerpt: "“She’s the One” is alchemy, amalgamation, and pure adrenaline. Let’s trace its origins and see what makes it tick."
+tags: backstreets born-to-run shes-the-one
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/shestheone.jpg
+post_id: 25005
+---
 It began with the beat–perhaps the most famous beat of all time.
 
 You can hear it in "[Willie and the Hand Jive](../2021-02-22_matr-bruce-springsteen-and-bobby-bandiera-willie-and-the-hand-jive/post.md)."

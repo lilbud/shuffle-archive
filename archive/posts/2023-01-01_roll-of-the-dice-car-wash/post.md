@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Car Wash"
+author: "Ken"
+excerpt: "Originally entitled “Small Town Girl,” this unusual Born in the U.S.A. outtake makes for a fine honky-tonk companion song to “Darlington County.”"
+tags: car-wash tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/carwash.jpg
+post_id: 15193
+---
 "Car Wash" is far from the only song Bruce has written from a female first-person perspective (see "[Devil's Arcade](../2021-05-16_roll-of-the-dice-devils-arcade/post.md)," "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)," and "[My Lover Man](../2018-10-24_roll-of-the-dice-my-lover-man/post.md)" for examples), but it may be the earliest, and it's certainly the most overt: Bruce wastes no time introducing us to our heroine by name (Catherine) and drawing us into her world.
 
 In point of fact, "Car Wash" wasn't even called "Car Wash" until Bruce rescued the track from his vault for his 1998 *Tracks* box set project. Until then, from its original recording date fifteen years earlier, the song was called "Small Town Girl," which clues us in to not placing too much importance or symbolism on her place of employment.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 23"
+author: "Ken"
+excerpt: "On this date: The legendary Darkness on the Edge of Town Tour begins! Hear the soundcheck and opening inside, and watch tour premieres and rarities galore from this date in history."
+tags: buffalo cats-on-a-smooth-surface child cover-me crystal-taliefero darkness-tour dublin east-rutherford glory-days incident-on-57th-street ireland italy joe-grushecky london lucky-town madison-square-garden magic-tour naples new-york-city o-sole-mio pink-cadillac reunion-tour richmond something-in-the-night springsteen-on-broadway steel-mill stone-pony tunnel-of-love-express uk working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/msg88.jpg
+post_id: 56834
+---
 ***New for 2025:** New entry for 1975, 1983, and 2024; audio for 1988*<br>
 
 **1969:** Child plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>

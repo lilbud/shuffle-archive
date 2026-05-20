@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice/Cover Me, Clarence Clemons: Savin' Up"
+author: "Ken"
+excerpt: "Double-entry today: “Savin’ Up” is a Bruce Springsteen original composition, recorded by Clarence Clemons and the Red Bank Rockers, but performed live by Bruce on many occasions."
+tags: clarence-clemons norway oslo rescue savin-up wrecking-ball-tour
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/savinup.jpg
+post_id: 2114
+---
 Double-category entry today: Bruce wrote "Savin' Up" and gave it to Clarence to record for his *Rescue* album in 1983, but in recent years, Bruce has reclaimed it, performing it several times in concert.
 
 Here's Clarence's original 1983 recording, with J.T. Bowen on vocals, and Bruce on guitar:

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Wanna Marry You"
+author: "Ken"
+excerpt: "This early love song hasn’t aged well but it paved the way for Bruce’s more mature and nuanced reflections on love and marriage."
+tags: i-wanna-marry-you the-river the-river-single-album the-ties-that-bind-the-river-collection
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/weddingrings.jpg
+post_id: 34148
+---
 > "You always dream of the kind of love that comes without consequences, without struggle and without responsibility. The kind that doesn't exist." *— Bruce Springsteen, March 10, 2016*<br>
 
 Some songs simply don't age well.

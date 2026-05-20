@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: U2 and Bruce Springsteen: Stand By Me"
+author: "Ken"
+excerpt: "When Bruce and Bono teamed up for the very first time, they chose a newly popular 1961 classic for their first duet."
+tags: ben-e-king stand-by-me u2
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/standbyme.jpg
+post_id: 30464
+---
 ***Editor's Note***<br>
 
 ****Roll of the Dice, Cover Me, and Meeting Across the River take a brief holiday after today's post so I can do my annual year-end site clean-up.*<br>

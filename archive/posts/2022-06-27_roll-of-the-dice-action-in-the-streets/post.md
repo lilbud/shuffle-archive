@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Action in the Streets"
+author: "Ken"
+excerpt: "So nice he wrote it thrice–and maybe more, depending on how you count. Let’s listen to the moving target that is “Action in the Streets.”"
+tags: a-love-so-fine action-in-the-streets paradise-by-the-c so-young-and-in-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/action.jpg
+post_id: 35841
+---
 I'm raising the white flag without even trying to analyze this one.
 
 In Bruce Springsteen's entire catalog, I'm not sure there's a bigger moving target than "Action in the Streets."

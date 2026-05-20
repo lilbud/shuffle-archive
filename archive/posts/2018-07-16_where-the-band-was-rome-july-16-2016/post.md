@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Rome, July 16, 2016"
+author: "Ken"
+excerpt: "A life moment for me, as I check off two of my top bucket list goals: a visit to Rome and my all-time, most-chased song."
+tags: boom-boom circus-maximus italy land-of-hope-and-dreams new-york-city-serenade river-2016-tour rome summertime-blues the-ghost-of-tom-joad
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/SDL-8147.Bruce-ROMA-2016-700x467.jpg
+post_id: 3190
+---
 If I didn't already have tickets for a pair of Philly shows in September, I probably would have made Rome my last stop on the 2016 River Tour, because I couldn't imagine any concert experience topping this one.
 
 I already had high expectations going in: I've seen enough shows in Italy to know that the crowd would be wildly exuberant and sing along with every note. I knew the venue was an ancient Roman chariot racing arena that holds 100,000 people and was bound to be bursting at the seams regardless.
@@ -16,7 +26,7 @@ Yes, I was well aware that Bruce had played "New York City Serenade" with this s
 
 But then Roy played the first notes of the extended intro from this rare opus, and you could hear the collective gasp of tens of thousands (seriously, listen to the video).
 
-For the next twelve minutes, I was completely rapt. And when the strings kicked in... I'm pretty sure it was the first time I wept openly at a concert, and did so for the rest of the song.
+For the next twelve minutes, I was completely rapt. And when the strings kicked in… I'm pretty sure it was the first time I wept openly at a concert, and did so for the rest of the song.
 
 There were other highlights during the evening, to be sure. But this was the biggest of the biggest. (And yes, we were all waving paper hearts for Bruce–fans coordinated and distributed them, and Bruce was noticeably moved by them from the moment he walked out on stage.)
 
@@ -32,7 +42,7 @@ But if there were highlights to rival the opener in power, one would have to be 
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band The Ghost of Tom Joad Rome Circus Maximus July 16 2016](https://www.youtube.com/watch?v=_CpGADrcmNU)
 
-...and the other would be "[Independence Day.](../2022-03-14_roll-of-the-dice-independence-day/post.md)" Always an emotional ride, tonight it was even more poignant, with the crowd singing the melody in unison from the first notes. Watch the magic:
+…and the other would be "[Independence Day.](../2022-03-14_roll-of-the-dice-independence-day/post.md)" Always an emotional ride, tonight it was even more poignant, with the crowd singing the melody in unison from the first notes. Watch the magic:
 
 [Watch on Youtube: Bruce Springsteen - Independence Day 16- 07- 2016 Roma](https://www.youtube.com/watch?v=lBEIyTqlKXQ)
 

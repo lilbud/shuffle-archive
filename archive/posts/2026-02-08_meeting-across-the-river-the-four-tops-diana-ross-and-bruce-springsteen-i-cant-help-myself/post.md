@@ -1,3 +1,13 @@
+---
+layout: post
+title: "I Can't Help Myself"
+author: "Ken"
+excerpt: "Bruce joined The Four Tops and Diana Ross at the 1990 Rock and Roll Hall of Fame induction ceremonies for the Tops’ “I Can’t Help Myself.” (I think–can’t actually pick him out. But give it try.)"
+tags: diana-ross i-cant-help-myself-sugar-pie-honey-bunch the-four-tops
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/The-Four-Tops-I-Cant-Help-Myself-1533318023-640x636.jpg
+post_id: 4619
+---
 Another one for the completists.
 
 We’ll have to take Brucebase’s word on it that Bruce supplied backing vocals and guitar when The Four Tops and Diana Ross performed the Four Tops’ hit “I Can’t Help Myself” at the Rock and Roll Hall of Fame induction ceremony back in 1990.

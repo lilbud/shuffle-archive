@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Evacuation of the West"
+author: "Ken"
+excerpt: "Part spaghetti western, part Mad Max, part War of the Worlds, “Evacuation of the West” is a brilliant, cinematic, fully realized E Street Band outtake that cries out for an official release."
+tags: evacuation-of-the-west
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/cowboysaliens.jpg
+post_id: 21256
+---
 Bruce Springsteen was fascinated by the American West long before *Western Stars* and [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md). Western imagery and themes feature in Bruce's work dating back to the beginning–even *before* the beginning, if we examine his pre-label material.
 
 We're about to get re-introduced to one of those songs, "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)," on Bruce's upcoming [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md)album next month. There's also the Texan fantasy "[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md)," which appears on *Tracks.* But arguably the greatest pre-historic Springsteen Western song is one that *still* hasn't seen any form of release: "Evacuation of the West."
@@ -10,15 +20,15 @@ But if "Santa Ana" is a dream-like fantasy seen through the eyes of a young boy,
 
 "Evacuation of the West" is set in the far future. The sun has become a red giant, the earth is barren, and in Texas, the age of cowboys has come to an end. (This is apparently a parallel universe in which the Old West never died.)
 
-> *It was on the day the cowboys were banned from the range, metal touched the world as a master*
-> *They rode their ponies down in the cities of gold to leave them forever after*
-> *Now the sun was swollen, red and old, the earth it was windy, dark and cold*
-> *Where the highway ends the desert takes its toll, so dusty, red, and angry*
-> *It was a time when men died out on the prairie from not having a decent friend*
-> *At night the ghost of them ol' rough riders was a howl in the canyon winds*
+> *It was on the day the cowboys were banned from the range, metal touched the world as a master*<br>
+> *They rode their ponies down in the cities of gold to leave them forever after*<br>
+> *Now the sun was swollen, red and old, the earth it was windy, dark and cold*<br>
+> *Where the highway ends the desert takes its toll, so dusty, red, and angry*<br>
+> *It was a time when men died out on the prairie from not having a decent friend*<br>
+> *At night the ghost of them ol' rough riders was a howl in the canyon winds*<br>
 
-> *You can hear 'em crying*
-> *Good God, I think they're dying*
+> *You can hear 'em crying*<br>
+> *Good God, I think they're dying*<br>
 
 If you've been with me a while on this multi-year exploration of Bruce's lifelong catalog, we've had a chance to explore many of Bruce's pre-label, fully formed songs. But almost all of those 1972-73 unreleased songs exist only as solo acoustic performances.
 
@@ -28,12 +38,12 @@ And that chorus… so powerful and emotive in its anguish. This is easily one of
 
 Let's continue.
 
-> *When them rangers down in Dallas had all but given it up and left*
-> *And those that hung on hoping were trying their best to forget*
-> *The way those outlaws and desperadoes right from the cheapest to the best*
-> *Rode in on ponies made of skin and bones, gave up their rusty guns and went back home*
-> *And the governor was sent down from Population Control and martial law was passed*
-> *Riverboat gamblers put their money on faith for the time for hope had passed*
+> *When them rangers down in Dallas had all but given it up and left*<br>
+> *And those that hung on hoping were trying their best to forget*<br>
+> *The way those outlaws and desperadoes right from the cheapest to the best*<br>
+> *Rode in on ponies made of skin and bones, gave up their rusty guns and went back home*<br>
+> *And the governor was sent down from Population Control and martial law was passed*<br>
+> *Riverboat gamblers put their money on faith for the time for hope had passed*<br>
 
 It's tempting–very tempting–to read Bruce's lyrics as allegory. He may very well have intended the cowboys to be stand-ins for any generation or profession on the verge of being superseded by the next. Had he written the song twenty years later, in fact, I'd argue the cowboys represented the aging rocker, long past his glory and commercial appeal. But at the tender age of 23, and with the reverence that Bruce had for those who came before, this is one case where I resist the urge to read beyond the surface.
 
@@ -43,16 +53,16 @@ We're at the quiet instrumental bridge now, and it's lovely. Garry brings us on 
 
 In the final verse, Bruce goes full on *Cowboys & Aliens* (I've always wondered if Rosenburg was a Springsteen fan), as our heroes leave behind not just the West but the Earth, and head to the unknown for one final adventure.
 
-> *In the cold blue light of the desert night there was a thousand starry ships*
-> *And men came down from still I don't know where with death on their fingertips*
-> *Now there's no more kings in Texas, I swear they rounded up each and every one*
-> *And oh that line of Conestoga reached from the Rocky Mountains into that old dead sun*
-> *Now Anna Maria walks the plains alone, the last of a struggling people*
-> *She thinks of all those outlaws who wanted to reach for the sky and got stuck up on that steeple*
+> *In the cold blue light of the desert night there was a thousand starry ships*<br>
+> *And men came down from still I don't know where with death on their fingertips*<br>
+> *Now there's no more kings in Texas, I swear they rounded up each and every one*<br>
+> *And oh that line of Conestoga reached from the Rocky Mountains into that old dead sun*<br>
+> *Now Anna Maria walks the plains alone, the last of a struggling people*<br>
+> *She thinks of all those outlaws who wanted to reach for the sky and got stuck up on that steeple*<br>
 
-> *Oh, you can hear them crying*
-> *Good God, I think they're dying*
-> *In the wind you can hear them sigh*
+> *Oh, you can hear them crying*<br>
+> *Good God, I think they're dying*<br>
+> *In the wind you can hear them sigh*<br>
 
 There's gorgeous imagery here. In fact, I'd argue that better than any of the songs that made it to Bruce's second album, "Evacuation of the West" telegraphs Bruce's evolving cinematic songwriting talent that would burst into full bloom on the opening track of *Born to Run*.
 

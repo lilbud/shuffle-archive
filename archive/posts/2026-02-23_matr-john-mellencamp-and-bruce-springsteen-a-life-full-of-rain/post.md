@@ -1,3 +1,13 @@
+---
+layout: post
+title: "A Life Full of Rain"
+author: "Ken"
+excerpt: "Bruce contributed an emotive guitar solo to the closing track of John Mellencamp’s recent album."
+tags: a-life-full-of-rain john-mellencamp
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/mellencamp.jpg
+post_id: 36658
+---
 > "Bruce has a wonderful way of having humility and tenacity, all at the same time. He can get his ideas across with humility and an ability to do what he wants to do. He's run his own band longer than I have, so I don't have to say, ‘Hey Bruce, how about…?' He says, ‘How about if I try this?' and ‘How about if I try that?' and, he's Bruce Springsteen — sure, try it."
 >
 > — John Mellencamp, *Cleveland.com*, February 7, 2022

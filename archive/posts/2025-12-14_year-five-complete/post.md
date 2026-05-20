@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Follow That Dream"
+author: "Ken"
+excerpt: "A ghost story, and a cautionary tale. But it started out as a musical comedy."
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/01/760397_poster.jpg
+post_id: 40635
+---
 This is a ghost story.
 
 A ghost story, and also a cautionary tale. But it started out as a musical comedy.

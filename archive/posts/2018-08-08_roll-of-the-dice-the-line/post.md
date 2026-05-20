@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Line"
+author: "Ken"
+excerpt: "“The Line” is Bruce at his most cinematic and empathetic, a masterpiece of taut storytelling written years before immigration reform dominated the national discourse."
+tags: bob-dylan highway-patrolman love-minus-zero the-ghost-of-tom-joad the-line
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/border.jpg
+post_id: 3571
+---
 In 1995, immigration reform was not a big part of the national discourse in the USA. However, it was very much a part of the ongoing conversation between Bruce and his fans–it was, in fact, one of the central themes of his new album, *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).*
 
 Several songs on that album touched on the plight and circumstances of immigrants, whether from Southeast Asia ("[Galveston Bay](../2020-06-22_roll-of-the-dice-galveston-bay/post.md)") or Latin America ("[Sinaloa Cowboys,](../2022-01-04_roll-of-the-dice-sinaloa-cowboys/post.md)" "[Balboa Park](../2020-03-16_roll-of-the-dice-balboa-park/post.md)"). But nowhere was the issue explored with more sensitivity and empathy than the engrossingly cinematic tale of "The Line."
@@ -18,40 +28,40 @@ That's an entire movie in under five minutes.
 
 Let's explore how Bruce tackles the impact of American immigration policy from different perspectives without ever losing the narrative thread. The first two verses of "The Line" introduce our two main characters, Carl (the narrator, an INS Border Patrol agent) and Bobby (his partner). Notice how easily and quickly Bruce fleshes them out: Carl is ex-military and a widower, trying to adjust to civilian life, a new job, and dealing with loss. The job is a just a job–something to occupy himself with, but not his focus:
 
-> *I got my discharge from Fort Irwin, took a place on the San Diego county line*
-> *Felt funny being a civilian again… it'd been some time*
-> *My wife had died a year ago, I was still trying to find my way back whole*
-> *I went to work for the INS on the line with the California Border Patrol*
+> *I got my discharge from Fort Irwin, took a place on the San Diego county line*<br>
+> *Felt funny being a civilian again… it'd been some time*<br>
+> *My wife had died a year ago, I was still trying to find my way back whole*<br>
+> *I went to work for the INS on the line with the California Border Patrol*<br>
 
 …while Bobby is a veteran of the line with a more personal stake. His family hails from Gunajuato (as central Mexico as you can get), so he understands full well what's at stake for the immigrants who flee north, risking danger and death, sacrificing everything they'd ever built for every hope they ever dreamt:
 
-> *Bobby Ramirez was a ten-year veteran, and we became friends*
-> *His family was from Guanajuato, so the job it was different for him*
-> *He said, "They risk death in the deserts and the mountains, pay all they got to the smugglers rings*
-> *We send 'em home, they come right back again. Carl, hunger is a powerful thing"*
+> *Bobby Ramirez was a ten-year veteran, and we became friends*<br>
+> *His family was from Guanajuato, so the job it was different for him*<br>
+> *He said, "They risk death in the deserts and the mountains, pay all they got to the smugglers rings*<br>
+> *We send 'em home, they come right back again. Carl, hunger is a powerful thing"*<br>
 
 Bobby understands that he and Carl are engaged in an endless cycle–that hunger (both literal and metaphorical) will drive the people they send back to attempt the crossing again. Bobby becomes a friend and mentor to Carl, and the pair do their job with dignity and diligence:
 
-> *Well I was good at doing what I was told, I kept my uniform pressed and clean*
-> *At night I chased their shadows through the arroyos and ravines*
-> *Drug runners, farmers with their families, young women with little children by their sides*
-> *Come night we'd wait out in the canyons, try to keep 'em from crossing the line*
+> *Well I was good at doing what I was told, I kept my uniform pressed and clean*<br>
+> *At night I chased their shadows through the arroyos and ravines*<br>
+> *Drug runners, farmers with their families, young women with little children by their sides*<br>
+> *Come night we'd wait out in the canyons, try to keep 'em from crossing the line*<br>
 
 We're two minutes in, and we now know our main characters and have a vividly drawn stage.
 
 Enter the femme fatale:
 
-> *Well the first time that I saw her she was in the holding pen*
-> *Our eyes met and she looked away then she looked back again*
-> *Her hair was black as coal, her eyes reminded me of what I'd lost*
-> *She had a young child crying in her arms, I asked, "Señora, is there anything I can do?"*
+> *Well the first time that I saw her she was in the holding pen*<br>
+> *Our eyes met and she looked away then she looked back again*<br>
+> *Her hair was black as coal, her eyes reminded me of what I'd lost*<br>
+> *She had a young child crying in her arms, I asked, "Señora, is there anything I can do?"*<br>
 
 A young Mexican woman named Louisa (we'll learn her name in the next verse) resembles Carl's late wife, and Carl is immediately captivated. They meet for the first time in the holding pen, which means that Louisa and her young child are about to be returned to Mexico. And that's where Carl and Louisa meet again:
 
-> *There's a bar in Tijuana where me and Bobby drink with the same people we'd sent back the day before*
-> *We met there, she said her name was Louisa, she was from Sonora and had just come north*
-> *We danced and I held her in my arms, I knew what I would do*
-> *She said she had some family in Madera county, if she her child and her younger brother could just get through*
+> *There's a bar in Tijuana where me and Bobby drink with the same people we'd sent back the day before*<br>
+> *We met there, she said her name was Louisa, she was from Sonora and had just come north*<br>
+> *We danced and I held her in my arms, I knew what I would do*<br>
+> *She said she had some family in Madera county, if she her child and her younger brother could just get through*<br>
 
 Let's just take a moment and marvel at that last verse, at Bruce's observant eye and keen sense of empathy that brings us intimately into the world of the border, where illegal immigrants risk everything for a better life, the INS agents honor their duty, and after quitting time they all mingle together in a little bar south of the border.
 
@@ -59,20 +69,20 @@ Note as well how Bruce never tells us how Carl falls for Louisa, what Louisa ask
 
 We come now to the climax of our story. The night starts like any other…
 
-> *At night they come across the levee in the searchlight's dusty glow*
-> *We'd rush 'em in our Broncos, force 'em back down into the river below*
+> *At night they come across the levee in the searchlight's dusty glow*<br>
+> *We'd rush 'em in our Broncos, force 'em back down into the river below*<br>
 
 …but then Louisa arrives with her brother, and Carl realizes he has a problem:
 
-> *She climbed into my truck, she leaned towards me and we kissed*
-> *As we drove her brother's shirt slipped open and I saw the tape across his chest*
+> *She climbed into my truck, she leaned towards me and we kissed*<br>
+> *As we drove her brother's shirt slipped open and I saw the tape across his chest*<br>
 
 Louisa's brother is a drug runner, and Carl–already legally compromised–now faces an even greater ethical dilemma. And this is where the songwriter pulls back the lens, depriving us of Carl's inner dialogue and debate. We don't know what's passing through his mind, because Carl has even more immediate concerns:
 
-> *We were just about on the highway when Bobby's jeep come up in the dust on my right*
-> *I pulled over and let my engine run and stepped out into his lights*
-> *I felt myself moving, felt my gun resting ‘neath my hand*
-> *We stood there staring at each other as off through the arroyo she ran*
+> *We were just about on the highway when Bobby's jeep come up in the dust on my right*<br>
+> *I pulled over and let my engine run and stepped out into his lights*<br>
+> *I felt myself moving, felt my gun resting ‘neath my hand*<br>
+> *We stood there staring at each other as off through the arroyo she ran*<br>
 
 This is one of the most powerful scenes in Bruce's catalog–two partners at odds, each following their moral compass, and now placed in direct opposition as a result. Carl has an almost out-of-body experience, aware of his hand reaching for his gun without him consciously directing it.
 
@@ -80,10 +90,10 @@ Louisa (and presumably her brother) take off, never to be seen again. Neither Ca
 
 Carl leaves the INS–whether from shame, moral compromise, ethical protest, or performance issues, we never find out. But we do learn–without Bruce ever directly saying so–that Carl is forever haunted by the events of that night, drifting from town to town, job to job, always searching for Louisa.
 
-> *Bobby Ramirez he never said nothing, six months later I left the line*
-> *I drifted to the central valley and took what work yeah I could find*
-> *At night I searched the local bars and the migrant towns*
-> *Looking for my Louisa with the black hair falling down*
+> *Bobby Ramirez he never said nothing, six months later I left the line*<br>
+> *I drifted to the central valley and took what work yeah I could find*<br>
+> *At night I searched the local bars and the migrant towns*<br>
+> *Looking for my Louisa with the black hair falling down*<br>
 
 Was Louisa playing Carl? Perhaps–after all, "hunger is a powerful thing." But he can't be sure, and as Bruce wrote years earlier in [another song](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/), "God have mercy on the man who doubts what he's sure of."
 

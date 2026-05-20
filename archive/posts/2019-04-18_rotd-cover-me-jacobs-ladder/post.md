@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/Cover Me: Jacob's Ladder"
+author: "Ken"
+excerpt: "Bruce gives an old spiritual the Dixieland treatment and creates a setlist centerpiece in the process."
+tags: jacobs-ladder pete-seeger seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/jacob.jpg
+post_id: 8401
+---
 The origins of "Jacob's Ladder" the song go back far enough (200 years, maybe more) to be lost in the distant past. The origins of the story go back much further to the Book of Genesis in the Bible.
 
 The notion of climbing a ladder to heaven–of working toward it step by step by step on a lifelong journey based on the promise of and faith in a someday arrival–is a notion so resonant to so many that the term "Jacob's Ladder" has been appropriated for pop songs, movies, books, and even video games.

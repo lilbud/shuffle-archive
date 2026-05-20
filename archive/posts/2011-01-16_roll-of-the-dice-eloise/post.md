@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Eloise"
+author: "Ken"
+excerpt: "“Growin’ Up” almost had a twin sibling. Take a listen to the first verse of what might have been."
+tags: eloise growin-up
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/eloise-1.jpg
+post_id: 4440
+---
 Someday I hope someone brings an "Eloise!" sign to a show, just so I can a) finally learn how the song ends, and b) watch the collective confusion in the room when Bruce plays the opening bars and sings:
 
 [Watch on Youtube: Bruce Springsteen - Eloise](https://www.youtube.com/watch?v=tkdPhiYlFa4)
@@ -14,12 +24,12 @@ We know which one ultimately won out, of course, so we may never find out just w
 
 It's a great set-up, though (even if it pales beside the first verse of "Growin' Up"):
 
-> *Well, what power of God does a nun use to hold a parish priest*
-> *And what makes a good cop let go a beautiful thief*
-> *Oh, and how does a queen know she can hold that man with honey*
-> *Oh, and what makes an old woman give a young man all her money*
-> *Well, late in the night ‘neath the pale moonlight that power comes over me*
-> *And it's all Eloise, yeah*
+> *Well, what power of God does a nun use to hold a parish priest*<br>
+> *And what makes a good cop let go a beautiful thief*<br>
+> *Oh, and how does a queen know she can hold that man with honey*<br>
+> *Oh, and what makes an old woman give a young man all her money*<br>
+> *Well, late in the night ‘neath the pale moonlight that power comes over me*<br>
+> *And it's all Eloise, yeah*<br>
 
 **Eloise****Recorded:** April-May 1972<br>
 **Never released**<br>

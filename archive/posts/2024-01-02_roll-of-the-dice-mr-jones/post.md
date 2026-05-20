@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mr. Jones"
+author: "Ken"
+excerpt: "Take a listen to “Mr. Jones,” the earliest known recording of Bruce Springsteen performing an original composition live on stage."
+tags: bob-alfano mr-jones the-castiles the-left-foot
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/mrjones.jpg
+post_id: 7288
+---
 You're about to hear the earliest live recording of Bruce Springsteen performing an original song. At the time of this performance, Bruce was only one week past his eighteenth birthday. (There's one circulating show from a few weeks earlier, but it's all covers.)
 
 "Mr. Jones," played here by Bruce's original band The Castiles, is generally attributed to the band's organ player, the late Bob Alfano. However, shortly before his death, Alfano gave a radio interview in which he credited Bruce as his co-writer. If you have nine minutes to spare, listen to that interview below for some additional background.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 27"
+author: "Ken"
+excerpt: "Steel Mill opens for Black Sabbath, Bruce makes a Tonight Show appearance, and it’s the world premiere of “It’s the Little Things That Count.” More highlights inside."
+tags: black-sabbath bruce-springsteen-band darkness-tour growin-up hollywood jimmy-and-the-mustangs los-angeles madison-square-garden milwaukee new-york-city river-tour santa-claus-is-comin-to-town steel-mill student-prince the-ghost-of-tom-joad tonight-show-with-jay-leno video-anthology
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/19801127_4_front.jpg
+post_id: 62476
+---
 ***New for 2025:** No updates*<br>
 
 **1958:** Nine-year-old Bruce Springsteen celebrates Thanksgiving with his family. (Can you spot him?)<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: (Get Your Kicks On) Route 66"
+author: "Ken"
+excerpt: "Listen to two very different covers of “Route 66” recorded a half-century apart–both do justice to this 73-year-old R&B classic."
+tags: chuck-berry elliott-murphy get-your-kicks-on-route-66 greg-kihn john-eddie king-cole-trio marhsall-crenshaw nat-king-cole the-bruce-springsteen-band the-rolling-stones
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/route66.jpg
+post_id: 11842
+---
 It's hard to know which versions of "(Get Your Kicks On) Route 66" Bruce had in mind when he first covered it in 1971.
 
 Bruce surely knew Nat King Cole's original 1946 version–it had been firmly established as an R&B classic for a full quarter-century before Bruce first attempted it in concert.

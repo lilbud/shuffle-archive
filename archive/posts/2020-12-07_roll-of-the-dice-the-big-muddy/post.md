@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Big Muddy"
+author: "Ken"
+excerpt: "Ominous, brooding, and referential, “The Big Muddy” sticks out like a sore thumb on Bruce’s Lucky Town album–but it’s one of the album’s best songs."
+tags: in-concert-mtv-plugged lucky-town pete-seeger the-big-muddy
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/bigmuddy.jpg
+post_id: 7167
+---
 If you ask me for my top ten Springsteen on songs on any given day, you won't find "The Big Muddy" on that list.
 
 But if you ask me for my top twenty, I guarantee "The Big Muddy" will be on it every time. It's one of Bruce's best songs, and while it may not come immediately to mind when mentally browsing Bruce's catalog, when you hear it, it's bound to stick with you for days afterward.

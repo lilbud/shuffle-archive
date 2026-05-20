@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Millworker"
+author: "Ken"
+excerpt: "At the 2006 MusiCares Person of the Year event, Bruce honored James Taylor with a wonderful performance of James’ “Millworker.”"
+tags: james-taylor millwork millworker working
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/millworker.jpeg
+post_id: 15192
+---
 We were first introduced to James Taylor's "Millworker" through Robin Lamont, who sang it in the Stephen Schwartz 1978 musical *Working*, for which Taylor wrote the song.
 
 [Watch on Youtube: Millwork](https://www.youtube.com/watch?v=_WdLkYxBbUk)

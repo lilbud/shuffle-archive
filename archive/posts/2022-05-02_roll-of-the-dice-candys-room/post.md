@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Candy's Room"
+author: "Ken"
+excerpt: "Our third and final installment on the long road from “Candy’s Boy” to “Candy’s Room”"
+tags: candys-boy candys-room darkness-on-the-edge-of-town fast-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/badlands_sin-nl-07i-6678.jpg
+post_id: 34350
+---
 Editor's Note
 
 And now (finally) we arrive at the final installment of our deep dive into "Candy's Room."

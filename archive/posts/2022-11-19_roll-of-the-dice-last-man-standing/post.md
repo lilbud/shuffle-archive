@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Last Man Standing"
+author: "Ken"
+excerpt: "Fifty years after they played together, Bruce Springsteen found himself the last surviving member of his very first band."
+tags: last-man-standing letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/lastman.jpg
+post_id: 38925
+---
 Bart Haynes was the first to fall.![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/11/Barton_E._Haynes.webp)
 
 He was the band's original drummer until Halloween 1965, and his house in Freehold served as their rehearsal space.

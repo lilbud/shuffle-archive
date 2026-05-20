@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Silent Bear: Badlands"
+author: "Ken"
+excerpt: "Singer-songwriter Silent Bear returns with a raw, blues-driven cover of Bruce Springsteen’s rock anthem."
+tags: badlands silent-bear
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/blands.jpg
+post_id: 37007
+---
 There are so many great Springsteen covers out there that I try not to feature the same artist multiple times.
 
 But I'm a sucker for a fresh interpretation of one of Bruce's songs, and I'm hard pressed to name anyone more inventive with their covers than Silent Bear. (Check out his [funky, improvisational, thirteen-minute cover](../2021-01-24_cover-me-silent-bear-tenth-avenue-freeze-out/post.md) of "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" to see what I mean.)

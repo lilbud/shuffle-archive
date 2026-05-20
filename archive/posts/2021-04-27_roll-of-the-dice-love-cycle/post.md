@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Love Cycle"
+author: "Ken"
+excerpt: "It’s time for another installment from Bruce’s 1968 notebook–this time a poem rather than a song."
+tags: 1968-notebook love-cycle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/lovecycle.png
+post_id: 26455
+---
 Welcome to Springsteen Poetry Corner.
 
 I'm guessing, of course, but I'm pretty sure that Bruce didn't have musical accompaniment in mind when he wrote "Love Cycle" in the pages of his 1968 notebook.

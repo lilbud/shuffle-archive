@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You Can Look (But You Better Not Touch)"
+author: "Ken"
+excerpt: "In any arrangement and any style, “You Can Look” is guaranteed to bring the fun to any show it appears in. Let’s trace its long and winding evolution inside."
+tags: the-river the-river-single-album you-can-look-but-you-better-not-touch
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/danger-do-not-touch-aluminum-sign-12-x-18.png
+post_id: 18562
+---
 For a song with so little substance, "You Can Look (But You Better Not Touch)" sure takes on a lot of forms.
 
 The latter is probably due to the former: lyrically, "You Can Look" is one step short of a novelty song, so it lends itself to recasting and rearranging. Pretty much any arrangement is fair game, as long as it's fun.

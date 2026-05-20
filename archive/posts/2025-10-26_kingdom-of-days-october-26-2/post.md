@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 26"
+author: "Ken"
+excerpt: "Listen in on Bruce’s first-ever show in Seattle, Darkness Tour rehearsals, and more–all from this date."
+tags: born-in-the-usa-tour born-to-run-tour brothers-under-the-bridge darkness-tour denver for-you ghost-of-tom-joad-tour johnny-99 kansas-city lenny-sullivan los-angeles magic-tour no-surrender oakland point-blank racing-in-the-street reunion-tour san-jose seattle shut-out-the-light springfield springsteen-on-broadway the-ties-that-bind tunnel-of-love wild-kisses working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/19961026_front.jpg
+post_id: 61195
+---
 ***New for 2025:** New entry for 1972; audio for 1974; video for 1996*<br>
 
 **1972:** At 914 Sound Studios in Blauvelt, New York, Bruce completes "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)," "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)," and "[The Angel.](../2020-09-26_roll-of-the-dice-the-angel/post.md)"<br>

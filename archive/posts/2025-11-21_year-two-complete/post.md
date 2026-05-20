@@ -1,3 +1,11 @@
+---
+layout: default-post
+title: "Kingdom of Days Volume 1 Introduction"
+author: "Ken"
+excerpt: "Kingdom of Days was never supposed to be a book, let alone a twelve-volume series."
+categories: kingdom-of-days spare-parts uncategorized
+post_id: 15454
+---
 *Kingdom of Days* was never supposed to be a book, let alone a twelve-volume series.
 
 It wasn't supposed to go viral on social media, or get read aloud daily on satellite radio.

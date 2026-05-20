@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 20"
+author: "Ken"
+excerpt: "Watch Bruce and his new band rehearse for their 1992 tour, and then listen to Joe Ely and Jerry Lee Lewis join them on stage a year later. These and more highlights from this date inside."
+tags: boston devils-and-dust devils-and-dust-tour don-henley dublin ireland joe-ely norway oslo river-tour seeger-sessions-tour stafford uk world-tour-1992 world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/19930520_front.jpg
+post_id: 56797
+---
 **1981:** The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg.webp)

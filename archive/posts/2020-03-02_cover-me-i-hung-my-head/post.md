@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I Hung My Head"
+author: "Ken"
+excerpt: "Twice only: Bruce pays tribute to his good friend Sting with a rocking arrangement of Sting’s 1996 Nebraska-ish “I Hung My Head.”"
+tags: i-hung-my-head sting
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/hunghead.jpg
+post_id: 16060
+---
 In the right arrangement and in another time, Sting's 1996 song about a young man who accidentally kills a man while practicing with his brother's rifle would have been right at home on Bruce Springsteen's *Nebraska* album.
 
 [Watch on Youtube: I Hung My Head](https://www.youtube.com/watch?v=WnwmOfmZbb0)

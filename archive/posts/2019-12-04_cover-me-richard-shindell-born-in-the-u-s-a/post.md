@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Richard Shindell: Born in the U.S.A."
+author: "Ken"
+excerpt: "Richard Shindell’s arrangement of “Born in the U.S.A.” highlights the anger and loss in the lyrics without sacrificing the melody. It’s a brilliant cover–take a listen inside."
+tags: born-in-the-u-s-a richard-shindell
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/delia.jpg
+post_id: 7800
+---
 Folk singer-songwriter Richard Shindell shares at least two talents with Bruce Springsteen: they’re both fantastic songwriters, and they both have an amazing ability to breathe new life into songs written by other artists.
 
 Shindell, like Bruce, draws from a deep trove of inspiration when he chooses a song to re-interpret; both his studio recordings and stage performances are well worth seeking out.

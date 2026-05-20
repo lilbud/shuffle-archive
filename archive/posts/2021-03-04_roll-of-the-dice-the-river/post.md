@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The River"
+author: "Ken"
+excerpt: "Into the river we dive, as we appreciate one of Bruce’s finest and most heartbreaking songs."
+tags: the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/river-1.jpg
+post_id: 24353
+---
 *(**Updated 3/4/2021:** Friend of the blog Steven Semeraro pointed out that while Mary was 17 when they met, the narrator is likely eighteen by implication. I've updated some timing references accordingly.)*
 
 What's worse than a lie?
@@ -14,9 +24,9 @@ He already had his characters and storyline, and they were very close to the one
 
 But then Bruce hit upon inspiration in the guise of the great Hank Williams. Bruce insists that it was Hank's "My Bucket's Got a Hole In It" that provided the final creative spark for "The River," but it's at least as likely that he drew from "Long Gone Lonesome Blues" as well. Because the first verse of the latter song sounds strikingly familiar:
 
-> *I went down to the river to watch the fish swim by*
-> *But I got to the river so lonesome I wanted to die*
-> *And then I jumped in the river, but the doggone river was dry*
+> *I went down to the river to watch the fish swim by*<br>
+> *But I got to the river so lonesome I wanted to die*<br>
+> *And then I jumped in the river, but the doggone river was dry*<br>
 
 It wasn't the first time Bruce employed a river metaphor in his songwriting–heck, it wasn't even the first time he did so in a song *title*. But the river metaphor in "The River" proved deeper and more pliable than he'd been able to achieve before, and Bruce knew he was on to something.
 
@@ -50,10 +60,10 @@ The first thing we notice about "The River" is its introduction. Bruce does doub
 
 We meet our narrator next; he introduces himself to us just like he did in "Oh Angelyne," but he spends less time telling us about himself and introduces us to Mary right away.
 
-> *I come from down in the valley where mister when you're young*
-> *They bring you up to do like your daddy done*
-> *Me and Mary we met in high school when she was just seventeen*
-> *We'd ride out of that valley down to where the fields were green*
+> *I come from down in the valley where mister when you're young*<br>
+> *They bring you up to do like your daddy done*<br>
+> *Me and Mary we met in high school when she was just seventeen*<br>
+> *We'd ride out of that valley down to where the fields were green*<br>
 
 Bruce will eventually clue us into his narrator's occupation, but he wisely chooses to delay that piece of information. What's important in this first verse is that he's following in his father's footsteps, living someone else's life, not his own.
 
@@ -63,20 +73,20 @@ Before we move on, let's take a moment to appreciate how Bruce pauses the song a
 
 Now we arrive at the chorus, the last element of "The River" to take shape. It's only two lines, but it completely transforms and elevates the song.
 
-> *We'd go down to the river and into the river we'd dive*
-> *Oh down to the river we'd ride*
+> *We'd go down to the river and into the river we'd dive*<br>
+> *Oh down to the river we'd ride*<br>
 
 With this first chorus, Bruce introduces the river as a metaphor for hope and dreams long before he ever wrote about a land of them. Our narrator and Mary swim in that river of dreams. They bathe in it, and they drink deeply from its intoxicating waters.
 
 Bruce concludes Act I with a healthy dose of reality. Young love leads to lasting consequences, as it often does, and Mary becomes pregnant only months, perhaps a year into their relationship.
 
-> *Then I got Mary pregnant and man that was all she wrote*
-> *And for my nineteenth birthday I got a union card and a wedding coat*
-> *We went down to the courthouse and the judge put it all to rest*
-> *No wedding day smiles, no walk down the aisle, no flowers no wedding dress*
+> *Then I got Mary pregnant and man that was all she wrote*<br>
+> *And for my nineteenth birthday I got a union card and a wedding coat*<br>
+> *We went down to the courthouse and the judge put it all to rest*<br>
+> *No wedding day smiles, no walk down the aisle, no flowers no wedding dress*<br>
 
-> *That night we went down to the river and into the river we'd dive*
-> *Oh down to the river we did ride*
+> *That night we went down to the river and into the river we'd dive*<br>
+> *Oh down to the river we did ride*<br>
 
 That flash-forward is a small but significant detail. We'll circle back around to it, but for now let's just note that it's important that our young lovers had that time together before adulthood and parenthood laid their claim.
 
@@ -86,10 +96,10 @@ That night, the honeymooners take one last trip to the river together. Well, the
 
 In Act II, we fast forward again. Bruce doesn't tell us how much time has passed, but we get the sense that it's been years since their last trip to the river together. Our narrator is an early victim of the newly receding economy, and his inability to provide for his family means what few dreams they'd managed to hold on to all these years continue to be compromised away.
 
-> *I got a job working construction for the Johnstown Company*
-> *But lately there ain't been much work on account of the economy*
-> *Now all them things that seemed so important, well mister they vanished right into the air*
-> *Now I just act like I don't remember, Mary acts like she don't care*
+> *I got a job working construction for the Johnstown Company*<br>
+> *But lately there ain't been much work on account of the economy*<br>
+> *Now all them things that seemed so important, well mister they vanished right into the air*<br>
+> *Now I just act like I don't remember, Mary acts like she don't care*<br>
 
 "All them things" is a surprisingly dismissive description for their grand plans together, but we quickly learn their callousness is just an act. He remembers, and she cares.
 
@@ -97,10 +107,10 @@ What follows next is one of Bruce Springsteen's most powerful passages on record
 
 Having conditioned us with a standard verse/chorus arrangement, Bruce suddenly breaks the pattern with an extra verse, raising both the key and the emotional stakes.
 
-> *But I remember us riding in my brother's car, her body tan and wet down at the reservoir*
-> *At night on them banks I'd lie awake and pull her close just to feel each breath she'd take*
-> *Now those memories come back to haunt me, they haunt me like a curse*
-> *Is a dream a lie if it don't come true or is it something worse*
+> *But I remember us riding in my brother's car, her body tan and wet down at the reservoir*<br>
+> *At night on them banks I'd lie awake and pull her close just to feel each breath she'd take*<br>
+> *Now those memories come back to haunt me, they haunt me like a curse*<br>
+> *Is a dream a lie if it don't come true or is it something worse*<br>
 
 A far cry from the prior verse's vague descriptions, this last passage is chock full of vivid detail. The contrast tells us something important: our narrator is a man who lives in the past, and the past is so overwhelming to him that his voice cracks with emotion.
 
@@ -120,10 +130,10 @@ It was simply a mistake, and it cost them everything. That's what's worse than a
 
 Bruce returns us to one final chorus now, and even before we hear it, we know what's coming.
 
-> *That sends me down to the river, though I know the river is dry*
-> *That sends me down to the river tonight*
-> *Down to the river, my baby and I*
-> *Oh down to the river we ride*
+> *That sends me down to the river, though I know the river is dry*<br>
+> *That sends me down to the river tonight*<br>
+> *Down to the river, my baby and I*<br>
+> *Oh down to the river we ride*<br>
 
 It's easy to focus on the first two lines, since they drive home the metaphor via the dry river, now empty of hope, dreams and solace.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Friends: Blowin' Down This Road"
+author: "Ken"
+excerpt: "Woody Guthrie’s “Blowin’ Down This Road” brings Bruce together with his fellow singer-songwriters. Hear him team up with Joe Ely, Joe Grushecky, Elliott Murphy, Alejando Escovedo, and Garland Jeffreys inside."
+tags: alejandro-escovedo blowin-down-this-road eliott-murphy garland-jeffreys joe-ely joe-grushecky woody-guthrie
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/woody.jpg
+post_id: 18294
+---
 Today's *Meeting Across the River* entry has been covered by Bruce with so many other artists that I can't choose just one to spotlight.
 
 As for the song itself, it's easy to see why Woody Guthrie's "Blowin' Down This Road" would appeal to Bruce. It's a populist folk song of persistence and defiance that would have been right at home on the Seeger Sessions or Wrecking Ball tours.

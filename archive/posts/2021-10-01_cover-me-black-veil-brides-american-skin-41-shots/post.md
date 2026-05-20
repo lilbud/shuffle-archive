@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Black Veil Brides: American Skin (41 Shots)"
+author: "Ken"
+excerpt: "Black Veils Brides covered “American Skin (41 Shots)” in the wake of George Floyd’s murder, and they’ve been performing it live ever since."
+tags: american-skin-41-shots black-veil-brides
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/bvb.jpg
+post_id: 29986
+---
 Last summer, Black Veil Brides was one of many bands and musicians who made an artistic statement in the wake of the murder of George Floyd. They recorded a beautiful cover of Bruce Springsteen's "American Skin (41 Shots)" (a popular choice at the time) and released it for free on [its own web page](https://www.bvbamericanskin.com/).
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/AmericanSkinMaster2.m4a?_=2](https://estreetshuffle.com/wp-content/uploads/2021/10/AmericanSkinMaster2.m4a?_=2)

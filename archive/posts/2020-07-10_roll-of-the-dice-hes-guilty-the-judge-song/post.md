@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: He's Guilty (The Judge Song)"
+author: "Ken"
+excerpt: "“He’s Guilty” bears the distinction of being the only officially released Steel Mill studio recording, but it was also a reliable nightly crowd pleaser in the band’s live shows."
+tags: chapter-and-verse hes-guilty-the-judge-song steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/guilty-stamp-2.png
+post_id: 19185
+---
 Bruce Springsteen, guitar hero?
 
 Bruce doesn't get nearly enough credit for his skill as a guitarist (*Rolling Stone* ranks him only 96th on their Greatest Guitarists of All Time list), in large part because he always ensures his instruments are in service of the song rather than the musician.

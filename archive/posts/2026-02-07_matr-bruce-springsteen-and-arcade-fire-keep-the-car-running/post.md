@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Keep the Car Running"
+author: "Ken"
+excerpt: "One time only: Win Butler and Régine Chassagne join Bruce on stage in Ottawa for one of Arcade Fire’s greatest hits."
+tags: arcade-fire keep-the-car-running
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/keepcar.jpg
+post_id: 17117
+---
 > "Robert De Niro said once that what he likes about acting is that he gets to step into other people's shoes without the real-life consequences. Art does allow you to do that, to go right up to the abyss and look in, hopefully without falling in. On any given day. I feel like that's what **Arcade Fire** was built to hold off, that falling in. There's a furious aspect to the performance, and that's why people come out — you're recognizing the realities of people's emotional lives and their difficulties, you're presenting these problems, and you're bringing a survival kit. The bands that do that forge intense, intense relationships with their audience, and to me, that was always the core of the best rock'n'roll." *–Bruce Springsteen to Steve Kandell, Spin, December 2007*<br>
 
 Bruce lavished that praise on Arcade Fire in the presence of the band's lead vocalists, Win Butler and Régine Chassagne, just hours before Bruce's Magic show at the Meadowlands in early October 2007.

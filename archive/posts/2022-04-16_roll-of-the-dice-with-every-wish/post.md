@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: With Every Wish"
+author: "Ken"
+excerpt: "“With Every Wish” by Bruce Springsteen: a cautionary tale about caution."
+tags: human-touch with-every-wish
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/with-every-wish.jpg
+post_id: 287
+---
 A deep cut from an underrated album, "With Every Wish" escaped my understanding when it debuted on the *Human Touch* album in 1992.
 
 I was 23, very newly wed, and invincible. When I first heard "With Every Wish," I focused on the chorus:

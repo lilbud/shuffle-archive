@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Smith and Bruce Springsteen: Free Money"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen joins The Patti Smith Group on one of Patti’s earliest songs."
+tags: free-money patti-smith
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/freemoney.jpg
+post_id: 32611
+---
 In 1976, Bruce Springsteen and Patti Smith were both stars on the ascent, each riding high on their recent breakthrough albums (*Born to Run* and *Horses*, respectively).
 
 Bruce and Patti had become fast friends and traded appearances on each other's stages that autumn, but on the night of November 26th at The Palladium in New York City, Bruce made much more than a cameo.

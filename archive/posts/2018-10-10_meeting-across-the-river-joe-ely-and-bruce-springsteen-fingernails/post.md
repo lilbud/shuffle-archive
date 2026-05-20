@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Joe Ely and Bruce Springsteen, Fingernails"
+author: "Ken"
+excerpt: "Twice only: Bruce and Joe Ely jam to an extended “Fingernails” on stage in Dublin."
+tags: fingernails joe-ely
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/joeely.jpg
+post_id: 4790
+---
 "Fingernails" dates way back to 1978, from Joe Ely's second album, *Honkey Tonk Masquerade.* It's one of the shortest tracks on the record (a mere 2:13), but it's a honky-tonk rave-up that grows in length, power, and raucousness in its frequent appearances in Joe's setlists.
 
 [Watch on Youtube: Fingernails](https://www.youtube.com/watch?v=GXk7SxUicXE)

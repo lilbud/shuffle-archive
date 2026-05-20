@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Detroit, October 3, 2004"
+author: "Ken"
+excerpt: "The Dixie Chicks make a surprise appearance in Detroit, joining Bruce, REM, and company on the Vote for Change stage."
+tags: bright-eyes detroit dixie-chicks john-fogerty rem vote-for-change-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/vfcdet.jpg
+post_id: 4718
+---
 
 The nice thing about the 2004 "swing states" is that most of them were pretty close to each other. The drive from Cleveland to Detroit took less than three hours, so it was a pretty low-stress travel day considering I was doing back-to-back shows.
 

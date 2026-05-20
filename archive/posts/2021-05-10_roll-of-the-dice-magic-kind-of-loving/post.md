@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Magic Kind of Loving"
+author: "Ken"
+excerpt: "Set the wayback machine to almost a half-century ago, and we’ll eavesdrop on The Bruce Springsteen Band performing one of Bruce’s lost original rockers."
+tags: magic-kind-of-loving the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/magickind.jpg
+post_id: 27152
+---
 The dice sure do seem to be in a pop groove lately–it's a been a while since they've assigned me any deep lyrics to analyze.
 
 We'll keep it going one more time with this time-travel trip to a half-century ago, when The Bruce Springsteen Band was in residence at The Back Door in Richmond, Virginia.

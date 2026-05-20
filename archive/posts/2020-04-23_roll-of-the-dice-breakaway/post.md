@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Breakaway"
+author: "Ken"
+excerpt: "Is this the darkest song in Bruce’s catalog? (Spoiler alert: yes.)"
+tags: breakaway the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/breakaway.jpg
+post_id: 17744
+---
 It takes a lot of darkness to out-dark [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md), but "Breakaway" manages to do it.
 
 "Breakaway" is easily the bleakest song to come out of the Darkness sessions and is surely a contender for the title across Bruce's entire catalog.
@@ -32,13 +42,13 @@ A gambler gets in too deep and loses everything; a bartender turns a trick in a 
 
 That's the song.
 
-> *Sonny abandoned his car last night*
-> *Had a meeting on the docks with a light blue Monterrey*
-> *To breakaway*
+> *Sonny abandoned his car last night*<br>
+> *Had a meeting on the docks with a light blue Monterrey*<br>
+> *To breakaway*<br>
 
-> *Sonny was playing all his cards last night*
-> *In a hotel room he dealt his life away*
-> *To breakaway*
+> *Sonny was playing all his cards last night*<br>
+> *In a hotel room he dealt his life away*<br>
+> *To breakaway*<br>
 
 Perhaps Sonny got off lucky by signing away his car as a gambling loss, but it sure seems likely (given the rest of the song) that the meeting on the docks was a more sinister one–unable to pay his debts, Sonny is thrown off the pier and drowned.
 
@@ -46,20 +56,20 @@ Hoping to break away from whatever metaphorical chains bound him, he ended up br
 
 (Sonny will return in "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md).")
 
-> *Now the promises and the lies they demand it*
-> *Let the hearts that have been broken stand as the price you pay*
-> *To breakaway, oh, breakaway, oh Ronde, Ronde, Ronde, Ronde Ray*
-> *To breakaway*
+> *Now the promises and the lies they demand it*<br>
+> *Let the hearts that have been broken stand as the price you pay*<br>
+> *To breakaway, oh, breakaway, oh Ronde, Ronde, Ronde, Ronde Ray*<br>
+> *To breakaway*<br>
 
 Yes, that's the chorus for "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" you spotted there. Although Bruce was working on "Badlands" at the same time he recorded "Breakaway," that iconic line ("let the broken hearts stand as the price you've gotta pay") wouldn't migrate to "Badlands" until several months later. Bruce isn't one to let a great line go to waste.
 
-> *Janie slipped from behind the bar last night*
-> *Cashed out and walked onto streets rainy and grey*
-> *To breakaway*
+> *Janie slipped from behind the bar last night*<br>
+> *Cashed out and walked onto streets rainy and grey*<br>
+> *To breakaway*<br>
 
-> *Janie slid into a car last night*
-> *In a parking lot she gave her soul away*
-> *To breakaway*
+> *Janie slid into a car last night*<br>
+> *In a parking lot she gave her soul away*<br>
+> *To breakaway*<br>
 
 Whatever ambiguity we find in Sonny's vignette, there's a lot less in Janie's. Dissatisfied with her lot, she turns to sex as a means to escape it. Her fate may not be as final as Sonny's, but Bruce implies that she dies a death of a different kind.
 
@@ -71,13 +81,13 @@ We also hear the E Street Horn, a modern addition that unfortunately sounds exac
 
 Finally, there's Bobby, who we meet in his final moments.
 
-> *Bobby lay ‘neath a sheet of stars last night*
-> *His back on blacktop still warm from the heat of the day*
-> *From breakaway*
+> *Bobby lay ‘neath a sheet of stars last night*<br>
+> *His back on blacktop still warm from the heat of the day*<br>
+> *From breakaway*<br>
 
-> *Bobby went down hard last night*
-> *Saw a shooting star as the evening light slipped away*
-> *From breakaway*
+> *Bobby went down hard last night*<br>
+> *Saw a shooting star as the evening light slipped away*<br>
+> *From breakaway*<br>
 
 We have no idea what led to Bobby's demise (although the fact that he "went down hard" implies some kind of violence), but it's clear from the "sheet of stars" metaphor that he's gone, gone, gone. But in his final moments, he sees a shooting star–a rare and fleeting glimpse of beauty that momentarily breaks through and ultimately away.
 

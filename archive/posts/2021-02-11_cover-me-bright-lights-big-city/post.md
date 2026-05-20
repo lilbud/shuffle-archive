@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Bright Lights, Big City"
+author: "Ken"
+excerpt: "At the opening show of The Bruce Springsteen Band’s month-long residency at The Back Door in February 1972, Southside Johnny takes the spotlight when Bruce and the band cover Jimmy Reed’s classic."
+tags: bright-lights-big-city jimmy-reed john-eddie the-bruce-springsteen-band
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/brightlights.jpg
+post_id: 25003
+---
 By February 1972, The Bruce Springsteen Band was at the top of its bluesy game.
 
 Thanks to the local popularity of Bruce's previous band, Steel Mill, Bruce had developed a loyal following in Richmond, Virginia, leading to a month-long stand for his new band at The Back Door, a legendary live music venue from 1970 until its closure in late 2018. (The venue changed names a few times along the way.)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 17"
+author: "Ken"
+excerpt: "On this date: Bruce films the video for “Tunnel of Love,” releases his first album collection, plays the second of two amazing Christic shows, and serenades Taylor Swift–all this and much more inside."
+tags: album-collection-vol-1 atlantic-city born-to-run chapel-hill charlottesville christic-concerts columbus concert-for-autism-speaks dancing-in-the-dark darkness-tour devils-and-dust-tour dublin east-lansing east-rutherford ellen further-on-up-the-road if-i-should-fall-behind ireland joe-walsh kansas-city live-in-dublin manayunk meeting-across-the-river meiert-avis my-beautiful-reward my-city-of-ruins new-york-city no-surrender pbs-exclusive philadelphia reunion-tour seeger-sessions-tour springsteen-on-broadway taylor-swift the-wish thunder-road tunnel-of-love working-on-the-highway world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/Christic-700x700.jpg
+post_id: 62386
+---
 ***New for 2025:** Advertisement for 1973 and 1974; video for 1990; audio for 1990 and 2005*<br>
 
 **1973:** Bruce and the E Street Band headline two shows at the Roxy Theater in Roxborough, the latter of which features the first known recording of Bruce covering "[634-5789 (Soulsville, U.S.A.](../2018-08-14_cover-me-634-5789-soulsville-u-s-a/post.md)")<br>

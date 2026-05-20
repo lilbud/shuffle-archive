@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Philadelphia, April 28, 2009"
+author: "Ken"
+excerpt: "On Night One (of six!) in Philadelphia on the Working on a Dream tour, Bruce granted my all-time most-wished-for chase song."
+tags: fire mountain-of-love philadelphia the-fever working-on-a-dream-tour you-cant-sit-down
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/20090428_front.jpg
+post_id: 1749
+---
 Ah, Philly. As I like to put it: a good place to be *from*.
 
 I escaped to the Pacific Northwest half my life ago, but as long as Bruce continues to tour, I'll keep going back. (Also, I have family there.)
@@ -6,13 +16,13 @@ Pretty much every Springsteen show is great. But in some cities, you're more lik
 
 This show certainly fit that mold. It started out normally enough, with a standard "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" opener kicking off the usual WOAD opening pack and recession-themed mini-set. But then came sign-collection time, and we were off to the races.
 
-First, a rare outing of "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" in response to a sign deserving of attention...
+First, a rare outing of "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" in response to a sign deserving of attention…
 
 [Watch on Youtube: Bruce Springsteen - Fire - Live from Philadelphia - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=0kTnyP33fbM)
 
-Reliving that moment as I write this, it's so wonderful to see Bruce and Clarence share the mic and enjoy each other's company... we didn't know at the time that our remaining opportunities to see moments like that were so limited.
+Reliving that moment as I write this, it's so wonderful to see Bruce and Clarence share the mic and enjoy each other's company… we didn't know at the time that our remaining opportunities to see moments like that were so limited.
 
-Next, the song I'd always chased–the song at the very top of my as-yet-unheard-but-must-hear-someday mountain: "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)." Bruce plays it so rarely in concert (other than at special bar sets and benefits, he'd played it only twice in 30 years), I'd resigned myself to it being forever out of reach. And then...
+Next, the song I'd always chased–the song at the very top of my as-yet-unheard-but-must-hear-someday mountain: "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)." Bruce plays it so rarely in concert (other than at special bar sets and benefits, he'd played it only twice in 30 years), I'd resigned myself to it being forever out of reach. And then…
 
 [Watch on Youtube: Bruce Springsteen - The Fever - Philadelphia, April 28th, 2009](https://www.youtube.com/watch?v=bSuR98jW88c)
 

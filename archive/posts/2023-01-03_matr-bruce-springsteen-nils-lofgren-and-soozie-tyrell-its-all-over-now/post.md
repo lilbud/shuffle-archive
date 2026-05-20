@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Nils Lofgren, and Soozie Tyrell: It's All Over Now"
+author: "Ken"
+excerpt: "The Rolling Stones’ first #1 U.K. hit had a habit of turning up in Bruce’s set lists in the strangest places, but fortunately a couple of his team-ups were captured for posterity."
+tags: nils-lofgren soozie-tyrell the-rolling-stones the-valentinos
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/stones.jpg
+post_id: 29190
+---
 It's a Rolling Stones double-shot!
 
 Yesterday, we took a look at "[Jumpin' Jack Flash](../2021-09-01_matr-bruce-springsteen-and-wolfgang-niedecken-jumpin-jack-flash/post.md)," a song Bruce covered three times in unusual circumstances. Today, we take a look at the Stones' first U.K. #1 hit–a song Bruce covered twice as many times, in circumstances just as varied.

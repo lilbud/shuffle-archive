@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: War"
+author: "Ken"
+excerpt: "Edwin Starr’s “War” remains sadly relevant ever since its original smash release. In 1985, Bruce released a live music video of his cover version, and three years later he performed it with Starr himself. Watch both amazing performances inside."
+tags: edwin-starr live-1975-85 the-temptations war
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/bruce-springsteen-and-the-e-street-band-war-cbs.jpg
+post_id: 9987
+---
 "War" was a Top 10 hit–*twice–*but never for its original recording artists.
 
 That's because The Temptations never released it as a single, despite fan requests to do so, for fear of angering a fan base that didn't all share the song's sentiment.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "House of a Thousand Guitars"
+author: "Ken"
+excerpt: "The literal and emotional centerpiece of Letter to You, “House of a Thousand Guitars” is one of Bruce’s most intimate and summational songs."
+tags: house-of-a-thousand-guitars letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1000guitars.jpg
+post_id: 24642
+---
 > ["House of a Thousand Guitars"] attempts to define the world that I attempted to create with my audience and my listeners from the beginning. It's a world of value, of code, of honor, fun and joy. And that's a world I create when I walk onstage at night and my audience walks through the door. We live in that world for two or three hours, and then we leave and take that world with us and hope that it sustains us for as long as it can. The House of a Thousand Guitars is the house we built, and within this house these things matter. *— Bruce Springsteen to Joe Breen, The Irish Times, October 17, 2020*<br>
 > We've not been made perfect by god, but [in this house] I try to speak in the voice of my better angels. We have been given the tools and the property of the soul to be attended to and accountable for, and that takes work–work that we might build on the principles of love, liberty, fraternity. Ancient ideas that still form the basis of a good life and a humane society. What happens in this house matters. — *Bruce Springsteen, Letter to You*<br>
 

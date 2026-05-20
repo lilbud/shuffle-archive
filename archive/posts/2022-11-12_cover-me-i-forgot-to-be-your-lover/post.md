@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I Forgot to Be Your Lover"
+author: "Ken"
+excerpt: "Bruce tackles one of the all-time greatest Stax singles with the help of Stax legend Sam Moore."
+tags: billy-idol i-forgot-to-be-your-lover only-the-strong-survive sam-moore william-bell
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/forgottobe.webp
+post_id: 39250
+---
 I'll admit my bias.
 
 William Bell is one of my favorite unsung artists. Along with "Private Number" (which I dearly hope is among the forty other songs Bruce Springsteen recorded but rejected for his latest album), Bell's deeply soulful "I Forgot to Be Your Lover" sits atop my all-time favorite Stax singles list.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Broadway, October 3, 2017"
+author: "Ken"
+excerpt: "I was lucky to be in the front row for Springsteen on Broadway on opening night. Here’s how it all went down."
+tags: delta-airlines springsteen-on-broadway
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/36068045030_62bee7f893_z.jpg
+post_id: 4719
+---
 **Note:** A little further down the page, you'l find my original review of the very first night of Springsteen on Broadway, which I originally posted on Backstreets.com. It's presented here unaltered and unedited, except for some typo corrections and the addition of a couple of my photos and in-line insertion of comments I'd added in replies. It therefore has **LOTS OF SPOILERS**. I've scrupulously avoided revealing spoilers all year long for those who have yet to see the show, but one year later, I feel like I can start talking about the show more openly. If you're averse to spoilers, then just stop scrolling after you see the big "*****SPOILERS FOLLOW*****" warning below.<br>
 
 But first let me share my story about how I ended up *in the front row for opening night*, because I am honestly still in shock every time I think about it.
@@ -76,7 +86,7 @@ There were a lot of strict rules that night that have since been eased or remove
 
 Shortly before showtime, Steve Van Zandt walked in and sat a couple of rows behind me. And not far behind him was Matt Lauer and his entourage. If there were any other notables in attendance, I didn't spot them.
 
-I didn't have much time to look–because the first surprise of the night was the prompt 8pm "curtain" for the never-on-time Bruce. Suddenly, we were off...
+I didn't have much time to look–because the first surprise of the night was the prompt 8pm "curtain" for the never-on-time Bruce. Suddenly, we were off…
 
 And now, my original review of Night One of *Springsteen on Broadway*, originally posted in the wee hours of October 4, 2017.
 
@@ -114,7 +124,7 @@ No encore, just bows, and a hasty exit–lights were up within seconds.
 
 I loved every moment of the experience. I was fortunate enough to score a front row seat right in front of Bruce's piano bench in the drop last week, and while I don't regret for a moment spending the money, I certainly think I would have been just as satisfied with any other seat on the main floor (I wasn't able to check out the view upstairs, so I'll let others comment on that).
 
-One last note re: the (presumably) unchanging nature of the set list–I have tickets for later in the run that I was intending to sell after scoring the great ticket for last night. I'm not going to do that now. I want to see this show again. I don't care if it's exactly the same as it was last night, with seats that aren't as good–that experience was so powerful for me, the content so moving... like a great play, I could see it again and again.
+One last note re: the (presumably) unchanging nature of the set list–I have tickets for later in the run that I was intending to sell after scoring the great ticket for last night. I'm not going to do that now. I want to see this show again. I don't care if it's exactly the same as it was last night, with seats that aren't as good–that experience was so powerful for me, the content so moving… like a great play, I could see it again and again.
 
 I was skeptical going into this–I thought it was an overpriced acoustic tour and that I'd end up having enjoyed myself but feeling vastly overcharged. I don't feel that way at all. I've not seen anything quite like this before, and I can't wait to see it again.
 

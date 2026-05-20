@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Greensboro, March 19, 2012"
+author: "Ken"
+excerpt: "The band gets tighter and more confident on Night Two of the Wrecking Ball tour."
+tags: easy-money greensboro jack-of-all-trades tenth-avenue-freeze-out we-take-care-of-our-own wrecking-ball wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/20120319_front.jpg
+post_id: 1139
+---
 In general, second shows of the tour are basically repeats of the first show. Don’t go expecting anything different until the kinks are worked out a week or two in, but do go if you want to enjoy new material that will likely get dropped from the setlist within a matter of weeks (if not days).
 
 That’s one reason why I followed up the Atlanta Wrecking Ball opener with the Greensboro show the next night. That, plus: Greensboro crowds really are among the best in the US. Maybe even THE best.

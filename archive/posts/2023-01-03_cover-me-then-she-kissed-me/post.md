@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Then (S)he Kissed Me"
+author: "Ken"
+excerpt: "Bruce first covered The Crystals’ 1963 hit around the same time he recorded “Born to Run.” That’s almost certainly not a coincidence."
+tags: the-crystals then-he-kissed-me then-she-kissed-me
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/thenhekissedme.jpg
+post_id: 23377
+---
 Bruce first covered "Then He Kissed Me" in concert during the summer of 1974, which is also when he recorded "Born to Run."
 
 I don't think that's a coincidence.

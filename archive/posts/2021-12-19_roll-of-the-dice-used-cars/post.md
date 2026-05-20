@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Used Cars"
+author: "Ken"
+excerpt: "“Used Cars” is one of Bruce’s most honestly autobiographical songs. Beneath its vignette veneer lies powerful, nuanced themes of shame and alienation. Let’s explore and listen to rare performances inside."
+tags: nebraska used-cars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/RoadhouseUsedCars.gif
+post_id: 10316
+---
 Many of Bruce's best songs are deceptively simple. At first listen, they strike us as a simple tale, a short story–perhaps fictional, perhaps biographical. On closer inspection, we find deep set human themes beneath their surface.
 
 Case in point: "Used Cars," buried deep in Bruce's *Nebraska* album.

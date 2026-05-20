@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Portland, November 28, 2012"
+author: "Ken"
+excerpt: "My last show of 2012 was a nice Wrecking Ball capstone, with lots of small but satisfying surprises."
+tags: darlington-county drive-all-night growin-up if-i-should-fall-behind land-of-hope-and-dreams loose-ends portland seeds tenth-avenue-freeze-out wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/20121128_2_front.jpg
+post_id: 5782
+---
 I knew going in that this was my last show of the year, and possibly the tour. (I’d have one more chance to catch the Wrecking Ball Tour in Spain the following June, but I didn’t know that then.)
 
 Coming off a fun show in Vancouver and run of great shows all year long (including [that stellar Fenway 2](../2018-08-15_where-the-band-was-boston-august-15-2012/post.md)), all I wanted for Christmas was a loose, celebratory epilogue with a few surprises and at least one song I’d never heard live before.

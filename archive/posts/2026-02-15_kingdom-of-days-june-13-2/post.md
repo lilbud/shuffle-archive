@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 13"
+author: "Ken"
+excerpt: "Rare performances abound on this date in Springsteen history–listen to the debut performances of “Car Wash,” and “Seaside Bar Song” and more."
+tags: binghamton black-sun-rising bonnaroo born-in-the-usa-tour car-wash cats-on-a-smooth-surface child clarence-clemons darkness-tour devils-and-dust-tour father-bill-ayres germany iowa italy leipzig munich my-oklahoma-home new-york-city reunion-tour rome rottderam seaside-bar-song seeger-sessions-tour springsteen-on-broadway steel-mill stockholm stone-pony the-netherlands tinley-park tunnel-of-love-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/19990613_2_front.jpg
+post_id: 57089
+---
 **1969:** Child plays at The Auction Coffee House in Long Branch, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1969-06-13.jpg.webp)

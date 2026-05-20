@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, John Eddie, and Friends: Suspicious Minds"
+author: "Ken"
+excerpt: "Bruce joins a stellar line-up of guest musicians at a 1994 John Eddie concert to cover Elvis Presley’s last number one hit, “Suspicious Minds.”"
+tags: elvis-presley john-eddie mark-james suspicious-minds
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/elvis.jpg
+post_id: 7678
+---
 Bruce covered Elvis Presley throughout the Tunnel of Love Express Tour. On any given night, you were liable to hear “[Can’t Help Falling in Love](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/)” or “[Love Me Tender](../2019-03-02_cover-me-love-me-tender/post.md).” Swiss fans even got a one-off of “Follow That Dream.”
 
 So it’s remarkable to me that given the theme of the album he was touring behind, Bruce never once covered “Suspicious Minds” on that tour. A song of simmering distrust and latent emotional infidelity, “Suspicious Minds” would have been right at home in a setlist that had “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)” as tentpoles.

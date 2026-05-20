@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: You Know My Love"
+author: "Ken"
+excerpt: "Steve Van Zandt takes the lead on a stunning cover of Willie Dixon’s “You Know My Love.” Oh, and Bruce plays on it, too."
+tags: otis-rush steve-van-zandt the-bruce-springsteen-band willie-dixon you-know-my-love
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/williedixon.jpg
+post_id: 12917
+---
 If you're a Little Steven fan, today's entry is a true treat.
 
 Way back in 1972, long before Steve joined the E Street Band (heck, before there even *was* an E Street Band), Steve co-led (with Southside Johnny) a short-lived band called The Sundance Blues Band. The band also included Garry Tallent, Dave Sancious, and Vini Lopez.

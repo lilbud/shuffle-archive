@@ -1,3 +1,13 @@
+---
+layout: post
+title: "No Surrender"
+author: "Ken"
+excerpt: "Bruce Springsteen’s most galvanizing anthem almost didn’t see the light of day, because it was too… Springsteenian."
+tags: born-in-the-u-s-a no-surrender
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/nosurrender.jpg
+post_id: 27047
+---
 > "[No Surrender] was a song I was uncomfortable with. You don't hold out and triumph all the time in life. You compromise, you suffer defeat, you slip into life's gray areas. But Steve [Van Zandt] talked me into putting the song on the album in the eleventh hour. He argued that the portrait of friendship and the song's expression of the inspirational power of rock music was an important part of the picture. I don't know if he was right or not, but it went on." — Bruce Springsteen, *Songs* (1998)
 
 There's no such thing as *cold*.
@@ -14,10 +24,10 @@ There's only the absence of cynicism.
 
 I first heard "No Surrender" when I was fifteen. More accurately, I first heard *about* "No Surrender" when I was fifteen. Before I'd even heard the song for the first time, there was a short-lived parental flap about Bruce's opening lyrics:
 
-> *Well we busted out of class*
-> *Had to get away from those fools*
-> *We learned more from a three-minute record*
-> *Baby, than we ever learned in school*
+> *Well we busted out of class*<br>
+> *Had to get away from those fools*<br>
+> *We learned more from a three-minute record*<br>
+> *Baby, than we ever learned in school*<br>
 
 I remember a swirling debate during the closing days of the school year about Bruce's delinquent, corrupting lyrics: *Bruce Springsteen is encouraging our children to skip school! Or worse: drop out! The nerve of suggesting that rock and roll can replace a good education!*
 
@@ -25,10 +35,10 @@ Even at fifteen and without having heard the song, I knew that was ridiculous. M
 
 I wouldn't be able to afford *Born in the U.S.A.* for a couple of months yet, but I listened to it at a friend's house. When we flipped the album and dropped the needle on Side Two, I'll never forget that jolt of adrenaline that comes with hearing Max Weinberg barrel roll into "No Surrender" for the first time–heightened by the fact that Bruce was narrating exactly what we were feeling that moment:
 
-> *Tonight I hear the neighborhood drummer sound*
-> *I can feel my heart begin to pound*
-> *You say you're tired and you just wanna close your eyes*
-> *And follow your dreams down*
+> *Tonight I hear the neighborhood drummer sound*<br>
+> *I can feel my heart begin to pound*<br>
+> *You say you're tired and you just wanna close your eyes*<br>
+> *And follow your dreams down*<br>
 
 *How?* How did he know? How did he know my heart was pounding in my chest from those first 27 seconds of jangly guitars, soaring wordless vocals, and Garry Tallent absolutely going to *town!* ("No Surrender" works best with a thumping subwoofer.)
 
@@ -42,19 +52,19 @@ The rebellion part, I got. I was a teenager after all. I was all about rebellion
 
 But the notion that in "No Surrender," Bruce was upbraiding a blood brother for failing to live up to their shared ideals… it would be years before the challenges of adulthood made me truly understand the song.
 
-> *Well we made a promise we swore we'd always remember*
-> *No retreat, baby, no surrender*
-> *Like soldiers in the winter's night with a vow to defend*
-> *No retreat, baby, no surrender*
+> *Well we made a promise we swore we'd always remember*<br>
+> *No retreat, baby, no surrender*<br>
+> *Like soldiers in the winter's night with a vow to defend*<br>
+> *No retreat, baby, no surrender*<br>
 
 My friends and I used to debate what the promise was about: eternal brotherhood and friendship was a popular opinion, as was making it big, scoring a record deal, achieving fame. Never forgetting your roots, that was what I leaned toward.
 
 It wasn't any of those, though. And if we'd listened closely enough to the second verse, we'd have realized it.
 
-> *Well now young faces grow sad and old*
-> *And hearts of fire grow cold*
-> *We swore blood brothers against the wind*
-> *I'm ready to grow young again*
+> *Well now young faces grow sad and old*<br>
+> *And hearts of fire grow cold*<br>
+> *We swore blood brothers against the wind*<br>
+> *I'm ready to grow young again*<br>
 
 *I'm ready to grow young again.* There's almost always one line in a Springsteen song that strikes me in my soul. The best ones lodge themselves there, and this was one of them: *I'm ready to grow young again*. Long before I knew what Bruce meant by it, I knew that line was the heart of the song.
 
@@ -66,19 +76,19 @@ The Who said it first: *Things they do look awful cold; I hope I die before I ge
 
 "No Surrender" is about the dilemma we each face on the cusp of adulthood: how do we make our way in this world–let alone achieve our dreams–without sacrificing our ideals?
 
-> *And hear your sister's voice calling us home*
-> *Across the open yards*
-> *Well maybe we could cut someplace of our own*
-> *With these drums and these guitars*
+> *And hear your sister's voice calling us home*<br>
+> *Across the open yards*<br>
+> *Well maybe we could cut someplace of our own*<br>
+> *With these drums and these guitars*<br>
 
 Because the offscreen addressee of "No Surrender" didn't. He gave up. He gave in.
 
 And it's not like our narrator doesn't understand the temptation:
 
-> *Now on the street tonight the lights grow dim*
-> *The walls of my room are closing in*
-> *There's a war outside still raging*
-> *you say it ain't ours anymore to win*
+> *Now on the street tonight the lights grow dim*<br>
+> *The walls of my room are closing in*<br>
+> *There's a war outside still raging*<br>
+> *you say it ain't ours anymore to win*<br>
 
 There's a lot going on in this verse, a lot more than the surface suggests.
 
@@ -88,9 +98,9 @@ And the war that isn't ours anymore to win… that's the bastion of idealism def
 
 That's why I couldn't understand the song at fifteen: I was offscreen. It was *my* war to win now, and I was of age to enlist. And when I first heard the next verse, I joined up for life.
 
-> *I wanna sleep beneath peaceful skies in my lover's bed*
-> *With a wide open country in my eyes*
-> *And these romantic dreams in my head*
+> *I wanna sleep beneath peaceful skies in my lover's bed*<br>
+> *With a wide open country in my eyes*<br>
+> *And these romantic dreams in my head*<br>
 
 There's a lot about "No Surrender" I didn't understand at fifteen: its audience, its message, its wartime metaphor. But this… this I understood. It spoke to my soul, and woke it.
 
@@ -106,8 +116,8 @@ I like to think I've done a pretty good job over the years of protecting my roma
 
 And as I stare at a photo of my hours-old first grandchild, born earlier today, I realize that it's my 24-year-old daughter's turn now to take up arms. To keep those romantic dreams in *her* head as she starts her family and leads them across the front lines and into the world.
 
-> *Because we made a promise we swore we'd always remember*
-> *No retreat, baby, no surrender*
+> *Because we made a promise we swore we'd always remember*<br>
+> *No retreat, baby, no surrender*<br>
 
 ---
 
@@ -115,14 +125,14 @@ And as I stare at a photo of my hours-old first grandchild, born earlier today, 
 
 His ambivalence toward it was evident almost immediately. Clearly uncomfortable with its unbridled idealism, he returned to the studio a month later and recorded an acoustic version with tampered lyrics that temper the song's steely passion–not necessarily to the song's benefit.
 
-> *Now on the streets tonight the lights are growing dim*
-> *The walls in my room are closing in*
-> *But it's good to see your smiling face*
-> *And to hear your voice again*
-> *Now we could sleep in the twilight*
-> *By the river bed*
-> *With a wide open country in our hearts*
-> *And these romantic dreams in our heads*
+> *Now on the streets tonight the lights are growing dim*<br>
+> *The walls in my room are closing in*<br>
+> *But it's good to see your smiling face*<br>
+> *And to hear your voice again*<br>
+> *Now we could sleep in the twilight*<br>
+> *By the river bed*<br>
+> *With a wide open country in our hearts*<br>
+> *And these romantic dreams in our heads*<br>
 
 That acoustic studio version has never surfaced in the wild, but Bruce did perform it during the Born in the U.S.A. tour, alternating it with the studio version on any given night–still unsure even a year later which version he was most comfortable with.
 

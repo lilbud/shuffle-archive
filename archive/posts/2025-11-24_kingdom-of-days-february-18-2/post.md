@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 18"
+author: "Ken"
+excerpt: "Check out highlights from Hunter Valley, Atlanta, Jacksonville, and more–all from this date."
+tags: atlanta australia bruce-springsteen-band cleveland dusseldorf germany ghost-of-tom-joad-tour hunter-valley jacksonville nils-lofgren richmond river-tour river-tour-2016 steve-van-zandt tim-russert
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/2023-02-18-kansas-city-mo.webp
+post_id: 55961
+---
 **1972:** The Bruce Springsteen Band plays at The Back Door in Richmond.<br>
 
 **1974:** Bruce cancels a concert in Cleveland after firing drummer Vini Lopez the week before.<br>

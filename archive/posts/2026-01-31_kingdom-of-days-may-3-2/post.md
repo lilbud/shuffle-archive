@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 3"
+author: "Ken"
+excerpt: "On this date: Bruce records his first demos for Columbia Records, honors Pete Seeger and Dr. John, makes a return visit to Jazz Fest, and more."
+tags: arkansas canada columbia-records devils-and-dust-tour dr-john elliott-murphy gaslight-anthem gothenburg green-river high-hopes-tour history-books hollywood im-a-coward im-so-lonesome-i-could-cry jazz-fest john-fogerty john-hammond light-of-day little-latin-lupe-lu little-rock mary-queen-of-arkansas mountain-view new-orleans new-york pete-seeger reunion-tour rickie-lee-jones right-place-wrong-time river-tour stockholm sweden tenth-avenue-freeze-out toronto tracks tunnel-of-love-express-tour twist-and-shout when-the-saints-go-marching-in wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/20140503_front.jpg
+post_id: 56669
+---
 **1972:** After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them (“Mary Queen of Arkansas,” “It’s Hard to Be a Saint in the City,” “Growin’ Up,” and “Does This Bus Stop at 82nd Street?” will be released more than a quarter century later on *Tracks*. Others, like “Two Hearts in True Waltz Time” and “Street Queen,” remain unreleased.<br>
 
 [Watch on Youtube: Mary Queen Of Arkansas (Demo Version - 1972)](https://www.youtube.com/watch?v=MvabtjLsDGI)

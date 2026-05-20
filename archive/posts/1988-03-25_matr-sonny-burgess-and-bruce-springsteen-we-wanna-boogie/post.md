@@ -1,3 +1,13 @@
+---
+layout: post
+title: "We Wanna Boogie"
+author: "Ken"
+excerpt: "One time only: Bruce joins rockabilly pioneer Sonny Burgess on his earliest hard-rocking classic."
+tags: sonny-burgess we-wanna-boogie
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/wewannaboogie.jpg
+post_id: 30903
+---
 In fairness, they probably never stood a chance.
 
 To this day, Sonny Burgess’ original 1956 recording of “We Wanna Boogie” is one of the hardest rocking singles I have ever heard.

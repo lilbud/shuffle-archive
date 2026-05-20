@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 21"
+author: "Ken"
+excerpt: "This date in Springsteen history features guest-spots galore: John Eddie, Marshall Crenshaw, Elliott Murphy, Nils Lofgren, Joe Grushecky, Greg Kihn, and Jon Bon Jovi all share a stage with Bruce. Plus: rare performances, great shows, and more."
+tags: american-babylon-tour born-in-the-usa-tour born-to-run cadillac-ranch canada chicago clarence-clemons devils-and-dust-tour elliott-murphy ghost-of-tom-joad-tour gimme-shelter greg-kihn hamilton im-goin-down joe-grushecky john-eddie jon-bon-jovi los-angeles love-of-the-common-people magic-tour marshall-crenshaw mountain-view my-love-will-not-let-you-down nils-lofgren no-surrender oakland pittsburgh providence rebel-music reunion-tour seeger-sessions-tour spain springsteen-on-broadway suspicious-minds terrys-song valencia world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/19991021_2_front.jpg
+post_id: 61183
+---
 ***New for 2025:** Audio for 2006; review for 2012; new entry for 2024*<br>
 
 **1972:** Clarence Clemons plays his final show with Norman Selden's Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen's new band.<br>

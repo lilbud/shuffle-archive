@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Water Station"
+author: "Ken"
+excerpt: "Truly one time only, and never before heard: Bruce Springsteen joins local band Odin and creates a brand new song on the spot."
+tags: odin water-station
+categories: meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/12/waters-l1600.jpg
+post_id: 47086
+---
 I know, I know: It's been a long time since the last *Roll of the Dice* installment.
 
 I won't make excuses. I have eleven essays in various stages of completion, but for various reasons it's been hard to focus on any them long enough to finish and publish. At least for the moment, however, I'm back on the horse. We'll see if it throws me off.

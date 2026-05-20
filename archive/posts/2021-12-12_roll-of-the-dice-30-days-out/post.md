@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: 30 Days Out"
+author: "Ken"
+excerpt: "A Human Touch outtake stronger than much of that album, “30 Days Out” deserves an official album release."
+tags: 30-days-out
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/30days.png
+post_id: 1462
+---
 And then there's "30 Days Out."
 
 It didn't make the *Human Touch* album it was recorded for, and it never made it into the vault for a *Tracks* release. Instead, it slipped out the door when no one was looking, hitched a ride on the b-side of a "Leap of Faith" promo single, and took off for Austria, The Netherlands, Japan, and Australia–the only countries that ever saw anything resembling an official release for this song.

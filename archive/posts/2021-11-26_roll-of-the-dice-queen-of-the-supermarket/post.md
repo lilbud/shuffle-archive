@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Queen of the Supermarket"
+author: "Ken"
+excerpt: "“Queen of the Supermarket” is one of Bruce’s best 21st century songs. There–I’ve said it. I’ll explain why inside."
+tags: queen-of-the-supermarket working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/springsteen_supermarket-compressed.jpg
+post_id: 4774
+---
 *Spin* described it as "a widescreen melodrama about a cashier crush that for sheer overkill rivals Adam Sandler's *Broooce* parody ‘Lunchlady Land.'"
 
 The *Seattle Times* bemoaned the "disco strings, mounting backing vocals and pounding drums [that] turn it into a Broadway number."

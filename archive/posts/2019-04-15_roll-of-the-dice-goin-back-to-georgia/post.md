@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Goin' Back to Georgia"
+author: "Ken"
+excerpt: "When Bruce walked into a recording studio for only the second time, he recorded one of his earliest crowd-pleasers with his band, Steel Mill. Listen to that studio recording along with a great live performance inside."
+tags: goin-back-to-georgia robbin-thompson steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/georgia.png
+post_id: 7786
+---
 In later years, we'd call it an homage; in earlier years, we'd call it imitation. One thing we know regardless of chronology: Bruce Springsteen has always worn his influences on his sleeve.
 
 One of the best early examples of this is Bruce's Steel Mill/Bruce Springsteen Band-era song, "Goin' Back to Georgia," one of the very first songs Bruce ever recorded in the studio.

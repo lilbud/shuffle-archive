@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 20"
+author: "Ken"
+excerpt: "Hear fans sing “Hungry Heart” to Bruce for the first time; watch Bruce give a remarkable interview to Charlie Rose; and catch Adam Sandler’s Bruce impression on SNL. These and more highlights inside, all from this date in history."
+tags: adam-sandler baltimore bobby-bandiera born-in-the-usa bruce-springsteen-band champaign charlie-rose chicago darkness-tour ghost-of-tom-joad-tour green-onions hungry-heart i-wanna-marry-you its-hard-to-be-a-saint-in-the-city louisville richmond river-tour saturday-night-live steel-mill stone-pony student-prince thunder-road working-on-a-dream-tour your-love-keeps-lifting-me-higher-and-higher
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/20091120_booklet2.jpg
+post_id: 62408
+---
 ***New for 2025:** New entry for 2006*<br>
 
 **1969:** Steel Mill headlines at the Free University in Richmond.<br>

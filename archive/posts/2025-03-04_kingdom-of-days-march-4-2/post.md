@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 4"
+author: "Ken"
+excerpt: "Bruce likes to spend March 4th below the Mason-Dixon line, it seems. Check out highlights from Florida, North Carolina and Kentucky from this date in history."
+tags: chapel-hill jacksonville lawsuit-tour lexington new-york-city orlando reunion-tour rising-tour river-tour tunnel-of-love-express-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/bruce-clarence.jpg
+post_id: 56095
+---
 ***New for 2025:** Audio for 1988*<br>
 
 **1973:** What would have been Bruce's first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce's involvement.)<br>

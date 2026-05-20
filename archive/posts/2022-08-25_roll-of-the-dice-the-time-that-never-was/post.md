@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Time That Never Was"
+author: "Ken"
+excerpt: "﻿ A true hidden gem from the Darkness/River era that should have seen an official release long before."
+tags: the-river-outtakes the-ties-that-bind-the-river-collection the-time-that-never-was
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/TheTimeThatNeverWas_PRINTREADY_31-3-22.jpg
+post_id: 37176
+---
 It's so obscure you practically have to spelunk to find it.
 
 It's never been played live, appears on no studio album, has never circulated on any bootleg, and is buried deep on a box set bonus disc of outtakes we'd already had for years on *Tracks* or bootlegs.

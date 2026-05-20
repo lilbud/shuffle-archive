@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Don't Back Down on Our Love"
+author: "Ken"
+excerpt: "Despite my best efforts, this book is going to be confusing at times, and that confusion starts here. Many of the eighteen tracks on L.A. Garage…"
+post_id: 65834
+---
 Despite my best efforts, this book is going to be confusing at times, and that confusion starts here.
 
 Many of the eighteen tracks on *L.A. Garage Sessions '83* share DNA with each other, some lyrically, some musically, some thematically, and some just in their titles.

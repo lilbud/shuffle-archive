@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 23"
+author: "Ken"
+excerpt: "“4th of July Asbury Park (Sandy),” made its concert debut on this date, along with Bruce’s covers of “Have Love Will Travel,” “Sweet Soul Music,” and “Purple Rain.” These and many more highlights inside."
+tags: belgium born-in-the-usa-tour brooklyn danny-federici factory germany ghent hartford have-love-will-travel japan los-angeles magic-tour mr-tambourine-man orlando osaka prince purple-rain regensburg reunion-tour river-tour-2016 roger-mcguinn sweet-soul-music tunnel-of-love-express-tour turn-turn-turn upstage vh1-storytellers world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/brooklyn1-1.jpg
+post_id: 56610
+---
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1971-0423.jpg.webp)

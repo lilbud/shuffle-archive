@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Funk Song"
+author: "Ken"
+excerpt: "“Funk Song” is a Springsteen original instrumental (or maybe two) that hasn’t been heard since 1975."
+tags: funk-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/admin-ajax-64.jpg
+post_id: 1917
+---
 An original Springsteen composition from 1971 that survived into the E Street Band Era?
 
 Yup. (Sort of.)

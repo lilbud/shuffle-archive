@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 11"
+author: "Ken"
+excerpt: "It’s a day of long-awaited returns, as Bruce brings back “Pretty Flamingo,” “New York City Serenade” and “Night” after many years of absence. Plus: The Rising hits the top of the album chart, Bruce makes a guest appearance with Ringo Starr and His All Starr Band, and more."
+tags: be-true born-in-the-usa-tour castiles detroit devils-and-dust-tour east-rutherford for-you from-small-things incident-on-57th-street john-entwistle maxs-kansas-city new-york-city new-york-city-serenade philadelphia photograph pittsburgh reunion-tour ringo-starr rising-tour river-tour seattle springsteen-on-broadway the-rising
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/20230811-chicago-il-bruce-springsteen-and-the-e-street-band-review-1.webp
+post_id: 58368
+---
 **1972:** Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City that week.<br>
 
 **1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.<br>

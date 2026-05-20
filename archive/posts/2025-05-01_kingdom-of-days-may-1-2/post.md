@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 1"
+author: "Ken"
+excerpt: "Great highlights on this day in Springsteen history, including Bruce’s first guest appearance in Europe, promotional performance footage from 1973, local Spanish TV news footage from 1993, and more."
+tags: adam-raised-a-cain belgium brussels darkness-on-the-edge-of-town denmark dion florida from-small-things from-small-things-big-things-one-day-come ghost-of-tom-joad-tour gloria high-hopes-tour hungry-heart hymn-to-him joe-hill lisbon los-angeles malurt manchester portugal reunion-tour richmond spirit-in-the-night springsteen-on-broadway steel-mill sundance-blues-band tampa thunder-road thundercrack tony-awards uk wild-billys-circus-story world-tour-1993
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/officiallivedownloads_2014-05-01.jpg
+post_id: 56667
+---
 ***New for 2025:** Video for 2014*<br>
 
 **1970:** Steel Mill returns to the Hullabaloo in Richmond, Virginia.<br>

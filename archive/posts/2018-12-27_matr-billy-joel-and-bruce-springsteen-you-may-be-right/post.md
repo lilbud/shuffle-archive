@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Billy Joel and Bruce Springsteen: You May Be Right"
+author: "Ken"
+excerpt: "One time only: Bruce teams up with Billy Joel on Billy’s perennial hit “You May Be Right” at the Rock and Roll Hall of Fame Anniversary Concerts."
+tags: billy-joel rock-and-roll-hall-of-fame you-may-be-right
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/youmay.jpg
+post_id: 6321
+---
 "You May Be Right" is one of Billy Joel's best-known songs.
 
 The first track on and second single from his chart-topping 1980 *Glass Houses* album, "You May Be Right" peaked at #7 in the US and became a setlist staple in Billy's still incredibly popular concerts.

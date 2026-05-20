@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Sanne Salomonsen: The Fever"
+author: "Ken"
+excerpt: "Danish rock legend Sanne Salomonsen delivers a passionate performance of one of Bruce’s most under-rated songs."
+tags: sanne-salomonsen the-fever
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/sanne.jpg
+post_id: 31389
+---
 If Sanne Salomonsen's name isn't familiar to you, you're probably not one of my Danish readers.
 
 Because in Denmark, Sanne is legendary. With a continuous recording career since 1973 and peak popularity in the mid-eighties, it's easy to find parallels between Sanne and Bruce. She even has a nickname: "Rock Mama," because of her leading status in Danish rock.

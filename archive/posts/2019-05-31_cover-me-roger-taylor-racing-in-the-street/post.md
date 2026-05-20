@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Roger Taylor: Racing in the Street"
+author: "Ken"
+excerpt: "Queen’s Roger Taylor picks up the pace in his cover of Bruce’s “Racing in the Street.” It moves faster, but is it still moving?"
+tags: racing-in-the-street roger-taylor
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/rogertaylor.jpg
+post_id: 9985
+---
 > "I loved that song, and I used to see Bruce play it live. But for me, it was always too slow, and I just wanted to do it mid-tempo, because it's such a moving song. I felt that song, for me, should be faster. Bruce always did it so slow, and it was very effective in one way, but I just felt it would be nice if it moved along a bit." — Roger Taylor, *Goldmine*, February 2015
 
 I'm sure we've all thought that "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" would be more moving if it, well, moved more.

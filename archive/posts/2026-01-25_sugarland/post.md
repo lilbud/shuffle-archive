@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Sugarland"
+author: "Ken"
+excerpt: "For decades, “Sugarland” was one of the great what if’s for Springsteen collectors. It was the ghost in the machine of the early eighties: a…"
+post_id: 65941
+---
 For decades, "Sugarland" was one of the great *what if's* for Springsteen collectors. It was the ghost in the machine of the early eighties: a song that existed in the cracks between Bruce's home-recorded solitude and the stadium-shaking roar of *Born in the U.S.A.*
 
 When it finally officially surfaced on *Tracks II*, it didn't just fill a gap in the discography; it provided a missing link in Bruce's cinematic exploration of the American Dream in decay.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Folding Chairs: New York City Serenade"
+author: "Ken"
+excerpt: "Italian Irish/folk/bluegrass band The Folding chairs share their terrific cover of Bruce’s early classic."
+tags: new-york-city-serenade the-folding-chairs
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/foldingchairs.jpg
+post_id: 27678
+---
 The Folding Chairs came together three years ago as a six-piece acoustic Irish/folk/bluegrass band based in Italy, and with a background like that, it's no surprise that their repertoire includes Springsteen covers.
 
 But of all the songs I might have expected a band like this to cover, "New York City Serenade" would not be among them.

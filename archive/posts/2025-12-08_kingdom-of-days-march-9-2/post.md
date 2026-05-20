@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 9"
+author: "Ken"
+excerpt: "On this date: Jake Clemons’ debut E Street Band performance and Suki Lahav’s final one."
+tags: apollo-medley apollo-theater backstreets death-to-my-hometown dont-look-back houston hungry-heart jake-clemons new-york-city philadelphia reunion-tour shes-the-one springsteen-on-broadway suki-lahav sunrise the-ghost-of-tom-joad the-river thunder-road tunnel-of-love-express-tour two-hearts wrecking-ball-tour youngstown
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/apollo.jpg
+post_id: 56114
+---
 **1973:** Bruce’s scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to poor ticket sales.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1973-03-09.png.webp)

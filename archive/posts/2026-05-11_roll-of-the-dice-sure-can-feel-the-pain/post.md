@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Sure Can Feel the Pain"
+author: "Ken"
+excerpt: "Bruce lets his psych rock flag fly in this 13-minute original epic, captured only once."
+tags: sure-cant-feel-the-pain the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/Gemini_Generated_Image_z4sesoz4sesoz4se.png
+post_id: 3034
+---
 Bruce Springsteen is a self-confessed fan of psychedelic rock, even if its influence can be a bit hard to find in his officially released music. But go back a bit earlier, and you'll hear it for sure.
 
 Case in point: listen to this 13-minute guitar epic from Bruce's days fronting The Bruce Springsteen Band. Recorded at a concert at The Student Prince on December 3, 1971, this would appear to be the only known performance and recording of this Springsteen original composition.

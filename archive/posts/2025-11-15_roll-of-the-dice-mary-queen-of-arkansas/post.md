@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Mary Queen of Arkansas"
+author: "Ken"
+excerpt: "Widely considered to be Bruce’s worst song, “Mary Queen of Arkansas” shows flashes of brilliance and unappreciated layers of depth."
+tags: greetings-from-asbury-park mary-queen-of-arkansas
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/QueenofAR.jpg
+post_id: 26519
+---
 In the early days of 1972, Vanessa Redgrave's latest film garnered a slew of Academy Award and Golden Globe nominations. The film, *Mary, Queen of Scots*, was a historically questionable tale of sexual misadventure and political intrigue, and while it didn't take home any awards that year, it did inspire what is widely (and IMO unfairly) considered to be Bruce Springsteen's worst-ever song.
 
 "Mary Queen of Arkansas" was one of four songs that Bruce played for John Hammond during their very first meeting in Hammond's Columbia Records office on May 2, 1972 (just a few weeks after the film that inspired it lost in all five of its Academy Award-nominated categories) and the only one with which Hammond was singularly unimpressed, calling the song "pretentious."

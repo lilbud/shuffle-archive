@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Wheels Make the World Go Round"
+author: "Ken"
+excerpt: "Recorded during Bruce’s Nebraska period, “Wheels Make the World Go Round” was a promising rocker candidate at the wrong time."
+tags: wheels-make-the-world-go-round
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/wheels.png
+post_id: 22431
+---
 From late 1981 through early 1982, Bruce recorded a series of acoustic demos at his home in Colts Neck. Several of those compositions became the album we know as *Nebraska;* others evolved into electric arrangements and would be featured on *Born in the U.S.A.*
 
 A few of them didn't go anywhere, though, and today's entry is one of them.

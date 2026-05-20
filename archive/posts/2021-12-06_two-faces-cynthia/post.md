@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Two Faces: Cynthia"
+author: "Ken"
+excerpt: "Katy Crane explains why “Cynthia” is a feminist rewrite of Roy Orbison’s “Oh, Pretty Woman.”"
+tags: cynthia katy-crane oh-pretty-woman roy-orbison
+categories: two-faces
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/womanwalking2.gif
+post_id: 31270
+---
 ***Editor's Note***<br>
 
 ****Katy Crane returns today with her third Two Faces entry. This one's a little bit different, though, and I'll let Katy explain why.*<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Dancing in the Dark"
+author: "Ken"
+excerpt: "A last-minute addition to Born in the U.S.A. provided Bruce with his greatest hit and the rocket fuel for his best-selling album."
+tags: born-in-the-u-s-a dancing-in-the-dark
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/dancing.jpg
+post_id: 29798
+---
 > "Jon [Landau] had been bothering me to write a single, which is something he rarely does. But he did that day. And he wanted something *direct.* That seemed to be what he was hitting on me for at the time. I was angry. I had written a lot of songs and was kind of fed up with the whole thing. We'd been making the record for a long time and I was bored with the whole situation.
 >
 > That particular night I came home and sat on the edge of my bed and the thing I remember thinking first was that we had a record, but it wasn't necessarily finished; I could change the whole thing right now if I wanted to.

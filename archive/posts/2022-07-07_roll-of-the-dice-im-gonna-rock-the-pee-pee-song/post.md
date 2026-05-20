@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'm Gonna Rock (The Pee Pee Song)"
+author: "Ken"
+excerpt: "When nature calls, Bruce makes up a song."
+tags: im-gonna-rock-all-night-long the-pee-pee-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/gonnarock.jpg
+post_id: 36008
+---
 It happens to us all.
 
 We're on stage in an arena surrounded by 18,000 adoring fans, right in the middle of a three-hour plus set of hard-driving rock and roll.

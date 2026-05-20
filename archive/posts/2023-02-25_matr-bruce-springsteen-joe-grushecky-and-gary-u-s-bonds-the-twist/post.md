@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Joe Grushecky, and Gary U.S. Bonds: The Twist"
+author: "Ken"
+excerpt: "It’s the biggest rock and roll single in history, but Bruce only ever covered it once."
+tags: chubby-checker garland-jeffreys gary-u-s-gonds hank-ballard joe-grushecky-and-the-houserockers light-of-day peppermint-twist the-twist
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/02/twist.jpg
+post_id: 41893
+---
 You've done The Twist.
 
 You wouldn't be reading this if you didn't.
@@ -34,7 +44,7 @@ That was high enough to earn the attention of Dick Clark, who wanted to book Bal
 
 Evans was only eighteen years old when he recorded "The Twist," and the only reason Clark knew him was that Evans recorded a humorous Christmas song for him, featuring dead-on impressions of popular singers like Fats Domino. His Domino impression was so good, in fact, that Clark's wife dubbed him "Chubby Checker" as a wink.
 
-Clark asked Checker to record a cover of "The Twist" doing his best Hank Ballard impression, and the result was... well, immortal. Clark had Checker perform the song on television, and it became an immediate hit, rocketing all the way to #1 on the Billboard Hot 100.
+Clark asked Checker to record a cover of "The Twist" doing his best Hank Ballard impression, and the result was… well, immortal. Clark had Checker perform the song on television, and it became an immediate hit, rocketing all the way to #1 on the Billboard Hot 100.
 
 [Watch on Youtube: Chubby Checker "The Twist"](https://www.youtube.com/watch?v=XmR00cErBdw)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Frankie Fell in Love"
+author: "Ken"
+excerpt: "Kicking off Valentine’s Week with Bruce’s ode to new love and old friends: “Frankie Fell in Love.”"
+tags: frankie-fell-in-love high-hopes
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/frankiefell.jpg
+post_id: 675
+---
 > *Good morning, good morning!*<br>
 > *The church mouse is snoring*<br>
 > *News is out all over town: Frankie fell in love!*<br>
@@ -33,7 +43,7 @@ Is Frankie either Bruce or Steve? Probably, but only the two of them can say whi
 > *You drunken choir boys, shake it up!*<br>
 > *Our Juliet says her Romeo's been found–Frankie fell in love*<br>
 
-> *World peace is gonna break out*
+> *World peace is gonna break out*<br>
 > *From here on in we're eating take out*<br>
 > *She ain't gonna be cooking for the likes of us*<br>
 > *Somebody call mama and just tell her: Frankie fell in love*<br>

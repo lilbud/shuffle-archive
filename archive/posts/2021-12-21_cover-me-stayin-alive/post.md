@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Stayin' Alive"
+author: "Ken"
+excerpt: "The Bee Gees’ 1978 hit single inspired once of Bruce’s best and most unexpected covers ever."
+tags: barry-gibb bee-gees stayin-alive
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/stayinalive.jpg
+post_id: 20800
+---
 > I told Steve "Tomorrow night, 'Staying Alive,'" and he goes, "You got me on that one. I don't know how we're gonna do it." And Tom Morello said, "I don't want to have any other ideas. Because I want to see how you're gonna pull that one off." Steve's going, "I can't imagine it." I go okay, I'm not going to be able to sing it where they sang it, so I have to think about Marvin Gaye on *What's* *Going* *On* and *Trouble Man* and I'm thinking of blaxploitation pictures. I thought, if I bring this thing down to my key and I play it like a blues, this is inner-city blues; it could slip right on to *What's* *Going On*. I had to find my voice in it. I got the lyrics up on the computer and just started to sing it. When it sounded believable to me I knew we'd be fine. It was like, "Okay, I can be this person in this song." *–Bruce Springsteen, Rolling Stone, March 11, 2014*<br>
 
 The 1977 original is instantly recognizable.

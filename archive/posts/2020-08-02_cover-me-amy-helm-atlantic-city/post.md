@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Amy Helm: Atlantic City"
+author: "Ken"
+excerpt: "The Band may have recorded the definitive cover of “Atlantic City,” but Amy Helm does her dad proud with her own version."
+tags: amy-helm atlantic-city levon-helm the-band
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/amyhelm.jpg
+post_id: 19923
+---
 Now here's a cover Bruce would certainly approve.
 
 Amy Helm has been covering "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" for years–which isn't surprising, considering how many times she must have heard her dad's version of it while growing up.

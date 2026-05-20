@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Baby I"
+author: "Ken"
+excerpt: "On May 18, 1966, Bruce made his very first studio recording with his band, The Castiles. He’s come a long way since then."
+tags: baby-i castiles chapter-and-verse
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/babyi_acetate.jpg
+post_id: 6268
+---
 On May 18, 1966, a sixteen-year-old Bruce Springsteen walked into a recording studio (if you can call an in-store booth at the Brick Mall in Bricktown, New Jersey a studio) for the very first time. For a whopping sum of fifty dollars, Bruce and his band, The Castiles, cut more than a half-dozen acetates, of which a few are known to have survived.
 
 I'd love to write about how his record debut evinced signs of future brilliance, but come on, let's be real: the kid was sixteen and had been in a band for all of a year. Their performance sounds exactly like you'd expect it to sound–charming and exuberant but slavish and rough.
@@ -8,7 +18,7 @@ It shows.
 
 [Watch on Youtube: Bruce Springsteen - Baby I (2016) [Chapter and Verse]](https://www.youtube.com/watch?v=aTeJTkSJMVE)
 
-The lyrics are, shall we say, basic–although the song goes on for about two minutes, the lyrics are comprised of a total of nine unique lines that repeat at least once:
+The lyrics are, shall we say, basic–although the song goes on for about two minutes, the lyrics are comprised of a total of nine unique lines that repeat at least once.:
 
 > *Baby I don't need your loving no more*<br>
 > *Baby I don't need your kisses no more*<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Matt O'Ree Band and Bruce Springsteen: Black Boots"
+author: "Ken"
+excerpt: "If you’d like Bruce Springsteen to sing on your album, it helps to have an in. Just ask his son’s guitar teacher."
+tags: black-boots matt-oree-band
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/blackboots.jpg
+post_id: 30735
+---
 Matt O'Ree is singer-songwriter and blues guitarist from Holmdel, New Jersey. Both as frontman for his eponymous band and rhythm guitarist for Bon Jovi, O'Ree has torn it up on stages around the world.
 
 But sometimes a musician needs more than a touring income to make a living, so O'Ree teaches private guitar lessons, too. Back in 2013, one of Matt's students brought a nineteen-year-old friend named Sam with him to his lesson, and Sam and Matt hit it off.

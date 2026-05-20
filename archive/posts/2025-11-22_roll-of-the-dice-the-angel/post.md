@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Angel"
+author: "Ken"
+excerpt: "Often derided if it’s remembered at all, “The Angel” deserves greater appreciation for its craft and early, tentative steps towards Bruce’s signature song."
+tags: greetings-from-asbury-park the-angel
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/angel.jpg
+post_id: 21388
+---
 > "[The Angel] was written in fifteen minutes, and that's one of my favorites because it's one of the most sophisticated things I've written." — Bruce Springsteen to Jerry Gilbert, *ZigZag*, August 1974
 > "What the hell was I talking about in that song?" — Bruce Springsteen, April 22, 1996
 

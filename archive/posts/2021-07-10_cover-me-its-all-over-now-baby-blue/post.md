@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: It's All Over Now, Baby Blue"
+author: "Ken"
+excerpt: "Stop what you’re doing and listen. The Bruce Springsteen Band’s cover of Bob Dylan’s “It’s All Over Now, Baby Blue” is one of their finest pre-E Street moments."
+tags: bob-dylan bruce-springsteen-band david-sancious its-all-over-now-baby-blue
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/dylan.jpg
+post_id: 6923
+---
 When it comes to covering “It’s All Over Now, Baby Blue,” Bruce is in good company.
 
 Bob Dylan’s 1965 track has received cover treatments over the years from such artists as Joan Baez, The Byrds, The Animals, Joni Mitchell, The Grateful Dead, and Link Wray to Echo and the Bunnymen, Falco, Marianne Faithfull, and more.

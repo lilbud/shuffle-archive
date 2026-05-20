@@ -1,4 +1,14 @@
-> "…I fell in obsession with a lovely surfer girl, a drug-taking, hell-raising wild child who played by nobody's rules. She was a perfect antidote to the control freak in me and opened up my hunger for every blond perfect thing I never had. She was so alive, funny and broken, I couldn't resist her. She stirred up my Catholic-school-bred messianic complex, then did the bone-and-heart-crushing dance over it that it deserved. She'd been around a little, California and back, knew a few grade-B-level rock stars, brought them down to ‘discover' my band, then slept with them. I got a handshake and a ‘you guys are great' T-shirt out of the deal." *–Bruce Springsteen, Born to Run (2016)*
+---
+layout: post
+title: "For You"
+author: "Ken"
+excerpt: "A love song for anyone who’s tried to save someone who couldn’t be saved."
+tags: for-you greetings-from-asbury-park
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/foryou.jpeg
+post_id: 32112
+---
+> "…I fell in obsession with a lovely surfer girl, a drug-taking, hell-raising wild child who played by nobody's rules. She was a perfect antidote to the control freak in me and opened up my hunger for every blond perfect thing I never had. She was so alive, funny and broken, I couldn't resist her. She stirred up my Catholic-school-bred messianic complex, then did the bone-and-heart-crushing dance over it that it deserved. She'd been around a little, California and back, knew a few grade-B-level rock stars, brought them down to ‘discover' my band, then slept with them. I got a handshake and a ‘you guys are great' T-shirt out of the deal." *–Bruce Springsteen, Born to Run (2016)*<br>
 
 Have you ever been in love with the wrong person?
 
@@ -24,19 +34,19 @@ On Valentine's Day (ironically), he auditioned for future manager Mike Appel wit
 
 Bruce has always been circumspect when discussing both the girl and the events that inspired the song, claiming to have written impressionistically but admittedly autobiographically–in equal measure, I suspect.
 
-> *Princess cards she sends me with her regards*
-> *Barroom eyes shine vacancy, to see her you gotta look hard*
-> *Wounded deep in battle, I stand stuffed like some soldier undaunted*
-> *To her Cheshire smile I'll stand on file, she's all I ever wanted*
-> *Oh but you let your blue walls get in the way of these facts*
-> *Honey get your carpetbaggers off my back*
-> *You wouldn't even give me time to cover my tracks*
-> *You said, "Here's your mirror and your ball and jacks"*
-> *But they're not what I came for, and I'm sure you see that too*
+> *Princess cards she sends me with her regards*<br>
+> *Barroom eyes shine vacancy, to see her you gotta look hard*<br>
+> *Wounded deep in battle, I stand stuffed like some soldier undaunted*<br>
+> *To her Cheshire smile I'll stand on file, she's all I ever wanted*<br>
+> *Oh but you let your blue walls get in the way of these facts*<br>
+> *Honey get your carpetbaggers off my back*<br>
+> *You wouldn't even give me time to cover my tracks*<br>
+> *You said, "Here's your mirror and your ball and jacks"*<br>
+> *But they're not what I came for, and I'm sure you see that too*<br>
 
-> *I came for you, for you, I came for you, but you did not need my urgency*
-> *I came for you, for you, I came for you, but your life was one long emergency*
-> *And your cloud line urges me, oh, and my electric surges free*
+> *I came for you, for you, I came for you, but you did not need my urgency*<br>
+> *I came for you, for you, I came for you, but your life was one long emergency*<br>
+> *And your cloud line urges me, oh, and my electric surges free*<br>
 
 "For You" is really for her. Bruce writes in intimate detail, interweaving fragments of memory with no attempt to explain them. That's okay. We don't need to understand what princess cards are, or the significance of her blue walls. (I suspect they're metaphorical, although Bruce once confessed on stage while introducing the song, "I was breaking up with this girlfriend and I went away for a week and I came back and she'd painted all the walls to my room black… actually she'd painted 'em all blue.") We might assume she's British from the Union Jack, even though it sounds like she lives in New York now.
 
@@ -58,20 +68,20 @@ He was *always* there for her, but she didn't need him then and pushed him away.
 
 He apologizes for the strength it took to leave, mistaking it for weakness. He marvels at her vivacity and spirit, mistaking them for strength and resilience. And he begs her to stay with him so he can be her savior and redeem himself–his love can be her oxygen.
 
-> *Oh crawl into my ambulance, your pulse is getting weak*
-> *Oh reveal yourself all now to me girl while you've got the strength to speak*
-> *‘Cause they're waiting for you at Bellevue with their oxygen masks*
-> *But I could give it all to you now if only you could ask*
-> *Whoa and don't call for your surgeon, even he says it's too late*
-> *It's not your lungs this time, it's your heart that holds your fate*
-> *Don't give me my money, honey, I don't want it back*
-> *You and your pony face and your union jack*
-> *We'll take your local joker and teach him how to act*
-> *I swear I was never that way even when I really cracked*
-> *Didn't you think I knew that you were born with the power of a locomotive*
-> *Able to leap tall buildings in a single bound*
-> *And your Chelsea suicide with no apparent motive*
-> *You could laugh and cry in a single sound*
+> *Oh crawl into my ambulance, your pulse is getting weak*<br>
+> *Oh reveal yourself all now to me girl while you've got the strength to speak*<br>
+> *‘Cause they're waiting for you at Bellevue with their oxygen masks*<br>
+> *But I could give it all to you now if only you could ask*<br>
+> *Whoa and don't call for your surgeon, even he says it's too late*<br>
+> *It's not your lungs this time, it's your heart that holds your fate*<br>
+> *Don't give me my money, honey, I don't want it back*<br>
+> *You and your pony face and your union jack*<br>
+> *We'll take your local joker and teach him how to act*<br>
+> *I swear I was never that way even when I really cracked*<br>
+> *Didn't you think I knew that you were born with the power of a locomotive*<br>
+> *Able to leap tall buildings in a single bound*<br>
+> *And your Chelsea suicide with no apparent motive*<br>
+> *You could laugh and cry in a single sound*<br>
 
 Fans and critics alike debate the literalness of this verse. Did his girlfriend literally try to take her own life? Or was it an accidental overdose? Or is Bruce simply writing in metaphor, her ebbing life a proxy for their fading love?
 
@@ -79,29 +89,29 @@ I tend to believe in Door #2, but as to whether Bruce draws from his true life o
 
 On both vinyl and stage, the bridge is always the emotional peak of "For You." It's the moment where Bruce loses himself in grief and memory, and to this day it's impossible to hear him sing it and not feel his anguish.
 
-> *And your strength is devastating in the face of all these odds*
-> *Remember how I kept you waiting when it was my turn to be the god*
+> *And your strength is devastating in the face of all these odds*<br>
+> *Remember how I kept you waiting when it was my turn to be the god*<br>
 
 We spend the remainder of the song with our narrator, lost in his reminiscence. The time they made love on the beach; her restlessness and wanderlust; the sight of her lifeless on the floor.
 
-> *You were not quite half so proud when I found you broken on the beach*
-> *Oh remember how I poured salt on your tongue and hung just out of reach*
-> *And the band they played the homecoming theme as I caressed your cheek*
-> *Yeah that ragged jagged melody, she still clings to me like a leech*
-> *But that medal you wore on your chest always got in the way*
-> *Like a little girl with a trophy so soft to buy her way*
-> *We were both hitchhikers but you had your ears tuned to the roar*
-> *Of some metal-tempered engine on an alien distant shore*
-> *So you left to find a better reason than the one we were living for*
-> *And it's not that nursery mouth I came back for*
-> *It's not the way you're stretched out on the floor*
-> *‘Cause I've broken all your windows and I've rammed through all your doors*
-> *And who am I to ask you to lick my sores*
-> *And you should know that's true*
+> *You were not quite half so proud when I found you broken on the beach*<br>
+> *Oh remember how I poured salt on your tongue and hung just out of reach*<br>
+> *And the band they played the homecoming theme as I caressed your cheek*<br>
+> *Yeah that ragged jagged melody, she still clings to me like a leech*<br>
+> *But that medal you wore on your chest always got in the way*<br>
+> *Like a little girl with a trophy so soft to buy her way*<br>
+> *We were both hitchhikers but you had your ears tuned to the roar*<br>
+> *Of some metal-tempered engine on an alien distant shore*<br>
+> *So you left to find a better reason than the one we were living for*<br>
+> *And it's not that nursery mouth I came back for*<br>
+> *It's not the way you're stretched out on the floor*<br>
+> *‘Cause I've broken all your windows and I've rammed through all your doors*<br>
+> *And who am I to ask you to lick my sores*<br>
+> *And you should know that's true*<br>
 
-> *I came for you, for you, I came for you, but you did not need my urgency*
-> *I came for you, for you, I came for you, your life was one long emergency*
-> *And your cloud line urges me, oh, and my electric surges free*
+> *I came for you, for you, I came for you, but you did not need my urgency*<br>
+> *I came for you, for you, I came for you, your life was one long emergency*<br>
+> *And your cloud line urges me, oh, and my electric surges free*<br>
 
 This is the moment. Her life hangs in the balance; his love tries to tether her. The words spill and tumble in his desperation to say something, say *anything* to keep her with him.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Moa Holmsten: Badlands"
+author: "Ken"
+excerpt: "A case of writer’s block led a Swedish heavy metal/avant-garde artist to cover an unfamiliar American rock star, and the result was one of the best Springsteen covers ever."
+tags: badlands moa-holmsten
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/moabadlands.jpg
+post_id: 26961
+---
 Swedish recording artist Moa Holmsten fronted metal and punk bands before going solo with her own avant-garde material.
 
 Nothing in that previous sentence would suggest the source of some of the very best Springsteen covers out there, and yet here we are.

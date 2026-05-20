@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Warren Zevon: Cadillac Ranch"
+author: "Ken"
+excerpt: "Warren Zevon has a blast covering “Cadillac Ranch” at a beautifully captured 1982 performance."
+tags: cadillac-ranch warren-zevon
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/zevon.jpg
+post_id: 6569
+---
 Frequent readers of this blog know my rule when it comes to covering Bruce's (or really, anyone's) songs: do it better or do it different–or else don't bother.
 
 But sometimes there's a third option: just *commit* to it. When a performer truly loves another artist's song and gets fully into it, it can prove impossible to resist.

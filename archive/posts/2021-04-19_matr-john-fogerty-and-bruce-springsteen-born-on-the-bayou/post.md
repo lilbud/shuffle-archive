@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: John Fogerty and Bruce Springsteen: Born on the Bayou"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and John Fogerty trade lead vocals on a smoking performance of “Born on the Bayou” at the 1993 Rock and Roll Hall of Fame induction."
+tags: born-on-the-bayou creedence-clearwater-revival john-fogerty
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/bornbayou.jpg
+post_id: 25938
+---
 Now *this* is a killer single: "Proud Mary" on the A-side, and "Born on the Bayou" on the B-side.
 
 In 1969, that combination gave Creedence Clearwater Revival their first of a long string of Top Ten hits. (Maddeningly, the band had *five* hits that stopped at #2; they never had a #1 single. That's a record that stands to this day.)

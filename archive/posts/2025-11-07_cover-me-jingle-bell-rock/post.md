@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Jingle Bell Rock"
+author: "Ken"
+excerpt: "In 2001, Bruce welcomed his holiday show audiences each night with a warm, merry cover of Bobby Helms’ “Jingle Bell Rock.”"
+tags: bobby-helms jingle-bell-rock
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/jbrock.jpg
+post_id: 23070
+---
 By this point in the holiday season, you've almost certainly heard Bobby Helms singing "Jingle Bell Rock" on the radio. Heck, you might have even heard it *today–*the 1957 holiday hit is that ubiquitous this time of year.
 
 [Watch on Youtube: Jingle Bell Rock](https://www.youtube.com/watch?v=Z0ajuTaHBtM)

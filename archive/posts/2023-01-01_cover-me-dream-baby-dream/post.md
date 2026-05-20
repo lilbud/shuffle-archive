@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Dream Baby Dream"
+author: "Ken"
+excerpt: "The story of how an unlikely cover of an obscure electro-punk band became a nightly benediction from Bruce to his fans."
+tags: alan-vega dream-baby-dream high-hopes suicide
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/Suicide-Dream-Baby-Dream.jpg
+post_id: 16917
+---
 It was just about the unlikeliest song for Bruce Springsteen to cover, and yet cover it he did.
 
 In 1979, electro-punk duo Suicide released their six-and-half-minute "Dream Baby Dream," more a chant or trance than a song.

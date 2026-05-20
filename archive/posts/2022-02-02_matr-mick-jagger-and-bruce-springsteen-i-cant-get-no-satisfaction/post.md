@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Mick Jagger and Bruce Springsteen: (I Can't Get No) Satisfaction"
+author: "Ken"
+excerpt: "One time only: Bruce joins Mick Jagger on stage at the Rock and Roll Hall of Fame for one of the very first songs Bruce ever covered in concert."
+tags: i-cant-get-no-satisfaction the-rolling-stones
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/satisfaction.jpg
+post_id: 32480
+---
 It features arguably the greatest guitar riff of all time and almost certainly the most recognizable one. It was the first American Number One hit single for the band that recorded it. *Rolling Stone* ranks it #31 on their "500 Greatest Songs of All Time" list. It's enshrined in the Grammy Hall of Fame and the National Recording Registry of the U.S. Library of Congress.
 
 And it's one of the first songs Bruce Springsteen ever covered.

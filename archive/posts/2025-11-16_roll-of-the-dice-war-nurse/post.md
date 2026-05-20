@@ -1,3 +1,13 @@
+---
+layout: post
+title: "War Nurse"
+author: "Ken"
+excerpt: "Bruce’s two-minute character study demo is a fascinating pre-Greetings curiosity."
+tags: war-nurse
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/warnurse.jpg
+post_id: 14433
+---
 The first half of 1972 found Bruce in prolific (even by his own standard) songwriting mode.
 
 For every song written during this period that eventually found its way to Bruce's first album, there were at least three that only saw the light of day via bootleg releases (and another thirtyish we only know about by their titles).

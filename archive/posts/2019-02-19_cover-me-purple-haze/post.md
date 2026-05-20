@@ -1,14 +1,24 @@
+---
+layout: post
+title: "Cover Me: Purple Haze"
+author: "Ken"
+excerpt: "Less than three months after it exploded onto the American rock scene, Bruce’s high school band opened their show with a passionate cover of Jimi Hendrix’s “Purple Haze.” Listen to a 17-year-old Bruce Springsteen tear it up inside."
+tags: earth jimi-hendrix-experience purple-haze the-castiles
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/PurpleHazeUK.jpg
+post_id: 7533
+---
 You can name that tune in one note.
 
-"Purple Haze" was a landmark in psychedelic rock, exploding onto the music scene immediately upon its release in 1967. It would influence would-be guitar heroes worldwide, and Rolling Stone would anoint it the second greatest guitar song of all time and rank it #17 on the Greatest Songs (period) of All Time.
+“Purple Haze” was a landmark in psychedelic rock, exploding onto the music scene immediately upon its release in 1967. It would influence would-be guitar heroes worldwide, and Rolling Stone would anoint it the second greatest guitar song of all time and rank it #17 on the Greatest Songs (period) of All Time.
 
 [Watch on Youtube: The Jimi Hendrix Experience - Purple Haze (Official Audio)](https://www.youtube.com/watch?v=WGoDaYjdfSg)
 
-And although it never reached higher than #65 on the Billboard Hot 100 chart, "Purple Haze" clearly and immediately influenced Bruce.
+And although it never reached higher than #65 on the Billboard Hot 100 chart, “Purple Haze” clearly and immediately influenced Bruce.
 
-How do we know? Because less than three months after its debut in the United States, The Castiles (Bruce's high school band) were already covering it in concert.
+How do we know? Because less than three months after its debut in the United States, The Castiles (Bruce’s high school band) were already covering it in concert.
 
-Here they are–"the band of the year"–opening with it at The Left Foot in Freehold, New Jersey on September 16, 1967. When you listen to Bruce's remarkable performance on vocals and lead guitar, keep in mind: He was still a week shy of his eighteenth birthday.
+Here they are–“the band of the year”–opening with it at The Left Foot in Freehold, New Jersey on September 16, 1967. When you listen to Bruce’s remarkable performance on vocals and lead guitar, keep in mind: He was still a week shy of his eighteenth birthday.
 
 [Watch on Youtube: The Castiles - "Purple Haze" - Freehold, 1967-09-16](https://www.youtube.com/watch?v=qbF_Vh6QkKY)
 

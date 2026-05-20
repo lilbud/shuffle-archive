@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Mojo Nixon: Badlands"
+author: "Ken"
+excerpt: "Mojo Nixon’s never-released cover of “Badlands” is fresh, fierce, and fascinating–it deserves to be heard."
+tags: badlands mojo-nixon
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/mojo.jpg
+post_id: 6701
+---
 Thanks to Jason Luttrull for bringing this one to my attention!
 
 I’m a big fan of Mojo Nixon’s cover of “[The Big Payback](../2018-11-11_roll-of-the-dice-the-big-payback/post.md)” from his first album with Skid Roper, and I’ve long wished he’d take a run at another song from Bruce’s catalog.

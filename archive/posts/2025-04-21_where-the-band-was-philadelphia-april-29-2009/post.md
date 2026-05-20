@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Philadelphia, April 29, 2009"
+author: "Ken"
+excerpt: "Night Two in Philadelphia finishes as strong as it opened, with rarities and wild cards abounding."
+tags: harry-kalas kittys-back london-calling philadelphia red-headed-woman streets-of-philadelphia thunder-road thundercrack working-on-a-dream-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/20090429_front.jpg
+post_id: 1750
+---
 It's a rule that Night Two of a two-night stand is always better than [Night One](../2018-04-28_where-the-band-was-philadelphia-april-28-2009/post.md). Bruce tends to play it safe on the opening night and let loose on the last night.
 
 But in Philly, *all* nights are special, and at these first two of six shows on the Working on a Dream Tour (the other four were six months away), it's a toss-up as to which was the stronger of the two.

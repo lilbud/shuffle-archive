@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Sweet Soul Music"
+author: "Ken"
+excerpt: "Whether spotlighting his heroes or his bandmates, “Sweet Soul Music” is a reliable crowd-pleaser whenever Bruce breaks it out."
+tags: arthur-conley sam-cooke sweet-soul-music yeah-man
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/arthur-conley-sweet-soul-music-atlantic-11.jpg
+post_id: 13916
+---
 "Sweet Soul Music" was one of Bruce's set list staples during the 1980s. He first performed it way back on the River Tour, debuting it in Paris on the evening of April 19, 1981.
 
 [Watch Video Highlight](https://videopress.com/embed/RRqPEpjz)

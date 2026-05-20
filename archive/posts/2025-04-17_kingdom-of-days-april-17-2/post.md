@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 17"
+author: "Ken"
+excerpt: "On this date in 2008, Danny Federici passes away after a long fight with melanoma. Rest in peace, Danny. Other notable events from this date inside."
+tags: all-just-to-get-to-you austin bologna brilliant-disguise brothers-under-the-bridge burning-love cleveland danny-federici ghost-of-tom-joad-tour high-hopes-tour italy joe-ely london lucky-town my-love-will-not-let-you-down nashville new-york-city reunion-tour satisfaction shes-the-one southside-johnny springsteen-on-broadway st-louis stone-pony the-wish tunnel-of-love-express-tour uk upstage wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/nash.jpg
+post_id: 56555
+---
 ***New for 2025:** Audio for 1999*<br>
 
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Jole Blon"
+author: "Ken"
+excerpt: "Originally meant for The River before Bruce and the band leant their talents to Gary U.S. Bonds’ comeback album, “Jole Blon” still (sort of) qualifies as Bruce’s first officially released cover."
+tags: dedication gary-u-s-bonds jole-blon
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/joleblon_sin-nl.jpg
+post_id: 12003
+---
 "Jole Blon" has been a fan favorite since Bruce first covered it during the River Tour, although these days it makes far fewer appearances.
 
 But even many long-time fans aren't aware that Bruce actually recorded "Jole Blon" in the studio, and that for a time it was slated to appear on *The River.* Had it done so, it would have been Bruce's first officially released cover song. It still was, in a way, because Bruce contributed his vocals and band to Gary U.S. Bonds, who overdubbed his own vocals and released the song on his Springsteen/Van Zandt-produced *Dedication* album.

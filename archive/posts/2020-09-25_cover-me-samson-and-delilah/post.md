@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Samson and Delilah"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the Sessions Band cover a hidden protest song in Verona."
+tags: blind-willie-johnson grateful-dead if-i-had-my-way samson-and-delilah
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/samson.jpg
+post_id: 21389
+---
 "Samson and Delilah" dates back to recordings in the 1920s, and probably a whole lot farther.
 
 Several versions were recorded and released in and around 1927 under the name "If I Had My Way," most famously this menacing-sounding version by Blind Willie Johnson.

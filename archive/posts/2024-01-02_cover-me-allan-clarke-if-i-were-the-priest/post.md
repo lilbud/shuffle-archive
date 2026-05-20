@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Allan Clarke: If I Were the Priest"
+author: "Ken"
+excerpt: "Allan Clarke’s cover of “If I Was the Priest” had a 46-year head start on Bruce’s own version. Read the backstory inside."
+tags: allan-clarke if-i-was-the-priest if-i-were-the-priest
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/allanclarke1974.jpg
+post_id: 24345
+---
 "I *still* don't know what it means!" remarked Allan Clarke in a [2014 interview](https://thestrangebrew.co.uk/allan-clarke-hollies-microsite/would-you-believe/) about his cover of "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)."
 
 > *"I was introduced to Bruce Springsteen's music back in the early 70s when he was coming on the scene. I went to a music publisher which a friend of mine was running. He said 'I've got this guy from America who's just sent me quite a few of his songs. I think he's gonna be quite big.' I said 'Let's hear it'.*<br>

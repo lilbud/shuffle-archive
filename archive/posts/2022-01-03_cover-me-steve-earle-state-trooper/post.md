@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Steve Earle: State Trooper"
+author: "Ken"
+excerpt: "Steve Earle has been covering Bruce since the outset of his career– and this ACL performance is one of his strongest."
+tags: state-trooper steve-earle
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/steveearle.jpg
+post_id: 32105
+---
 In 1984, an aspiring Texas singer-songwriter went to see "a pretty good hillbilly singer from New Jersey" in concert and walked away inspired to record his own first solo album.
 
 Two years later, he was covering his inspiration on television.

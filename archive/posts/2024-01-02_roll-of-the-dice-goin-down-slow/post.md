@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Goin' Down Slow"
+author: "Ken"
+excerpt: "In the early Steel Mill era, Bruce and the band closed their shows with a sexy band showcase called “Goin’ Down Slow.” Take a listen inside."
+tags: danny-federici goin-down-slow steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/downslow.jpg
+post_id: 9382
+---
 During the early days of the Steel Mill era, Bruce and the band were known to close their shows with an extended band showcase called "Goin' Down Slow."
 
 Originally assumed by some to be the much-covered blues standard by the same name, a surviving bootleg recording reveals it to be an entirely new and original lyrical work (although the bluesy arrangement appears to be at least inspired by if not an homage to its namesake).

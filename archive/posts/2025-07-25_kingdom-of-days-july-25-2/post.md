@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 25"
+author: "Ken"
+excerpt: "On this date: Soozie Tyrell joins the E Street family, and Evan James joins the Springsteen family. Plus: Bruce plays… an IPO party?"
+tags: a-love-so-fine born-in-the-usa born-to-run-tour bruce-springsteen-band cats-on-a-smooth-surface copenhagen denmark dr-john east-rutherford evan-springsteen glen-hansard jesse-malin link-wray new-york-city santa-monica soozie-tyrell springsteen-on-broadway stone-pony tunnel-of-love-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/meadow92.jpg
+post_id: 57813
+---
 ***New for 2025:** Audio for 1975 and 1992; new entry for 2024*<br>
 
 **1967:** The Castiles play at a YMCA pool party at Camp Arrowhead, in Marlboro, New Jersey.<br>

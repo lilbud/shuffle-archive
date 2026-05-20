@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Soul Driver"
+author: "Ken"
+excerpt: "Beneath the overwrought production and busy arrangement lies the soul of a beautiful love song."
+tags: human-touch sam-moore soul-driver
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/01/souldriver.jpg
+post_id: 41081
+---
 > "Whenever I'm paging through magazines and there's like a compendium of your records… you know, "The Bruce to Buy" and "The Bruce Not to Buy"… [*Human Touch*] is always sort of star-challenged. And perhaps unfairly!" — *Bruce Springsteen, August 10, 2005*<br>
 
 Or perhaps not.

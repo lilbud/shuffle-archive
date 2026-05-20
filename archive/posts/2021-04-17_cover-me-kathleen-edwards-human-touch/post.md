@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Kathleen Edwards: Human Touch"
+author: "Ken"
+excerpt: "Canadian singer-songwriters Kathleen Edwards and Afie Jurvanen quietly released one of the best covers of “Human Touch.”"
+tags: afie-jurvanen bahamas human-touch kathleen-edwards
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/kathleenbahamas.jpg
+post_id: 26495
+---
 > "I've always kept my expectations realistic. The only thing I know I can do is try to be relevant musically and write songs that mean something. Everything else will come. I don't have to have a career like Bruce Springsteen's to see myself as successful." — *Kathleen Edwards, November 2008*<br>
 
 No lie: Kathleen Edwards' spectacular cover of "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" has been at the top of my *Cover Me* to-blog list since Day One.

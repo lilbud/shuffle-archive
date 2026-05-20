@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Wolfgang Niedecken: Jumpin' Jack Flash"
+author: "Ken"
+excerpt: "Watch Bruce join his friend Wolfgang Niedecken at a Berlin club for a loose, raucous cover of one of The Rolling Stones’ most popular songs."
+tags: jumpin-jack-flash terence-trent-darby the-rolling-stones wolfgang-niedecken
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/jjflash.jpg
+post_id: 29187
+---
 How in the world has this one not turned up more often?
 
 "Jumpin' Jack Flash" isn't just a great Rolling Stones song, it's arguably their most popular one. It's certainly the song they've played the most, well into the four-figure range at this point and never absent from a single tour after its 1968 release and #3 peak on the U.S. charts. (It reached #1 in the U.K.)
@@ -28,7 +38,7 @@ We can tell, because the performance was captured on video.
 
 [Watch on Youtube: Bruce Springsteen - 09 - Jumpin' Jack flash](https://www.youtube.com/watch?v=lITdlVHNccM)
 
-It's been more than a quarter-century since that Cafe Eckstein performance, and "Jumpin' Jack Flash" has yet to re-surface at a Springsteen concert. Don't count it out for good though... given Bruce's fondness for the Stones and the song's immense popularity, we might hear this one again sometime soon.
+It's been more than a quarter-century since that Cafe Eckstein performance, and "Jumpin' Jack Flash" has yet to re-surface at a Springsteen concert. Don't count it out for good though… given Bruce's fondness for the Stones and the song's immense popularity, we might hear this one again sometime soon.
 
 **Jumpin' Jack Flash**<br>
 **First performed:** May 24, 1993 (London, England)<br>

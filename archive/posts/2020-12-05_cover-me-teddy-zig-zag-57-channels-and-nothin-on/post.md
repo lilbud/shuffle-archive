@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Teddy "Zig Zag": 57 Channels (And Nothin' On)"
+author: "Ken"
+excerpt: "Teddy “Zig Zag” Andreadis breathes new life into “57 Channels” with his bluesy, gravelly take."
+tags: 57-channels-and-nothin-on teddy-zig-zag
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/teddy.jpg
+post_id: 5811
+---
 It’s not often I can say this: I think this cover is better than Bruce’s original version.
 
 Teddy “Zig Zag” Andreadis has toured with and supported artists ranging from Guns N’ Roses to Carole King, but his roots are on the Jersey shore.

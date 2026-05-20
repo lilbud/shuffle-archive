@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Real World"
+author: "Ken"
+excerpt: "Nowhere in Bruce’s catalog is the importance of the right arrangement illustrated than in this deeply personal and vulnerable Human Touch track."
+tags: human-touch real-world
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/realworld.jpg
+post_id: 36533
+---
 > "This is a song I cut in the early '90s. It was on *Human Touch*, but we didn't quite get it right… I kind of screwed it up when I recorded it… It kind of got away from me… didn't get a good version of it, but it was a good song."
 >
 > — Bruce Springsteen, various on-stage confessions in 2005

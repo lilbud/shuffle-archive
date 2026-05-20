@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Sentimental Journey"
+author: "Ken"
+excerpt: "One time only: at a live radio station appearance in 1974, Bruce and the soon-to-be E Street Band perform a most unlikely cover."
+tags: doris-day les-brown sentimental-journey
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/sentimental.jpg
+post_id: 7878
+---
 Today's covered-by-Bruce entry is certainly an unlikely one:
 
 Sure, "Sentimental Journey" was a number one hit for Doris Day in 1945 and spent a remarkable 23 weeks on the charts. But it was a mellow big band standard, more likely to be covered by fellow New Jerseyan Frank Sinatra (who did in fact cover it, of course) than Bruce Springsteen.

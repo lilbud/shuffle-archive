@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Freehold"
+author: "Ken"
+excerpt: "Twenty years before “Born to Run” (the book) and “Springsteen on Broadway,” Bruce started his autobiography as a song."
+tags: born-to-run-book freehold ghost-of-tom-joad-tour maria-espinosa springsteen-on-broadway
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/freehold_borough_sign.jpg
+post_id: 6248
+---
 Long before *Springsteen on Broadway* and *Born to Run* (the book), Bruce wrote the beginning of his autobiography as a song.
 
 The impetus was a very special stop on his Ghost of Tom Joad solo acoustic tour, at Bruce's old grammar school, St. Rose of Lima, a benefit for the school's Hispanic community center.

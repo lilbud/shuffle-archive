@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Get Out of Denver"
+author: "Ken"
+excerpt: "Catch Bruce playing in Denver, and you just might get lucky enough to hear him cover Bob Seger’s 1974 classic."
+tags: bob-seger get-out-of-denver
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/seger.jpg
+post_id: 11082
+---
 It sounds like a Chuck Berry song and reads like a Bruce Springsteen song.
 
 With lyrics about Cadillacs roaring through Nebraska, running from state troopers and driving all night, “Get Out of Denver” sounds like it foretells more of Springsteen’s catalog than Bob Seger’s.

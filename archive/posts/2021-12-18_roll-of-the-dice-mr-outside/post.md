@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mr. Outside"
+author: "Ken"
+excerpt: "The curious case of a bootleg turned official release (and the mystery of why bother)."
+tags: mr-outside the-ties-that-bind-the-river-collection whitetown you-gotta-be-kind
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Mr.-Outside-Front.jpg
+post_id: 10317
+---
 Now here's a curiosity: an officially released song that's actually an edited version of a bootlegged home demo.
 
 When Bruce compiled a group of contemporary outtakes to include in his *The Ties That Bind: The River Collection* box set, he wanted to include "Mr. Outside." Unfortunately, though, archivist Toby Scott couldn't locate an "official" recording.

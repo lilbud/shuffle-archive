@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice (Cover Me?): I'm a Coward"
+author: "Ken"
+excerpt: "Springsteen’s “I’m a Coward.” Homage or cover? You decide."
+tags: gino-washington im-a-coward tol
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/gino.jpg
+post_id: 255
+---
 Oh man. I was dreading the first time the dice came up with one of these songs, because I’m not sure how to classify them. Are they originals or covers?
 
 See, Bruce does this thing once in a while where he “covers” a song but in the process rewrites all the lyrics and rearranges all the music. But the title and some snippets are the same (except when he changes the title, too).

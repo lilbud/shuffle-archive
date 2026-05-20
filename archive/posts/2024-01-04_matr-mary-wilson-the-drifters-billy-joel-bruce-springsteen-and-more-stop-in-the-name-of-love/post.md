@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Mary Wilson, The Drifters, Billy Joel, Bruce Springsteen and more: Stop! In the Name of Love"
+author: "Ken"
+excerpt: "One time only: Bruce joins a truly all-star assembly an early Rock Hall induction to perform one of the greatest girl group songs of all time."
+tags: rock-and-roll-hall-of-fame stop-in-the-name-of-love the-supremes
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/11/stop.jpg
+post_id: 39131
+---
 We're still a week away from hearing Bruce Springsteen's new album of R&B covers, *Only the Strong Survive*, and only a couple of days out from the induction of this year's Rock and Roll Hall of Fame class.
 
 So while we wait for both, let's take a look back at the only time Bruce covered one of the all-time greatest girl group songs, at one of the earliest ever Rock Hall inductions.

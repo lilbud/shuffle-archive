@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Billy Joel, New York State of Mind"
+author: "Ken"
+excerpt: "One of Bruce’s all-time best team-ups: Bruce, Billy Joel, and the E Street Band take on “New York State of Mind”"
+tags: billy-joel mark-rivera new-york-state-of-mind rick-and-roll-hall-of-fame
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/nystate.jpg
+post_id: 2931
+---
 One of my all-time favorite meetings, from the Rock and Roll Hall of Fame 25th Anniversary concert on October 29, 2009: Bruce and Billy Joel team up (along with Mark Rivera and the E Street Band) on Billy's "New York State of Mind."
 
 Bruce's vocals soar, Billy's piano glides, and both of them have a ball. I break out in a big smile every time I watch it.

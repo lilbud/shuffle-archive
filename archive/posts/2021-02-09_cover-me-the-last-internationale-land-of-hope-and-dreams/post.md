@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Last Internationale: Land of Hope and Dreams"
+author: "Ken"
+excerpt: "The Last Internationale surprised fans with an Inauguration Day cover of “Land of Hope and Dreams.”"
+tags: land-of-hope-and-dreams the-last-internationale
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/lohadlast.jpg
+post_id: 24822
+---
 The Last Internationale usually rocks so hard and so militantly that it's a shock to the system to hear them almost chill.
 
 The operative word is *almost*, though, because while the music is acoustic, Delilia Paz's vocals are still as fierce and passionate as ever. I wouldn't have expected it, but it turns out Bruce's "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" is a perfect song for them to cover.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: All the Way Home"
+author: "Ken"
+excerpt: "A tale of two versions of the same song. One ranks near the top of Bruce’s catalog, the other near the bottom. Find out which is which (and why) inside."
+tags: all-the-way-home better-days devils-and-dust southside-johnny
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/allthewayhome_cov-southsidejohnny_sin-nl-p519173.jpg
+post_id: 12292
+---
 I love this song.
 
 I mean, I *hate* this song, but I love this song.

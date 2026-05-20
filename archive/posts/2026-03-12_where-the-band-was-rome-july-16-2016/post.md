@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Rome, July 16, 2016"
+author: "Ken"
+excerpt: "A life moment for me, as I check off two of my top bucket list goals: a visit to Rome and my all-time, most-chased song."
+tags: boom-boom circus-maximus italy land-of-hope-and-dreams new-york-city-serenade river-2016-tour rome summertime-blues the-ghost-of-tom-joad
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/SDL-8147.Bruce-ROMA-2016-700x467.jpg
+post_id: 3190
+---
 If I didn't already have tickets for a pair of Philly shows in September, I probably would have made Rome my last stop on the 2016 River Tour, because I couldn't imagine any concert experience topping this one.
 
 I already had high expectations going in: I've seen enough shows in Italy to know that the crowd would be wildly exuberant and sing along with every note. I knew the venue was an ancient Roman chariot racing arena that holds 100,000 people and was bound to be bursting at the seams regardless.

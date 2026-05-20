@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 20"
+author: "Ken"
+excerpt: "Bruce’s final show at the Spectrum, a guest appearance with Neil Young and Bob Dylan, a hometown Houserockers show, those famous Time and Newsweek covers, and more–all from this date."
+tags: american-babylon-tour berlin bob-dylan born-to-run-book carlisle denver devils-and-dust-tour frankfurt germany highway-61-revisited joe-grushecky neil-young new-hampshire october-assault philadelphia pittsburgh rainy-day-woman rising-tour river-tour springsteen-on-broadway the-fever the-promise wild-innocent-tour worcester working-on-a-dream-tour your-love-keeps-lifting-me-higher-and-higher
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/philly09.jpg
+post_id: 61182
+---
 ***New for 2025:** Audio for 1995 and 2002*<br>
 
 **1973:** Bruce plays his first-ever show in New Hampshire when he and the band play a show at Franklin Pierce College.<br>

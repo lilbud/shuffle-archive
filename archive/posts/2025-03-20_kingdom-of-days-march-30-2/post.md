@@ -1,10 +1,20 @@
+---
+layout: post
+title: "Kingdom of Days: March 30"
+author: "Ken"
+excerpt: "Listen in on a 1993 rehearsal session, watch Jimmy Barnes guest-star with Bruce at Hanging Rock, and more."
+tags: australia denver glasgow hanging-rock jimmy-barnes julianne-phillips macedon reunion-tour river-tour scotland world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/20130330_front.jpg
+post_id: 56315
+---
 ***New for 2025:** New entry for 1978, 1979, 1996, and 2008*<br>
 
-**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for “[Darkness on the Edge of Town.](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)”<br>
+**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for "[Darkness on the Edge of Town.](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)"<br>
 
 [Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/watch?v=0LpdEyGhNxM)
 
-**1979:** Bruce and the E Street Band rehearse for their upcoming album in Bruce’s home studio in Holmdel, although several of the songs they work on won’t see release for almost four decades.<br>
+**1979:** Bruce and the E Street Band rehearse for their upcoming album in Bruce's home studio in Holmdel, although several of the songs they work on won't see release for almost four decades.<br>
 
 [Watch on Youtube: Bruce Springsteen Chain Lightning](https://www.youtube.com/watch?v=6CeHuKvkITU)
 
@@ -14,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1988:** Detroit radio station WRIF-FM airs a bootleg of last month’s Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can’t envision a day when bootlegs are commonly played on the radio.<br>
+**1988:** Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can't envision a day when bootlegs are commonly played on the radio.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1988-03-30.jpg.webp)
 
@@ -28,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1993-03-30b.png.webp)
 
-**1996:** Bruce’s scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year’s Oscars ceremony.<br>
+**1996:** Bruce's scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year's Oscars ceremony.<br>
 
 **2000:** The Reunion Tour comes to the Pepsi Center in Denver for the first of two nights.<br>
 
@@ -38,7 +48,7 @@
 
 [Watch on Youtube: Dave Grohl on Bruce Springsteen's "secret" letter (CFOX - Vancouver 2017)](https://www.youtube.com/watch?v=ftsBk0Sq2A8)
 
-**2013:** Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/).”<br>
+**2013:** Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."<br>
 
 [Watch on Youtube: Tougher Than The Rest - Jimmy Barnes & Bruce Springsteen Hanging Rock Sat 30 March 2013](https://www.youtube.com/watch?v=rJtMOZ-MMRQ)
 

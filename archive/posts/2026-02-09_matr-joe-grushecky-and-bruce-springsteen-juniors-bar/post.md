@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Junior's Bar"
+author: "Ken"
+excerpt: "One time only: Bruce joins Joe Grushecky on one of the Iron City Houserockers’ best early tracks, “Junior’s Bar.”"
+tags: iron-city-houserockers joe-grushecky juniors-bar
+categories: cover-me meeting-across-the-river
+post_id: 11845
+---
 Let's reach waaay back in Joe Grushecky's catalog–all the way back to the Iron City Houserocker days and the band's sophomore album (and one of the better albums of 1980), *Have a Good Time But Get Out Alive*.
 
 Buried in the middle of Side Two of that is one of the album's strongest tracks, "Junior's Bar," just screaming to be played live.

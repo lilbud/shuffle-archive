@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Roll of the Dice: I Wanna Be With You"
+author: "Ken"
+excerpt: "A lost power-pop classic, “I Wanna Be With You” charms with its lovesick loser protagonist, fiercely defiant lyrics and exuberant arrangement."
+tags: i-wanna-be-with-you outtakes raspberries reunion
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/wanna.jpg
+post_id: 226
+---
 In a parallel universe, Bruce Springsteen released every song he ever wrote and holds the record for most pop hits by a single artist.
 
 In this universe, however, Springsteen discarded or stashed away bona fide power pop gems that other artists would have sold their soul to have written, because they didn't fit the message he was trying to communicate at the time.
 
-The time was 1977, and Bruce was recording a group of songs for that would rank among his most timeless: "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)," and the rest of the fierce, fueled collection that would become [*Darkness on the Edge of Town*](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/BruceSpringsteenDarknessontheEdgeofTown.jpg.webp).
+The time was 1977, and Bruce was recording a group of songs for that would rank among his most timeless: "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)," and the rest of the fierce, fueled collection that would become [*Darkness on the Edge of Town*](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/BruceSpringsteenDarknessontheEdgeofTown.jpg.webp)
 
 But while Bruce was writing and recording his most serious and mature music to date, he was also prolifically penning pop songs with a more romantic vibe: "Spanish Eyes," [Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)," "[Breakaway](../2020-04-23_roll-of-the-dice-breakaway/post.md)," "[The Little Things (My Baby Does)](https://estreetshuffle.com/index.php/2022/03/04/roll-of-the-dice-the-little-things-my-baby-does/)" and more. Bruce wasn't ready to express that side of himself publicly, so those songs sat in the vault for over 30 years, until they were finally released on *The Promise* in 2010.
 
@@ -14,7 +24,7 @@ Bruce had always been fascinated with pop music. One of his favorite pop bands w
 
 [Watch on Youtube: I WANNA BE WITH YOU--THE RASPBERRIES (NEW ENHANCED VERSION) 720p](https://www.youtube.com/watch?v=FNAsRAT3Q7Q)
 
-In Bruce's version, the narrator was just as much in love as The Raspberries' protagonist. But in keeping with Bruce's world and his *Darkness* characters, his is a lovesick loser, so desperately devoted that he's lost his job, his home, his friends, his self-respect... and he doesn't care, so fixated he is on his love.
+In Bruce's version, the narrator was just as much in love as The Raspberries' protagonist. But in keeping with Bruce's world and his *Darkness* characters, his is a lovesick loser, so desperately devoted that he's lost his job, his home, his friends, his self-respect… and he doesn't care, so fixated he is on his love.
 
 He doesn't care if "frozen cities crumble and fall" or "tumble right into the sea."
 He lost his job at a Texaco station "'cause instead of pumping gas, I'd dream of you."
@@ -44,7 +54,7 @@ It was a perfect opener for a Reunion tour: Bruce played the opening guitar riff
 After the Reunion tour, the song pretty much disappeared, appearing only 5 times in the 21st century, despite frequent fan request. For most ardent fans of this little-known classic, the chase continues.
 
 **I Wanna Be With You**<br>
-**Recorded:** May 31, 1979<br>
+**Recorded** May 31, 1979<br>
 **Released:** *Tracks* (1998); *18 Tracks* (1999)<br>
 **First Performed:** April 20, 1999 (Milan)<br>
 **Last Performed:** May 14, 2016 (Barcelona)<br>

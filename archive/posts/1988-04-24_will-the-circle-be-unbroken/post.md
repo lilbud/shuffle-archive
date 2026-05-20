@@ -1,22 +1,29 @@
-It’s a funeral dirge and a celebration of life, a church hymn and a social protest.
+---
+layout: default-post
+title: "Will the Circle Be Unbroken"
+author: "Ken"
+excerpt: "It’s a funeral dirge and a celebration of life, a church hymn and a social protest. “Will the Circle Be Unbroken” endures in American music…"
+post_id: 67563
+---
+It's a funeral dirge and a celebration of life, a church hymn and a social protest.
 
-“Will the Circle Be Unbroken” endures in American music in part due to its tremendous versatility.
+"Will the Circle Be Unbroken" endures in American music in part due to its tremendous versatility.
 
 It began in 1907 as a Christian hymn by Ada R. Habershon and Charles H. Gabriel, who asked: *does a family reunite in heaven?*
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FL150IarjWM)
 
-At its peak of popularity just before World War II, “Will the Circle Be Unbroken” appeared in about twenty percent of all church hymnals in use, but by then it had already branched into a more secular variant thanks to The Carter Family.
+At its peak of popularity just before World War II, "Will the Circle Be Unbroken" appeared in about twenty percent of all church hymnals in use, but by then it had already branched into a more secular variant thanks to The Carter Family.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qjHjm5sRqSA)
 
-heirs is the original version of the song we know today, made more visceral by its focus on the loss of the narrator’s mother rather than loss in general. Anchored in themes of loss, poverty, and faith, it became irrevocably attached to Appalachian culture and over time to country and bluegrass music in general. To this day, it often serves as the closing encore for jams, festivals, and ceremonial celebrations (including the annual Country Music Hall of Fame induction, each and every year).
+heirs is the original version of the song we know today, made more visceral by its focus on the loss of the narrator's mother rather than loss in general. Anchored in themes of loss, poverty, and faith, it became irrevocably attached to Appalachian culture and over time to country and bluegrass music in general. To this day, it often serves as the closing encore for jams, festivals, and ceremonial celebrations (including the annual Country Music Hall of Fame induction, each and every year).
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nGZQHCpUl_E)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IlsiamL_0O4)
 
-“Will the Circle Be Unbroken” went mainstream in 1972 when the Nitty Gritty Dirt Band embraced the song as statement of unity and share roots between rock and country musicians.
+"Will the Circle Be Unbroken" went mainstream in 1972 when the Nitty Gritty Dirt Band embraced the song as statement of unity and share roots between rock and country musicians.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5eq1m2s3rzE)
 
@@ -24,7 +31,7 @@ Countless artists have covered the song over the years (not even counting the fe
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lwa1MQsqHwM)
 
-Although it didn’t chart, it helped establish the group as a premier musical act at the intersection of gospel and R&B. So when Mavis Staples was honored at the second annual American Music Honors, it was pretty much a given the night would close with an ensemble rendition of one of her signature songs.
+Although it didn't chart, it helped establish the group as a premier musical act at the intersection of gospel and R&B. So when Mavis Staples was honored at the second annual American Music Honors, it was pretty much a given the night would close with an ensemble rendition of one of her signature songs.
 
 And since the Honors were bestowed under the aegis of the Bruce Springsteen Center for American Music, that meant a likely appearance by The Boss himself.
 

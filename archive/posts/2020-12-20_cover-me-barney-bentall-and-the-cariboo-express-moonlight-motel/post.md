@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Barney Bentall and the Cariboo Express: Moonlight Motel"
+author: "Ken"
+excerpt: "From November 2019, Barney Bentall and the Cariboo Express gift us with their superb cover of Bruce’s instant classic, “Moonlight Motel.”"
+tags: barney-bentall cariboo-express moonlight-motel
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/BBTOURsizedown.jpg
+post_id: 16363
+---
 Barney Bentall may not be a familiar name outside of his native Canada, but he’s certainly well-known there.
 
 His debut 1988 album with The Legendary Hearts went platinum, and its very first track, “Something to Live For” became a number one hit–and it’s easy to hear the Springsteenian influences from the outset.

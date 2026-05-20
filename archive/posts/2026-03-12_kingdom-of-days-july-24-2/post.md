@@ -1,3 +1,13 @@
+---
+layout: post
+title: "July 24"
+author: "Ken"
+excerpt: "On this date: the live debut of “You Got It,” the long awaited return of “Point Blank,” a Boss-guided tour of Asbury Park, and a stunner of a show in Leeds."
+tags: asbury-park bergen born-in-the-usa-tour canada charlotte devils-and-dust-tour east-rutherford giants-stadium leeds local-hero mat-lauer norway point-blank real-world reunion-tour rising-tour secret-garden the-castiles today-show toronto uk wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/leeds13.jpg
+post_id: 57812
+---
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1968-0724.jpg.webp)

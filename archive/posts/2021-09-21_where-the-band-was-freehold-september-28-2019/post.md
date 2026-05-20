@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Freehold, September 28, 2019"
+author: "Ken"
+excerpt: "Bruce surprised a literal hometown crowd by dropping by the opening of a new exhibit dedicated to his early life."
+tags: freehold springsteen-his-hometown
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/hometown.jpg
+post_id: 21478
+---
 Editor's Note
 
 ***Editor's Note:*** *I wrote the article that follows for Backstreets.com ; it was published on September 29, 2019, the day after the events chronicled. I'm reprinting it here as part of my [Where the Band Was series](https://estreetshuffle.com/index.php/category/where-the-band-was/), in which I recap shows I've attended on their anniversary dates.*<br>

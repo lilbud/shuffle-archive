@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Lorde and Marlon Williams: Tougher Than the Rest"
+author: "Ken"
+excerpt: "Lorde came out of hiding last night, performing a beautiful duet of “Tougher Than the Rest” with Marlon Williams in Auckland."
+tags: lorde marlon-williams tougher-than-the-rest
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/lordemarlon.jpg
+post_id: 26375
+---
 No fooling: Lorde made her first public performing appearance in almost two years last night (I think so, anyway–I don't follow her as closely as I do Bruce) when she joined fellow New Zealand singer-songwriter Marlon Williams on stage at the Hollywood in Auckland.
 
 Together at the piano, Lorde and Marlon covered one of Bruce's best songs, "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)," and it was just beautiful.

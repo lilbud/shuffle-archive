@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Blogger's Note: Check our new Cover Index"
+author: "Ken"
+excerpt: "We now have a site index of other artists covering Bruce Springsteen’s songbook! Check it out to see what other artists do with your favorite songs."
+tags: cover-me index
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/cover-me-3-album-cover-sticker__54088.1540260826.jpg
+post_id: 16760
+---
 I've been meaning to get the sprawling *Cover Me* section of the blog under control for a while now, but work, life, etc.
 
 This morning, though, friend (and copy editor) of the blog Lori Pierce suggested that *maybe* it was time, and that was just the nudge I needed. (Thanks, Lori!)

@@ -1,8 +1,18 @@
+---
+layout: post
+title: "Highway 61 Revisited"
+author: "Ken"
+excerpt: "When Bruce covers “Highway 61 Revisited,” it’s always a group effort. Watch and listen to all four team-ups on Dylan’s classic rocker."
+tags: bob-dylan bonnie-raitt christic-concerts highway-61-revisted jackson-browne rising-tour wolfgang-niedecken
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/DYLANBOBHIGHWAY61R_2019-11-06_13-19-30_D2GTDgkuYq_2048x.webp
+post_id: 5524
+---
 When Bob Dylan released *Highway 61 Revisited* in 1965, it was the first time he'd recorded with rock musicians–or really, with anything other than his guitar.
 
 So perhaps it's fitting that each and every one of the five times Bruce performed the album's title track was in the company of other notable musicians.
 
-From the very first time (two times, actually), performed in an ironically acoustic arrangement with Bonnie Raitt and Jackson Browne at the famous Christic shows in 1990...
+From the very first time (two times, actually), performed in an ironically acoustic arrangement with Bonnie Raitt and Jackson Browne at the famous Christic shows in 1990…
 
 [Watch on Youtube: Bruce springsteen & jackson browne Bonnie Raitt Highway 61](https://www.youtube.com/watch?v=2fQXHrG2INg)
 
@@ -10,7 +20,7 @@ From the very first time (two times, actually), performed in an ironically acous
 
 [Watch on Youtube: Bruce Springsteen w/Jackson Browne & Bonnie Raitt ☜❤️☞ Highway 61 Revisited {Acoustic 🎸} Audio](https://www.youtube.com/watch?v=n6pxbliYc3Y)
 
-...to the third time, with Dylan himself in 1994, when Bruce and Neil Young backed him on guitar during Dylan's show at the Roseland Ballroom in New York City.
+…to the third time, with Dylan himself in 1994, when Bruce and Neil Young backed him on guitar during Dylan's show at the Roseland Ballroom in New York City.
 
 [Watch on Youtube: Bob Dylan - Highway 61 Revisited with Bruce Springsteen and Neil Young 1994](https://www.youtube.com/watch?v=l27EiQbgi54)
 

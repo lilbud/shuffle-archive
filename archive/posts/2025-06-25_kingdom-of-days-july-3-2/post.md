@@ -1,20 +1,30 @@
+---
+layout: post
+title: "Kingdom of Days: July 3"
+author: "Ken"
+excerpt: "On this date: Bruce announces his participation in the Human Rights Now Tour during a worldwide broadcast of his Tunnel of Love show in Stockholm, and Italian fans surprise Bruce when he takes the stage in Milan. More highlights inside."
+tags: amnesty-tour barcelona born-in-the-usa born-in-the-usa-tour chimes-of-freedom east-rutherford factory frankfurt gary-u-s-bonds geneva germany italy london milan river-tour river-tour-2016 rolling-stones seeds spain steve-van-zandt stockholm sundance-blues-band sweden switzerland the-promise tunnel-of-love-tour working-on-a-dream-tour world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/stockholm.png
+post_id: 57560
+---
 ***New for 2025:** New entry for 1978*<br>
 
 **1971:** The Sundance Blues Band plays two gigs–first at the Student Prince from 9:30pm to 1:00am, and then at the Upstage from 2am to 5am.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1971-0703.jpg.webp)
 
-**1978:** The Darkness Tour skips Fresno at the last minute, when Bruce’s scheduled appearance at Warnors Theater is cancelled due to low ticket sales.<br>
+**1978:** The Darkness Tour skips Fresno at the last minute, when Bruce's scheduled appearance at Warnors Theater is cancelled due to low ticket sales.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/medium-5.jpg.webp)
 
-**1981:** Night Two of six at the Brendan Byrne Arena’s opening stand in East Rutherford features the tour premiere of “[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)” and a guest appearance by Gary U.S. Bonds on “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” and “[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md).”<br>
+**1981:** Night Two of six at the Brendan Byrne Arena's opening stand in East Rutherford features the tour premiere of "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)" and a guest appearance by Gary U.S. Bonds on "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cTInek5e)
 
 [Watch on Youtube: Bruce Springsteen Badlands New Jersey 03/07/1981](https://www.youtube.com/watch?v=3T9Hdvi5YsA)
 
-**1985:** Bruce plays “[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)” for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md),” “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md),” and “Twist and Shout.”<br>
+**1985:** Bruce plays "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)" for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)," and "Twist and Shout."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8rio31IG)
 
@@ -22,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1985-0703.jpg.webp)
 
-**1988:** At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on radio stations around the world. Bruce plays “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)” and “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)” for the first time on the tour, and he announces his participation in the upcoming Amnesty International Human Rights Tour. Bruce performs “[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)” immediately after the announcement, and that performance will be officially released as the title track of an EP later in the year. The entire show is now available as part of the official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18398/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-3-1988-Stockholms-Stadion-Stockholm-SE.html), and listen to the original radio pre- and post-shows below) and is well worth many repeated listens.<br>
+**1988:** At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on radio stations around the world. Bruce plays "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)" for the first time on the tour, and he announces his participation in the upcoming Amnesty International Human Rights Tour. Bruce performs "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" immediately after the announcement, and that performance will be officially released as the title track of an EP later in the year. The entire show is now available as part of the official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18398/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-3-1988-Stockholms-Stadion-Stockholm-SE.html), and listen to the original radio pre- and post-shows below) and is well worth many repeated listens.<br>
 
 [Watch on Youtube: Bruce Springsteen - news coverage from 1988 Stockholm concert](https://www.youtube.com/watch?v=UnODpc4SXdU)
 
@@ -50,7 +60,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/2PyrKknl)
 
-**2009:** In Frankfurt, Bruce and the E Street Band pull out the Working on a Dream tour premieres of “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” and “[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md).”<br>
+**2009:** In Frankfurt, Bruce and the E Street Band pull out the Working on a Dream tour premieres of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Factory - Frankfurt 2009-07-03 CLOSEUP](https://www.youtube.com/watch?v=BoRriwJXbqw)
 
@@ -64,7 +74,7 @@
 
 [Watch on Youtube: Frankfurt 03/07/2009](https://www.youtube.com/playlist?list=PLJTyL9twk3zA5jVor-QCBO_Hmp98LQS7m)
 
-**2013:** Bruce brings the Wrecking Ball Tour to Geneva for a night, where a solo piano “The Promise” is an encore highlight.<br>
+**2013:** Bruce brings the Wrecking Ball Tour to Geneva for a night, where a solo piano "The Promise" is an encore highlight.<br>
 
 [Watch on Youtube: Bruce Springsteen - Frankie - Geneva, Switzerland - July 3, 2013](https://www.youtube.com/watch?v=pRo2cCTY5z4)
 
@@ -72,7 +82,7 @@
 
 [Watch on Youtube: Bruce Springsteen Thunder Road Geneve 3 Juillet 2013 3rd of July 2013 Wrecking Ball Tour](https://www.youtube.com/watch?v=k9vJWcavohc)
 
-**2016:** The first of two nights in Milan kicks off with a surprise *for* Bruce: an amazing fan tribute that spans the entire stadium. But that’s not all that makes this show special: Bruce treats early arrivals to a pre-show “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” and plays the tour premiere of “[Lucille](../1976-01-07_cover-me-lucille/post.md/).”<br>
+**2016:** The first of two nights in Milan kicks off with a surprise *for* Bruce: an amazing fan tribute that spans the entire stadium. But that's not all that makes this show special: Bruce treats early arrivals to a pre-show "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and plays the tour premiere of "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 > A short video clip of the audience at San Siro stadium tonight [pic.twitter.com/ykRECLtKn2](https://t.co/ykRECLtKn2)
 >
 > — Lef_iv Ⓥ (@Lef_iv) [July 3, 2016](https://twitter.com/Lef_iv/status/749673280341245956?ref_src=twsrc%5Etfw)

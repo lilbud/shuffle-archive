@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Virgin Flower"
+author: "Ken"
+excerpt: "Let’s take another trip into Bruce’s 1968 Notebook with a lengthy entry that reads more like a poem than a song."
+tags: 1968-notebook the-virgin-flower
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/virgin-flowers-4475025_1280.jpg
+post_id: 27324
+---
 We continue working our way through Bruce Springsteen's "[1968 Notebook](https://estreetshuffle.com/?s=1968+notebook)" with an entry that reads more like a poem than a song… and yet it's believed that Bruce did in fact perform it (as with the other songs in the notebook) during his early solo acoustic performances.
 
 If you need a primer, the 1968 Notebook contains 20 songs written by Bruce in his formative years, and we only know about its existence because it went up for public auction back in 2006, with scans made available for potential bidders to inspect.

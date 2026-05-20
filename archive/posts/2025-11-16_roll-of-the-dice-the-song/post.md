@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The Song"
+author: "Ken"
+excerpt: "Known by a few names, “The Song” is an unreleased, unperformed but completely realized early songwriting exercise by Bruce."
+tags: i-heard-the-word the-song the-word
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/thesong-e1528287145688.png
+post_id: 2459
+---
 There's some debate as to the actual name of this unreleased, never-performed Springsteen original composition.
 
 In Bruce's handwritten notes, he refers to it as "I Heard the Word," and certainly that line is oft-repeated. It was eventually copyrighted in 1995 under the title "The Word."

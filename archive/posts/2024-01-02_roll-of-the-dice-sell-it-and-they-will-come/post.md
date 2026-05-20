@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sell It and They Will Come"
+author: "Ken"
+excerpt: "Bruce has written songs about some colorful characters, but none so much as the true ones in “Sell It and They Will Come,” an ode to The Stimulator, Flowbee, America’s Personal Trainer, and the Psychic Friends Network."
+tags: ghost-of-tom-joad-tour sell-it-and-they-will-come
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/sellit.jpg
+post_id: 7402
+---
 Because the album that represents The Ghost of Tom Joad recording sessions is so serious and earnest, we tend to characterize that entire period as such.
 
 But for all of the socially conscious material that made it on to the album, there were the misfits that were left by the wayside. "[Tiger Rose](../2019-01-26_rotd-matr-cm-tiger-rose/post.md)," for example, was an adulterous rockabilly farce; Bruce ended up giving it away to Sonny Burgess. "[I'm Turning Into Elvis](../2020-03-05_roll-of-the-dice-im-turning-into-elvis/post.md)" was a parody on the surface but belied some lurking sub-basement insecurity.

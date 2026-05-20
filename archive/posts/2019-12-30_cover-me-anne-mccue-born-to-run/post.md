@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Anne McCue: Born to Run"
+author: "Ken"
+excerpt: "Singer-songwriter Anne McCue gives Bruce’s signature song a Seeger-esque treatment, breathing new life into a rock anthem."
+tags: anne-mccue born-to-run
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/btranne.jpg
+post_id: 15204
+---
 It's *really* hard to cover "Born to Run."
 
 It's Bruce's signature song; the track is so painstakingly crafted and layered, and Bruce's vocals are so passionate that "Born to Run" seems to stare anyone down who even considers covering it.

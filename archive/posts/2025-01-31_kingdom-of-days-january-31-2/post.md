@@ -1,10 +1,20 @@
-**1973:** Bruce and the band eventually known as E Street open a six-night, two-shows-nightly stand at Max's Kansas City in New York City, opening for Biff Rose. Several tracks from this show are professionally recorded for use on The King Biscuit Flower Hour, but only "[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)" will be aired. That "Bishop Danced" recording, however, will see the light of day again 25 years later, when it is released on *Tracks*.<br>
+---
+layout: post
+title: "January 31"
+author: "Ken"
+excerpt: "Rare performances of lost classics in amazing clarity, a benefit team-up with Jon Bon Jovi, and more."
+tags: bishop-danced bobby-bandiera come-together ghost-of-tom-joad-tour japan jon-bon-jovi loose-change max-weinberg maxs-kansas-city new-york-city newark patrick-king river-tour-2016 saga-of-the-architect-angel song-for-orphans southside-johnny springsteen-on-broadway steve-van-zandt this-time-its-for-real tokyo tracks video-anthology
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/maxkc.jpg
+post_id: 55826
+---
+**1973:** Bruce and the band eventually known as E Street open a six-night, two-shows-nightly stand at Max’s Kansas City in New York City, opening for Biff Rose. Several tracks from this show are professionally recorded for use on The King Biscuit Flower Hour, but only “[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)” will be aired. That “Bishop Danced” recording, however, will see the light of day again 25 years later, when it is released on *Tracks*.<br>
 
 [Watch on Youtube: Bishop Danced (Live at Max's Kansas City - January 1973)](https://www.youtube.com/watch?v=j3k_B-pvusI)
 
 [Watch on Youtube: New York (1/31/1973)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1B1rEajyYdvaWwLHODyBt1n)
 
-The late show was recorded, too–but only the first two songs have surfaced. But those songs are ultra–rare and heard by very few fans in concert: "Saga of the Architect Angel" and "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)." Listen to both below.
+The late show was recorded, too–but only the first two songs have surfaced. But those songs are ultra–rare and heard by very few fans in concert: “Saga of the Architect Angel” and “[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md).” Listen to both below.
 
 [Watch on Youtube: 8. Saga Of The Architect Angel (Bruce Springsteen - Live In New York City 1-31-1973)](https://www.youtube.com/watch?v=L7_6l2W3ybo)
 
@@ -12,7 +22,7 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 **1981:** Bruce and the band enjoy their second day off in the Twin Cities (except for Roy, who has an ear infection). Bruce spends the evening playing pool and pinball at a bar called Zoogies, where he catches a local band called The Suburbs.<br>
 
-**1989:** *Video Anthology 1978-88* is released on VHS, the first collection of Bruce's music videos.<br>
+**1989:** *Video Anthology 1978-88* is released on VHS, the first collection of Bruce’s music videos.<br>
 
 [Watch on Youtube: Bruce Springsteen Video Anthology 1978-88](https://www.youtube.com/watch?v=pWQsmTe_DuU)
 
@@ -20,29 +30,29 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1989-01-31b.png.webp)
 
-**1991:** Bruce records "[Loose Change](../2019-11-24_roll-of-the-dice-loose-change/post.md)" at The Record Plant in Los Angeles.<br>
+**1991:** Bruce records “[Loose Change](../2019-11-24_roll-of-the-dice-loose-change/post.md)” at The Record Plant in Los Angeles.<br>
 
 [Watch on Youtube: Loose Change (Studio Outtake - 1991)](https://www.youtube.com/watch?v=a6-0mHMgnag)
 
-**1997:** Bruce plays his final of four solo acoustic shows in Tokyo. He won't perform in Japan again (at least to date).<br>
+**1997:** Bruce plays his final of four solo acoustic shows in Tokyo. He won’t perform in Japan again (at least to date).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/kHAishzR)
 
-**1998:** *Come Together*, a special benefit concert for the Sergeant Patrick King Memorial Fund, gathers Bruce, Jon Bon Jovi, Little Steven, Southside Johnny, Max Weinberg, Bobby Bandiera and others at the Count Basie Theater in Red Bank, New Jersey. King was a police officer from Long Branch who was killed two months prior while on duty.<br>
+**1998:** *Come Together,* a special benefit concert for the Sergeant Patrick King Memorial Fund, gathers Bruce, Jon Bon Jovi, Little Steven, Southside Johnny, Max Weinberg, Bobby Bandiera and others at the Count Basie Theater in Red Bank, New Jersey. King was a police officer from Long Branch who was killed two months prior while on duty.<br>
 
 [Watch on Youtube: This Time It's for Real - January 31, 1998](https://www.youtube.com/watch?v=cwoiZmmK1Ag)
 
-[Watch on Youtube: Bon Jovi, Bruce Springsteen & Friends - Tenth Avenue Freeze-Out (Red Bank 1998)](https://www.youtube.com/watch?v=BcYpR2hBYbg?list=PLnbVaK2f4ragU1imlJsn3u_BpNNLzfo7l)
+[Watch on Youtube: Bon Jovi, Bruce Springsteen & Friends - Tenth Avenue Freeze-Out (Red Bank 1998)](https://www.youtube.com/watch?v=BcYpR2hBYbg)
 
-[Watch on Youtube: Bon Jovi, Springsteen & Friends Come Together - Red Bank 1998 (FULL SHOW)](https://www.youtube.com/watch?v=LYFmmshcwWc?start=1515)
+[Watch on Youtube: Bon Jovi, Springsteen & Friends Come Together - Red Bank 1998 (FULL SHOW)](https://www.youtube.com/watch?v=LYFmmshcwWc)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1998-01-31.jpg.webp)
 
-**2006:** E Street Radio's limited-run engagement comes to an end on Sirius Satellite Radio, but it will return more than a year-and-a-half later.<br>
+**2006:** E Street Radio’s limited-run engagement comes to an end on Sirius Satellite Radio, but it will return more than a year-and-a-half later.<br>
 
-**2010:** Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)," the only one of his four nominations this year to earn him an award. Bruce was also nominated for Best Pop Collaboration with Vocals for "[Sea of Heartbreak](../2018-01-12_meeting-across-the-river-bruce-springsteen-and-rosanne-cash/post.md)" with Rosanne Cash; Best Rock Song for "Working on a Dream," and Best Song Written for a Motion Picture for "[The Wrestler.](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)"<br>
+**2010:** Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for “[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md),” the only one of his four nominations this year to earn him an award. Bruce was also nominated for Best Pop Collaboration with Vocals for “[Sea of Heartbreak](../2018-01-12_meeting-across-the-river-bruce-springsteen-and-rosanne-cash/post.md)” with Rosanne Cash; Best Rock Song for “Working on a Dream,” and Best Song Written for a Motion Picture for “[The Wrestler.](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)”<br>
 
-**2016:** The River Tour (2016 edition) makes a stop at the Prudential Center in Newark, where "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)," "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," and "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" make their tour debuts.<br>
+**2016:** The River Tour (2016 edition) makes a stop at the Prudential Center in Newark, where “[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md),” “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md),” and “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)” make their tour debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen - 2016-01-31 Newark - Meet Me In The City](https://www.youtube.com/watch?v=SBz7CTnx6gw)
 
@@ -60,6 +70,6 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 **2023:** Bruce and the E Street Band rehearse for their upcoming world tour opener at Amalie Arena in Tampa.<br>
 
-**2024:** Adele Springsteen passes away at the age of 98 after a long battle with Alzheimer's disease. Bruce shares the news of his mother's death on Instagram.<br>
+**2024:** Adele Springsteen passes away at the age of 98 after a long battle with Alzheimer’s disease. Bruce shares the news of his mother’s death on Instagram.<br>
 
 [Watch on Youtube: Bruce Springsteen pays tribute to his late mother Adele](https://www.youtube.com/watch?v=xcvUVQx1o3E)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Born in the U.S.A."
+author: "Ken"
+excerpt: "Even Bruce wasn’t always sure exactly what he was trying to say with “Born in the U.S.A.” Let’s finish tracing the evolution of one of Bruce Springsteen’s most famous songs, from early drafts to remixes and great live performances."
+tags: born-in-the-u-s-a vietnam
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/born-usa-springsteen.jpg
+post_id: 11226
+---
 Last month, we took a look at Bruce's unreleased *Nebraska-*era home demo, "[Vietnam](../2019-08-31_roll-of-the-dice-vietnam/post.md)."
 
 "Vietnam" was the grandfather of both "Born in the U.S.A." and "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)," but by the end of that essay, it was pretty clear which path Bruce was going to follow first.

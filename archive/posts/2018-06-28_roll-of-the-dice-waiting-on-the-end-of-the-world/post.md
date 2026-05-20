@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Waiting on the End of the World"
+author: "Ken"
+excerpt: "Bruce recorded “Waiting on the End of the World” twice, with both the “other” band and the E Street Band–yet he didn’t release either version. I have a theory as to why,"
+tags: greatest-hits streets-of-philadelphia waiting-on-the-end-of-the-world
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/apocalypsecover.0.jpg
+post_id: 2714
+---
 Friend of the blog John J. Kelly requested I jump the queue with this one. It's a good pick, and a challenging one.
 
 "Waiting on the End of the World" is one of the more obscure entries even among Bruce's catalog of unreleased outtakes, and it has a curious history.
@@ -18,19 +28,19 @@ It seems that both recordings of "Waiting" were poorly timed, and that's too bad
 
 Lyrically, "Waiting on the End of the World" requires close attention and invites interpretation:
 
-> *For one deadly love like a disease*
-> *I came to you crawling on my knees*
-> *Your eyes filled with rain*
-> *I can feel poison running through my veins*
+> *For one deadly love like a disease*<br>
+> *I came to you crawling on my knees*<br>
+> *Your eyes filled with rain*<br>
+> *I can feel poison running through my veins*<br>
 
-> *I'm waiting, I'm waiting, I'm waiting, waiting on the end of the world*
+> *I'm waiting, I'm waiting, I'm waiting, waiting on the end of the world*<br>
 
-> *For one deadly kiss what would we give*
-> *Your skin trembling ‘neath my fingertips*
-> *All I know is someday*
-> *For love, baby, everybody pays*
+> *For one deadly kiss what would we give*<br>
+> *Your skin trembling ‘neath my fingertips*<br>
+> *All I know is someday*<br>
+> *For love, baby, everybody pays*<br>
 
-> *I'm waiting, I'm waiting, I'm waiting, waiting on the end of the world*
+> *I'm waiting, I'm waiting, I'm waiting, waiting on the end of the world*<br>
 
 Bruce repeats the world "deadly" in the opening lines of the verses, comparing love and a kiss to disease and death, and ominously predicting that the love he sings about exacts a terrible cost.
 
@@ -42,17 +52,17 @@ Remember that "Waiting on the Edge of the World" was first recorded in 1994–th
 
 And the check out the next verse:
 
-> *We hide from truth in our hearts*
-> *Like one look and everything will fall apart*
-> *Here in your arms, soft decay*
+> *We hide from truth in our hearts*<br>
+> *Like one look and everything will fall apart*<br>
+> *Here in your arms, soft decay*<br>
 ***I can feel myself wasting away***<br>
 
 That last line echoes "Streets of Philadelphia" as well: "So brother are you gonna leave me wasting away"
 
 Through this lens, that key line in "Waiting" becomes even more sinister and layered:
 
-> *All I know is someday*
-> *For love, baby, everybody pays*
+> *All I know is someday*<br>
+> *For love, baby, everybody pays*<br>
 
 The similarities in language and imagery sways me toward believing that "Waiting on the End of the World" is an alternate universe "Streets of Philadelphia," and that Bruce chose to release the stronger of the two. The only reason I have any pause is that Bruce continued to work on "Waiting" for a full year after "Streets of Philadelphia" was released, and it strikes me as a bit odd that Bruce would follow up a song about a lover stricken with AIDS with another song about the same subject so quickly. It certainly wouldn't have been the first or last time that Bruce would cross-pollinate his songs, though. To my knowledge Bruce has never discussed this song specifically, so it remains open to debate.
 

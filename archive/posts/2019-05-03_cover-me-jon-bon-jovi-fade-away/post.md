@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jon Bon Jovi: Fade Away"
+author: "Ken"
+excerpt: "From his Destination Anywhere tour in 1997, Jon Bon Jovi treats Japanese fans to a faithful cover of Bruce Springsteen’s “Fade Away.”"
+tags: fade-away jon-bon-jovi
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/Jon-Bon-Jovi-Tokyo-1997.jpg
+post_id: 9377
+---
 I don't know much about the source of today's video; perhaps some Bon Jovi fans can help me out.
 
 The original Youtube poster cites this as hailing from Jon Bon Jovi's sole stop in Japan on his 1997 *Destination Anywhere* tour, and I have no reason doubt that.

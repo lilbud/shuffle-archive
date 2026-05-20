@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Run Through the Jungle"
+author: "Ken"
+excerpt: "A quiet, taut take on the CCR anti-gun classic rocker. “200 millions guns are loaded…” If only."
+tags: creedence-clearwater-revival john-fogerty run-through-the-jungle
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/jungle.jpg
+post_id: 1416
+---
 Here’s a timely cover: Three times only, on the original River tour, Bruce and the E Street Band covered the classic CCR anti-gun polemic, “Run Through the Jungle.”
 
 Bruce’s take on the song is quieter, slower and more taut than the original, with a mid-song key change to escalate the tension. If he performed it today, he’d have to update the lyrics, too–we’re at 300 million guns today and counting.

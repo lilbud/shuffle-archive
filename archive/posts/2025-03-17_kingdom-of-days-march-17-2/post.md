@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 17"
+author: "Ken"
+excerpt: "On this date in Springsteen history: Guest appearances with Joe Ely, Warren Zevon, Richard Davis, and more."
+tags: boston bruce-springsteen-band dublin ireland joe-ely los-angeles magic-tour milwaukee mitch-ryder new-york-city richard-davis richmond river-tour river-tour-2016 rosemont springsteen-on-broadway tunnel-of-love-express-tour warren-zevon
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1996-0317.jpg
+post_id: 56189
+---
 ***New for 2025:** New entry for 1975 and 2024*<br>
 
 **1972:** The Bruce Springsteen Band opens for Mitch Ryder (of "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike's sister Suzi will go on to become a well-known rocker (and minor TV star), [someday covering](../2019-03-16_cover-me-suzi-quatro-born-to-run/post.md) Bruce's signature song, "Born to Run."<br>

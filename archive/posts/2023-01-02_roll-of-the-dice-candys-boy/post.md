@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Candy's Boy"
+author: "Ken"
+excerpt: "This early ancestor of “Candy’s Room” (and “Drive All Night”) is just as strong as its descendant, featuring a long, sublime solo by Danny Federici. Let’s break it down inside."
+tags: candys-boy candys-room drive-all-night frankie the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/candysboy.jpg
+post_id: 20595
+---
 > "Does it matter, does it really matter? *[Laughs]* I'll never tell." *–Bruce Springsteen answering the question "Was Candy a hooker, or what?", Rolling Stone, November 25, 2010*<br>
 
 Candy was *definitely* a hooker, and it absolutely matters.

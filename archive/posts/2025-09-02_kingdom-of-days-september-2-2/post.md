@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 2"
+author: "Ken"
+excerpt: "The Human Rights Now! Tour kicks off, Bruce and Bob Seger meet for the first time, Bruce and the E Street Band help inaugurate the Rock and Roll Hall of Fame, and more."
+tags: bob-dylan bob-seger chuck-berry cleveland darkness-on-the-edge-of-town forever-young good-rockin-tonight hey-bo-didley human-rights-now-tour jerry-lee-lewis johnny-b-goode london lost-in-the-flood philadelphia river-tour rock-and-roll-hall-of-fame san-diego shake-rattle-and-roll shes-the-one summertime-blues tinley-park wembley world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19880902_front.jpg
+post_id: 59530
+---
 ***New for 2025:** New entry for 1977 and 1979*<br>
 
 **1973:** Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.<br>

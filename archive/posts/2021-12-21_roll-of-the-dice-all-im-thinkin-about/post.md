@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: All I'm Thinkin' About"
+author: "Ken"
+excerpt: "Laced with playfully ribald metaphor and delightfully sly euphemism, “All I’m Thinkin’ About” earns its place among the great masturbation songs."
+tags: all-im-thinkin-about devils-dust
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/allimthinkin.jpg
+post_id: 22282
+---
 Welcome to another installment of *Graphically (But Secretly) Sexual Springsteen Songs.*
 
 "All I'm Thinkin' About" is about what we do when all we're thinkin' about is sex, and especially when we've lost that one partner we can't stop thinkin' about.

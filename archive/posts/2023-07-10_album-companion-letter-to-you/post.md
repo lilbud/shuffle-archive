@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Album Companion: Letter to You"
+author: "Ken"
+excerpt: "There’s a truly great EP buried within this over-stuffed and thematically inconsistent album."
+tags: letter-to-you
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/springsteen-lettertoyou-front.jpg
+post_id: 44060
+---
 Editor's Note
 
 *Letter to You* is the seventh Springsteen studio album to receive the complete *Roll of the Dice* treatment.

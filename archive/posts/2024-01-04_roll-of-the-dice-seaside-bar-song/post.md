@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Seaside Bar Song"
+author: "Ken"
+excerpt: "An early Wild and Innocent outtake based on a still-standing bar bears the seeds of classic songs still to come."
+tags: 18-tracks seaside-bar-song tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/osprey.webp
+post_id: 38856
+---
 > "There was a club in New Jersey–it's still there–called The Osprey. It's in Manasquan. I had my first drink there, first drink ever. I thought it was the greatest night of my life. And I saw Bo Diddley! I saw Bo Diddley at the The Osprey in Manasquan. There's a little stage… there's a bar and a little stage that's right there. So I went home and I wrote this song." —*Bruce Springsteen, March 28, 2012*<br>
 
 The Stone Pony may be the more famous seaside bar, but The Osprey is the one Bruce Springsteen immortalized in song.

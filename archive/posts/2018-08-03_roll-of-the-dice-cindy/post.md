@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Cindy"
+author: "Ken"
+excerpt: "Bruce originally included “Cindy” on The River back when it was only one disc, but he discarded it before finalizing the two-disc version. That’s too bad, because like “Hungry Heart,” its pop trappings combined with dark lyrics make for a perfect album fit."
+tags: cindy the-ties-that-bind-the-river-collection
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/cindy.jpg
+post_id: 3250
+---
 At first, it seems like we're in "[Ain't Good Enough For You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)" territory: a sad sack hero doing his best to please his girl, only to find that she sets the bar just a little bit higher than he can clear.
 
 But "Cindy" quickly takes a darker turn, and it isn't long before we realize that our narrator may be more of a stalker than a suitor.

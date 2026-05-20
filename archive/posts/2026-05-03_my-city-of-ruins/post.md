@@ -1,3 +1,11 @@
+---
+layout: post
+title: "My City of Ruins"
+author: "Ken"
+excerpt: "The Land of Hope and Dreams American Tour followed a narrative arc from start to finish. Over the course of three hours, Bruce Springsteen took…"
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/05/aqgtyfg4t88a1.jpg
+post_id: 68797
+---
 The Land of Hope and Dreams American Tour followed a narrative arc from start to finish.
 
 Over the course of three hours, Bruce Springsteen took us on an emotional journey that began with righteous anger, descended into grief, rose to resilience, and culminated with hope and optimism.

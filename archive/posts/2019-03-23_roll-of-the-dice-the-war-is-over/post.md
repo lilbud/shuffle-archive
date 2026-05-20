@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The War is Over"
+author: "Ken"
+excerpt: "It may not feature Bruce’s best lyrics, but “The War Is Over” is still a creatively constructed protest song that resonates fifty years down the road in unexpected ways."
+tags: steel-mill the-war-is-over
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/the-war-is-over.png
+post_id: 7886
+---
 The dice are mean today.
 
 Just a few days after assigning me "[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md)," they turn up the similarly themed Steel Mill number, "The War Is Over," and the comparison is almost cruel.

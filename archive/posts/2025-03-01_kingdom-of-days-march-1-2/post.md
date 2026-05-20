@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 1"
+author: "Ken"
+excerpt: "Grammy Award wins and performances, Part 2 of a Friday Night Videos profile, and a most unexpected cover from this date in Springsteen history."
+tags: auckland barack-obama bob-dylan curtis-mayfield david-johansen-group friday-night-videos grammy-awards high-hopes-tour jimmy-barnes new-zealand renegades ride-the-night-away royals springsteen-on-broadway steve-van-zandt streets-of-philadelphia tom-petty
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/41102548302_2e7969311f_o.jpg
+post_id: 56070
+---
 ***New for 2025:** No updates*<br>
 
 Note: This is a strange date in history: Bruce rarely cancels shows, but on this date he cancelled shows three years running!

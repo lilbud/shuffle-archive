@@ -1,4 +1,14 @@
-> *Everything dies, baby, that's a fact*<br>
+---
+layout: post
+title: "Roll of the Dice: Atlantic City"
+author: "Ken"
+excerpt: "“Atlantic City” ranks high among Bruce’s best songwriting accomplishments. Rooted deeply in time and place, it tells of the hope of resurrection that never quite pans out."
+tags: atlantic-city born-in-the-usa-tour devils-and-dust-tour fist-full-of-dollars live-in-dublin nebraska seeger-sessions-tour
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/atlantic-city.jpg
+post_id: 2421
+---
+> *Everything dies, baby, that's a fact.*<br>
 > *But maybe everything that dies someday comes back.*<br>
 
 That's one of the finest couplets Bruce has ever written.

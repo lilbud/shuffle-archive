@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Bring 'Em Home"
+author: "Ken"
+excerpt: "Bruce took inspiration from Pete Seeger’s 1966 anti-war protest song and a Civil War classic and forged a heartfelt song of his own."
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/bringem.jpg
+post_id: 27624
+---
 They say that great folk songs are never finished, and that's certainly the case with Pete Seeger's "Bring Them Home."
 
 Seeger wrote "Bring Them Home" in 1966 as a protest against the Vietnam war. He evolved the song over the years that followed, and by the time he performed it on *The Johnny Cash Show* in 1970, Seeger had honed it to a very sharp point.
@@ -12,15 +21,15 @@ In 2003, producer Jim Musselman rewrote the first verse of Seeger's song to upda
 
 Three years later, Bruce took Musselman's first verse and Seeger's second verse and then wrote two new verses of his own:
 
-> *They wanna test their grand theories*
-> *Bring them home, bring them home*
-> *With the blood of you and me*
-> *Bring them home, bring them home*
+> *They wanna test their grand theories*<br>
+> *Bring them home, bring them home*<br>
+> *With the blood of you and me*<br>
+> *Bring them home, bring them home*<br>
 
-> *Now we'll give no more brave young lives*
-> *Bring them home, bring them home*
-> *For the gleam in someone's eyes*
-> *Bring them home, bring them home*
+> *Now we'll give no more brave young lives*<br>
+> *Bring them home, bring them home*<br>
+> *For the gleam in someone's eyes*<br>
+> *Bring them home, bring them home*<br>
 
 But Bruce wasn't done yet–he borrowed and adapted two verses from the standard "When Johnny Comes Marching Home"….
 
@@ -30,10 +39,10 @@ But Bruce wasn't done yet–he borrowed and adapted two verses from the standard
 
 …and then wrote a seventh verse in tribute:
 
-> *We will lift their voice and sound*
-> *Bring them home, bring them home*
-> *Yeah when Johnny comes marching home*
-> *Bring them home, bring them home*
+> *We will lift their voice and sound*<br>
+> *Bring them home, bring them home*<br>
+> *Yeah when Johnny comes marching home*<br>
+> *Bring them home, bring them home*<br>
 
 It's hard to call the resulting song a cover, but it's certainly not an original Springsteen song. There's no debating its power, however. Although not nearly as angry as Seeger's original song, Bruce's version captures the patriotism of Seeger's original and the longing in "When Johnny Comes Marching Home" to produce a mash-up that perfectly captures the heartache and sacrifice of the families of soldiers overseas.
 

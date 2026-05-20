@@ -1,3 +1,13 @@
+---
+layout: post
+title: "American Babylon: A Retrospective"
+author: "Ken"
+excerpt: "On the 25th anniversary of American Babylon, Joe Grushecky and I take a look back at the making and meaning of Joe’s landmark album and his decades-long friendship with producer, co-writer, and collaborator Bruce Springsteen."
+tags: american-babylon chain-smokin comin-down-maria homestead joe joe-grushecky never-be-enough-time only-lovers-left-alive talk-show
+categories: meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/914SGaOurqL._UF10001000_QL80_.jpg
+post_id: 20444
+---
 In 1993, Bruce Springsteen had just finished a year-long world tour with his new band and was, as the saying goes, between projects.
 
 It was a good time for a friend to ask him for a favor, and Joe Grushecky needed a favor.

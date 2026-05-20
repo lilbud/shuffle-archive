@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 16"
+author: "Ken"
+excerpt: "On this date: Earth makes their public debut, Bruce premieres “Sea Cruise,” “It’s Gonna Work Out Fine,” the first full-band “Across the Border,” and more."
+tags: across-the-border bobby-bandiera born-in-the-usa-tour born-to-run-tour bottom-line charleston child earth east-rutherford jackson-browne johnny-bye-bye magic-tour new-york-city red-rocks rising-tour river-tour san-francisco sea-cruise springsteen-on-broadway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/admin-ajax-77.jpg
+post_id: 58379
+---
 **1968:** Earth makes their debut performance at the Off Broad Street Coffee House in Red Bank, New Jersey. Earth is Bruce's new band, featuring John Graham on bass and Michael Burke on drums. (Bob Alfano will join later on organ.)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1968-0816.jpg.webp)

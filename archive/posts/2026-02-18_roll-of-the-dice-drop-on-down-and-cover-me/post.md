@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Drop on Down and Cover Me"
+author: "Ken"
+excerpt: "The shoulda-been “Cover Me” that never was."
+tags: cover-me drop-on-down-and-cover-me
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/dropcover.jpg
+post_id: 14888
+---
 This.
 
 *This* is what should have been on *Born in the U.S.A.* instead of "Cover Me."

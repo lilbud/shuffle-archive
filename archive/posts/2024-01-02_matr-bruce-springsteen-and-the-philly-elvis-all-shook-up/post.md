@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and The Philly Elvis, All Shook Up"
+author: "Ken"
+excerpt: "It takes a special performer to steal the show from Bruce Springsteen. Watch The Philly Elvis do it when Bruce grants his request on the Working on a Dream Tour."
+tags: all-shook-up elvis-presley nick-ferraro springsteen-and-i the-philly-elvis working-on-a-dream-tour
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/allshook.jpg
+post_id: 11076
+---
 Normally, when I write a post about Bruce covering another artist, I provide a little backstory about the song. Sometimes I also add some color commentary about the album and the artist, along with an angle on why that song is a natural or surprising choice for Bruce.
 
 But when it comes to Bruce’s one-time-only cover of Elvis Presley’s “All Shook Up,” there’s really no point to doing any of the above.

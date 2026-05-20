@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: The Wanderer"
+author: "Ken"
+excerpt: "Bruce played Dion’s “The Wanderer” three times with its original artist, long before he took a run at it with the E Street Band. Watch and listen to great performances across three decades."
+tags: cats-on-a-smooth-surface dion joe-grushecky rock-and-roll-hall-of-fame the-wanderer
+categories: cover-me cover-you meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/dion_the-wanderer-the-majesticoriginal-us.-picture-_1.jpg
+post_id: 9730
+---
 > “‘The Wanderer’ is really a sad song. A lot of guys don’t understand that. Bruce Springsteen was the only guy who accurately expressed what that song was about. It’s “I roam from town to town and go through life without a care, I’m as happy as a clown with my two fists of iron, but I’m going nowhere.” In the Fifties, you didn’t get that dark. It sounds like a lot of fun but it’s about going nowhere.” — Dion DiMucci
 
 Dion’s “The Wanderer” was an immediate hit upon its release in late 1961, peaking just one spot shy of the top of U.S. charts, #10 in the U.K., and at #1 in Australia.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 5"
+author: "Ken"
+excerpt: "Today in Springsteen history: two notable births (one human, one vinyl) and one rebirth."
+tags: bitusa blackberry-booze-band born-in-the-usa-tour boston bryn-mawr cambridge greetings greetings-from-asbury-park hampton main-point reunion sam-springsteen stone-pony the-main-point
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/greetings.jpg
+post_id: 55544
+---
 **1973**: Bruce’s recording career is born with the release of his first album, [*Greetings from Asbury Park, N.J*.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.<br>
 
 [Watch on Youtube: Greetings from Asbury Park, N.J.](https://www.youtube.com/playlist?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)

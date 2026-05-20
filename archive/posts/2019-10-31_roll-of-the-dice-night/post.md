@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Night"
+author: "Ken"
+excerpt: "Hold on tight: Bruce Springsteen’s “Night” is three minutes of pure rock and roll adrenaline, but I’ll try to break it down inside."
+tags: born-to-run night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/car_lights_night_116437_3840x2160.jpg
+post_id: 13793
+---
 The first time you hear Bruce Springsteen's "Night"… well, it's kind of like this:
 
 [Watch on Youtube: Tesla Launch Reactions INSANE compilation](https://www.youtube.com/watch?v=Wd5TO-WpzqM)
@@ -20,61 +30,61 @@ In short, "Night" is one of the best examples of the classic E Street Sound.
 
 Then there's the lyrics:
 
-> *Get up every morning at the sound of the bell*
-> *You get to work late and the boss man's giving you hell*
-> *Till you're out on a midnight run*
-> *Losing your heart to a beautiful one*
-> *And it feels right as you lock up the house*
-> *Turn out the lights and step out into the night*
+> *Get up every morning at the sound of the bell*<br>
+> *You get to work late and the boss man's giving you hell*<br>
+> *Till you're out on a midnight run*<br>
+> *Losing your heart to a beautiful one*<br>
+> *And it feels right as you lock up the house*<br>
+> *Turn out the lights and step out into the night*<br>
 
 Just two years later, Bruce would write a very different song that starts virtually the same way but almost immediately diverges:
 
-> *Early in the morning factory whistle blows*
-> *Man rises from bed and puts on his clothes*
-> *Man takes his lunch, walks out in the morning light*
-> *It's the working, the working, just the working life*
+> *Early in the morning factory whistle blows*<br>
+> *Man rises from bed and puts on his clothes*<br>
+> *Man takes his lunch, walks out in the morning light*<br>
+> *It's the working, the working, just the working life*<br>
 
 And of course, just a couple of years later, Bruce would mine that theme yet another time:
 
-> *Put on your best dress baby*
-> *And darlin', fix your hair up right*
-> *‘Cause there's a party, honey*
-> *Way down beneath the neon lights*
-> *All day you've been working that hard line*
-> *Now tonight you're gonna have a good time*
+> *Put on your best dress baby*<br>
+> *And darlin', fix your hair up right*<br>
+> *‘Cause there's a party, honey*<br>
+> *Way down beneath the neon lights*<br>
+> *All day you've been working that hard line*<br>
+> *Now tonight you're gonna have a good time*<br>
 
 "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" and "[Out on the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" are far from Bruce's only songs that focus on or spring from working life, but "Night" is the prototype. In "Factory" Bruce would examine the cost of grueling work; in "Out in the Street" Bruce had found connection and at least had someone to share the night with. But "Night" is a celebration of pure freedom.
 
 Our hero–and he certainly sees himself that way–bristles with power and possibility. His fellow night dwellers are merely potential conquests, romantic and otherwise.
 
-> *And the world is busting at its seams*
-> *And you're just a prisoner of your dream*
-> *Holding on for your life, 'cause you work all day*
-> *To blow 'em away in the night*
+> *And the world is busting at its seams*<br>
+> *And you're just a prisoner of your dream*<br>
+> *Holding on for your life, 'cause you work all day*<br>
+> *To blow 'em away in the night*<br>
 
-> *The rat trap's filled with soul crusaders*
-> *The Circuit's lined and jammed with chromed invaders*
-> *And she's so pretty that you're lost in the stars*
-> *As you jockey your way through the cars*
-> *And sit at the light, as it changes to green*
-> *You put faith in your machine and off you scream into the night*
+> *The rat trap's filled with soul crusaders*<br>
+> *The Circuit's lined and jammed with chromed invaders*<br>
+> *And she's so pretty that you're lost in the stars*<br>
+> *As you jockey your way through the cars*<br>
+> *And sit at the light, as it changes to green*<br>
+> *You put faith in your machine and off you scream into the night*<br>
 
 It's the "otherwise" that Bruce is pre-occupied with, though. It's never explicitly stated, but it's implied that Bruce's hero draws his confidence and swagger from his car. He's a legend on the road and a hero in his own mind, but girls are his Achilles heel. He has clarity and resolve in the night, and he knows he'll lose all that once he sets foot on the pavement. So he subtly transfers his desire from girl to car as the song races toward its bridge.
 
-> *And you're in love with all the wonder it brings*
-> *And every muscle in your body sings as the highway ignites*
-> *You work nine to five and somehow you survive till the night*
+> *And you're in love with all the wonder it brings*<br>
+> *And every muscle in your body sings as the highway ignites*<br>
+> *You work nine to five and somehow you survive till the night*<br>
 
-> *Well, all day they're busting you up on the outside*
-> *But tonight you're gonna break on through to the inside*
-> *And it'll be right, it'll be right, and it'll be tonight*
+> *Well, all day they're busting you up on the outside*<br>
+> *But tonight you're gonna break on through to the inside*<br>
+> *And it'll be right, it'll be right, and it'll be tonight*<br>
 
 Only towards the end of the song does our hero let his bravado slip–and even then, only a bit. He's got no girl and no prospects for one, but he's got faith that there's someone out there for him–somewhere. His car and the night give him the resolve to find her, but we get the sense that he knows deep inside that he lacks the courage to take action if he finds her.
 
-> *And you know she will be waiting there*
-> *And you'll find her somehow you swear*
-> *Somewhere tonight, you'll run sad and free*
-> *Until all you can see is the night*
+> *And you know she will be waiting there*<br>
+> *And you'll find her somehow you swear*<br>
+> *Somewhere tonight, you'll run sad and free*<br>
+> *Until all you can see is the night*<br>
 
 He acknowledges his lurking loneliness, admitting that he's running both "sad and free." He has his independence, but he's alone. He has the night, but that's all he has.
 

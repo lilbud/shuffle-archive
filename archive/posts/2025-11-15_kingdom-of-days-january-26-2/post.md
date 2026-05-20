@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 26"
+author: "Ken"
+excerpt: "On this date: Tom Morello joins the E Street Band, Bruce plays South Africa for the first time, the United Steelworkers honor Bruce, and much more."
+tags: born-in-the-usa-tour cape-town castiles chicago dallas free-nelson-mandela ghost-of-tom-joad-tour high-hopes-tour norfolk river-tour south-africa south-bend springsteen-on-broadway syracuse tom-morello
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/72x800-jo-lopez-capetown-_surfs-up.bruce-capetown-jo-lopez-jan-25-20147E1A6843.jpg
+post_id: 55809
+---
 **1968:** The Castiles (Bruce’s first band) play a gig at The Left Foot in Bruce’s hometown of Freehold.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1968-0126.jpg.webp)

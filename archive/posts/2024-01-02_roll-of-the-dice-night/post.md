@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Night"
+author: "Ken"
+excerpt: "Hold on tight: Bruce Springsteen’s “Night” is three minutes of pure rock and roll adrenaline, but I’ll try to break it down inside."
+tags: born-to-run night
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/car_lights_night_116437_3840x2160.jpg
+post_id: 13793
+---
 The first time you hear Bruce Springsteen's "Night"… well, it's kind of like this:
 
 [Watch on Youtube: Tesla Launch Reactions INSANE compilation](https://www.youtube.com/watch?v=Wd5TO-WpzqM)

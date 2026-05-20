@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 31"
+author: "Ken"
+excerpt: "Bruce plays his longest show ever in Helsinki, well over four hours including a pre-show. Plus: surprise appearances with U2, Bruce Hornsby, and Marshall Crenshaw, the live debut of “Lift Me Up” and more."
+tags: born-in-the-usa-tour bruce-hornsby columbia columbus cover-me cross-my-heart darkness-tour detroit devils-and-dust-tour east-rutherford finland for-you giants-stadium helsinki higher-and-higher i-still-havent-found-what-im-looking-for leap-of-faith light-of-day magic-tour marshall-crenshaw my-fathers-place river-tour-2016 rockin-all-over-the-world sonny-kenn stone-pony switzerland u2 world-tour-1992 wrecking-ball-tour zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/helsinki12.jpg
+post_id: 57851
+---
 ***New for 2025:** Video for 2022*<br>
 
 **1973:** Bruce and the E Street Band headline the first two shows of a three-night/six-show stand at My Father's Place in Roslyn, New York. WLIR-FM broadcasts the late show live.<br>

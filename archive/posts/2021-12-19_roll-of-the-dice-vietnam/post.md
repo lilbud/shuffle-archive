@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Vietnam"
+author: "Ken"
+excerpt: "The road to “Born in the U.S.A.” starts here with this Nebraska-era demo."
+tags: born-in-the-u-s-a shut-out-the-light vietnam
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/vietnam.jpg
+post_id: 12572
+---
 > "*It's like when you're walking down a dark street at night, and out of the corner of your eye you see somebody getting hurt in a dark alley. But you keep walking on because you think it don't have nothing to do with you, and you just want to get home. Vietnam turned this whole country into that dark street, and unless we can walk down those alleys and look into the eyes of those men and women, we're never gonna get home.*" *–Bruce Springsteen, August 20, 1981*<br>
 
 In the autumn of 1981, the plight of Vietnam veterans was very much on Bruce's mind.

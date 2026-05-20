@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Jesse Malin and Bruce Springsteen: Wendy"
+author: "Ken"
+excerpt: "Jesse Malin’s debut performance with Bruce turned a legion of Springsteen fans into Malin fans, and “Wendy” was the song that did it."
+tags: jesse-malin the-fine-art-of-self-destruction wendy
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/wendy.jpg
+post_id: 20934
+---
 What is it about Wendy?
 
 Bruce Springsteen introduced her in 1975, and I was so smitten that I've been a fan for life. Then Jesse Malin re-introduced her to me more than a quarter-century later, and I fell in love all over again.

@@ -1,4 +1,14 @@
-In 1965, The Drifters had a hit with "Come on Over to My Place." It only reached #60 on the charts in the US (it made it to #9 in the UK), but it was enough to make an impression on Bruce and Cats on a Smooth Surface–they played it together at The Stone Pony five times during the summer and fall of 1982.
+---
+layout: post
+title: "MatR: Bruce Springsteen and Cats on a Smooth Surface, Come on Over to My Place"
+author: "Ken"
+excerpt: "The Drifters’ classic makes frequent appearances at the Stone Pony in 1982."
+tags: cats-on-a-smooth-surface come-on-over-to-my-place the-drifters
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/drifters.jpg
+post_id: 1564
+---
+In 1965, The Drifters had a hit with “Come on Over to My Place.” It only reached #60 on the charts in the US (it made it to #9 in the UK), but it was enough to make an impression on Bruce and Cats on a Smooth Surface–they played it together at The Stone Pony five times during the summer and fall of 1982.
 
 [Watch on Youtube: Come on over to my place ( the drifters cover )](https://www.youtube.com/watch?v=pZEzZtmvH1I)
 

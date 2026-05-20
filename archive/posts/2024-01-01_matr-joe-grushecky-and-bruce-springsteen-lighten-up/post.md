@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Grushecky and Bruce Springsteen, "Lighten Up""
+author: "Ken"
+excerpt: "A one-off performance of Joe Gruchecky’s “Lighten Up” with Bruce from the American Babylon tour."
+tags: american-babylon joe-gruschecky lighten-up pittsburgh
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/lighten.jpg
+post_id: 565
+---
 Today’s meeting across the river comes from the city of three rivers: Pittsburgh, PA.
 
 For a brief time in 1995, Bruce Springsteen joined Joe Grushecky and the Houserockers, taking a supporting role during Joe’s [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md)tour. (Bruce produced the album, played and sang on several tracks, and wrote two of them.)

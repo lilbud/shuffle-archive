@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 6"
+author: "Ken"
+excerpt: "On this date in Springsteen history: Bruce releases his Wrecking Ball album, reunites with Steel Mill bandmate Robbin Thompson in Richmond, makes a surprise appearance with Soul Asylum and more."
+tags: bruce-hornsby lawsuit-tour magic-tour miami new-york-city reese-witherspoon reunion-tour richmond rising-tour river-tour-2016 robbin-thompson rochester rosalita soul-asylum springsteen-on-broadway st-louis steel-mill stephen-colbert tampa the-tracks-of-my-tears thunder-road working-on-the-highway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/wb.jpg
+post_id: 56097
+---
 ***New for 2025:** No updates*<br>
 
 **1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.<br>

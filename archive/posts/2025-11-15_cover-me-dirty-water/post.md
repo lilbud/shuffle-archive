@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Dirty Water"
+author: "Ken"
+excerpt: "Whenever Bruce visits Boston, odds are good he’ll play The Standells’ garage rock tribute."
+tags: dirty-water peter-wolf the-stnadells
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/dirtywater.jpg
+post_id: 33338
+---
 If you’re gonna rock in Boston, sooner or later you’ve got to play “Dirty Water.”
 
 [Watch on Youtube: The Standells - Dirty Water (Stereo)](https://www.youtube.com/watch?v=62XRy-jFCm8)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Jimmy Fallon, Whip My Hair"
+author: "Ken"
+excerpt: "Bruce and Jimmy Fallon (as Neil Young) perform the unlikeliest of covers in one of Bruce’s most viral moments. Watch the performance and backstory inside."
+tags: blow-your-pants-off jimmy-fallon late-night-with-jimmy-fallon neil-young whip-my-hair
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/whipmyhair.jpg
+post_id: 12480
+---
 Bruce Springsteen has performed a lot of unlikely covers across his long and illustrious career, but I'm not sure that anyone would have ever predicted this one, let alone on television and as an official CD release.
 
 In the autumn and winter of 2010, ten-year-old Willow Smith's debut single "Whip My Hair" was *everywhere*. Whether you liked it or hated it, odds are that you couldn't get it out of your head no matter how hard you tried.
@@ -12,7 +22,7 @@ Listen to Jimmy tell the story:
 
 [Watch on Youtube: Jimmy Fallon on playing with Bruce Springsteen](https://www.youtube.com/watch?v=o_cFobBHYqU)
 
-And yes, when Bruce walked out on stage for the cold open that night, the crowd (and almost certainly, the entirety of E Street Nation) did indeed go nuts. The result... well, it may not be one of Bruce's best covers, but it's certainly one of his most viral.
+And yes, when Bruce walked out on stage for the cold open that night, the crowd (and almost certainly, the entirety of E Street Nation) did indeed go nuts. The result… well, it may not be one of Bruce's best covers, but it's certainly one of his most viral.
 
 [Watch Video Highlight](https://videopress.com/embed/ETduz4Hn)
 
@@ -27,5 +37,5 @@ Bruce and "Neil" would also reprise their performance two years (and ten fashion
 Even so, I wouldn't bet on Bruce picking a sign for "Whip My Hair" anytime soon. That was almost certainly a one-time-only experience.
 
 **Whip My Hair**<br>
-**Recorded:** November 16, 2010**Released:** *Blow Your Pants Off* (2012)**First performed:** November 16, 2010 (New York City, NY)<br>
+**Recorded** November 16, 2010**Released:** *Blow Your Pants Off* (2012)**First performed:** November 16, 2010 (New York City, NY)<br>
 **Last performed:** November 16, 2010 (New York City, NY)<br>

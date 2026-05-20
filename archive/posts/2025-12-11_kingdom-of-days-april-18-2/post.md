@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 18"
+author: "Ken"
+excerpt: "The premiere of “Can’t Help Falling in Love” and “Give My Love to Rose,” the filming of “Broken Radio,” the E Street Band premiere of “Better Days,” and an on-stage Bruce and Clarence collision lead the highlights from this date in history."
+tags: 23rd-street-lullaby as-long-as-i-can-be-with-you broken-radio dancing-in-the-dark france give-my-love-to-rose houston im-on-fire jesse-malin johnny-cash new-york-city ottawa paris patti-scialfa penn-state ramrod reunion-tour rising-tour river-tour river-tour-2016 springsteen-on-broadway steel-mill
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/april-18th-2024-syracuse-ny-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 56556
+---
 **1970:** Steel Mill plays a gig at Ocean County College in Toms River, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1970-04-18-rotated.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 2"
+author: "Ken"
+excerpt: "Are you loose? On this historic day: The infamous Bomb Scare Show, the kickoff of the Magic Tour, and the finale of the Born in the U.S.A. Tour–video and much more inside!"
+tags: bomb-scare-show born-in-the-usa-tour born-to-run-tour bright-eyes bruce-springsteen-band cleveland east-rutherford ghost-of-tom-joad-tour giants-stadium gypsy-biker hartford italy jailhouse-rock john-fogerty lawsuit-tour los-angeles magic-tour man-on-the-moon melissa-etheridge milwaukee new-york-city oakland phoenix r-e-m reason-to-beleive seeger-sessions-tour springsteen-on-broadway student-prince the-river torino vote-for-change-tour working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/19751002_5_front.jpg
+post_id: 59751
+---
 ***New for 2025:** Review for 2004*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

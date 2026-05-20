@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Dave Alvin: Seeds"
+author: "Ken"
+excerpt: "As far as I’m concerned, Dave Alvin’s cover of “Seeds” is the definitive version of the song."
+tags: dave-alvin seeds
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/seeds_1.jpg
+post_id: 6250
+---
 I love it when an artist has the respect and familiarity for Bruce's material to go beyond his greatest hits, but also the confidence and skill to make the song their own.
 
 Dave Alvin sure as heck checks off all the boxes with his 1997 cover of "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)."

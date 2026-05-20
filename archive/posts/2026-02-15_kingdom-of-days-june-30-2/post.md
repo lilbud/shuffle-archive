@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 30"
+author: "Ken"
+excerpt: "Bruce headlines Hard Rock Calling, plays an impromptu 2am concert in Iceland(!), guest-stars with Jackson Browne, and more."
+tags: atlantic-city berkeley bern born-in-the-usa-tour dancing-in-the-dark darkness-tour elliott-murphy france glory-days hard-rock-calling i-fought-the-law iceland jackson-browne london my-lucky-day new-york-city paris rock-ballad springsteen-on-broadway sweet-little-sixteen switzerland uk working-on-a-dream-tour world-tour-1992 wrecking-ball-tour zac-brown
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/bs250630_03.jpg
+post_id: 57528
+---
 **1974:** A scheduled E Street Band gig in Memphis is cancelled.<br>
 
 **1977:** Bruce and the E Street Band record at Atlantic Studios in New York city for their upcoming album. Listen to an early take of "Spanish Eyes" from this session below.<br>

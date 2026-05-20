@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Heaven's Wall"
+author: "Ken"
+excerpt: "Who the heck would ever think to combine samba rhythm, middle eastern melody, a self-guitar duel, discordant strings, cowbell, and a gospel choir? Bruce Springsteen, that’s who!"
+tags: heavens-wall high-hopes
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/heaven.jpg
+post_id: 15842
+---
 We know that Bruce has employed biblical imagery in his songs pretty much since he started writing them, but am I the only one who thinks it's odd that Bruce released songs about Jonah and the whale on two albums in a row?
 
 Okay, maybe "[Swallowed Up (In the Belly of the Whale)](https://estreetshuffle.com/index.php/2020/05/07/roll-of-the-dice-swallowed-up-in-the-belly-of-the-whale/)" isn't *really* about Jonah, but that [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)bonus track certainly uses the myth as metaphor.

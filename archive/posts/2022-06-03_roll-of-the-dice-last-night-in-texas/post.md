@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Last Night in Texas"
+author: "Ken"
+excerpt: "Let’s kick off summer with Dr. Zoom and the Sonic Boom in this rewritten version of Sonny Boy Williamson’s “One Way Out.”"
+tags: dr-zoom-and-the-sonic-boom last-night-in-texas
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/album-cover-last-night-in-texas.jpg
+post_id: 35277
+---
 Summer has arrived, and that means it's time to break out the Bruce Springsteen Band recordings!
 
 Why do I associate The Bruce Springsteen Band with summer? No idea–especially when some of their best gigs were in the dead of winter.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Jerry Lee Lewis: Whole Lotta Shakin' Goin' On"
+author: "Ken"
+excerpt: "Twice in the mid-nineties, Bruce and Jerry Lee Lewis tackled Lewis’ first great hit together, and both times they fell short. Let’s take a look and listen to find out why."
+tags: jerry-lee-lewis rock-and-roll-hall-of-fame whole-lotta-shakin-goin-on
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/lottashakin.jpg
+post_id: 17542
+---
 It must be Rockabilly Week here on the Shuffle: A few days ago, we listened to the E Street Band channel Jerry Lee Lewis on "[TV Movie](../2020-05-11_roll-of-the-dice-tv-movie/post.md);" today, we'll check out a time they shared a stage together.
 
 "Whole Lotta Shakin' Goin' On" may not be Lewis' greatest hit (his follow-up single would earn that distinction), but it was his first one. Released in the spring of 1957 and topping both the Billboard R&B and Country charts (it peaked at #3 on the Hot 100), the risque "Whole Lotta Shakin' Goin' On" made Lewis an instant celebrity.

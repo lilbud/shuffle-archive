@@ -1,3 +1,13 @@
+---
+layout: post
+title: "No Need"
+author: "Ken"
+excerpt: "“No Need” is melodramatic, at times bordering on overwrought, but it offers fascinating insight into a young artist at a pivotal point in his journey."
+tags: no-need
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/noneed-1.jpg
+post_id: 4268
+---
 In April of 1972, Bruce began recording demos with Jim Cretecos. (Bruce would sign on with Cretecos and Mike Appel in May.)
 
 One of those songs–recorded sometime between April and July of that year–was the ironically named "No Need."

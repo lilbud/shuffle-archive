@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 28"
+author: "Ken"
+excerpt: "London Calling: Live in Hyde Park is filmed on this date, as is Bruce’s video for “Dancing in the Dark.” Plus: a stormy night in Milan on the Rising Tour, a 1993 bar gig and more."
+tags: berlin born-to-run brian-fallon castiles clarence-clemons dancing-in-the-dark devils-and-dust-tour gaslight-anthem germany hungry-heart hyde-park italy london london-calling-live-in-hyde-park milan new-york-city paradise rising-tour rosalita rotterdam springsteen-on-broadway the-59-sound the-netherlands tunnel-of-love-tour uk wolfgang-niedecken
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/bruce-springsteenjpg-3ece188d0fb51648.jpg
+post_id: 57514
+---
 **1968:** The Castiles headline at the West End Casino in Long Branch, New Jersey.<br>
 
 **1973:** David Sancious rejoins the band as recording sessions continue for Bruce's second album at 914 Sound Studios in New York City. Listen to an early take of "New York City Serenade" from this session below.<br>

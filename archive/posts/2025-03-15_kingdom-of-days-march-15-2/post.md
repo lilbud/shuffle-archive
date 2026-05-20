@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 15"
+author: "Ken"
+excerpt: "Bono inducts Bruce into the Hall of Fame, Bruce speaks and performs at SXSW, and more on a busy date in Springsteen history."
+tags: alejandro-escovedo arcade-fire austin backstreets binghamton bono boston eric-burdon garland-jeffreys hall-of-fame in-the-midnight-hour jackson-browne jimmy-cliff joe-ely lawsuit-tour let-it-be los-angeles paul-mccartney river-tour-2016 sxsw tenth-avenue-freeze-out the-low-anthem the-promised-land tom-morello
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/42731839530_3e1a5e948a_o.jpg
+post_id: 56175
+---
 ***New for 2025:** New entry for 1978, 2010, and 2024*<br>
 
 **1973:** Bruce and the band play their fourth of seven nights at Oliver's in Boston.<br>

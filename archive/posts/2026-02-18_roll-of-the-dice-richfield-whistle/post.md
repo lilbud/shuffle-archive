@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Richfield Whistle"
+author: "Ken"
+excerpt: "A year after recording “James Lincoln Deere,” Bruce revisits his anti-hero and crafts a much strong and grayer tale."
+tags: james-lincoln-deere richfield-whistle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/whistle.jpeg
+post_id: 39588
+---
 Let's pick up the story.
 
 In "Richfield Whistle," Bruce Springsteen revisited James Lucas and family, some time after the events of "Jim Deer." The backdrop is the same, as are the economic circumstances.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "August 10"
+author: "Ken"
+excerpt: "On this date: The Castiles play their final show, Bruce’s 1972 performance at Max’s Kansas City is captured on video, and Bruce’s eleven-night World Tour 1992 Meadowlands stand wraps up in style. More highlights inside."
+tags: born-to-run-tour carole-king castiles chimes-of-freedom cleveland darkness-tour devils-and-dust-tour east-ruterford growin-up henry-boy maxs-kansas-city montana new-york-city portland rising-tour rochester solar-circus southside-johnny springsteen-on-broadway the-fanatics the-promised-land toby-scott washington-dc world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/admin-ajax-73.jpg
+post_id: 58367
+---
 **1968:** The Castiles play their final gig ever, one last show at Le Teendezvous in New Shrewsbury, New Jersey. Bruce has already assembled a new band, which will come to be known as Earth.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1968-0810.jpg.webp)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 6"
+author: "Ken"
+excerpt: "Bruce finishes “Born to Run,” says farewell to Jon Stewart on The Daily Show, shoots the video for “Leap of Faith” and records official live performances of “Nebraska,” “No Surrender,” and “Trapped.” Lots of video and audio today."
+tags: backstreets beaver-brown bobby-bandiera born-in-the-usa-tour born-to-run castiles county-fair daily-show devils-and-dust-tour east-rutherford jeff-porcaro joe-grushecky jon-stewart land-of-hope-and-dreams lawsuit-tour leap-of-faith live-1975-85 nebraska no-surrender pittsburgh red-bank reunion-tour rising-tour robbin-thompson rolling-stone st-louis streets-of-fire the-essential-bruce-springsteen trapped washington-dc we-are-the-world world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1984-08-06-east-rutherford-nj.jpg
+post_id: 57911
+---
 ***New for 2025:** Audio for 1984*<br>
 
 **1966:** The Castiles play a teen dance at the Harris Gardens Firehouse in Union Beach, New Jersey.<br>

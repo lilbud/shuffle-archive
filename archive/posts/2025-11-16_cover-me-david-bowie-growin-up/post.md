@@ -1,3 +1,13 @@
+---
+layout: post
+title: "The David Bowie Covers"
+author: "Ken"
+excerpt: "David Bowie recorded a tremendous cover of Bruce’s “Growin’ Up” back in 1973, but it languished in the vaults for 17 years before it saw the light of day. Take a listen inside."
+tags: david-bowie growin-up
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/bowiegrowin.jpg
+post_id: 6861
+---
 In the summer of 1973, mere months after Bruce first recorded it himself, David Bowie recorded a cover of “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” for his forthcoming *Pin Ups* album*.*
 
 When it came time to sequence the final album, though, “Growin’ Up” didn’t make the cut. That’s too bad, because Bowie’s version is fantastic–true to the original’s rebellious spirit, but with a very Bowie-esque arrangement and performance.

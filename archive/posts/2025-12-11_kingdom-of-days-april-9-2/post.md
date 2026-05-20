@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 9"
+author: "Ken"
+excerpt: "On this date: The Reunion Tour finally kicks off, Bruce works out a new song called “Devils & Dust” at a 2003 soundcheck, and the E Street Band plays a surprise concert at Colgate University. More highlights and great video inside."
+tags: 4th-of-july-asbury-park-sandy badlands barcelona beaver-brown boston chicken-scratch-tour child colgate-university devils-dust hear-the-world-foundation kansas-city my-love-will-not-let-you-down new-york-city out-in-the-street reunion-tour rising-tour river-tour rosalita-come-out-tonight sacramento spain west-berlin west-germany wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/Bruce_Springsteen_joins_Hear-the-world-as-ambassador-1.jpg
+post_id: 56404
+---
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/19690402_Advert_02.jpg.webp)

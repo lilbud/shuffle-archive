@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and The Shots: Farther Up the Road"
+author: "Ken"
+excerpt: "One time only: Bruce teams up with Stone Pony house band The Shots for a cover of Bobby “Blue” Bland’s seminal Texas shuffle standard."
+tags: bobby-blue-bland eric-clapton farther-up-the-road the-shots
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/fartherup.jpg
+post_id: 26261
+---
 I think we're gonna have to take this one on faith.
 
 On the night of September 4, 1977, Bruce Springsteen made an unannounced guest appearance at The Stone Pony with the club's new house band, The Shots.

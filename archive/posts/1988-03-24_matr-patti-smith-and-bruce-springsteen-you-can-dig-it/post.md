@@ -1,3 +1,13 @@
+---
+layout: post
+title: "You Can Dig It"
+author: "Ken"
+excerpt: "One night only: Bruce sits in with The Patti Smith Group on guitar for Patti’s improvisational “You Can Dig It.”"
+tags: patti-smith you-can-dig-it
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/1976-11-26-You-Can-Dig-It-Front.jpg
+post_id: 9734
+---
 Let’s take another trip back to the remarkable night of Friday, November 26, 1976 at the Bottom Line club in New York City.
 
 That night, The Patti Smith Group plays two shows, and Bruce is there for both of them, joining the band on both guitar and piano several times during the evening.

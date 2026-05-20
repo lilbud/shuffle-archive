@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "East Carson Street"
+author: "Ken"
+excerpt: "Bruce plays guitar on the title track of Joe Grushecky’s 2009 album, but even without Bruce’s contribution, “East Carson Street” is a great song about staying true to one’s roots."
+tags: east-carson-street joe-grushecky-and-the-houserockers
+categories: cover-me meeting-across-the-river
+post_id: 18899
+---
 Among the many similarities between Bruce Springsteen and Joe Grushecky: they both have deep roots. If Bruce is inseparably associated with New Jersey, Joe is the musical avatar of Pittsburgh.
 
 Joe's deep attachment to Pittsburgh is evident in his music and in his deep attachment to his hometown. Unlike Bruce, who sojourned for a while in Southern California, Joe remains steadfastly rooted to the Iron City.

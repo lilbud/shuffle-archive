@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Sugar and The Mint: Born to Run"
+author: "Ken"
+excerpt: "Don’t let the acoustic instruments fool you–this folk/bluegrass string quintet knows how to rock Bruce’s iconic anthem."
+tags: born-to-run sugar-and-the-mint
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/sugarmint.jpg
+post_id: 32349
+---
 Okay, sure, we've all heard acoustic arrangements of "Born to Run" before.
 
 But a full-band acoustic cover that's just as joyous and rocking as a full-on electric version? That's new.

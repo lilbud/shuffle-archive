@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Lowlands: Soul Driver"
+author: "Ken"
+excerpt: "Let’s continue our spotlight series on covers of lesser-known Springsteen songs by turning our attention to Human Touch as we celebrate its 30th anniversary this…"
+tags: for-you-2 lowlands soul-driver
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/lowlands.jpg
+post_id: 33666
+---
 Let's continue our spotlight series on covers of lesser-known Springsteen songs by turning our attention to *Human Touch* as we celebrate its 30th anniversary this week.
 
 *Human Touch* is full of overlooked gems, largely (I would argue) because its heavy-handed production tends to overpower the songs themselves. And on an album of deep cuts, "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)" is one of the deepest.

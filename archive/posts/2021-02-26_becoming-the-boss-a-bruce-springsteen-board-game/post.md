@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Becoming The Boss: A Bruce Springsteen Board Game"
+author: "Ken"
+excerpt: "Introducing a free-to-all Bruce Springsteen board game and love letter to Jersey Shore music scene. Here’s my interview with the designers of Becoming The Boss."
+tags: becoming-the-boss
+categories: spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/btb.png
+post_id: 25626
+---
 I didn't know the world needed a Springsteen-themed board game, but Søren Kitaj and Knud Jønsson did.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/IMG_4631-scaled.jpg.webp)
@@ -10,11 +20,11 @@ In *Becoming The Boss*, players get to live (or relive) the early days of the As
 
 But despite its name and inspiration, it would be a misrepresentation to classify the game purely as Bruce biography. In *Becoming The Boss*, Søren and Knud have crafted a loving tribute to the entire Jersey Shore music scene of the early 1970s. With its vivid cast of characters chasing their dreams across a romantic landscape of legendary locales, the mythology of the Jersey Shore translates perfectly to the gaming table.
 
-All the major players are included...
+All the major players are included…
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/playersteve.png.webp)
 
-...and the supporting players, too.
+…and the supporting players, too.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/player-vini.png.webp)
 
@@ -48,7 +58,7 @@ In short: they put the story first, and the gameplay second. They admit to havin
 
 Still, as Søren notes, "It was important to us not to not give any advantage to those who know him better than others," so while devoted fans will likely derive more enjoyment from the game, when it comes to gameplay, even the uninitiated have a fighting chance to win the game. There's a fair bit of strategy required, but just like in Asbury Park at the time, "you need a bit of luck and magic to make it happen."
 
-The basic game came together quickly. Like Bruce's classic albums, though, refining the gameplay took more than a year. "We very quickly had down what we needed," said Knud, "and then the rest of it has just been playing the game over and over and finding out, oh man you win every time if you do this, we need to do something about it. All little changes and refining, what outtakes should be in, what non-E Street members should be in..." Søren concurs: "Ninety percent of it came quick, but the last ten percent took a lot of time."
+The basic game came together quickly. Like Bruce's classic albums, though, refining the gameplay took more than a year. "We very quickly had down what we needed," said Knud, "and then the rest of it has just been playing the game over and over and finding out, oh man you win every time if you do this, we need to do something about it. All little changes and refining, what outtakes should be in, what non-E Street members should be in…" Søren concurs: "Ninety percent of it came quick, but the last ten percent took a lot of time."
 
 Some of the simplifications were painful, but the guys kept their focus on the balance between lore and gameplay. Says Knud: "The last six months were basically us asking: can we make it simpler? Easier? For example, the first battle of the bands was immensely complex. You had to flip coins like 25 times to find out who won."
 
@@ -56,7 +66,7 @@ The game was released in January after a total of eighteen months in development
 
 Plan to spend as much time playing the game as you would at an E Street Band concert, though. Two players will take about three hours to make it through the game. Søren and Knud once played with four and didn't quite finish even after five hours. But Bruce didn't take the shortcut to success, so why should players?
 
-When asked if they'd ever considered abbreviating the game for, say, one-hour gameplay, Knud flatly answered, "No. That is not the game we are trying to make. It's not for people who think 'Born in the U.S.A.' is Springsteen's best track. It's for people who think it's a lot of fun when you pull up that event card" and understand the reference.
+When asked if they'd ever considered abbreviating the game for, say, one-hour gameplay, Knud flatly answered, "No. That is not the game we are trying to make. It's not for people who think ‘Born in the U.S.A.' is Springsteen's best track. It's for people who think it's a lot of fun when you pull up that event card" and understand the reference.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/inspiration.png.webp)
 

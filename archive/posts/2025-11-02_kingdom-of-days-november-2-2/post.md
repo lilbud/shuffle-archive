@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 2"
+author: "Ken"
+excerpt: "On this date: “Working on a Dream” makes its debut, Bruce headlines a Hurricane Sandy telethon, and the first of several Seeger Sessions. More highlights inside."
+tags: barack-obama billy-joel born-in-the-usa-tour born-to-run darkness-tour garland-jeffreys gary-u-s-bonds hurricane-sandy incident-on-57th-street jimmy-fallon joe-grushecky johnny-bye-bye land-of-hope-and-dreams lawsuit-tour light-of-day los-angeles magic-tour new-york-city pete-seeger philadelphia pink-cadillac prove-it-all-night sea-bright seeger-sessions springsteen-on-broadway st-paul steven-tyler stolen-car the-rising thunder-road under-the-boardwalk washington-dc working-on-a-dream working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/20121102_2_front.jpg
+post_id: 61268
+---
 ***New for 2025:** New entry for 1977; article for 1978; review for 2007*<br>
 
 **1974:** Bruce and the E Street Band play their second of two nights at the Tower Theater in Upper Darby, Pennsylvania. We can forgive the reviewer for mis-identifying "Jungle Man," since the song is still almost a year from being released.<br>

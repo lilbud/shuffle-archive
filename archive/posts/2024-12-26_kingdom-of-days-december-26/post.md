@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 26"
+author: "Ken"
+excerpt: "Bruce makes his first guest appearance with Patti Smith, and Patti Scialfa misses her first Broadway show with Bruce."
+tags: new-york-city patti-scialfa patti-smith springsteen-on-broadway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/patti-smith-and-bruce-springsteen-99.jpg
+post_id: 55390
+---
 **New for 2024:** No updates<br>
 
 **1975:** Bruce drops by the Bottom Line in New York City to catch Patti Smith's late show, providing backing vocals for "[Gloria](../2018-03-16_cover-me-gloria/post.md)."<br>

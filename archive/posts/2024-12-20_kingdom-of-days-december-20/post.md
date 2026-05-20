@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 20"
+author: "Ken"
+excerpt: "Listen to a 1974 interview, a legendary ’78 concert, and watch a 1994 holiday show appearance–all from this date."
+tags: bobby-bandiera born-to-run-tour canada darkness-tour earth father-bill-ayres holiday-shows ontario ottawa seattle springsteen-on-broadway tim-mcloone
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/19781220_3_front.jpg
+post_id: 55371
+---
 ***New for 2024:** Audio for 1978; new entry for 2005*<br>
 
 **1968:** Earth plays two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.<br>

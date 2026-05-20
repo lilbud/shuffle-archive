@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 24"
+author: "Ken"
+excerpt: "A relatively quiet day in Bruce history, with no gigs on this date after 1974–just a few Grammy losses."
+tags: bryn-mawr steel-mill the-main-point
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/33977641398_d1412efa83_o.jpg
+post_id: 56000
+---
 **1970:** Steel Mill plays a final California gig at the College of Marin and then hurries home by car across the country to make a gig in Virginia three days later.<br>
 
 **1973:** Bruce had planned this day to be the start of a two-week stint opening for Paul Butterfield’s Better Days, but most of the tour is cancelled for poor ticket sales. Unfortunately, Bruce and the band are already in Los Angeles when they learn this.<br>

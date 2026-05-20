@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Waitin' on a Sunny Day"
+author: "Ken"
+excerpt: "“Waitin’ on a Sunny Day” is one of Bruce’s most misunderstood songs, but understanding it isn’t really the point. Let’s take a close listen to one of Bruce’s most divisive songs."
+tags: the-rising vh1-storytellers waitin-on-a-sunny-day
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/waitin.jpg
+post_id: 12717
+---
 > "Pure pop songwriting is a lot of fun. It's fun to play with the words in a simple fashion…. There's not much else to say about those, they speak for themselves." *–Bruce Springsteen, April 4, 2005*
 
 Much of Bruce's catalog invites analysis and interpretation. His albums are full of songs layered with enough meaning, nuance, and subtext to inspired college classes and obsessive blogs (like this one).

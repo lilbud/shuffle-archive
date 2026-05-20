@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Shackled and Drawn"
+author: "Ken"
+excerpt: "Part work song, part call to action, and one of Bruce’s best and most Springsteenian songs, “Shackled and Drawn” is also Bruce’s best show opener ever."
+tags: lyn-collins me-and-my-baby-got-our-own-thing-going shackled-and-drawn wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/shackled.jpg
+post_id: 19324
+---
 What's your favorite Springsteen song? Favorite tour? Favorite album? Favorite cover?
 
 I get asked questions like those all the time by fellow fans. I'm never confident in my answers, though, because my preferences can change from day to day.

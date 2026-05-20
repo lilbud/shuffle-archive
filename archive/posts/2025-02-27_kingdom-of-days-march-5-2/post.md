@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 5"
+author: "Ken"
+excerpt: "On this date in history: Bruce plays “Fade Away” for the last time for almost a quarter-century. More highlights inside."
+tags: indianapolis lawsuit-tour orlando reunion-tour river-tour wrecking-ball
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-05-st.-paul-mn-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56096
+---
 ***New for 2025:** Video for 2023*<br>
 
 **1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.<br>
@@ -10,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1977-03-05.jpg.webp)
 
-**1981:** At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play “[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)” for the last time until 2005.<br>
+**1981:** At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)" for the last time until 2005.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DteacuKH)
 
@@ -28,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1999-03-05a.jpg.webp)
 
-**2001:** “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)” and “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” are both certified gold by the Recording Industry Association of America.<br>
+**2001:** "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" and "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" are both certified gold by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
@@ -38,12 +48,12 @@
 
 [Watch on Youtube: Working On A Dream](https://www.youtube.com/playlist?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
-**2023:** Bruce and the E Street Band bring their World Tour to Saint Paul, where they tour premiere “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)” and “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md).”<br>
+**2023:** Bruce and the E Street Band bring their World Tour to Saint Paul, where they tour premiere "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" and "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen- Pay Me My Money Down - St Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=QFvxomhYioc)
 
 [Watch on Youtube: Bruce Springsteen - Last Man Standing - St. Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=loLoscZVRzI)
 
-[Watch on Youtube: Bruce Springsteen](https://www.youtube.com/watch?v=_1zgH3SsaT0)
+[Watch on Youtube: Bruce Springsteen "Badlands" Saint Paul,Mn 3/5/23](https://www.youtube.com/watch?v=_1zgH3SsaT0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Star_Tribune_Mon__Mar_6__2023_.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg.webp)

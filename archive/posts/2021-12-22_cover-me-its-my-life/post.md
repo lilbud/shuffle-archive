@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: It's My Life"
+author: "Ken"
+excerpt: "Years before Darkness on the Edge of Town, Bruce gave his fans a glimpse at his dark side with his stunning cover of The Animals’ “It’s My Life.”"
+tags: its-my-life the-animals
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/itsmylife.jpg
+post_id: 29805
+---
 It must have been a shock to the audience the first time Bruce first covered "It's My Life" in concert.
 
 For much of the Born to Run Tour, Bruce had been in full-on romantic mode, barreling from "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" into "Born to Run" (at this point still a mid-set number) into "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)." Some nights he'd mix it up–maybe swap out "Pretty Flamingo" for "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" or a slow, mythic "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)." But the vibe was consistent: larger-than-life, larger-than-love, unbridled romanticism.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Gotta Be Free"
+author: "Ken"
+excerpt: "Short on lyrics, long on guitar jams, “I Gotta Be Free” is an early Springsteen original from his Steel Mill period with a mid-song cover of The Grateful Dead’s “Turn on Your Love Light.”"
+tags: i-gotta-be-free steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/free.jpg
+post_id: 10928
+---
 "I Gotta Be Free" was a late-set guitar showcase during the Robbin Thompson period of Steel Mill.
 
 While the band never recorded it, we're fortunate to have a couple of surviving concert recordings. Take a listen below–that's Robbin you'll hear on lead vocals, with Bruce strutting his stuff on guitar. But about halfway through, the band segues into a cover of The Grateful Dead's "Turn on Your Love Light" with Bruce on lead vocals before circling back to finish the song. (As far as we know, every "I Gotta Be Free" performance included this mid-song cover.)

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Little Queenie"
+author: "Ken"
+excerpt: "Are you loose? Bruce certainly was, the first time the E Street Band covered Chuck Berry’s 1959 classic, “Little Queenie.”"
+tags: bomb-scare-show chuck-berry little-queenie milwaukee philadelphia st-louis
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/0x1900-000000-80-0-0.jpg
+post_id: 6213
+---
 There Bruce was: biding time at the bar of the Hotel Pffffffffister, when he was supposed to be on stage playing.
 
 When a bomb threat disrupted his show at the Uptown Theater in Milwaukee on the evening of October 2, 1975, Bruce and the band were forced to take a *three hour* intermission only seven songs into the show.

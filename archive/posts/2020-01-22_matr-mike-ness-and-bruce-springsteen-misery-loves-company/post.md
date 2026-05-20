@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Mike Ness and Bruce Springsteen: Misery Loves Company"
+author: "Ken"
+excerpt: "Mike Ness has played with Bruce on stage on several occasions, but they only collaborated in the studio once. Listen to their “Misery Loves Company” inside."
+tags: mike-ness misery-loves-company
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/misery.jpg
+post_id: 15115
+---
 Bruce Springsteen may have been a Mike Ness fan before Ness was a Springsteen fan.
 
 Ness confesses to getting turned on to Bruce much later in life when he had the chance to take in one of Bruce's concerts. Bruce, however, has been a fan of Ness' band Social Distortion since the early '90s. ("How did this guy even hear of us?" Ness once wondered to an interviewer.)

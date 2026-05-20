@@ -1,3 +1,12 @@
+---
+layout: post
+title: "MatR: Bruce Hornsby and Bruce Springsteen, The End of the Innocence"
+author: "Ken"
+excerpt: "Bruce meets Bruce when Messrs. Hornsby and Springsteen team up on a gorgeous, twice-only cover of Don Henley’s “The End of the Innocence.”"
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/96-Don-Henley-End-of-the-Innocence.jpg
+post_id: 12004
+---
 Most people associate "The End of the Innocence" with Don Henley, who scored one of the biggest hits of 1989 (peaking at #8 on the Billboard Hot 100) with it when he released it as the lead single and title track from his third solo album.
 
 https://www.youtube.com/watch?v=jVm1zSZps58&pp=ygUfZG9uIGhlbmxleSBlbmQgb2YgdGhlIGlubm9jZW5jZQ%3D%3D
@@ -10,7 +19,7 @@ Oh, sorry–I should have clarified: Bruce *Hornsby* is the co-writer/co-produce
 
 But that doesn't mean the song doesn't have a connection to Bruce *Springsteen* too.
 
-In December 2001, Bruce reprised his highly successful "...and friends" holiday/community benefit shows in Asbury Park, and this time in addition to the usual suspects, the roster included two guest appearances by Bruce Hornsby.
+In December 2001, Bruce reprised his highly successful "…and friends" holiday/community benefit shows in Asbury Park, and this time in addition to the usual suspects, the roster included two guest appearances by Bruce Hornsby.
 
 Among the songs the Bruces performed together was Hornsby and Henley's "The End of the Innocence," backed by the Max Weinberg 7. Lyrically, the song was tailor-made for both Bruces, and both turned in smooth vocals laced with poignancy and memory. Take a listen:
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 11"
+author: "Ken"
+excerpt: "On this date: the E Street Band premiere of “Brothers Under the Bridge,” an early version of “Devils & Dust,” and pro-shot Verona footage from 1993."
+tags: atlanta barcelona big-mans-west born-in-the-usa-tour boston brothers-under-the-bridge canada child devils-and-dust gotj-tour italy japan jimmy-cliff john-eddie milan new-york-city reunion-tour rising-tour river-tour spain springsteen-on-broadway steel-mill stone-pony switzerland tokyo tougher-than-the-rest upstage vancouver verona word-tour-1993 zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/2023-04-11-elmont-ny-belmont-park-long-island-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56432
+---
 ***New for 2025:** New entry for 1978, 1979, and 1980; video for 2023*<br>
 
 **1969:** Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.<br>

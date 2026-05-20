@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Revivalists: Born to Run"
+author: "Ken"
+excerpt: "When The Revivalists played their first post-pandemic shows at Red Rocks, there was only one song that deserved to be their final encore."
+tags: born-to-run the-revivalists
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/Born-To-Run-THumbnail.jpg
+post_id: 28459
+---
 When your band plays its first shows in over a year...
 
 When that year has felt like a death trap...

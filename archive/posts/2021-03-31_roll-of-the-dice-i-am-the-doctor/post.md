@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Am the Doctor"
+author: "Ken"
+excerpt: "Even way back in the Steel Mill era, Bruce leavened his sets with occasional pop trifles like this one."
+tags: i-am-the-doctor steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/iamdoctor.jpg
+post_id: 26078
+---
 Steel Mill was known for its heavy sound, pointed lyrics, and extended guitar jams.
 
 But there were exceptions.

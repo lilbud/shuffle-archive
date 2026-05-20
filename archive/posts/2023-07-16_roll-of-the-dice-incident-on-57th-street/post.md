@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Incident on 57th Street"
+author: "Ken"
+excerpt: "Most artists spend their career working toward a pinnacle like “Incident in 57th Street.” Bruce recorded his on his 24th birthday."
+tags: dave-sancious garry-talent incident-on-57th-street live-in-barcelona suki-lahav vini-lopez war-ep
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/incident.jpg
+post_id: 5817
+---
 Bruce recorded "Incident on 57th Street" on his 24th birthday.
 
 Let that sink in while you listen to what is arguably Bruce's first songwriting masterpiece:

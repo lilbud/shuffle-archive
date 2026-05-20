@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 2"
+author: "Ken"
+excerpt: "An E Street “sneak attack,” a self-spoofing Bruce, and a pair of guest-starring Joes highlight this day in Springsteen history."
+tags: all-just-to-get-to-you atlanta auckland austin because-the-night berkeley canada castiles england ghost-of-tom-joad-tour hampton high-hopes-tour jimmy-fallon joe-ely joe-grushecky jungleland lawsuit-tour magic-tour montreal new-zealand newcastle pittsburgh rising-tour river-tour royals sexy-and-i-know-it springsteen-on-broadway stone-pony tom-morello uk war
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/sexy.jpg
+post_id: 56071
+---
 ***New for 2025:** Advertisement for 1974*<br>
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>

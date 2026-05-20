@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Phantom Love (Just 16)"
+author: "Ken"
+excerpt: "Let’s take another trip into the Bruce’s notebook archive and look at an early work-in-progress that never made it to a full song."
+tags: notebook phantom-love-just-16
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/phantomlove.jpg
+post_id: 19806
+---
 For every song that escapes, another never even makes it out of the notebook.
 
 Today we take another trip back into young Bruce Springsteen's songwriting notebook. While today's entry is undated, lyrically it seems in keeping with Bruce's post Steel Mill but pre-label days, so let's peg it to the early 1970s.
@@ -12,20 +22,20 @@ Only the "phantom love" phrase appears in the lyrics themselves, though, so let'
 
 Bruce also seems to be having trouble with the first verse, scratching out phrases, overwriting and adding parentheticals to a point that makes it almost impossible to determine what he intended as the final product:
 
-> *Phantom love I will chase in exile down St. Christopher*
-> *Without armor or audience (fancy studs) till your beast lover (lover men) turn child*
-> *In search of a softer quieter lie*
-> *She moves in a ballerina suit tight and quick*
-> *I'm steppin' in buckle boots slick and sharp*
+> *Phantom love I will chase in exile down St. Christopher*<br>
+> *Without armor or audience (fancy studs) till your beast lover (lover men) turn child*<br>
+> *In search of a softer quieter lie*<br>
+> *She moves in a ballerina suit tight and quick*<br>
+> *I'm steppin' in buckle boots slick and sharp*<br>
 
 What we can make out appears to be the beginning of a would-be romance between lovers from different worlds. The second verse is clearer and more confident, though. The phrase "softer, quieter lie" appears to be a recurring theme, a nice notion for a pair that seem to *want* to be in love but can't quite manage to get there.
 
-> *Chase the little hood down through the fire wood*
-> *And we'll walk together once again in search of that softer quieter lie*
-> *And I'll really believe that I want you*
-> *And you'll really believe you need me*
+> *Chase the little hood down through the fire wood*<br>
+> *And we'll walk together once again in search of that softer quieter lie*<br>
+> *And I'll really believe that I want you*<br>
+> *And you'll really believe you need me*<br>
 
-> *Did I tell you, Bobby, I got me a phantom love*
+> *Did I tell you, Bobby, I got me a phantom love*<br>
 
 That's all we get. As far as we know, "Phantom Love (Just 16)" never evolved into anything more; not a single phrase appears elsewhere in Bruce's catalog.
 

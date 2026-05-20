@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Tragedy"
+author: "Ken"
+excerpt: "From Emmylou Harris’ Grammy-winning album Red Dirt Girl comes the graceful “Tragedy,” with restrained, haunting background vocals by Bruce and Patti. We’ve featured Emmylou on the…"
+tags: emmylou-harris patti-scialfa red-dirt-girl tragedy
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/emmy.jpg
+post_id: 262
+---
 From Emmylou Harris' Grammy-winning album *Red Dirt Girl* comes the graceful "Tragedy," with restrained, haunting background vocals by Bruce and Patti.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jf7BSf5ezUY)

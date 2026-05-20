@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Life Itself"
+author: "Ken"
+excerpt: "“Life Itself” bridges the themes of Magic and Working on a Dream–a neat trick in itself."
+tags: life-itself magic working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/lifeitself_sin.jpg
+post_id: 1278
+---
 Little known fact: "Life Itself" was actually released ahead of Bruce's *Working on a Dream* album, along with the video below. "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)" (the single) and "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)" also received the pre-release treatment, and both garnered much more attention than "Life Itself."
 
 That's too bad, because "Life Itself" is clearly the most complex and mature song of the three, and it deserved more airplay than it received.

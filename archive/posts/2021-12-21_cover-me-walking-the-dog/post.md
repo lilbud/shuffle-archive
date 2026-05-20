@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Walking the Dog"
+author: "Ken"
+excerpt: "The early E Street Band had a lot in common with the late Bruce Springsteen Band, and nowhere was that more apparent than in their cover of Rufus Thomas’ “Walking the Dog.”"
+tags: rufus-thomas the-rolling-stones walking-the-dog
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/walkingdog-1.jpg
+post_id: 22427
+---
 It's tempting to define Bruce's early career as a series of eras characterized by the band Bruce belonged to at the time. From the mid-1960s to the early 1970s, Bruce travelled from The Castiles to Earth to Child to Steel Mill to The Bruce Springsteen Band (with a Dr. Zoom and the Sonic Boom dalliance and a Sundance Blues Band detour) before finally convening the original E Street Band in late 1972.
 
 But any reasonably close inspection of Bruce's bands from Child onward reveals that there was a whole lot of E Street from Bruce's earliest days. Vini Lopez and Danny Federici were founding members of Child in 1968; Steve Van Zandt joined them in Steel Mill in 1970; and Garry Tallent and David Sancious enlisted in the Bruce Springsteen Band in 1971.

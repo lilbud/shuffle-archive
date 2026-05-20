@@ -1,3 +1,13 @@
+---
+layout: post
+title: "March 18"
+author: "Ken"
+excerpt: "Bruce meets Patti, kicks off the Wrecking Ball tour, makes a guest appearance with Dropkick Murphys, plays the first public gig with the reunited E Street Band, and more on this VERY busy day in Bruce history."
+tags: asbury-park atlanta australia badlands boston bruce-springsteen-band castiles dallas dropkick-murphys follow-that-dream lawsuit-tour memphis new-haven patti-scialfa peg-o-my-heart reunion-tour sha-na-na sufferin-in-the-land sydney working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-18-penn-state-pa-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56190
+---
 **1967:** The Castiles play The Cage in Middletown, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1967-0318.jpg.webp)

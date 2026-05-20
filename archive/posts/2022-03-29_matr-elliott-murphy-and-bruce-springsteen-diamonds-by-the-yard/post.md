@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Elliott Murphy and Bruce Springsteen: Diamonds by the Yard"
+author: "Ken"
+excerpt: "One time only: Elliott Murphy joins Bruce on stage in Paris for an acoustic duet on Elliott’s 1976 epic."
+tags: diamonds-by-the-yard elliott-murphy
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/diamonds.jpg
+post_id: 33512
+---
 In their early years, Bruce Springsteen and Elliott Murphy were often compared, each receiving the "New Dylan" sobriquet at one time or another. They were friends back then, too–as far back as their first meeting at Max's Kansas City in 1973, where they struck up an instant and lifelong friendship.
 
 Surprisingly, though, they never played together on stage until 1992, when Bruce's World Tour took him to Paris, where Elliott was now living. They only played one song that night (Elliot's "[Rock Ballad](../2021-08-24_matr-elliot-murphy-and-bruce-springsteen-rock-ballad/post.md)"), but that was all it took to set a precedent, and from that point forward whenever Bruce was in Paris for a gig, you'd likely find Murphy on stage with him at some point during the show.

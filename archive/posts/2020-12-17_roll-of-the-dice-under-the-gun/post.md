@@ -1,14 +1,24 @@
+---
+layout: post
+title: "Roll of the Dice: Under the Gun"
+author: "Ken"
+excerpt: "“Under the Gun” donated its lyrics to “The River” and “Wreck on the Highway” but there’s still a terrific rocker hiding away in the vault somewhere. Let’s trace its evolution to get a sense of what the final song might promise."
+tags: under-the-gun
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/underthegun.jpg
+post_id: 22423
+---
 For all the outtakes that Bruce has released from the River recording sessions, there are *still* more in the vault waiting for their author to rediscover them.
 
-One of the most intriguing and elusive outcasts is "Under the Gun" — intriguing because it contains lyrics that would migrate to two officially released songs, and elusive because there are so many bootleg recordings of Bruce developing it, from his earliest melodic tinkering at home...
+One of the most intriguing and elusive outcasts is "Under the Gun" — intriguing because it contains lyrics that would migrate to two officially released songs, and elusive because there are so many bootleg recordings of Bruce developing it, from his earliest melodic tinkering at home…
 
 [Watch Video Highlight](https://videopress.com/embed/VBnmRayT)
 
-...to acoustic home demos with lyrics that progress from mostly bluffed to halfway complete...
+…to acoustic home demos with lyrics that progress from mostly bluffed to halfway complete…
 
 [Watch Video Highlight](https://videopress.com/embed/7hfo41fX)
 
-...to almost-ready-for-the-studio band rehearsals.
+…to almost-ready-for-the-studio band rehearsals.
 
 [Watch Video Highlight](https://videopress.com/embed/7OEmFUYM)
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Twenty More Miles"
+author: "Ken"
+excerpt: "Tucked into the end of Steel Mill’s set-closing cover of Richie Havens’ “Run, Shaker Life” is this very under-the-radar Springsteen original."
+tags: steel-mill twenty-more-miles
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/20MILES-LOGO.png
+post_id: 30866
+---
 
 When you endeavor to write about every song an artist ever recorded or performed, that means eventually you have to cover… well, everything. And sometimes, there just isn't a whole lot to say.
 

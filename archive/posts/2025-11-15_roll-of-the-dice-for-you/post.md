@@ -1,3 +1,13 @@
+---
+layout: post
+title: "For You"
+author: "Ken"
+excerpt: "A love song for anyone who’s tried to save someone who couldn’t be saved."
+tags: for-you greetings-from-asbury-park
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/foryou.jpeg
+post_id: 32112
+---
 > "…I fell in obsession with a lovely surfer girl, a drug-taking, hell-raising wild child who played by nobody's rules. She was a perfect antidote to the control freak in me and opened up my hunger for every blond perfect thing I never had. She was so alive, funny and broken, I couldn't resist her. She stirred up my Catholic-school-bred messianic complex, then did the bone-and-heart-crushing dance over it that it deserved. She'd been around a little, California and back, knew a few grade-B-level rock stars, brought them down to ‘discover' my band, then slept with them. I got a handshake and a ‘you guys are great' T-shirt out of the deal." *–Bruce Springsteen, Born to Run (2016)*<br>
 
 Have you ever been in love with the wrong person?

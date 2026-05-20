@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 9"
+author: "Ken"
+excerpt: "It’s a big music video day for Bruce: in Berlin, he teams up with Wolfgang Niedecken for a new “Hungry Heart” video, in Sheffield he shoots the official “Spare Parts” video, and on the Internet, he releases the short film, “Hunter of Invisible Game.”"
+tags: belgium berlin born-in-the-usa-tour bryn-mawr cafe-eckstein cats-on-a-smooth-surface dave-herman east-rutherford gary-u-s-bonds germany hungry-heart hunter-of-invisible-game knocking-on-heavens-door london main-point reunion-tour richfield river-tour river-tour-2016 san-diego save-my-love sheffield spare-parts stone-pony switerland travelin-band tunnel-of-love-tour tw-classic-festival uk wembley werchter wolfgang-niedecken world-tour-1992 wrecking-ball-tour zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/bba81.jpg
+post_id: 57651
+---
 ***New for 2025:** Audio for 1981; new entry for 2013 and 2024*<br>
 
 **1973:** Bruce and the E Street Band headline at The Main Point in Bryn Mawr, Pennsylvania. Bruce is no stranger to having his name misspelled by now, but this is a new one.<br>

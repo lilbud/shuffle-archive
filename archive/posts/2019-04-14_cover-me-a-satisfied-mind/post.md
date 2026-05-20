@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: A Satisfied Mind"
+author: "Ken"
+excerpt: "Bruce covers the classic “A Satisfied Mind” during a 1988 soundcheck."
+tags: a-satisfied-mind
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/porter.jpg
+post_id: 668
+---
 Bruce never officially performed “A Satisfied Mind” in concert, but he did play it during a soundcheck in Atlanta on March 23, 1988–and we’re lucky enough to have a recording of it.
 
 [Watch on Youtube: Bruce Springsteen - SATISFIED MIND 1988 (audio)](https://www.youtube.com/watch?v=R7HMwftP22o)

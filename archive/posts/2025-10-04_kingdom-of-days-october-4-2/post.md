@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 4"
+author: "Ken"
+excerpt: "Suki Lahav and “She’s the One” make their debut on the same night, the Rising Tour wraps up, and Bruce kicks off a mini-tour with Barack Obama. Much more inside."
+tags: asbury-park barack-obama bob-dylan born-to-run-book born-to-run-tour boston cincinnati detroit devils-and-dust-tour garland-jeffreys gary-u-s-bonds growin-up incident-on-57th-street italy laurie-anderson new-york-city peter-wolf philadelphia portland rising-tour river-tour seeger-sessions-tour shea-stadium shes-the-one springsteen-on-broadway suki-lahav the-ties-that-bind-album this-land-is-your-land thunder-road udine willie-nile
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/20081004_front.jpg
+post_id: 61047
+---
 ***New for 2025:** Audio and video for 2006; new entry for 2024*<br>
 
 **1974:** Bruce and the E Street Band play at Avery Fisher Hall in New York City, and the show is of note for several reasons: first, because it features the debut of Suki Lahav, who will join the tour as a regular player a few shows later. Second, because it features the debut (or at least the earliest known performance) of "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)," which actually features lyrics from what will become "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)." Third, the encore is abruptly halted due to the collapse of the front rows of seats–just before Bruce is slated to play what would have been his only performance of "On Broadway."<br>

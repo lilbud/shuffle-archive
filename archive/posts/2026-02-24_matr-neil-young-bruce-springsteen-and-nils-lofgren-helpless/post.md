@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Helpless"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen, Neil Young, and Nils Lofgren perform a beautiful acoustic rendition of Neil’s “Helpless.”"
+tags: crosby-still-nash-and-young helpless neil-young
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/helpless.jpg
+post_id: 22144
+---
 > "Well, it's not literally a specific town so much as a feeling. Actually, it's a couple of towns. Omemee, Ontario, is one of them. It's where I first went to school and spent my ‘formative' years. Actually I was born in Toronto… *I was born in Toronto*… God, that sounds like the first line of a Bruce Springsteen song." — Neil Young, *Mojo*, December 1995
 
 Maybe if Neil Young had set his beloved "Helpless" (first recorded and released by Crosby, Stills, Nash & Young on their 1970 *Deja Vu* album) in Toronto, Bruce would have covered it sooner?

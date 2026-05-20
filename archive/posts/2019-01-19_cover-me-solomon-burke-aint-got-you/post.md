@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Solomon Burke: Ain't Got You"
+author: "Ken"
+excerpt: "The late, great Solomon Burke adapted Bruce’s sweet “Ain’t Got You” into a bombastic country roots romp. The result is a *very* different song. You need to hear this one."
+tags: aint-got-you garry-tallent solomon-burke
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/nashv.jpg
+post_id: 7155
+---
 Turnabout is fair play, I suppose.
 
 I often wonder what artists *really* think when instead of merely covering their songs, or even rearranging them, Bruce changes the lyrics and reinvents the song entirely.
@@ -8,7 +18,7 @@ That is, until I heard the late, great Solomon Burke cover the opening track fro
 
 But I'm not sure that Bruce anticipated where Burke was going to take his song. Not only did Burke completely transform Bruce's original with an infectious country roots arrangement (featuring Garry Tallent on bass–who ironically did not play on the original version), he put his own lyrical stamp on it as well.
 
-For most of the song, the lyric changes are stylistic, better suited to his increasingly over-the-top vocal performance. But after the bridge... well, you'll need to listen for yourself:
+For most of the song, the lyric changes are stylistic, better suited to his increasingly over-the-top vocal performance. But after the bridge… well, you'll need to listen for yourself:
 
 [Watch on Youtube: Ain' got you](https://www.youtube.com/watch?v=zHIT2xZ0Upw)
 
@@ -20,4 +30,4 @@ But like I always say: if you're gonna cover Bruce, be different or be great.
 
 This one is *definitely* different.
 
-As for great... you tell me. What do you think?
+As for great… you tell me. What do you think?

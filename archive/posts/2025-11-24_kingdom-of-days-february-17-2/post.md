@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 17"
+author: "Ken"
+excerpt: "On this date: Bruce meets Nils for the first time and plays with Ronnie Spector and Flo and Eddie."
+tags: australia bruce-willis flo-and-eddie freehold germany ghost-of-tom-joad-tour grin hamburg john-mcenroe lawsuit-tour melbourne nils-lofgren richfield ronnie-spector san-francisco steel-mill stephen-stills
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/spector.jpg
+post_id: 55960
+---
 **1970:** Bruce meets Nils Lofgren for the first time at The Matrix in San Francisco, where both Steel Mill (Bruce’s band) and Grin (Nils’ band) are playing.<br>
 
 **1972:** Bruce plays a solo acoustic show at Freehold Township High School. The set list includes his never-released “[No Need](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/),” and “[Cowboys of the Sea](../2021-09-17_roll-of-the-dice-cowboys-of-the-sea/post.md),” and “[She’s a Woman](../2020-01-24_roll-of-the-dice-shes-a-woman/post.md).”<br>

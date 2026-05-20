@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Rising"
+author: "Ken"
+excerpt: "An anthem cloaked as an elegy, a gospel wrapped in rock, “The Rising” is one of Bruce’s finest, most important, and most superbly crafted songs."
+tags: the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/therising.jpg
+post_id: 22424
+---
 It started as an elegy.
 
 [Watch on Youtube: The Rising](https://www.youtube.com/watch?v=r5_8gpiSotI)
@@ -32,10 +42,10 @@ But we can't properly appreciate "The Rising" without admiring the superb artist
 
 Part of the power of "The Rising" is its immediacy: the story begins in the literal heat of the moment, and Bruce's vocal begins without any introduction or exposition.
 
-> *Can't see nothing in front of me*
-> *Can't see nothing coming up behind*
-> *I make my way through this darkness*
-> *I can't feel nothing but this chain that binds me*
+> *Can't see nothing in front of me*<br>
+> *Can't see nothing coming up behind*<br>
+> *I make my way through this darkness*<br>
+> *I can't feel nothing but this chain that binds me*<br>
 
 On *Storytellers*, Bruce describes the opening verse as set in the netherworld, and the song certainly functions on that level: not quite ready to rise, unable to let go of the earthly realm until we get to bid a proper goodbye to it.
 
@@ -45,19 +55,19 @@ There's even a third level: time. In his final moments, he knows not what lies a
 
 "The Rising" somehow continues to operate on all three levels throughout the entire song.
 
-> *Lost track of how far I've gone*
-> *How far I've gone, how high I've climbed*
-> *On my back's a sixty pound stone*
-> *On my shoulder half mile of line*
+> *Lost track of how far I've gone*<br>
+> *How far I've gone, how high I've climbed*<br>
+> *On my back's a sixty pound stone*<br>
+> *On my shoulder half mile of line*<br>
 
 Climbing flight after flight of stairs through endless smoke carrying the tools of his trade; rising heaven-ward with the burden of his life and tether to his love; navigating an entire life only to reach this one, final moment.
 
 Until this point, the backing track swirls around us disorientingly like smoke or a dream, but now as the chorus enters, the music clarifies, commands, and compels us forward:
 
-> *Come on up for the rising*
-> *Come on up lay your hands in mine*
-> *Come on up for the rising*
-> *Come on up for the rising tonight*
+> *Come on up for the rising*<br>
+> *Come on up lay your hands in mine*<br>
+> *Come on up for the rising*<br>
+> *Come on up for the rising tonight*<br>
 
 Is this God inviting us to enter the afterlife? Is it our hero, saving one last soul in his final moments? Is it a plea for his love to hear his telepathic call and connect with him one last time?
 
@@ -65,50 +75,50 @@ The chorus of "The Rising" is all these things and more.
 
 With our protagonist's dilemma now clearly in view, we retrace his last day.
 
-> *Left the house this morning*
-> *Bells ringing filled the air*
-> *I was wearing the cross of my calling*
-> *On wheels of fire I come rolling down here*
+> *Left the house this morning*<br>
+> *Bells ringing filled the air*<br>
+> *I was wearing the cross of my calling*<br>
+> *On wheels of fire I come rolling down here*<br>
 
 Notable here (and throughout) is the continual stream of imagery and metaphor simultaneously secular and sacred: the fire alarms are also church bells; the cross is the symbol of both fireman and martyr; "wheels of fire" refers to both fire engine and heavenly throne.
 
 A wordless "li li" refrain refuses to let us go; as Bruce explained on *Storytellers*, it exhorts us to stand and sing with him, to not abandon this man to die alone. Because as we enter the bridge, we are in his personal apocalypse, surrounded by helpless humans dying in fire all around him, their eyes reflecting the flames even as their bodies char.
 
-> *There's spirits above and behind me*
-> *Faces gone black, eyes burning bright*
-> *May their precious blood bind me*
-> *Lord as I stand before your fiery light*
+> *There's spirits above and behind me*<br>
+> *Faces gone black, eyes burning bright*<br>
+> *May their precious blood bind me*<br>
+> *Lord as I stand before your fiery light*<br>
 
 The flames have taken him now. We have arrived at The Rising itself, and our hero is granted one last vision of his wife and family, one final time-out-of-time moment of communion.
 
-> *I see you Mary in the garden*
-> *In the garden of a thousand sighs*
-> *There's holy pictures of our children*
-> *Dancing in a sky filled with light*
-> *May I feel your arms around me*
-> *May I feel your blood mix with mine*
-> *A dream of life comes to me*
-> *Like a catfish dancing on the end of my line*
+> *I see you Mary in the garden*<br>
+> *In the garden of a thousand sighs*<br>
+> *There's holy pictures of our children*<br>
+> *Dancing in a sky filled with light*<br>
+> *May I feel your arms around me*<br>
+> *May I feel your blood mix with mine*<br>
+> *A dream of life comes to me*<br>
+> *Like a catfish dancing on the end of my line*<br>
 
 And now we rise.
 
 We rise, and we shed our earthly ties, casting off one by one the emotions, experiences, hardships and richness that make up a life.
 
-> *Sky of blackness and sorrow*
-> *Sky of love, sky of tears*
-> *Sky of glory and sadness*
-> *Sky of mercy, sky of fear*
-> *Sky of memory and shadow*
-> *Your burning wind fills my arms tonight*
-> *Sky of longing and emptiness*
-> *Sky of fullness, sky of blessed life*
+> *Sky of blackness and sorrow*<br>
+> *Sky of love, sky of tears*<br>
+> *Sky of glory and sadness*<br>
+> *Sky of mercy, sky of fear*<br>
+> *Sky of memory and shadow*<br>
+> *Your burning wind fills my arms tonight*<br>
+> *Sky of longing and emptiness*<br>
+> *Sky of fullness, sky of blessed life*<br>
 
 Finally, we reach the gates to the afterlife, where a final chorus both greets us and leaves us.
 
-> *Come on up for the rising*
-> *Come on up lay your hands in mine*
-> *Come on up for the rising*
-> *Come on up for the rising tonight*
+> *Come on up for the rising*<br>
+> *Come on up lay your hands in mine*<br>
+> *Come on up for the rising*<br>
+> *Come on up for the rising tonight*<br>
 
 "The Rising" is both literally and figuratively one of Bruce's darkest songs. It deals with loss, and death and dying in one of the most horrific ways imaginable.
 

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Lonely Teardrops"
+author: "Ken"
+excerpt: "Three times only on the Tunnel of Love Tour, Bruce and the E Street Band closed their shows with a cover of Jackie Wilson’s breakthrough hit."
+tags: jackie-wilson lonely-teardrops
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/lonelyteardrops.jpg
+post_id: 24641
+---
 "Lonely Teardrops" was Jackie Wilson's breakthrough hit, catapulting him to the top of the Billboard R&B chart and into the Top 10 of the Billboard Hot 100 in 1959.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2nEfuE8Pw4U)

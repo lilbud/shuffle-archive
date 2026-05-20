@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Little Mazarn: Dancing in the Dark"
+author: "Ken"
+excerpt: "Little Mazarn’s brand-new cover of Bruce’s biggest hit is one of my favorite “Dancing in the Dark” covers yet. Take a listen inside."
+tags: dancing-in-the-dark little-mazarn
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/mazarn.jpg
+post_id: 10925
+---
 I'm not sure how to describe Little Mazarn's sound; "new age/Appalachian" may be as close as I can get.
 
 It's not worth getting hung up on categories, though, because no matter where you assign it, Little Mazarn's cover of Bruce's "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" is gorgeous, haunting, and unique. It'll stick with you long after the first listen.

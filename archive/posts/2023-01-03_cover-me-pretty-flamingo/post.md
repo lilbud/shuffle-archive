@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Pretty Flamingo"
+author: "Ken"
+excerpt: "In one of his very best covers, Bruce lingers in that very first moment of infatuation."
+tags: manfred-mann pretty-flamingo
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/flamingo.jpg
+post_id: 31243
+---
 > *If he just could… If she just would…*<br>
 
 There's a brief moment at the 1:50 mark of Manfred Mann's "Pretty Flamingo" where Paul Jones breaks with the lyrics for a moment and allows himself a wry, wistful "Ha!"

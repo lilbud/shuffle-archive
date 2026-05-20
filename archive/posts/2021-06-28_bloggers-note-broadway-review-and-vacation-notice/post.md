@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Blogger's Note: Broadway Review and Vacation Notice"
+author: "Ken"
+excerpt: "My first-hand report from Re-opening Night of Springsteen on Broadway, and my first vacation in over 1,270 days."
+tags: springsteen-on-broadway
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/take-a-vacation.jpg
+post_id: 28296
+---
 Has it really been almost a year since my last miscellaneous update?
 
 Apparently it has, and boy has a lot happened since then.

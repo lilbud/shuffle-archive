@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Streets of Philadelphia"
+author: "Ken"
+excerpt: "Bruce’s last great hit was a defining moment for his career and a pinnacle of his songwriting."
+tags: greatest-hits philadelphia streets-of-philadelphia
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/maxresdefault.jpg
+post_id: 27622
+---
 Will the real "Streets of Philadelphia" please stand up?
 
 Is it the one that plays over the opening credits of Jonathan Demme's film, *Philadelphia*?

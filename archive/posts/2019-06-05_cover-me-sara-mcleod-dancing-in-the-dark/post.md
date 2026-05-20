@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Sara McLeod: Dancing in the Dark"
+author: "Ken"
+excerpt: "Daring, edgy, and absolutely fantastic: watch Sara McLeod nail the spirit of Bruce’s greatest hit in an amazing cover performance."
+tags: dancing-in-the-dark sara-mcleod
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Sarah-2BMcLeod.jpg
+post_id: 10185
+---
 Wow, do I love this version of [Bruce's greatest hit](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).
 
 It's both different and great–and arguably an even better arrangement than Bruce's original track.

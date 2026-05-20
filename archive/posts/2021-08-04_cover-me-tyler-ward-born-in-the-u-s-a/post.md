@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tyler Ward: Born in the U.S.A."
+author: "Ken"
+excerpt: "YouTube O.G. superstar finally turns his attention to Bruce’s music, and the result is spectacular."
+tags: born-in-the-u-s-a tyler-ward
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/tyler.jpg
+post_id: 28458
+---
 If you're of a certain age (like me), the idea of discovering new music through a video streaming service is probably a fairly new one, and the name Tyler Ward probably doesn't ring a bell.
 
 But for those savvy enough to flock to YouTube in its early years, Tyler Ward is an O.G. superstar.

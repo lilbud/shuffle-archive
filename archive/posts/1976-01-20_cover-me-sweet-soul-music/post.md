@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Sweet Soul Music"
+author: "Ken"
+excerpt: "Whether spotlighting his heroes or his bandmates, “Sweet Soul Music” is a reliable crowd-pleaser whenever Bruce breaks it out."
+tags: arthur-conley sam-cooke sweet-soul-music yeah-man
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/arthur-conley-sweet-soul-music-atlantic-11.jpg
+post_id: 13916
+---
 "Sweet Soul Music" was one of Bruce's set list staples during the 1980s. He first performed it way back on the River Tour, debuting it in Paris on the evening of April 19, 1981.
 
 [Watch Video Highlight](https://videopress.com/embed/RRqPEpjz)
@@ -32,20 +42,20 @@ When Bruce put the E Street Band on hiatus after the Tunnel of Love Tour, "Sweet
 
 For most of us, our next opportunity to see Bruce perform "Sweet Soul Music" live was at Bruce's now-legendary Working on a Dream show at Madison Square Garden, on November 8, 2009. Most of us rightly remember that show as the first time Bruce ever performed *The River* start to finish. But an old favorite made its long-awaited return (with original lyrics and then some) in the encores as well:
 
-[Watch on Youtube: Bruce Springsteen - Seven Nights to Rock - Sweet Soul Music - 2009/11/08 - MSG NYC](https://www.youtube.com/watch?v=2d3NR0UEMlY?start=337)
+[Watch on Youtube: Bruce Springsteen - Seven Nights to Rock - Sweet Soul Music - 2009/11/08 - MSG NYC](https://www.youtube.com/watch?v=2d3NR0UEMlY)
 
 Alas, unlike the full album performance of *The River*, "Sweet Soul Music" was destined to remain a one-off. Since that night, it's surfaced only twice–the first was at a tribute concert to the late Clarence Clemons at the Wonder Bar in 2011, where "Sweet Soul Music" was one of several songs Bruce played with J.T. Bowen & The Sensational Soul Cruisers. (The song starts at about the 2:30 mark below.)
 
 [Watch on Youtube: Bruce Springsteen/JT Bowen/Sensational Soul Cruisers ~ Three Songs! ~ Video by Rose A Montana](https://www.youtube.com/watch?v=3X9ZAFkAcos)
 
-...and the most recent outing was in Kilkenny on the Working on a Dream Tour, where Bruce played the song by request, the crowd helping the band with the riff:
+…and the most recent outing was in Kilkenny on the Working on a Dream Tour, where Bruce played the song by request, the crowd helping the band with the riff:
 
 [Watch on Youtube: Bruce Springsteen 2013-07-27 Kilkenny - Sweet Soul Music](https://www.youtube.com/watch?v=sMLYEWucWm8)
 
 We likely haven't heard the last of "Sweet Soul Music." With another E Street Band tour on the horizon, odds are good for at least one more outing for this fan and artist favorite.
 
 **Sweet Soul Music**<br>
-**First played:** April 19, 1981 (Paris, France)<br>
+First played:** April 19, 1981 (Paris, France)
 **Last played:** July 27, 2013 (Kilkenny, Ireland)<br>
 
 (c) November 1, 2019

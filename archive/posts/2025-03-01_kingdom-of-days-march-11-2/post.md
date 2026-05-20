@@ -1,6 +1,16 @@
+---
+layout: post
+title: "Kingdom of Days: March 11"
+author: "Ken"
+excerpt: "This date in Springsteen history features more rehearsals than concerts–but there are still a couple of gems. Check them out inside."
+tags: devils-and-dust-tour farmer-john latrobe lawsuit-tour reunion-tour rising-tour rochester working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/19770311_3_front.jpg
+post_id: 56136
+---
 ***New for 2025:** Advertisement for 1977; new entry for 2002*<br>
 
-**1977:** At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only “Farmer John” into “Twist and Shout.”<br>
+**1977:** At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only "Farmer John" into "Twist and Shout."<br>
 
 [Watch on Youtube: Farmer John (Don Harris and Terry Dewey cover)](https://www.youtube.com/watch?v=FCJHKUBH7OI)
 
@@ -12,7 +22,7 @@
 
 **2002:** Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner and auction at the Roseland Ballroom in New York City.<br>
 
-**2003:** “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)” gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md).”<br>
+**2003:** "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Fire](https://www.youtube.com/watch?v=AMhdLG0vX7I)
 

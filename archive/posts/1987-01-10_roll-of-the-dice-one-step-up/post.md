@@ -1,3 +1,13 @@
+---
+layout: post
+title: "One Step Up"
+author: "Ken"
+excerpt: "“One Step Up” is one of Bruce’s finest moments as singer, songwriter, and actor. It’s a brutally honest, self-aware inner dialogue of a man about to stray, and it gave rise to one of the most emotional performances I’ve ever seen live."
+tags: high-hopes-tour houston one-step-up tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1987/01/B1et5pHIaWS._UF10001000_QL80_.jpg
+post_id: 3758
+---
 Let's get this out of the way first: "One Step Up" is, without a doubt, one of the finest songs Bruce has ever written, and one of the most emotionally honest songs by *anyone* about the internal struggle that leads us astray from a relationship.
 
 Bruce is at the top of his craft: the lyrics are poetic, steeped in metaphor but with no trace of his usual tropes save for the "old Ford." Bruce's catalog is littered with lyrical cross-pollination, but "One Step Up" shares no DNA with any of them. It is a complete, stand-alone creation.
@@ -16,17 +26,17 @@ The song begins and is carried by a simple acoustic guitar riff and a steady per
 
 In the first verse, Bruce is pensive, reflective. He doesn't make eye contact with the camera; he's singing to himself.
 
-> *Woke up this morning, the house was cold*
-> *Checked the furnace, she wasn't burning*
-> *Went out and hopped in my old Ford*
-> *Hit the engine, buddy she ain't turning*
+> *Woke up this morning, the house was cold*<br>
+> *Checked the furnace, she wasn't burning*<br>
+> *Went out and hopped in my old Ford*<br>
+> *Hit the engine, buddy she ain't turning*<br>
 
 The singer lives in a cold home (literally, and as we'll soon see, metaphorically). His car engine won't start–he's not going anywhere.
 
-> *We've given each other some hard lessons lately*
-> *But we ain't learning*
-> *We're the same sad story, that's a fact*
-> *One step up and two steps back*
+> *We've given each other some hard lessons lately*<br>
+> *But we ain't learning*<br>
+> *We're the same sad story, that's a fact*<br>
+> *One step up and two steps back*<br>
 
 Ah, the curse of self-awareness: just because you understand what you're doing wrong doesn't mean you know how to fix it. We have our first concrete hint here that the singer's relationship is on rocky ground.
 
@@ -34,10 +44,10 @@ His car must have eventually started, though, because now he's driving through t
 
 The singer arrives at a strip bar, sits down and orders. He's clearly not at ease with his own presence, and he avoids eye contact with the bartender and dancer.
 
-> *Bird on a wire outside my motel room*
-> *But he ain't singing*
-> *Girl in white outside a church in June*
-> *But the church bells, they ain't ringing*
+> *Bird on a wire outside my motel room*<br>
+> *But he ain't singing*<br>
+> *Girl in white outside a church in June*<br>
+> *But the church bells, they ain't ringing*<br>
 
 There are a few things to unpack here. First, he's got a motel room, so things are either rocky enough at home that one or both of them felt he needed to be on his own for a bit, or else the rented room is there for him to connect with someone else. Given that the line is paired with an image of two hands coming together, one with a wedding band and one without, we can safely assume the latter.
 
@@ -45,68 +55,68 @@ Next, the metaphors of joy gone wrong: a bird that won't sing; a bride stranded 
 
 Cohen sings:
 
-> *Like a bird on the wire*
-> *Like a drunk in a midnight choir*
-> *I have tried in my way to be free*
+> *Like a bird on the wire*<br>
+> *Like a drunk in a midnight choir*<br>
+> *I have tried in my way to be free*<br>
 
-> *If I, if I have been unkind, I hope that you can just let it go by*
-> *If I, if I have been untrue, I hope you know it was never to you*
+> *If I, if I have been unkind, I hope that you can just let it go by*<br>
+> *If I, if I have been untrue, I hope you know it was never to you*<br>
 
-> *For like a baby, stillborn*
-> *Like a beast with his horn*
-> *I have torn everyone who reached out for me*
-> *But I swear by this song and by all that I have done wrong*
-> *I will make it all up to thee*
+> *For like a baby, stillborn*<br>
+> *Like a beast with his horn*<br>
+> *I have torn everyone who reached out for me*<br>
+> *But I swear by this song and by all that I have done wrong*<br>
+> *I will make it all up to thee*<br>
 
-> *I saw a beggar leaning on his wooden crutch*
-> *He said to me, "you must not ask for so much"*
-> *And a pretty woman leaning in her darkened door*
-> *She cried to me, "hey, why not ask for more?"*
+> *I saw a beggar leaning on his wooden crutch*<br>
+> *He said to me, "you must not ask for so much"*<br>
+> *And a pretty woman leaning in her darkened door*<br>
+> *She cried to me, "hey, why not ask for more?"*<br>
 
 Keep that in mind as we continue our story.
 
 A gathering storm outside symbolizes the one inside the singer, lightning giving way to the strobes of the strip bar. Bruce gazes at the dancer but is clearly distracted. He averts his gaze, tapping his wedding band against his drink.
 
-> *I'm sitting here in this bar tonight*
-> *But all I'm thinking is*
-> *I'm the same old story, same old act*
-> *One step up and two steps back*
+> *I'm sitting here in this bar tonight*<br>
+> *But all I'm thinking is*<br>
+> *I'm the same old story, same old act*<br>
+> *One step up and two steps back*<br>
 
 And as Bruce sings the words "two steps back," he makes eye contact with us, fleetingly, for the first time, and we're now drawn into his story.
 
 A fellow bar patron tries to make small talk; Bruce smiles artificially but quickly withdraws into his reverie.
 
-> *It's the same thing night on night*
-> *Who's wrong, baby who's right?*
-> *Another fight and I slam the door on*
-> *Another battle in our dirty little war*
+> *It's the same thing night on night*<br>
+> *Who's wrong, baby who's right?*<br>
+> *Another fight and I slam the door on*<br>
+> *Another battle in our dirty little war*<br>
 
 The singer recognizes that he and his wife are caught in a self-destructive pattern. He's self-aware enough to realize that their petty arguments aren't worth winning if they mean they both lose in the long run, but he's trapped in a cycle.
 
 And now comes the most painfully direct and honest moment of the song, as Bruce for the first time faces us straight on and hold his gaze, daring us to meet his as he reveals in anguish:
 
-> *When I look at myself I don't see*
-> *The man I wanted to be*
-> *Somewhere along the line I slipped off track*
-> *Caught moving one step up and two steps back*
+> *When I look at myself I don't see*<br>
+> *The man I wanted to be*<br>
+> *Somewhere along the line I slipped off track*<br>
+> *Caught moving one step up and two steps back*<br>
 
 The camera pans away. It's evening now, and the train from earlier in the song is on its return trip. Its commuters have a day's worth of new experiences and stories, while Bruce passed the time at the bar, no closer to resolving his dilemma.
 
 The next verse is the final one, and it's one of the best verses Bruce has ever written:
 
-> *There's a girl across the bar*
-> *I get the message she's sending*
-> *Hmm she ain't looking too married*
-> *Me well honey I'm pretending*
+> *There's a girl across the bar*<br>
+> *I get the message she's sending*<br>
+> *Hmm she ain't looking too married*<br>
+> *Me well honey I'm pretending*<br>
 
 Bruce's eyes are cast downward and close, his face registering resignation–but no anticipation–for the course of action he knows he is about to take. He raises his fingers to his temple, and the wedding band–in such stark black-and-white relief earlier–is blurred now, obscured.
 
 The last lines of the song are devastatingly poignant. As he makes his move on a stranger, his mind and heart are with his wife, and we realize that the singer is trying to recapture with another the magic he once had and wants again with his wife:
 
-> *Last night I dreamed I held you in my arms*
-> *The music was never ending*
-> *We danced as the evening sky faded to black*
-> *One step up and two steps back*
+> *Last night I dreamed I held you in my arms*<br>
+> *The music was never ending*<br>
+> *We danced as the evening sky faded to black*<br>
+> *One step up and two steps back*<br>
 
 Bruce often writes cinematically, and here he literally employs a cinematic tool, fading to black as the song plays out. Patti Scialfa's backing vocals finally appear in this verse–deliberately held in reserve until the final lines–representing (in hindsight, with irony both awful and perfect) his wife's voice, the ghost of his lost love. Patti, of course, is the love that Bruce *found* around the time of this song, so her presence here adds layers of meaning and resonance beyond what the writer must have intended at the time.
 

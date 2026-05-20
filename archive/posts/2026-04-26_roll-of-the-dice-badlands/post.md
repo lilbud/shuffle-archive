@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Badlands"
+author: "Ken"
+excerpt: "Every fan knows it; every audience member is part of it: “Badlands” is Bruce’s anthem of steadfast resistance, persistence, and faith in his audience. It’s one of his very best songs."
+tags: badlands darkness-on-the-edge-of-town
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/bruce-springsteen-badlands-cbs-3.jpg
+post_id: 9626
+---
 > "I had the word. I had ‘Badlands.' And then I had chord changes and we got in the studio and we laid the track down. And I had a vague outline and I'd go home, I'd play the tape and I'd write the words." — Bruce Springsteen, July 9, 1978
 
 He had the title, and he had the riff (co-opted from a favorite song, as Bruce confesses below).

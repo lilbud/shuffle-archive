@@ -1,4 +1,14 @@
-> "The ultimate test for any self-respecting guitar player is: could you play 'Jeff's Boogie–which you could not. You could fake your way through 'Jeff's Boogie', but you couldn't actually play it." *–Bruce Springsteen, Little Steven's Underground Garage, April 8, 2011*
+---
+layout: post
+title: "Cover Me: Jeff's Boogie"
+author: "Ken"
+excerpt: "One time only: Jeff Beck’s “Jeff Boogie” intimidates even the most accomplished guitar players, but Bruce Springsteen took a shot at it on stage at the tender age of seventeen. Take a listen and hear how he did."
+tags: jeff-beck jeffs-boogie the-castiles the-yardbirds
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/jeffsboogie.jpg
+post_id: 17364
+---
+> "The ultimate test for any self-respecting guitar player is: could you play ‘Jeff's Boogie–which you could not. You could fake your way through ‘Jeff's Boogie', but you couldn't actually play it." *–Bruce Springsteen, Little Steven's Underground Garage, April 8, 2011*<br>
 
 No kidding. The B-side to The Yardbirds' 1996 hit single "Over Under Sideways Down" is jaw-droppingly impressive enough to intimidate even the most accomplished guitar players.
 

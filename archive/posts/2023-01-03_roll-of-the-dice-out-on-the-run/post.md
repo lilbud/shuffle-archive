@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Out on the Run"
+author: "Ken"
+excerpt: "The third time was not the charm, but Bruce still managed to salvage something from this River-era outtake."
+tags: out-on-the-run
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/ontherun.png
+post_id: 26511
+---
 Bruce and the band sound like they're having a blast working this one out in their 1979 rehearsal sessions for *The River*.
 
 [Watch on Youtube: Bruce Springsteen Out On The Run Looking For Love #1](https://www.youtube.com/watch?v=a1UcJqtJJlc)

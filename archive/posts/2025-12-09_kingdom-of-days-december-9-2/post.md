@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 9"
+author: "Ken"
+excerpt: "On this date: Bruce surprises with a call-in to E Street Radio and a guest appearance with Gaslight Anthem, plus an emotional show the day after John Lennon’s death. Much more inside."
+tags: american-slang born-in-the-usa born-in-the-usa-tour columbia columbia-records-radio-hour dallas darkness-tour detroit-medley dont-stop-believin e-street-radio france gaslight-anthem ghost-of-tom-joad-tour glory-days john-lennon john-mellencamp murfreesboro my-love-will-not-let-you-down new-york-city paris philadelphia pink-houses rising-tour river-tour springsteen-on-broadway streets-of-philadelphia the-ties-that-bind-the-river-collection
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/19801209_4_front.jpg
+post_id: 62973
+---
 ***New for 2025:** New entry for 1977 and 2024*<br>
 
 **1972:** Bruce and the as-yet-unnamed E Street Band play their fifth night of a six-night, two-shows-nightly stand at Kenny's Castaways in New York City.<br>

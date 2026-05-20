@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Ramrod"
+author: "Ken"
+excerpt: "This encore staple and “Pink Cadillac” companion song isn’t as deep as Bruce might lead us to believe. But it sure is fun."
+tags: ramrod the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/Ramrod-1947-poster-4.jpeg
+post_id: 36371
+---
 > "This guy, he's there, but he's really *not* there no more. He's the guy in ‘[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)‘–either guy, actually. But he's also the guy, in the end, who says, ‘I'll give you the word, now, sugar, we'll go ramrodding forever more.' I don't know, that's a real sad line to me, sometimes."
 >
 > — Bruce Springsteen to Dave Marsh, *Musician*, February 1981

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Meeting Across the River: The Epidemics and Bruce Springsteen: Up to You"
+author: "Ken"
+excerpt: "At his only appearance to date in India, Bruce joined The Epidemics on stage and contributed his harmonica stylings to their song “Up to You.” It ended up being integrated into the released studio track."
+tags: caroline eye-catcher human-rights-now-tour india new-delhi shankar the-epidemics up-to-you
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/uptoyou.jpg
+post_id: 4784
+---
 In 1988, Bruce Springsteen and the E Street Band toured the world with a travelling troupe of musicians on behalf of Amnesty International.
 
 Accompanied by Peter Gabriel, Sting, Tracey Chapman, and others, the tour brought Bruce and the band to countries they'd never visited before. At each stop, the tour was joined by local artists, introducing Bruce to new musicians and providing deeper exposure to new genres and local scenes.
@@ -13,7 +23,7 @@ Although "Eye Catcher" is a studio track, Bruce's contribution was captured live
 "Up to You" probably won't make any Springsteen fan's best-of list, but it's fascinating to hear how Bruce's Americana harmonica melodies (you can *almost* hear hints of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "This Hard Land" if you listen) blend with Indian melodies and instrumentation.
 
 **Up to You**<br>
-**Recorded:** Unknown (live excerpt from 9/30/88)<br>
+**Recorded** Unknown (live excerpt from 9/30/88)<br>
 **Released:** *Eye Catcher* (1989)<br>
 **First performed:** September 30, 1988 (New Delhi, India)<br>
 **Last performed:** September 30, 1988 (New Delhi, India)<br>

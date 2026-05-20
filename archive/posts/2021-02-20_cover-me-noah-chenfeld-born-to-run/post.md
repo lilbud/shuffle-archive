@@ -1,21 +1,31 @@
-It’s two covers in one!
+---
+layout: post
+title: "Cover Me, Noah Chenfeld: Born to Run"
+author: "Ken"
+excerpt: "NYC-based Noah Chenfeld reimagines “Born to Run” for our troubled times while winking at another Springsteen classic."
+tags: born-to-run brilliant-disguise noah-chenfeld
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/btrnoah.jpg
+post_id: 25177
+---
+It's two covers in one!
 
-The first one’s obvious, the second one’s subtle.
+The first one's obvious, the second one's subtle.
 
-The in-your-face one: Noah Chenfeld’s daring interpretation of Bruce’s signature song.
+The in-your-face one: Noah Chenfeld's daring interpretation of Bruce's signature song.
 
-A lifelong fan (seriously: Noah attended his first show when he was eight years old and has been to over 20 shows since), Chenfeld adapted “Born to Run” for our isolated times. What if Bruce wrote his anthem today, when there’s nowhere to run and no one to run with?
+A lifelong fan (seriously: Noah attended his first show when he was eight years old and has been to over 20 shows since), Chenfeld adapted "Born to Run" for our isolated times. What if Bruce wrote his anthem today, when there's nowhere to run and no one to run with?
 
 It might sound a lot like this.
 
 [Watch on Youtube: Noah Chenfeld - Born To Run [Bruce Springsteen cover]](https://www.youtube.com/watch?v=negPEfAT308)
 
-Numb and gauzy, Noah’s version of “Born to Run” is an ironic, sad reminder of all we’re missing right now.
+Numb and gauzy, Noah's version of "Born to Run" is an ironic, sad reminder of all we're missing right now.
 
-The subtle second cover? Well, that one’s in-your-face, too–in a different way.
+The subtle second cover? Well, that one's in-your-face, too–in a different way.
 
-You might have already caught it, but if not: Noah took inspiration from Bruce’s video for “[Brilliant Disguise,](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” pulling off a double homage to our favorite songwriter.
+You might have already caught it, but if not: Noah took inspiration from Bruce's video for "[Brilliant Disguise,](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" pulling off a double homage to our favorite songwriter.
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
-Check out more of Noah’s music [here](https://www.youtube.com/channel/UCYz4nxwjAPu27509GOGzjlA).
+Check out more of Noah's music [here](https://www.youtube.com/channel/UCYz4nxwjAPu27509GOGzjlA).

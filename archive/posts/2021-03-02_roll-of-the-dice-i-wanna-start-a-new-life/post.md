@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Wanna Start a New Life"
+author: "Ken"
+excerpt: "This gorgeous Jackson Browne-ian work-in-progress ballad might have made for a gorgeous song had Bruce completed it."
+tags: i-wanna-start-a-new-life
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/newlife.jpg
+post_id: 25334
+---
 Today's entry is another abandoned work-in-progress, but it's one that showed a lot of promise.
 
 This home demo of recording of "I Wanna Start a New Life" dates back to late 1979, likely after Bruce had finished his ultimately abandoned *The Ties That Bind* album, but before the second batch of sessions that produced the songs that would ultimately round out the two-disc *The River*.

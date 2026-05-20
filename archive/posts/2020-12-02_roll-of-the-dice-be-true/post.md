@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Be True"
+author: "Ken"
+excerpt: "Sister song to “Mary Lou” and cousin to “Two Hearts.” this under-the-radar River-era outtake endures as a fan favorite."
+tags: be-true the-river tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/betruesingle.jpg
+post_id: 22913
+---
 The first thing to know about "Be True" is that it began as a completely different song that shares almost exactly the same lyrics.
 
 I covered the backstory for "[Mary Lou](../2019-04-03_roll-of-the-dice-mary-lou/post.md)" (older sister to "Be True") at length a couple of years ago; there are so many surviving early acoustic demos and band rehearsal drafts that it makes for a highly illuminating look at how Bruce develops a song. I highly recommend reading (or re-reading) it before going any further if you want to fully appreciate the origin of its younger sibling.

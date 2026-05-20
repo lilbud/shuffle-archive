@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Steven Van Zandt, Bruce Springsteen and the Asbury Park All-Star Revue: She Got Me Where She Wants Me"
+author: "Ken"
+excerpt: "Two nights only: Little Steven takes the lead and Bruce Springsteen plays the sideman when Southside Jonny takes ill."
+tags: she-got-me-where-she-wants-me southside-johnny steve-van-zandt
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/shegotme.jpg
+post_id: 25934
+---
 If you were in Red Bank on the evenings of May 12th and 13th, 1977, you had a chance to witness in person a one-time only alignment of stars: the Asbury Jukes and the E Street Band playing a show together, with Steve Van Zandt out in front for most of the show, Bruce mostly in a supporting role, and Southside Johnny missing in action altogether.
 
 The shows were originally billed with Southside Johnny as the headliner, but when Southside got sick and couldn't perform, Van Zandt organized a rescue mission to save the Jukes' four-show stand at the Monmouth Arts Center.

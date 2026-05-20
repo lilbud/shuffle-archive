@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Jim van der Zee: Highway 29"
+author: "Ken"
+excerpt: "Dutch singer-songwriter catapulted his career into motion by covering one of his musical hero’s best-known songs and one of his least-known."
+tags: highway-29 im-on-fire jim-van-der-zee
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/vanderzee-1.jpg
+post_id: 24346
+---
 Jim van der Zee is just a few days shy of his 26th birthday, but his career is off to a great start.
 
 In 2018, the Dutch singer-songwriter was the winning contestant on *The Voice of Holland*, and with the record deal he won from that competition, he released his debut album, *Where I Come From.*

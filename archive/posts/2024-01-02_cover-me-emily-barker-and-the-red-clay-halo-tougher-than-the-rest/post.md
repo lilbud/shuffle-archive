@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Emily Barker and The Red Clay Halo: Tougher Than the Rest"
+author: "Ken"
+excerpt: "American Beauty wasn’t the only Springsteen-themed release on Record Store Day 2014: Check out Emily Barker and The Red Clay Halo’s gorgeous string arrangement of “Tougher Than the Rest” from their Songs Beneath the River EP."
+tags: emily-barker-and-the-red-clay-halo tougher-than-the-rest
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/tougher.jpg
+post_id: 11228
+---
 On Record Store Day 2014, Springsteen fans flocked to their local music shops to pick up Bruce's new *American Beauty* EP.
 
 But that wasn't the only special vinyl release that day with Bruce's music on it: Emily Barker and the Red Clay Halo dropped an EP of their own, *Songs Beneath the River*.

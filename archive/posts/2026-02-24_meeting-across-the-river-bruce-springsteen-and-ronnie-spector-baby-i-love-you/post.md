@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Baby I Love You"
+author: "Ken"
+excerpt: "When Ronnie met Bruce: the iconic 60s singer would collaborate with Bruce and the E Street Band several times, both on stage and on vinyl. This performance is from the very fist time she graced an E Street Band stage."
+tags: baby-i-love-you darlene-love ronnie-spector
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/maxresdefault-4.jpg
+post_id: 4186
+---
 "Baby, I Love You" was Ronnie Spector's second big hit (after "Be My Baby"). Recorded in the autumn of 1963 (with Darlene Love, Sonny Bono, and a 17-year-old Cher on backing vocals) and released in November, the song went to #24 on the American pop charts and #11 in the UK.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kmFkjURkrEE)

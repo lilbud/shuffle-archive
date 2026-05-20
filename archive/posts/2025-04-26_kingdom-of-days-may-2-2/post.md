@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 2"
+author: "Ken"
+excerpt: "As on-this-date highlights go, it’s hard to top Bruce’s first meeting with John Hammond. But there’s much more, including Bruce’s first guest turn with Cats on a Smooth Surface and some truly epic shows."
+tags: be-true bishop-danced cats-on-a-smooth-surface child columbia-records copenhagen danny-devito denmark devils-and-dust-tour ghost-of-tom-joad-tour glory-days greensboro hang-on-sloopy hollywood i-wanna-be-with-you its-all-over-now john-hammond jungleland magic-tour manchester mountain-view new-jersey-hall-of-fame new-york-city newark north-carolina red-headed-woman rendezvous reunion-tour soozie-tyrell springsteen-on-broadway steel-mill stone-pony sunrise switzerland the-weight tunnel-of-love-express-tour uk working-on-a-dream-tour wrecking-ball-tour zurich
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/19880502_front.jpg
+post_id: 56668
+---
 ***New for 2025:** New entry for 1980 and 2002; review for 2009*<br>
 
 **1969:** Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.<br>
@@ -8,9 +18,9 @@
 
 [Watch on Youtube: Bruce Springsteen & E Street Band snuck into James Taylor, Eric Clapton](https://www.youtube.com/watch?v=z771CnLdzO8)
 
-**1972:** A watershed day for Bruce: Mike Appel arranges a meeting and audition for Bruce with John Hammond at Hammond’s Columbia Records office in New York City. By the time Bruce finishes playing “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/),” Hammond knows he wants to sign Bruce.<br>
+**1972:** A watershed day for Bruce: Mike Appel arranges a meeting and audition for Bruce with John Hammond at Hammond's Columbia Records office in New York City. By the time Bruce finishes playing "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)," Hammond knows he wants to sign Bruce.<br>
 
-Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)“), and then Hammond asks how Bruce is with a live audience. Mike Appel immediately arranges a gig at the Gaslight Au Go Go for early that evening, opening for Garland Jeffreys and Charlie Musselwhite. Satisfied with the performance, Hammond invites Bruce to come down the next day to make a demo.
+Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)"), and then Hammond asks how Bruce is with a live audience. Mike Appel immediately arranges a gig at the Gaslight Au Go Go for early that evening, opening for Garland Jeffreys and Charlie Musselwhite. Satisfied with the performance, Hammond invites Bruce to come down the next day to make a demo.
 
 **1974:** The *Camden Courier-Post* publishes a long, revealing profile of and interview with Bruce.<br>
 
@@ -22,9 +32,9 @@ Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_r
 
 **1977:** *The Wild, The Innocent, & The E Street Shuffle* is certified gold by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: The E Street Shuffle](https://www.youtube.com/watch?v=LWLMaZ7H3B0)
+[Watch on Youtube: The E Street Shuffle](https://www.youtube.com/watch?v=LWLMaZ7H3B0?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw)
 
-**1980:** Bruce works on mixing and overdubs for “Restless Nights” at Clover Studios in Los Angeles.<br>
+**1980:** Bruce works on mixing and overdubs for "Restless Nights" at Clover Studios in Los Angeles.<br>
 
 [Watch on Youtube: Restless Nights (Studio Outtake - 1980)](https://www.youtube.com/watch?v=DCFYLa02WzE)
 
@@ -32,11 +42,11 @@ Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_r
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - 1981-05-02 - Copenhagen Brondby Hallen, DK](https://www.youtube.com/watch?v=q7EsVf2suLc)
 
-**1982:** The first of a series of “secret” shows in which Bruce joined Cats on a Smooth Surface for late-night gigs at The Stone Pony in Asbury Park.<br>
+**1982:** The first of a series of "secret" shows in which Bruce joined Cats on a Smooth Surface for late-night gigs at The Stone Pony in Asbury Park.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/catspony.jpg.webp)
 
-**1988:** Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for the first of two nights at the Shoreline Amphitheater. Local news coverage and a pro-shot “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)” below.<br>
+**1988:** Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for the first of two nights at the Shoreline Amphitheater. Local news coverage and a pro-shot "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" below.<br>
 
 [Watch on Youtube: Bruce Springsteen - News coverage from 1988 Mountain View concerts](https://www.youtube.com/watch?v=9pwFHwTFeU4)
 
@@ -52,11 +62,11 @@ Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_r
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-05-02c.jpg.webp)
 
-**1996:** Bruce’s solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs “[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)” with extra yodeling.<br>
+**1996:** Bruce's solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)" with extra yodeling.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/eqMkI4fK)
 
-**1999:** On Night Two in Manchester on the Reunion Tour, Bruce plays “[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)” in England for the first time.<br>
+**1999:** On Night Two in Manchester on the Reunion Tour, Bruce plays "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)" in England for the first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - Rendezvous (Manchester, may 2. 1999)](https://www.youtube.com/watch?v=WItR0RGJTrY)
 
@@ -64,19 +74,19 @@ Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_r
 
 [Watch on Youtube: Manchester 02/05/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zC6W2Gl4LhnzU4DZNDHIeMk)
 
-**2002:** Bruce joins Soozie Tyrell at Scullville Studios in Egg Harbor, New Jersey, where he contributes guitar and backing vocals to Soozie’s “[White Lines](../2021-09-30_matr-soozie-tyrell-and-bruce-springsteen-white-lines/post.md)” and “[Ste. Genevieve](../2018-08-21_meeting-across-the-river-soozie-tyrell-bruce-springsteen-and-patti-scialfa-ste-genevieve/post.md)” respectively.<br>
+**2002:** Bruce joins Soozie Tyrell at Scullville Studios in Egg Harbor, New Jersey, where he contributes guitar and backing vocals to Soozie's "[White Lines](../2021-09-30_matr-soozie-tyrell-and-bruce-springsteen-white-lines/post.md)" and "[Ste. Genevieve](../2018-08-21_meeting-across-the-river-soozie-tyrell-bruce-springsteen-and-patti-scialfa-ste-genevieve/post.md)" respectively.<br>
 
 [Watch on Youtube: White Lines (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=dnz2SeT9IP4)
 
 [Watch on Youtube: Ste. Genevieve (feat. Bruce Springsteen, Patti Scialfa)](https://www.youtube.com/watch?v=xKGo5s6EHkc)
 
-**2003:** A year to the day later, Bruce and Patti join Soozie on stage at her solo gig at The Stone Pony for “Ste. Genevieve” and “[It’s All Over Now.](../2021-09-02_matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/post.md)”<br>
+**2003:** A year to the day later, Bruce and Patti join Soozie on stage at her solo gig at The Stone Pony for "Ste. Genevieve" and "[It's All Over Now.](../2021-09-02_matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/post.md)"<br>
 
 [Watch on Youtube: Soozie Tyrell : Ste Genevieve (2003-05-02 - THE STONE PONY)](https://www.youtube.com/watch?v=sQE2tQMzsQs)
 
 [Watch on Youtube: It's All Over Now - Soozie Tyrell ft. Bruce Springsteen (The Stone Pony, 2 May 2003)](https://www.youtube.com/watch?v=J_Q803Ov1QE)
 
-**2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” “[If I Should Fall Behind,](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” “[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md),” and “[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)” (in only its second performance ever).<br>
+**2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[If I Should Fall Behind,](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," and "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)" (in only its second performance ever).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/628Kn0VK)
 
@@ -86,13 +96,13 @@ Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_r
 
 **2006:** Bruce, Southside Johnny, and Bobby Bandiera perform at the fifth annual Rumson Country Day School benefit concert at The Stone Pony in Asbury Park.<br>
 
-**2008:** Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic center in Sunrise, Florida, where he plays the tour premiere of “[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md).”<br>
+**2008:** Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic center in Sunrise, Florida, where he plays the tour premiere of "[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/zNJ22b8k)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2008-05-02.jpg.webp)
 
-**2009:** Bruce plays one of the best shows of the Working on a Dream Tour at the Greensboro Coliseum in North Carolina, featuring tour premiere by-request covers of “[Seventh Son](../2020-08-04_cover-me-seventh-son/post.md)” and “[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md),” and the tour premiere of “[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md).” For more highlights, see my [*Where the Band Was*](../2018-05-02_where-the-band-was-greensboro-may-2-2009/post.md)report from this date.<br>
+**2009:** Bruce plays one of the best shows of the Working on a Dream Tour at the Greensboro Coliseum in North Carolina, featuring tour premiere by-request covers of "[Seventh Son](../2020-08-04_cover-me-seventh-son/post.md)" and "[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md)," and the tour premiere of "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)." For more highlights, see my [*Where the Band Was*](../2018-05-02_where-the-band-was-greensboro-may-2-2009/post.md)report from this date.<br>
 
 [Watch on Youtube: Bruce Springsteen Outlaw Pete Greensboro 2009 05 02 (with Jay Weinberg on drums)](https://www.youtube.com/watch?v=Ve_sdS7AKfU)
 
@@ -106,13 +116,13 @@ Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_r
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/News_and_Record_2009_05_04_3.jpg.webp)
 
-**2010:** Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md).”<br>
+**2010:** Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Danny DeVito perform "Glory Days" at the 2010 New Jersey Hall of Fame.](https://www.youtube.com/watch?v=wGdNnhyqq94)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2010-05-02.jpg.webp)
 
-**2012:** Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first “[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)” in 39 years, the tour premiere of “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/),” and a cover of “[The Weight](../2019-03-26_cover-me-the-weight/post.md)” in memory of Levon Helm.<br>
+**2012:** Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first "[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)" in 39 years, the tour premiere of "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)," and a cover of "[The Weight](../2019-03-26_cover-me-the-weight/post.md)" in memory of Levon Helm.<br>
 
 [Watch on Youtube: Bruce Springsteen Bishop Danced 2012 05 02 Newark, NJ CamMix Dubbed HD 720p](https://www.youtube.com/watch?v=8YntGDsYzlY)
 

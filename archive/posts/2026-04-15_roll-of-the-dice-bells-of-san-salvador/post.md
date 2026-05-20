@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Bells of San Salvador"
+author: "Ken"
+excerpt: "New lyrics for a Creedence Clearwater Revival classic combine with tragic inspiration in El Salvador in this fascinating early home demo."
+tags: bells-of-san-salvador run-through-the-jugle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/admin-ajax-55.jpg
+post_id: 24475
+---
 Here's a fascinating one for fans of the obscure (with apologies to anyone who's not).
 
 In the spring of 1981, Bruce and the E Street Band performed a cover of John Fogerty's "Run Through the Jungle" at three European River Tour shows–the only times Bruce would ever play the Creedence Clearwater Revival classic.

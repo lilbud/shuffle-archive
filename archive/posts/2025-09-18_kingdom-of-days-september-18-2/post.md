@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 18"
+author: "Ken"
+excerpt: "On this date: Bruce debuts his cover of “Sociedade Alternativa,” the first E Street Band performance of “Souls of the Departed,” a tour one-off of “My Father’s House,” and more."
+tags: big-mans-west born-in-the-usa-tour brazil bruce-springsteen-band dave-edmunds factory ghost-of-tom-joad-tour hartford my-fathers-house oakland philadelhia rising-tour sao-paolo sociedade-alternativa souls-of-the-departed stolen-car student-prince wallingford wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/19850918_3_front.jpg
+post_id: 59682
+---
 ***New for 2025:** No updates*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Sting, Bruce Springsteen, Billy Joel, and more: It's Now or Never"
+author: "Ken"
+excerpt: "One time only: Bruce joins Sting, Billy Joel, and more to cover Elvis’ best-selling single."
+tags: billy-joel elvis-presley its-now-or-never jessye-norman sting
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/nowornever.jpg
+post_id: 32614
+---
 It isn't just Elvis' best-selling single–it's one of the best-selling singles of all time *by anyone*.
 
 Elvis Presley released "It's Now or Never" in the summer of 1960, and it immediately went to the top of the charts and stayed there for five weeks in the U.S. and eight weeks in the U.K. Before its run was over, "It's Now or Never" registered more than twenty million purchases.

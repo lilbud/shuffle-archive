@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Baby Come Back"
+author: "Ken"
+excerpt: "“Baby Come Back” is another unfinished castaway from The River home demo sessions."
+tags: baby-come-back
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/baby.jpg
+post_id: 1282
+---
 Another unfinished home demo recording for what would eventually become *The River* album (the dice have chosen a few of those lately), “Baby Come Back” is far enough along to get a pretty good sense of the song’s meaning: we’re in “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)” territory, with a narrator who stood proud and silent and let his baby walk away–and of course has regretted it ever since.
 
 [Watch on Youtube: Bruce Springsteen Baby Come Back](https://www.youtube.com/watch?v=KtaE9C0lji0)

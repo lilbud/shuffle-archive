@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Fade Away"
+author: "Ken"
+excerpt: "“Fade Away” is a young man’s “Back in Your Arms,” a Danny Federici-powered cry of anguish over lost love. It’s beautiful and perfect–Bruce’s songwriting at its best."
+tags: fade-away the-river
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/BRUCE_SPRINGSTEEN_FADEAWAY-58404-1.jpg
+post_id: 1770
+---
 With "Fade Away," Bruce absolutely nails it: his lyrics, music, and vocals absolutely ooze desperation. It's a young man's "[Back in Your Arms,](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" covering the same emotional ground but without his older self's wisdom, insight, and self-awareness. "Fade Away" is all anguish, and anguish never sounded sweeter.
 
 [Watch on Youtube: Fade Away](https://www.youtube.com/watch?v=WP9PHwClSfE)

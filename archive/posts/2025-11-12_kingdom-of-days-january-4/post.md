@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 4"
+author: "Ken"
+excerpt: "Bruce attends the Hollywood premiere of “Philadelphia,” resumes the Born in the U.S.A. Tour, and more."
+tags: born-in-the-usa-tour bryn-mawr cambridge hampton philadelphia streets-of-philadelphia the-main-point
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/philly.jpg
+post_id: 55543
+---
 **1973:** Bruce and his unnamed band kick off a four-night/eight-show stand at The Main Point in Bryn Mawr, Pennsylvania, where “[Santa Ana](../2018-03-06_roll-of-the-dice-santa-ana/post.md)” receives its debut performance.<br>
 
 **1974:** Bruce and his (still unnamed) band open a three-night stand headlining at Joe’s Place in Cambridge, Massachusetts. It’s neither the first nor the last time Bruce’s name is misspelled in print.<br>

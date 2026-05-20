@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Joe Ely and Bruce Springsteen: I'm a Thousand Miles From Home"
+author: "Ken"
+excerpt: "It’s the opening track that gets all the attention, but Bruce’s contribution to the closing track of Joe Ely’s 1995 album is just as worthy."
+tags: im-a-thousand-miles-from-home joe-ely letter-to-laredo
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/elymiles.jpg
+post_id: 30559
+---
 [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) wasn't Bruce's only collaboration with a singer-songwriter named Joe in 1995.
 
 Around the same time he and Joe Grushecky were putting the finishing touches on Grushecky's landmark album (which was just released as a 25th anniversary edition, and you should really [check it out](https://orcd.co/JoeGrusheckyAmericanBabylon25)), Bruce also made a side trip to Austin, where he contributed his vocal and keyboard talents to the opening and closing tracks of Joe Ely's album, *Letter to Laredo*.

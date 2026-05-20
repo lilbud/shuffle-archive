@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sax Song"
+author: "Ken"
+excerpt: "Still missing in action after all these years, “Down by the River” is a straight up rocker featuring the E Street Band in all its glory that would have been right at home on The River."
+tags: down-by-the-river sax-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/down-by-river.jpg
+post_id: 17942
+---
 Believe it or not, even after the 1998 *Tracks* and 2010 *The Promise* box sets, there are *still* unreleased songs from Bruce Springsteen's [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) sessions.
 
 One of my favorite still-missing-in-action tracks is "Sax Song" (also known as "Down by the River"). (Don't confuse it with the [Neil Young song by the same name](../2018-08-06_meeting-across-the-river-bruce-springsteen-and-neil-young-down-by-the-river/post.md).)
@@ -12,17 +22,17 @@ There's a lot here that foreshadows songs in Bruce's near future, from an introd
 
 Lyrically, the first verse is a bit tough to make out (it's largely bluffed, which may be why Bruce proclaims at the end, "This song should be one verse!"), but the chorus and second verse are pretty clear:
 
-> *So come on, down by the river*
-> *Come on, come on*
-> *Just come on, down by the river*
-> *It's alright*
+> *So come on, down by the river*<br>
+> *Come on, come on*<br>
+> *Just come on, down by the river*<br>
+> *It's alright*<br>
 
-> *Well baby, let me protect you little darling*
-> *If you let me, I'll be your friend*
-> *I know, baby, if you'll just let me in*
-> *Well, every day just brings the same*
-> *Every day it brings your same game*
-> *But every night ???*
+> *Well baby, let me protect you little darling*<br>
+> *If you let me, I'll be your friend*<br>
+> *I know, baby, if you'll just let me in*<br>
+> *Well, every day just brings the same*<br>
+> *Every day it brings your same game*<br>
+> *But every night ???*<br>
 
 Not exactly Bruce's most profound songwriting, but "Sax Song" obviously isn't meant to be. It's a straight up rocker that wouldn't have fit thematically on *Darkness* but would have been right at home on *The River.*
 

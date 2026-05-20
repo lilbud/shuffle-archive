@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Protection"
+author: "Ken"
+excerpt: "No, not *that* “Protection” – this one is a light River-era outtake that likely influenced two later official releases."
+tags: protection restless-nights
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/protection.png
+post_id: 18570
+---
 No, not *that* "Protection." We'll discuss the song Bruce donated to Donna Summer at a later date and dice roll.
 
 Today's "Protection" is a much earlier song by the same name that Bruce recorded at home in early 1979. This song has never seen the light of day in any finished form, although some of its DNA did surface in an official release years later. But I'm getting ahead of myself.
@@ -18,73 +28,73 @@ But as the recordings progress, the song takes shape, and by take #5 below (I kn
 
 In fact, it may be the lyrical similarity to "Two Hearts" that doomed "Protection"–it doesn't require a stretch of the imagination to wonder whether the narrators of both songs are addressing the same girl.
 
-> *Oh, you say you'll never love again*
-> *Not after the last time*
-> *Oh no, you'll never live again*
-> *No one will ever leave you sad and crying*
-> *But all I want is one sweet kiss, girl*
-> *I'm not praying for your devotion*
-> *It's a shame to waste a night like this on inspection, inspection*
+> *Oh, you say you'll never love again*<br>
+> *Not after the last time*<br>
+> *Oh no, you'll never live again*<br>
+> *No one will ever leave you sad and crying*<br>
+> *But all I want is one sweet kiss, girl*<br>
+> *I'm not praying for your devotion*<br>
+> *It's a shame to waste a night like this on inspection, inspection*<br>
 
 That first verse sounds familiar, doesn't it? Bruce didn't record his first take of "Two Hearts" until almost a year later, so it's quite possible that it was at least inspired by "Protection."
 
 Here comes our first chorus, immediately establishing a gimmick that Bruce will carry throughout the songs.
 
-> *You want protection for a broken heart*
-> *Protection won't let a good thing start*
-> *Protection, you say that's what you need*
-> *Protection, but baby can't you see*
-> *Protection give you a hurting heart*
-> *Protection is tearing us apart*
-> *Protection thinking 'bout my broken heart*
+> *You want protection for a broken heart*<br>
+> *Protection won't let a good thing start*<br>
+> *Protection, you say that's what you need*<br>
+> *Protection, but baby can't you see*<br>
+> *Protection give you a hurting heart*<br>
+> *Protection is tearing us apart*<br>
+> *Protection thinking 'bout my broken heart*<br>
 
 Bruce's descriptions of *protection* are ever-flowing (especially at the end of the song), a clever trick that would have made it a fun singalong if it had made it to the album. The message is clear, though: the narrator's love interest got her heart broken by somebody else. She's not over it yet, and it's seriously cramping her new suitor's style.
 
 As the verses progress, it's clear that the narrator of "Protection" isn't nearly as platonic as the one in "Two Hearts." In fact, he's a little bit creepy in his single-mindedness, and his self-interest seems to outweigh genuine concern for the object of his affection. (Perhaps she *does* need protection?)
 
-> *Well, it won't happen to you anymore*
-> *You learned your lesson so hard and well*
-> *So tonight you're gonna close the door*
-> *Your mind don't know but your heart can tell*
-> *You're soft and warm but you just need taking*
-> *Oh, little girl, you play your part so well*
-> *You'll try anything to stop us from making connection, connection*
+> *Well, it won't happen to you anymore*<br>
+> *You learned your lesson so hard and well*<br>
+> *So tonight you're gonna close the door*<br>
+> *Your mind don't know but your heart can tell*<br>
+> *You're soft and warm but you just need taking*<br>
+> *Oh, little girl, you play your part so well*<br>
+> *You'll try anything to stop us from making connection, connection*<br>
 
-> *Oh, protection from a broken heart*
-> *Protection won't let a good thing start*
-> *Protection, that's what you need*
-> *Protection, but baby, can't you see*
-> *Protection can't heal a hurting heart*
-> *Protection is tearing us apart*
-> *Protection, you get protection for a broken heart*
+> *Oh, protection from a broken heart*<br>
+> *Protection won't let a good thing start*<br>
+> *Protection, that's what you need*<br>
+> *Protection, but baby, can't you see*<br>
+> *Protection can't heal a hurting heart*<br>
+> *Protection is tearing us apart*<br>
+> *Protection, you get protection for a broken heart*<br>
 
 In the final verse, her suitor calls it a night but vows to wait for her. Someday, he promises, he'll be the one to protect her and keep her safe from the big, bad world.
 
-> *Well little girl, you're the one who chooses*
-> *A heart of stone just it ain't your style*
-> *I guess tonight I'm the one who loses*
-> *And so I walk that lonely mile*
-> *Some day soon your broken heart will mend, girl*
-> *Some day soon and I'll wait till then*
-> *When your pretty eyes look again in my direction, direction*
+> *Well little girl, you're the one who chooses*<br>
+> *A heart of stone just it ain't your style*<br>
+> *I guess tonight I'm the one who loses*<br>
+> *And so I walk that lonely mile*<br>
+> *Some day soon your broken heart will mend, girl*<br>
+> *Some day soon and I'll wait till then*<br>
+> *When your pretty eyes look again in my direction, direction*<br>
 
-> *I'll get protection sent from above*
-> *Protection and everlasting love*
-> *Protection, relief in my arms*
-> *Protection, no one will do you harm*
-> *Protection when you're warm at night*
-> *Protection, I'm gonna hold you tight*
-> *Protection, everyday and every night*
+> *I'll get protection sent from above*<br>
+> *Protection and everlasting love*<br>
+> *Protection, relief in my arms*<br>
+> *Protection, no one will do you harm*<br>
+> *Protection when you're warm at night*<br>
+> *Protection, I'm gonna hold you tight*<br>
+> *Protection, everyday and every night*<br>
 
-> *Protection, what you need*
-> *Protection, baby it's just your speed*
-> *Protection, you'll be safe in my arms*
-> *Protection, I'll give you all my charms*
-> *Protection, I'll keep you warm at night*
-> *Protection, I want to hold you tight*
-> *Protection every day and every night*
-> *Every day and every night*
-> *Baby, every day and every night*
+> *Protection, what you need*<br>
+> *Protection, baby it's just your speed*<br>
+> *Protection, you'll be safe in my arms*<br>
+> *Protection, I'll give you all my charms*<br>
+> *Protection, I'll keep you warm at night*<br>
+> *Protection, I want to hold you tight*<br>
+> *Protection every day and every night*<br>
+> *Every day and every night*<br>
+> *Baby, every day and every night*<br>
 
 Yes, "Protection" has a rather unenlightened romantic protagonist, so perhaps it's for the best that Bruce never released it–it probably wouldn't have aged well. But it's still a fun, catchy song that's finished enough for us to enjoy on its own merits.
 

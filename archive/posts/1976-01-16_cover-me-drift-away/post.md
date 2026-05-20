@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Drift Away"
+author: "Ken"
+excerpt: "It’s one of rock’s most meta-powerful songs, and in 1984 Bruce and Steve transformed it into a tribute to their brotherhood. Hear that moment and watch more great performances of “Drift Away” inside."
+tags: dobie-gray drift-away john-henry-kurtz steve-van-zandt
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/driftaway.jpg
+post_id: 10479
+---
 Pop quiz: who originally recorded the 1973 and 2003 hit "Drift Away?"
 
 If you answered Dobie Gray, you are incorrect. Although the late, great singer scored his biggest hit with it (and made a guest appearance on Uncle Kracker's hit version in 2003 as well), Gray was actually the *second* artist to record "Drift Away."
@@ -16,7 +26,7 @@ That's what happened one summer night in 1984 on the Born in the U.S.A. Tour. Br
 
 Following an almost mournful introduction by The Miami Horns, Bruce sang Mentor Williams' instantly recognizable opening lyrics. Bruce's vocals dripped with emotion and perfectly conveyed the "lost in the wilderness" setup of the song's first verse; Steve's response promised lifelong friendship and loyalty beyond the ad-libbed "twenty years you've given me."
 
-The rest of the performance... well, it's better to just listen. You'll feel the strength of their bond as if you were there.
+The rest of the performance… well, it's better to just listen. You'll feel the strength of their bond as if you were there.
 
 [Watch Video Highlight](https://videopress.com/embed/vobRmus7)
 

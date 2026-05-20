@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mary's Place"
+author: "Ken"
+excerpt: "At the heart of The Rising lies a song about the power of community and faith to help us carry on in the face of loss."
+tags: marys-place the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/marysplace.webp
+post_id: 33128
+---
 There's a party in the middle of *The Rising*.
 
 A house party, in fact. And if that seems out of place in one of Bruce Springsteen's darkest albums, it's only because we haven't looked at the address on the invitation.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Ties that Bind"
+author: "Ken"
+excerpt: "The fascinating evolution of “The Ties That Bind,” prototyped, previewed, and repeatedly revised on the road long before it ever saw vinyl."
+tags: darkness-tour the-river the-ties-that-bind
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/River9.jpg
+post_id: 998
+---
 On the afternoon of September 20, 1978, if you were lurking in the shadows of the Capitol Theatre in Passaic, New Jersey, you might have witnessed first-hand Bruce Springsteen and the E Street Band rehearsing a brand new song–or more accurately, a work in progress.
 
 For the rest of us, we'll have to make do with this video record of a *very* early prototype for what would become "The Ties That Bind."

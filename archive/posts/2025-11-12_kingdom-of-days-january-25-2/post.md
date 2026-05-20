@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 25"
+author: "Ken"
+excerpt: "On this day in history: Bruce Springsteen films the video for “The Wrestler,” duets with Joe Ely in Austin, and more."
+tags: austin australia boston cape-town chicago ghost-of-tom-joad-tour high-hopes-tour im-on-fire joe-ely johnny-99 perth peter-wolf richmond sad-eyes south-africa the-wrestler
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/wrestler.jpg
+post_id: 55790
+---
 **1973:** Bruce continues his five-night stand at The Quiet Knight in Chicago, opening for The Persuasions. Earlier in the day, The New York Daily News reviews his first album.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1973-01-25a.jpg.webp)

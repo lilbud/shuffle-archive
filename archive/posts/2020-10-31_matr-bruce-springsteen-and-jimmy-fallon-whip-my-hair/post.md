@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Jimmy Fallon, Whip My Hair"
+author: "Ken"
+excerpt: "Bruce and Jimmy Fallon (as Neil Young) perform the unlikeliest of covers in one of Bruce’s most viral moments. Watch the performance and backstory inside."
+tags: blow-your-pants-off jimmy-fallon late-night-with-jimmy-fallon neil-young whip-my-hair
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/whipmyhair.jpg
+post_id: 12480
+---
 Bruce Springsteen has performed a lot of unlikely covers across his long and illustrious career, but I'm not sure that anyone would have ever predicted this one, let alone on television and as an official CD release.
 
 In the autumn and winter of 2010, ten-year-old Willow Smith's debut single "Whip My Hair" was *everywhere*. Whether you liked it or hated it, odds are that you couldn't get it out of your head no matter how hard you tried.

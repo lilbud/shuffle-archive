@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 20"
+author: "Ken"
+excerpt: "On this date: Bruce plays Red Rocks for the first time, guest stars abound, and the legendary ten-night MSG Reunion stand continues. More highlights inside."
+tags: 23rd-street-lullaby arnhem better-days bobby-bandiera camden cats-on-a-smooth-surface coventry darkness-tour devils-and-dust-tour france glorias-eyes i-fought-the-law i-wish-i-were-blind im-shipping-up-to-boston italy joe-grushecky long-time-comin madison-square-garden milan my-city-of-ruins new-york-city paris patti-scialfa red-rocks reunion-tour richmond seeger-sessions-tour soozie-tyrell southside-johnny springsteen-on-broadway steel-mill stone-pony sundance-blues-band the-netherlands trapped uk world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/june-20th-2024-barcelona-es-bruce-springsteen-and-the-e-street-band-review-2.jpg
+post_id: 57120
+---
 ***New for 2025:** New entry for 1977, 1979 and 2024*<br>
 
 **1970:** Steel Mill plays their second of two nights at The String Factory in Richmond.<br>

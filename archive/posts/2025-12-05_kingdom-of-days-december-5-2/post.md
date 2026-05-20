@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 5"
+author: "Ken"
+excerpt: "President Obama and an all-star line-up of musicians pay tribute to Bruce at the Kennedy Center Honors. Video and more highlights from this date in Springsteen history inside."
+tags: alliance-singers asbury-park barack-obama baton-rouge bethesda birmingham bobby-bandiera born-in-the-usa born-to-run-tour bruce-springsteen-band canada cats-on-a-smooth-surface countin-on-a-miracle darkness-tour eddie-vedder garland-jeffreys ghost-of-tom-joad-tour holiday-shows indianapolis jesse-malin john-mellencamp kennedy-center-honors lisa-lowell max-weinberg-7 my-city-of-ruins new-york-city nils-lofgren patti-scialfa pretty-flamingo rising-tour ron-kovic sam-moore soozie-tyrell southside-johnny springsteen-on-broadway steve-van-zandt stone-pony student-prince the-rising toronto washington-dc whfs world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/bruceobama.jpg
+post_id: 62960
+---
 ***New for 2025:** New entry for 1979*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

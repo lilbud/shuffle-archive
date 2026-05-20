@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Spare Parts: Michael Petrella: Dancing in the Dark/I Wanna Dance With Somebody"
+author: "Ken"
+excerpt: "An unlikely mash-up that works perfectly: Michael Petrella unites one of Bruce Springsteen’s greatest hits with one of Whitney Houston’s."
+tags: dancing-in-the-dark i-wanna-dance-with-somebody michael-petrella whitney-houston
+categories: cover-me spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/bruceandwhitney.jpg
+post_id: 17119
+---
 And now for something completely different:
 
 I don’t have a blog category for mash-ups, but maybe I should, because I’ve got a few of these in my back pocket to share.

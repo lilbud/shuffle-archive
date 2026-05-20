@@ -1,3 +1,13 @@
+---
+layout: post
+title: "June 10"
+author: "Ken"
+excerpt: "On this date: Bruce receives his first Tony Award! Plus: a wonderful, under-the-radar video/performance of “The Promised Land” in London, the premiere of a three-part BBC profile on Bruce, and more."
+tags: badlands bbc bergen bloomington boom-boom burning-love cats-on-a-smooth-surface chicago darkness-tour des-moines florence germany italy johnnie-walker london munich new-york-city nils-lofgren no-surrender norway one rising-tour seeger-sessions-tour springfield springsteen-on-broadway stone-pony the-promised-land tony-awards tunnel-of-love-tour turin uk working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/tony.jpg
+post_id: 57047
+---
 **1973:** Bruce and his band open for Chicago at the Civic Center in Springfield.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/06/The_Republican_1973_06_11_11-scaled.jpg.webp)

@@ -1,16 +1,26 @@
+---
+layout: post
+title: "Kingdom of Days: November 6"
+author: "Ken"
+excerpt: "Bruce makes his first public appearance after Election Day 2004, Hall and Oates opens for Bruce, and more."
+tags: austin born-to-run-tour canada cats-on-a-smooth-surface clarence-clemons cologne earth fabulous-grease-band fargo germany hall-and-oates joe-grushecky land-of-hope-and-dreams light-of-day madison-square-garden maxs-kansas-city my-hometown new-york-city reunion-tour rosalita seeger-sessions-tour spirit-in-the-night stand-up-for-heroes stone-pony tempe toronto wnew wolfgang-niedecken world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/bs241106_01.jpg
+post_id: 61285
+---
 ***New for 2025:** Review for 1973 and 1999; audio for 2006; new entry for 2024*<br>
 
 **1968:** Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Asbury_Park_Press_1968_11_06_Page_36-scaled.jpg.webp)
 
-**1973:** Daryl Hall and John Oates open for Bruce and the E Street Band at Max’s Kansas City in New York City. This is the first of a five-night/ten-show stand.<br>
+**1973:** Daryl Hall and John Oates open for Bruce and the E Street Band at Max's Kansas City in New York City. This is the first of a five-night/ten-show stand.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/Screenshot-2025-10-11-120825.jpg.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1973-11-06.jpg.webp)
 
-**1974:** “Semi-country” Bruce Springsteen and the E Street Band kick off a week of Texas shows with their first of two nights at Armadillo World Headquarters in Austin.<br>
+**1974:** "Semi-country" Bruce Springsteen and the E Street Band kick off a week of Texas shows with their first of two nights at Armadillo World Headquarters in Austin.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Austin_American_Statesman_Fri__Nov_1__1974_-1.jpg.webp)
 
@@ -20,11 +30,11 @@
 
 [Watch on Youtube: Bruce Springsteen, "Rosalita" - Tempe, 1975-11-06](https://www.youtube.com/watch?v=Hw5kxpUbCNw)
 
-**1976:** With the Palladium shows behind him Bruce takes a break from touring for the rest of the year. With time on his hands, Bruce heads into the city to visit DJ Richard Neer at New York’s WNEW-FM. The two have an on-the-air chat interspersed with records that Bruce selects for airplay. I’ve uploaded the interview but removed the in-between songs, so it might seem a little choppy at times. Take a listen below.<br>
+**1976:** With the Palladium shows behind him Bruce takes a break from touring for the rest of the year. With time on his hands, Bruce heads into the city to visit DJ Richard Neer at New York's WNEW-FM. The two have an on-the-air chat interspersed with records that Bruce selects for airplay. I've uploaded the interview but removed the in-between songs, so it might seem a little choppy at times. Take a listen below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Interview with Richard Neer at WNEW-FM, 1976-11-06](https://www.youtube.com/watch?v=Q3KWGnZ_Nas)
 
-**1983:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for “[It’s All Over Now](../2021-09-02_matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/post.md).”<br>
+**1983:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for "[It's All Over Now](../2021-09-02_matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/post.md)."<br>
 
 **1987:** Bruce joins The Fabulous Grease Band on stage at a concert at Rumson Country Day School. The set was recorded off the soundboard and is a great listen.<br>
 
@@ -32,23 +42,23 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1987-11-06.png.webp)
 
-**1992:** Bruce and his new touring band play their second of two nights at the Toronto Skydome, where “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” makes its final tour appearance.<br>
+**1992:** Bruce and his new touring band play their second of two nights at the Toronto Skydome, where "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" makes its final tour appearance.<br>
 
 [Watch on Youtube: Bruce Springsteen, "Spirit in the Night" - Toronto, 1992-11-06](https://www.youtube.com/watch?v=lwaQu6w9mWE)
 
-**1999:** Bruce plays his first-ever show in North Dakota, where “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” makes its U.S. Reunion Tour premiere.<br>
+**1999:** Bruce plays his first-ever show in North Dakota, where "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" makes its U.S. Reunion Tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen - "My Hometown" Fargo, 1999-11-06](https://www.youtube.com/watch?v=mm3dke6edD4)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Forum_1999_11_07_1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Forum_1999_11_07_3.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Forum_1999_11_21_31.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Forum_1999_11_21_31.jpg.webp)
 
 **2001:** *Live in New York City* is released on DVD, featuring eleven songs not aired in the broadcast version.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2001-11-06.png.webp)
 
-**2002:** A scheduled Rising Tour show in Austin is postponed until the following March due to Clarence’s detached retina.<br>
+**2002:** A scheduled Rising Tour show in Austin is postponed until the following March due to Clarence's detached retina.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2002-11-06a.png.webp)
 
@@ -56,9 +66,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2002-11-06.jpg.webp)
 
-**2004:** Bruce joins Joe Grushecky and The Houserockers on stage for the fifth consecutive year at the annual Light of Day benefit concert. It’s just four days after Election Day, and the loss still stings. Bruce plays a particularly pointed set, and at the end of “This Hard Land,” you can hear him add, “No surrender!” Listen to the set below.<br>
+**2004:** Bruce joins Joe Grushecky and The Houserockers on stage for the fifth consecutive year at the annual Light of Day benefit concert. It's just four days after Election Day, and the loss still stings. Bruce plays a particularly pointed set, and at the end of "This Hard Land," you can hear him add, "No surrender!" Listen to the set below.<br>
 
-[Watch on Youtube: From Small Things - Bruce Springsteen - LOD5 - Stone Pony - Asbury Park NJ - 11/06/2004](https://www.youtube.com/watch?v=gmoqu90hG24)
+[Watch on Youtube: From Small Things - Bruce Springsteen - LOD5 - Stone Pony - Asbury Park NJ - 11/06/2004](https://www.youtube.com/watch?v=gmoqu90hG24?list=PLnbVaK2f4raiZ61aK4m5x4seqMIHpMqks)
 
 [Watch on Youtube: Johnny 99 - Bruce Springsteen - LOD5 - Stone Pony - Asbury Park NJ - 11/06/2004](https://www.youtube.com/watch?v=XG592Qj5izg)
 
@@ -66,7 +76,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2004-11-06.png.webp)
 
-**2006:** The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in the customary guest-star slot on “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md).”<br>
+**2006:** The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in the customary guest-star slot on "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cBIpRIw1)
 
@@ -80,7 +90,7 @@
 
 [Watch on Youtube: Magic](https://www.youtube.com/playlist?list=OLAK5uy_mWNNoHllpzHWptudju4RNcHwZfkLjY3d8)
 
-**2013:** Bruce supports Stand Up for Heroes VII, now at New York’s Madison Square Garden, auctioning off a guitar (plus a lesson, plus his mom’s lasagna, plus an opportunity to join him at a recording session(!)) for $250,000 and playing a three-song acoustic set.<br>
+**2013:** Bruce supports Stand Up for Heroes VII, now at New York's Madison Square Garden, auctioning off a guitar (plus a lesson, plus his mom's lasagna, plus an opportunity to join him at a recording session(!)) for $250,000 and playing a three-song acoustic set.<br>
 
 [Watch on Youtube: Bruce Springsteen Stand Up For Heroes 2013 Part 1](https://www.youtube.com/watch?v=98zmzIVTNP4)
 
@@ -90,7 +100,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Dream Baby Dream Stand Up For Heroes 11-06-2013](https://www.youtube.com/watch?v=XHJL_nI5yoM)
 
-**2023:** Bruce’s scheduled show in Edmonton is postponed to more than a year later due to his peptic ulcer disease. However, he’s well enough to make a surprise (yet customary) appearance at Stand Up for Heroes in New York City, dueting with John Mellencamp on “Wasted Days” and playing four songs of his own, including the live premiere of “Addicted to Romance.”<br>
+**2023:** Bruce's scheduled show in Edmonton is postponed to more than a year later due to his peptic ulcer disease. However, he's well enough to make a surprise (yet customary) appearance at Stand Up for Heroes in New York City, dueting with John Mellencamp on "Wasted Days" and playing four songs of his own, including the live premiere of "Addicted to Romance."<br>
 
 [Watch on Youtube: Bruce Springsteen & John Mellencamp sing 'Wasted Days' at Stand Up for Heroes - 11/06/23](https://www.youtube.com/watch?v=5ueXcp0p_Fs)
 
@@ -98,6 +108,6 @@
 
 [Watch on Youtube: Bruce Springsteen Surprises 'Stand Up for Heroes' Audience](https://www.youtube.com/watch?v=oVySuoipOSU)
 
-**2024:** On a tragic U.S. Election Day, Bruce opens his show in Toronto with defiant performances of “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” and “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md).”<br>
+**2024:** On a tragic U.S. Election Day, Bruce opens his show in Toronto with defiant performances of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)."<br>
 
-[Watch on Youtube: Bruce Springsteen](https://www.youtube.com/watch?v=AGOle36ZEaI)
+[Watch on Youtube: Bruce Springsteen "A fighting prayer for my country" Long Walk Home Toronto, ON. 11/6/24](https://www.youtube.com/watch?v=AGOle36ZEaI)

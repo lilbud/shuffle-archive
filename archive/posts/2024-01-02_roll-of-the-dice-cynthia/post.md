@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Cynthia"
+author: "Ken"
+excerpt: "Bruce re-wrote Roy Orbison’s classic “Oh, Pretty Woman,” giving the title character a name and a more realistic ending. Insights and rare performances inside."
+tags: cynthia oh-pretty-woman roy-orbison tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/womanwalking2.gif
+post_id: 12105
+---
 Bruce Springsteen *really* likes Roy Orbison, and that esteem goes waaay back. Let's watch Bruce describe the first time he ever saw Roy Orbison perform:
 
 [Watch on Youtube: Bruce Springsteen talks about Roy Orbison 1981](https://www.youtube.com/watch?v=gVYCtCZ6c5o)

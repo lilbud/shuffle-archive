@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Buffalo Gals"
+author: "Ken"
+excerpt: "An age-old American classic is reinvigorated by a younger American classic."
+tags: buffalo-gals we-shall-overcome-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/H8897-L337071983_original.jpg
+post_id: 2463
+---
 Buried on the bonus DVD that came with *We Shall Overcome: The Seeger Sessions* was Bruce's take on the classic American folk song "Buffalo Gals."
 
 Why wasn't it included on the main disc? No idea. It was included in the *American Land* edition reissue later that year, so it obviously wasn't for space reasons.
@@ -8,7 +18,7 @@ But like the rest of the album, it's worth a frequent listen, because Bruce capt
 
 "Buffalo Gals" dates back to 1843, although it was known by another name then: John Hodges wrote and performed it as "Lubly Fan." Performed in travelling revues by wandering minstrels, it become wildly popular as it was adapted for each town visited. For whatever reason, it was the Buffalo version that stuck–we might just as well have learned at as "Boston Gals" or "Richmond Gals."
 
-From there, it took off through popular culture, morphing and evolving but always keeping it's catchiest lines and imagery: dancing by the light of the moon, dancing with a dolly with a hole in her stocking while her knees keep a-knocking...
+From there, it took off through popular culture, morphing and evolving but always keeping it's catchiest lines and imagery: dancing by the light of the moon, dancing with a dolly with a hole in her stocking while her knees keep a-knocking…
 
 It showed up in literature like *Tom Sawyer*, in science fiction novels and movies, in TV studio jingles, and in film:
 
@@ -16,13 +26,13 @@ It showed up in literature like *Tom Sawyer*, in science fiction novels and movi
 
 [Watch on Youtube: It's a Wonderful Life (2/9) Movie CLIP - Lasso the Moon (1946) HD](https://www.youtube.com/watch?v=uAERYfeiYBc)
 
-...and made the leap to the rock and roll era:
+…and made the leap to the rock and roll era:
 
 [Watch on Youtube: BILL HALEY ( dance with a dolly )](https://www.youtube.com/watch?v=pTFlT1DuQG0)
 
 [Watch on Youtube: The Olympics - Dance by the Light of the Moon](https://www.youtube.com/watch?v=EgTbRAPazAc)
 
-...but Bruce returned it to a traditional arrangement when he recorded it for the Seeger Sessions album, and it became an encore favorite on the first half of that tour.
+…but Bruce returned it to a traditional arrangement when he recorded it for the Seeger Sessions album, and it became an encore favorite on the first half of that tour.
 
 [Watch on Youtube: Buffalo Gals (Live at the New Orleans Jazz & Heritage Festival, 2006)](https://www.youtube.com/watch?v=L_XmpMRCUaE)
 

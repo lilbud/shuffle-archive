@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Patti Scialfa and Bruce Springsteen: Children's Song"
+author: "Ken"
+excerpt: "A little marital creative tension and an uncredited duet vocal resulted in one of the loveliest but rarest Springsteen/Scialfa recordings–all for an important cause."
+tags: childrens-song every-mother-counts patti-scialfa
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/everymother.jpg
+post_id: 21390
+---
 In 2011, Christy Turlington directed and released a documentary called *No Woman No Cry*, shining a spotlight on the shockingly high mortality rate for expectant mothers, particularly among women living in poverty.
 
 [Watch on Youtube: No Woman, No Cry (2011) - Official Trailer](https://www.youtube.com/watch?v=2EqOnBTi_fs)

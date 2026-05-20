@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Tacoma, April 4, 2000"
+author: "Ken"
+excerpt: "The show that hooked me on Bruce in concert."
+tags: reunion-tour tacoma
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/2000tacoma.jpg
+post_id: 1459
+---
 Even by Bruce’s standards, it was a late start: Rumor had it that Bruce had taken in a Mariners game earlier that day and was delayed in getting to the arena by Seattle’s infamous traffic, causing a domino effect from soundcheck to show start.
 
 Whatever the reason for the hour-plus delay, when the show finally started with Bruce and Clarence’s benediction, it rocketed out of the gate. From the moment I first heard it, “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)” would forever be my favorite opener for a Springsteen concert, and although the setlist may not have held any premieres or surprises, I hadn’t yet discovered the on-line community sites with setlist discussions, so everything was fresh and new to me.

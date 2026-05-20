@@ -1,3 +1,13 @@
+---
+layout: post
+title: "April 21"
+author: "Ken"
+excerpt: "Rare River Tour (the original one) video, an all-star one-night-only tribute to the Upstage, and the first public warm-up for the Devils & Dust Tour lead the highlights from this day in Bruce history."
+tags: barcelona boston charlotte chicken-scratch-tour clarence-clemons danny-federici dead-man-walking i-dont-want-to-go-home im-bad-im-nationwide reunion-tour river-tour spain stand-by-me upstage
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/bs240421_01.jpg
+post_id: 56572
+---
 **1972:** The Bruce Springsteen Band headlines at Red Bank Catholic High School in Red Bank, New Jersey.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1972-04-21.jpg.webp)

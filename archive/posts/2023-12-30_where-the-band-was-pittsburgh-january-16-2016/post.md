@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Pittsburgh, January 16, 2016"
+author: "Ken"
+excerpt: "Three years ago today: Bruce Springsteen and the E Street Band launch an eight-month tour that starts with a full-album performance of the The River and would end with a career-spanning marathon retrospective."
+tags: cadillac-ranch david-bowie im-a-rocker jake-clemons meet-me-in-the-city pittsburgh rebel-rebel river-tour-2016
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/6982_artwork_01.jpg
+post_id: 7078
+---
 I love going to opening and closing nights of Springsteen tours.
 
 The last night is always a loose yet polished emotional marathon full of wild cards and rarities; the first night is short, tight, and safe–but equally unpredictable, since no one yet knows what to expect.

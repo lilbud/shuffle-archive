@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/Cover Me, Southside Johnny: Walking Through Midnight"
+author: "Ken"
+excerpt: "One of the more under-the-radar Southside Johnny/Bruce Springsteen collaborations, “Walking Through Midnight” closed Southside’s first solo album in 1988."
+tags: southside-johnny walking-through-midnight
+categories: cover-me cover-you roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/slowdance.jpg
+post_id: 18906
+---
 When Southside Johnny released his first solo album in 1988, he called upon his old friend Bruce Springsteen to help him close out the record. The album's final song is a moody ballad called "Walking Through Midnight" co-written by Southside and Bruce.
 
 [Watch on Youtube: Walking Through Midnight Southside Johnny](https://www.youtube.com/watch?v=PunmN3Tr_54)

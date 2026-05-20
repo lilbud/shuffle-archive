@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Midnight Train"
+author: "Ken"
+excerpt: "From SxSW 2012: Bruce joins his Texas buddies Joe Ely and Alejandro Escovedo for The Flatlanders’ “Midnight Train.”"
+tags: alejandro-escovedo joe-ely midnight-train
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/flat.jpg
+post_id: 927
+---
 "Midnight Train" is a Joe Ely deep cut from *Wheels of Fortune*, the 2004 comeback album for The Flatlanders, of which Ely was a founding member.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y_TyiFj-3uw)

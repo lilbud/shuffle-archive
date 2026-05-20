@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Philadelphia, September 7, 2016"
+author: "Ken"
+excerpt: "Bruce breaks the longest-American-show-ever record for the fourth time in two weeks while delivering a dream setlist in Philadelphia."
+tags: growin-up its-hard-to-be-a-saint-in-the-city kittys-back lost-in-the-flood new-york-city-serenade philadelphia river-tour-2016 the-fever thundercrack
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/officiallivedownloads_2016-09-07.jpg
+post_id: 4261
+---
 My, they don't make longest-show-ever records like they used to. By the time the 2016 River Tour reached its last month, Bruce was continually raising the bar, breaking and setting new records for longest American show (his 2012 record-length show in Helsinki is still unmatched) with regularity.
 
 Even two years down the road, this show is tough one for me to characterize. On one hand, the Night 1/Night 2 rule was definitely in effect, with Bruce tracing what had now become his standard chronological arc through his catalog. Also, there wasn't a single true sign request (the two signs he grabbed were for songs already on the setlist), a very rare instance of a Bruce show that closely resembles the original pre-show plan (there were audibles, however).
@@ -36,6 +46,6 @@ By the end of that night, I was *hurting*. I'd already driven to Virginia Beach 
 
 I didn't know how I was going to physically make it through all four shows in one week, which of course makes one wonder: how the heck does Bruce do it?
 
-And since this "autobiography tour" format had been introduced at the last night at MetLife, and this next show would be the first Night Two since then... what could possibly be left for him to play?
+And since this "autobiography tour" format had been introduced at the last night at MetLife, and this next show would be the first Night Two since then… what could possibly be left for him to play?
 
 I'd find out in two days.

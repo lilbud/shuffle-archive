@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Last Night in Tulsa"
+author: "Ken"
+excerpt: "Nothing particularly stands out about this Bruce Springsteen Band-era road song, but sometimes that’s not that the aim."
+tags: last-night-in-tulsa the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/tulsa.jpg
+post_id: 23376
+---
 Some songs run deep; others float right on by.
 
 Every once in a while, Bruce writes a pure pop song like "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" or "[You've Got It](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)" that requires no lyrical analysis–everything we need to know is right there on the surface.
@@ -20,35 +30,35 @@ David Sancious gets a turn in the spotlight but is relatively restrained; Bobby 
 
 Lyrically, "Last Night in Tulsa" is a simple road song of the sort that any touring musician who's lingered just a bit too long with a comely companion would appreciate and identify with.
 
-> *Last night in Tulsa*
-> *And I'm goin' back home*
-> *It's my last night in Tulsa*
-> *And I'm goin' back home*
-> *I been in town just one night too long*
+> *Last night in Tulsa*<br>
+> *And I'm goin' back home*<br>
+> *It's my last night in Tulsa*<br>
+> *And I'm goin' back home*<br>
+> *I been in town just one night too long*<br>
 
-> *My bags all packed up at the station*
-> *Gotta take it on the Tulsa line*
-> *My bags all packed up at the station*
-> *I gotta take that all out on the Tulsa line*
-> *There ain't never been a feelin' so fine*
-> *As laying out in some of that warm, warm, warm sunshine*
-> *And everything looks surely grand*
-> *With that fine little woman of mine*
+> *My bags all packed up at the station*<br>
+> *Gotta take it on the Tulsa line*<br>
+> *My bags all packed up at the station*<br>
+> *I gotta take that all out on the Tulsa line*<br>
+> *There ain't never been a feelin' so fine*<br>
+> *As laying out in some of that warm, warm, warm sunshine*<br>
+> *And everything looks surely grand*<br>
+> *With that fine little woman of mine*<br>
 
-> *I remember all them sweet kisses*
-> *And I know I'm gonna miss her*
-> *She was fine, that woman of mine*
+> *I remember all them sweet kisses*<br>
+> *And I know I'm gonna miss her*<br>
+> *She was fine, that woman of mine*<br>
 
-> *Last night in Tulsa*
-> *And I'm going back home*
-> *It's my last night in Tulsa*
-> *I'm just tired of travelling right along*
-> *I been in this town one night too long*
+> *Last night in Tulsa*<br>
+> *And I'm going back home*<br>
+> *It's my last night in Tulsa*<br>
+> *I'm just tired of travelling right along*<br>
+> *I been in this town one night too long*<br>
 
-> *Last night in Tulsa*
-> *My last night in Tulsa*
-> *My last night I'm coming home*
-> *Coming home, coming home, coming home*
+> *Last night in Tulsa*<br>
+> *My last night in Tulsa*<br>
+> *My last night I'm coming home*<br>
+> *Coming home, coming home, coming home*<br>
 
 See what I mean? "Last Night in Tulsa" is pleasant enough, and I suspect that if I had a clean, clear performance (instead of the distant recording above), I might even listen to it once in a while.
 

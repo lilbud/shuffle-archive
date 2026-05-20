@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Don't Say No"
+author: "Ken"
+excerpt: "We may not be able to make out the lyrics for “Don’t Say No,” but the backing track is a keeper. Too bad Bruce didn’t find a home for it–although it’s not for lack of trying."
+tags: dont-say-no i-want-to-be-wild out-on-the-run
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/Dont_Say_No_logo.png
+post_id: 13046
+---
 Bruce really, really, *really* wanted to find a home for the instrumental track that backs his unreleased song, "Don't Say No." He used it not once but twice in 1977–and then a third time in 1979.
 
 But all three songs ("Don't Say No" "[I Want to Be Wild](../2021-03-07_roll-of-the-dice-i-want-to-be-wild/post.md)," and "[Out on the Run](../2021-05-20_roll-of-the-dice-out-on-the-run/post.md)") remain unreleased–and as far as we know, unfinished–to this day.

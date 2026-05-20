@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: KT-88"
+author: "Ken"
+excerpt: "We’re in obscure territory today with this instrumental jam from the Child/Steel Mill era."
+tags: child kt88 steel-mill
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/kt88-1.jpg
+post_id: 1009
+---
 
 The dice take us into seriously obscure territory today:
 

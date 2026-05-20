@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Nils Lofgren, and Soozie Tyrell: It's All Over Now"
+author: "Ken"
+excerpt: "The Rolling Stones’ first #1 U.K. hit had a habit of turning up in Bruce’s set lists in the strangest places, but fortunately a couple of his team-ups were captured for posterity."
+tags: nils-lofgren soozie-tyrell the-rolling-stones the-valentinos
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/stones.jpg
+post_id: 29190
+---
 It's a Rolling Stones double-shot!
 
 Yesterday, we took a look at "[Jumpin' Jack Flash](../2021-09-01_matr-bruce-springsteen-and-wolfgang-niedecken-jumpin-jack-flash/post.md)," a song Bruce covered three times in unusual circumstances. Today, we take a look at the Stones' first U.K. #1 hit–a song Bruce covered twice as many times, in circumstances just as varied.
@@ -20,7 +30,7 @@ The third time was the charm, though. At a Nils Lofgren concert at the Stone Pon
 
 The Stone Pony was the scene of Bruce's next captured performance, too–this time with lead vocals by Soozie Tyrell, the guest of honor at her *White Lines* record release party at in May 2003.
 
-[Watch on Youtube: It's All Over Now - Soozie Tyrell ft. Bruce Springsteen (The Stone Pony, 2 May 2003)](https://www.youtube.com/watch?v=J_Q803Ov1QE?list=PLnbVaK2f4rahG0FUeHpPvV4kAosh4BFWT)
+[Watch on Youtube: It's All Over Now - Soozie Tyrell ft. Bruce Springsteen (The Stone Pony, 2 May 2003)](https://www.youtube.com/watch?v=J_Q803Ov1QE)
 
 But it wasn't until the very end of the Magic Tour in 2008 that Bruce performed "It's All Over Now" in concert properly–and even then, it was a team-up. Bruce almost never cedes the vocal spotlight to one of his band members, but that night he shared the spotlight with Soozie for a reprise of their Stone Pony performance five years earlier.
 

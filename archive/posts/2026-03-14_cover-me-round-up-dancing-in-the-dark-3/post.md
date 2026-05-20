@@ -1,3 +1,10 @@
+---
+layout: default-post
+title: "Cover Me Round-Up: Dancing in the Dark"
+author: "Ken"
+excerpt: "This one’s even harder. I may have featured “I’m on Fire” covers the most on my blog, but some of the best Cover Me entries were…"
+post_id: 68336
+---
 This one's even harder.
 
 I may have featured "I'm on Fire" covers the most on my blog, but some of the best *Cover Me* entries were for "Dancing in the Dark."

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Air Supply: 4th of July, Asbury Park (Sandy)"
+author: "Ken"
+excerpt: "Did a surprising E Street through-line inspire Air Supply’s 1983 cover of Bruce’s 1973 classic?"
+tags: 4th-of-july-asbury-park-sandy air-supply
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/airsupply.jpg
+post_id: 23065
+---
 You wouldn't think you could draw a straight line from Bruce Springsteen through Meat Loaf to Air Supply, and yet you can, courtesy of Mighty Max and The Professor.
 
 It's well-known that Weinberg and Bittan are all over Meat Loaf's immortal 1977 *Bat Out of Hell* album.

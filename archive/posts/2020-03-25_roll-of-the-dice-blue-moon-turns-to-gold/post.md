@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Blue Moon Turns to Gold"
+author: "Ken"
+excerpt: "Hidden away on the flip side of the handwritten lyrics for “Gloria’s Eyes” lurks a Springsteen original that still hasn’t seen the light of day."
+tags: blue-moon-turns-to-gold glorias-eyes songs
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/bluemoon.jpg
+post_id: 16916
+---
 Okay, humor me here, because I'm well aware that with this installment I'm crossing over into obsessive territory.
 
 In Bruce's book of song lyrics entitled (appropriately) *Songs*, there's a two-page spread of Bruce's hand-written lyrics for "Gloria's Eyes." Of all the songs in Bruce's catalog–or even of all the songs on *Human Touch*–why he chose "Gloria's Eyes" as the hand-written lyrics to gift us with is something I can't answer.
@@ -20,19 +30,19 @@ But while the title might have been borrowed, the lyrics are original.
 
 Unfortunately, the first half is *really* hard to make out. The good folks at brucelyrics.com took a stab at it, but my inspection tells me that their decryption is inaccurate. Unfortunately, I can't come up with anything better, so rather than give myself a headache trying (if you want to try, be my guest–I'd love to know what you come up with), here's my transcription of the second half:
 
-> *In high school ??? her hair*<br>
-> *What you got baby under there*<br>
-> *Something hot for when the night turns cold*<br>
-> *I'd want you till … [presumably the chorus "the blue moon turns to gold" goes here]*<br>
+> *In high school ??? her hair*
+> *What you got baby under there*
+> *Something hot for when the night turns cold*
+> *I'd want you till … [presumably the chorus "the blue moon turns to gold" goes here]*
 
-> *When the school days was done*<br>
-> *marry me baby, we'll have a lot of fun*<br>
-> *All I heard was no no no no*<br>
-> *I'll be cryin' till the blue moon turns to gold*<br>
+> *When the school days was done*
+> *marry me baby, we'll have a lot of fun*
+> *All I heard was no no no no*
+> *I'll be cryin' till the blue moon turns to gold*
 
-> *So you wanna leave our little town*<br>
-> *Someday all that's this world won't be nothin but ice and cold*<br>
-> *My love will burn inside till the blue moon…*<br>
+> *So you wanna leave our little town*
+> *Someday all that's this world won't be nothin but ice and cold*
+> *My love will burn inside till the blue moon…*
 
 So, um, yeah–not exactly Bruce's deepest (or even coherent) lyrics.
 

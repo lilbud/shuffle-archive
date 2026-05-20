@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Only the Lonely (Know the Way I Feel)"
+author: "Ken"
+excerpt: "One time only: Bruce joins Roy Orbison and an all-star line-up on Roy’s first big hit, “Only the Lonely.”"
+tags: black-and-white-night only-the-lonely-know-the-way-i-feel roy-orbison
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/only-lonely.jpg
+post_id: 13044
+---
 Blink and you'll miss him, but that's Bruce sitting behind Roy Orbison playing guitar in this clip from Roy's 1987 concert film, *Roy Orbison & Friends: A Black & White Night*.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4YG__LBJVZ0)

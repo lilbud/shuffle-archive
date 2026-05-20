@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 5"
+author: "Ken"
+excerpt: "On this date in history: Bruce plays “Fade Away” for the last time for almost a quarter-century. More highlights inside."
+tags: indianapolis lawsuit-tour orlando reunion-tour river-tour wrecking-ball
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-05-st.-paul-mn-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56096
+---
 ***New for 2025:** Video for 2023*<br>
 
 **1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.<br>

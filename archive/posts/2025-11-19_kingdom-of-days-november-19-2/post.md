@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 19"
+author: "Ken"
+excerpt: "On this significant date: Bruce pays tribute to Frank Sinatra on his 80th birthday, the Blood Brothers EP is released, and Danny Federici plays his final full show. Much more inside."
+tags: across-the-borderline angel-eyes birmingham bishop-danced blood-brothers bob-costas born-in-the-usa-tour boston bruce-springsteen-band buffalo clarence-clemons danny-federici dateline denber devils-and-dust-tour drive-all-night dublin emmylou-harris for-you frank-sinatra get-out-of-denver ghost-of-tom-joad-tour hollywood im-turning-into-elvis ireland kansas-city live-in-dublin magic-tour memphis my-hometown pbs-exclusive peter-wolf reunion-tour rising-tour roll-of-the-dice seeger-sessions-tour steve-van-zandt student-prince the-ghost-of-tom-joad thundercrack tracks two-hearts when-the-saints-go-marching-in wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/bloodbrothers.png
+post_id: 62388
+---
 ***New for 2025:** Audio for 2012; new entry for 2024*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

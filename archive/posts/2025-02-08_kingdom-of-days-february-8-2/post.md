@@ -1,6 +1,16 @@
+---
+layout: post
+title: "February 8"
+author: "Ken"
+excerpt: "Bruce wins many Grammys, is saluted by MusiCares, breaks out an awesome “Highway to Hell” cover and more on this very busy day in Springsteen history."
+tags: action-in-the-streets albany atlanta australia be-true bobby-jean devils-and-dust ghost-of-tom-joad-tour grammy-awards high-hopes-tour highway-to-hell lawsuit-tour musiccares perth river-tour-2016 rochester rosalita sydney terrys-song the-promise
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1977-02-08-Rochester-NY-cover.jpg
+post_id: 55883
+---
 **1974:** Night Two for Bruce and the (still unnamed) E Street Band at Richards in Atlanta, opening for NRBQ.<br>
 
-**1977:** Bruce and the band play Rochester's Auditorium Theater, in a show that is available for purchase as part of Bruce's official archive series.<br>
+**1977:** Bruce and the band play Rochester’s Auditorium Theater, in a show that is available for purchase as part of Bruce’s official archive series.<br>
 
 [Watch on Youtube: Tenth Avenue Freeze-Out (Live at Auditorium Theatre, Rochester, NY - 2/8/1977)](https://www.youtube.com/watch?v=g602smSqL18)
 
@@ -16,17 +26,17 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-08.png.webp)
 
-**2004:** Bruce and the late Warren Zevon win the Grammy Award for Best Rock Vocal Performance by a Duo or Group with Vocal for "[Disorder in the House.](../2020-06-08_matr-warren-zevon-and-bruce-springsteen-disorder-in-the-house/post.md)"<br>
+**2004:** Bruce and the late Warren Zevon win the Grammy Award for Best Rock Vocal Performance by a Duo or Group with Vocal for “[Disorder in the House.](../2020-06-08_matr-warren-zevon-and-bruce-springsteen-disorder-in-the-house/post.md)”<br>
 
 [Watch on Youtube: disorder in the house - warren zevon & bruce springsteen](https://www.youtube.com/watch?v=hlUsbtkxRps)
 
-**2006:** Bruce wins the Best Solo Rock Vocal Performance Grammy award for "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)" and performs the song live at the awards ceremony.<br>
+**2006:** Bruce wins the Best Solo Rock Vocal Performance Grammy award for “[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)” and performs the song live at the awards ceremony.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MO78meba)
 
-"Devils & Dust" was also nominated for Song of the Year, Best Rock song, and Best Long Form Music Video, but it does not win those categories. *Devils & Dust* (the album) is nominated for but does not win the Best Contemporary Folk Album award. Bruce returns to the stage for the finale to perform Wilson Pickett's "[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)."
+“Devils & Dust” was also nominated for Song of the Year, Best Rock song, and Best Long Form Music Video, but it does not win those categories. *Devils & Dust* (the album) is nominated for but does not win the Best Contemporary Folk Album award. Bruce returns to the stage for the finale to perform Wilson Pickett’s “[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md).”
 
-**2009:** Bruce takes home the Best Rock Song Grammy Award for "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)." The song is also nominated for Best Solo Rock Vocal Performance but does not win.<br>
+**2009:** Bruce takes home the Best Rock Song Grammy Award for “[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md).” The song is also nominated for Best Solo Rock Vocal Performance but does not win.<br>
 
 [Watch on Youtube: Girls In Their Summer Clothes](https://www.youtube.com/watch?v=pEF6z2LyOPs)
 
@@ -44,7 +54,7 @@
 
 [Watch on Youtube: GRAMMY Live - MusiCares Tribute To Bruce Springsteen](https://www.youtube.com/watch?v=J467YgHAph4)
 
-**2014:** The final night in Perth marks the point where the High Hopes Tour breaks wide open, starting a run of shows with wild, unpredictable covers, tributes to local heroes, and anything goes requests. This show is the first not to feature any songs from *The Rising* since that album debuted, and the show opens with a fantastic cover of AC/DC's "Highway to Hell." The encores include the third-ever performance of "[Terry's Song](../2018-07-30_roll-of-the-dice-terrys-song/post.md)." Also tour premiering tonight: "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)," "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)," "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)," "The Promise," and "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)"<br>
+**2014:** The final night in Perth marks the point where the High Hopes Tour breaks wide open, starting a run of shows with wild, unpredictable covers, tributes to local heroes, and anything goes requests. This show is the first not to feature any songs from *The Rising* since that album debuted, and the show opens with a fantastic cover of AC/DC’s “Highway to Hell.” The encores include the third-ever performance of “[Terry’s Song](../2018-07-30_roll-of-the-dice-terrys-song/post.md).” Also tour premiering tonight: “[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md),” “[Candy’s Room](../2022-05-02_roll-of-the-dice-candys-room/post.md),” “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md),” “The Promise,” and “[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)”<br>
 
 [Watch on Youtube: Highway to Hell - ( Pro shot perth 2014) Bruce springsteen](https://www.youtube.com/watch?v=prtyGeR4oQA)
 
@@ -54,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen - AMERICAN LAND - Perth 8 February 2014.](https://www.youtube.com/watch?v=rZ-Ew2pZKtw)
 
-**2016:** The revived River Tour plays the Times Union Center in Albany and features the tour premieres of "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" and "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)."<br>
+**2016:** The revived River Tour plays the Times Union Center in Albany and features the tour premieres of “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)” and “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen-Be True, Albany 2016-02-08](https://www.youtube.com/watch?v=kWwuOiSt-Ck)
 

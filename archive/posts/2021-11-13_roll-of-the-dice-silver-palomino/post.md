@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Silver Palomino"
+author: "Ken"
+excerpt: "The tragic death of a family friend gave rise to this lovely song about the resilience of the spirit."
+tags: devils-and-dust silver-palomino
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/palomino.jpg
+post_id: 30467
+---
 I still see my dad every day.
 
 Our parents fill so much space in our hearts and our lives that anything and everything can remind us of them, even when they're gone. Like my dad.

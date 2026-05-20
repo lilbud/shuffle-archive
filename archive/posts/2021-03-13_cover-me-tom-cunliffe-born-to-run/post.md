@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Tom Cunliffe: Born to Run"
+author: "Ken"
+excerpt: "Auckland-based Tom Sutcliffe turns in a tender reading of Bruce’s signature song."
+tags: born-to-run tom-cunliffe
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/cunliffe.jpg
+post_id: 25925
+---
 With a couple of albums under his belt, Auckland-based folk-rocker Tom Cunliffe has established himself as a great singer-songwriter.
 
 In a recent interview for [*The Influences*](https://theinfluences.com/)(a brilliant web site dedicated to artists covering songs that influenced them, which I recommend to anyone who likes great music from musicians who appreciate great music), Cunliffe revealed where his inspirations derive from.

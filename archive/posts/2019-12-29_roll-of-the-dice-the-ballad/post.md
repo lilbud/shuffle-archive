@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Ballad"
+author: "Ken"
+excerpt: "Nicknamed “Castaway” by bootleggers, “The Ballad” features a gorgeous Darkness-era E Street Band performance. If only we could get a reliable translation of those lyrics…"
+tags: castaway the-ballad
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/wilson_volleyball_castaway_front.jpg
+post_id: 15190
+---
 "The Ballad" has always intrigued me.
 
 Many of the lyrics from this [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) outtake are too distant to confidently make out, and the title offers us no clues or context to the song's content.

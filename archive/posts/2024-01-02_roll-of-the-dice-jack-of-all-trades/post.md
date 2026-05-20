@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Jack of All Trades"
+author: "Ken"
+excerpt: "Perhaps the most carefully constructed song on Bruce’s Wrecking Ball album, “Jack of All Trades” is both musically and (sadly) lyrically timeless."
+tags: jack-of-all-trades wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/jack.jpg
+post_id: 22585
+---
 Bruce Springsteen wrote "Jack of All Trades" shortly after the U.S. housing bubble of the early 2000s violently burst, but both lyrically and musically it sounds like it could have been written years, decades, or even centuries earlier.
 
 [Watch on Youtube: Jack Of All Trades](https://www.youtube.com/watch?v=_5Xao2_K-h4)

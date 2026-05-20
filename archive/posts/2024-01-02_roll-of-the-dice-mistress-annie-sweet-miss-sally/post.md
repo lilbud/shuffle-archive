@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mistress Annie/Sweet Miss Sally"
+author: "Ken"
+excerpt: "Don’t bother me with that “Laurel or Yanni” thing. I’m still trying to figure out if it’s Sally or Annie."
+tags: mistress-annie sweet-miss-sally the-bruce-springsteen-band
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/sallyannie.jpg
+post_id: 6280
+---
 Before Laurel and Yanni, there was Sally and Annie.
 
 Back in the Bruce Springsteen Band era (1971-72), Bruce and the boys would play a ten-minute blues jam called “Sweet Miss Sally.”

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 5"
+author: "Ken"
+excerpt: "On this date: Bruce kicks off his first stadium tour, guest stars with John Fogerty, and more."
+tags: born-in-the-usa-tour darkness-tour east-rutherford john-fogerty largo lawsuit-tour louisville man-at-the-top red-bank rising-tour river-tour washington-dc
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1984-08-05.jpg
+post_id: 57910
+---
 ***New for 2025:** New entry for 1977*<br>
 
 **1971:** Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slide guitar, Kevin Kavanaugh on piano, and Vini Lopez on pebble-filled soda cans) at an outdoor folk concert organized by Tinker West.<br>

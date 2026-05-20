@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: For Your Love"
+author: "Ken"
+excerpt: "One time only: Bruce covers Ed Townsend’s 1957 romantic standard in a surprising arrangement at a New York City soundcheck on the Tunnel of Love Tour."
+tags: ed-townsend for-your-love
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/foryourlove.jpg
+post_id: 25521
+---
 Bruce rarely stumbles when he covers another artist, but we may be looking at a rare instance today.
 
 Technically, though, he hasn't actually performed this one in concert; he only soundchecked it once, and it appears to have been a spontaneous arrangement, so maybe we can cut him some slack.

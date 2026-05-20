@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Heart Full of Soul"
+author: "Ken"
+excerpt: "One time only (that was captured, at least): Bruce Springsteen and the E Street Band take a break from rehearsing new Darkness Tour songs with an impromptu cover of The Yardbirds’ classic “Heart Full of Soul.”"
+tags: heart-full-of-soul the-yardbirds
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/heartfull.jpg
+post_id: 21254
+---
 > "'Heart Full of Soul...' oh, did we play the hell out of that many a night." — Bruce Springsteen, *Little Steven's Underground Garage*, Episode 471
 
 Bruce must have meant "on vinyl," because if they played the hell out of The Yardbirds' "Heart Full of Soul" many a night in concert, there's no record of it. (That's actually not that improbable–most of Bruce's pre-label gigs aren't well-documented.)

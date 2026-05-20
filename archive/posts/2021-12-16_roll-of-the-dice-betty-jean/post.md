@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Betty Jean"
+author: "Ken"
+excerpt: "Listen to the tale of Betty Jean, Bobby’s younger sister. She never made it out of town, but she had her share of adventures just the same."
+tags: betty-jean bobby-jean delivery-man
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/bettyjean.jpg
+post_id: 7410
+---
 No, that's not a typo in the title: this is the story of *Betty* Jean.
 
 We all know [*Bobby* Jean's story](../2018-06-19_roll-of-the-dice-bobby-jean/post.md), of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn't even get to say goodbye.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 25"
+author: "Ken"
+excerpt: "On this date: Bruce headlines at the Philadelphia Spectrum for the first time, Western Stars debuts in movie theaters, and Clarence Clemons joins the E Street Band. Lots more highlights inside."
+tags: artists-united-against-apartheid born-in-the-usa-tour born-to-run-tour danny-federici for-you ghost-of-tom-joad-tour hartford lawsuit-tour los-angeles magic-tour oakland on-top-of-old-smoky oregon philadelphia portland reunion-tour river-tour santa-barbara santander seeger-sessions-tour spain spectrum springfield springsteen-on-broadway stephen-colbert steve-van-zandt sun-city the-ghost-of-tom-joad there-will-never-be-any-other-for-me-but-you this-hard-land working-on-a-dream-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/western.jpg
+post_id: 61196
+---
 ***New for 2025:** New entry for 1983, 1993, and 2024; audio for 2006 and 2012*<br>
 
 **1970:** Steel Mill performs at the Richmond Arena.<br>

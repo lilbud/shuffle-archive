@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Blinded by the Light"
+author: "Ken"
+excerpt: "The dazzling and dizzying track that kicked off Springsteen’s fifty-year recording career and burned his rhyming dictionary to cinders"
+tags: blinded-by-the-light greetings-from-asbury-park
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/blinded.jpg
+post_id: 40201
+---
 > "It's basically about sex." — *Bruce Springsteen, February 20, 2003*<br>
 >
 > "Don't overthink the whole thing." — *Bruce Springsteen, April 4, 2005*<br>

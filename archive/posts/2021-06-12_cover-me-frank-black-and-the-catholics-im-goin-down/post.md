@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Frank Black and The Catholics: I'm Goin' Down"
+author: "Ken"
+excerpt: "Crunchy, grungy, and loud: Frank Black and the Catholics give us the angry, cathartic version of “I’m Goin’ Down” we didn’t know we needed."
+tags: frank-black-and-the-catholics im-goin-down
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/frank-black-the-catholics-band-photo.jpg
+post_id: 27775
+---
 This past year's quarantine has brought us so many great new Springsteen covers that I've fallen way, *way* behind on the original list of covers I was working my way through when I started this series.
 
 So let's take a trip back to the "classic" covers for at least a couple of installments.

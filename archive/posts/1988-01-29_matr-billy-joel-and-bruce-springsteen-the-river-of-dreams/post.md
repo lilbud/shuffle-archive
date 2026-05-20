@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "The River of Dreams"
+author: "Ken"
+excerpt: "One time only: Bruce and Billy Joel team up on Billy’s 1993 hit at a 2008 benefit show for Barack Obama."
+tags: a-hard-days-night billy-joel the-river-of-dreams
+categories: cover-me meeting-across-the-river
+post_id: 22319
+---
 Of all the songs in Billy Joel’s catalog begging for a Billy/Bruce team-up, “The River of Dreams” is a no-brainer.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hSq4B_zHqPM)

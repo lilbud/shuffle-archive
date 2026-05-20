@@ -1,3 +1,13 @@
+---
+layout: post
+title: "If I Had a Hammer"
+author: "Ken"
+excerpt: "One of the few holdbacks from the decade-long Seeger Sessions finally saw an official release last year. Take a listen to Bruce’s cover of Pete Seeger’s “If I Had a Hammer.”"
+tags: if-i-had-a-hammer pete-seeger the-weavers
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/hammer-1.jpg
+post_id: 13621
+---
 We tend to think of the Seeger Sessions as a point in time, a momentary diversion between Bruce's rock albums. The Seeger Sessions actually spanned a full decade, though–they bridge the *Ghost of Tom Joad* period all the way through to the *Magic* era.
 
 Most of the songs that would eventually be released on Bruce's 2006 album were recorded either in November 1997 or March 2005, but there were a few stragglers recorded as late as January 2006. "Jacob's Ladder" and "Eyes on the Prize" and "Buffalo Gals" were among the songs recorded in that third and final Seeger session.

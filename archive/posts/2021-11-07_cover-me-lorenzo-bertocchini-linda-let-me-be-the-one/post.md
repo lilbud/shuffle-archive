@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Lorenzo Bertocchini: Linda, Let Me Be The One"
+author: "Ken"
+excerpt: "From his wonderful 2009 tribute album Hearts of Stone, check out Lorenzo Bertocchini’s beautiful arrangement of Bruce’s very, very deep cut."
+tags: linda-let-me-be-the-one lorenzo-bertocchini
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/lindabe.jpg
+post_id: 26255
+---
 I try not to revisit cover artists very often, because there are so many great Springsteen covers out there by performers who deserve more visibility and airplay.
 
 But I find myself making an exception for Lorenzo Bertocchini, who makes his third appearance here on the Shuffle today (although one was for his original "[Hey Bruce](../2021-04-21_spare-parts-lorenzo-bertocchini-hey-bruce/post.md)" composition).

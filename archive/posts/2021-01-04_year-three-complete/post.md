@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Year Three: Complete!"
+author: "Ken"
+excerpt: "Today marks the end of Year 3 for this blog, and this a note of thanks for your readership this past year and a look ahead to the next one."
+tags: year-three
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/yearthree.png
+post_id: 24284
+---
 Today marks the end of Year Three for this blog!
 
 It also marks:

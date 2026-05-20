@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Alison"
+author: "Ken"
+excerpt: "One time only: Bruce joins Elvis Costello on his timeless “Alison” during Elvis’ surprise appearance at Bruce’s 2001 holiday shows,"
+tags: alison elvis-costello
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/alison.jpg
+post_id: 22589
+---
 > "I've always told people that I wrote the song ‘Alison' after seeing a beautiful checkout girl at the local supermarket. She had a face for which a ship might have once been named. Scoundrels might once have fought mist-swathed duels to defend her honour. Now she was punching in the prices on cans of beans at a cash register and looking as if all the hopes and dreams of her youth were draining away." — Elvis Costello, *Unfaithful Music & Disappearing Ink*<br>
 
 With apologies to Bruce: the true Queen of the Supermarket belongs to Elvis.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Tomorrow Never Knows"
+author: "Ken"
+excerpt: "The very definition of an overlooked gem, “Tomorrow Never Knows” reflects an artist truly coming to terms with his mortality and establishes a throughline to Western Stars."
+tags: kingdom-of-days tomorrow-never-knows working-on-a-dream
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/tomorrow.jpg
+post_id: 13398
+---
 It's easy to forget about "Tomorrow Never Knows." Bruce has never performed it live, and I've never seen a fan ask for it or heard Bruce talk about it. And yet, it's arguably one of the songs that best defines the album on which it's hidden away.
 
 Bruce wrote "Tomorrow Never Knows" during the mixing stages of *Magic–*in fact, it was one of the very first songs written for the album that would become *Working on a Dream.*

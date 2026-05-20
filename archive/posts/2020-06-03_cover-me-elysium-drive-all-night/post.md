@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Elysium: Drive All Night"
+author: "Ken"
+excerpt: "Irish cover band Elysium breathes new life into “Drive All Night” with their achingly beautiful mash-up."
+tags: drive-all-night elysium the-parting-glass
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/elysium.jpg
+post_id: 18894
+---
 A good cover can make you hear a favorite song in a new light. Here's a powerful example:
 
 Elysium is an Irish cover band out of Wexford with a wide-ranging repertoire of acoustically arranged hits and deep cuts, featuring beautiful guitar melodies paired with gorgeous harmonies.

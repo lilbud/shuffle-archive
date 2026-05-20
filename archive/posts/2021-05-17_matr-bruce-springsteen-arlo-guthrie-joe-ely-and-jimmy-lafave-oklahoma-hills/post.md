@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Arlo Guthrie, Joe Ely, and Jimmy LaFave: Oklahoma Hills"
+author: "Ken"
+excerpt: "At a 1996 Hall of Fame tribute concert, Bruce teamed up with Joe Ely and Arlo Guthrie for Woody Guthrie’s tribute to Oklahoma."
+tags: arlo-guthrie jimmy-lafave joe-ely oklahoma-hills
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/oklahomehills.jpg
+post_id: 26871
+---
 As official state songs go, Oklahoma's got it pretty good.
 
 My home state of Pennsylvania has a rather unremarkable anthem.

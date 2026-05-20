@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Visitation at Fort Horn"
+author: "Ken"
+excerpt: "The only *Greetings* outtake I never got around to writing about"
+tags: kingdom-of-days
+categories: roll-of-the-dice uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2011/01/fort-horn.png
+post_id: 7109
+---
 > "Never doubt that a small group of thoughtful, committed citizens can change the world. Indeed, it is the only thing that ever has." *–Margaret Mead*<br>
 
 This is the only *Greetings* outtake I never got around to writing about for the blog, and that's probably a good thing.

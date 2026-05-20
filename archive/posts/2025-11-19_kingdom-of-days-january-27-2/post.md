@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 27"
+author: "Ken"
+excerpt: "A jam-packed day in Springsteen history: watch Bruce’s full Syracuse 1985 show, the live debut of “Streets of Philadelphia,” plus rare footage from the Ghost of Tom Joad Tour in Tokyo, the release of Working on a Dream, and more."
+tags: across-the-border australia born-in-the-usa-tour chicago darkness-on-the-edge-of-town david-crosby drive-all-night ghost-of-tom-joad-tour japan los-angeles no-surrender perth river-tour-2016 springsteen-on-broadway streets-of-philadelphia syracuse tokyo working-on-a-dream
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/woad.jpg
+post_id: 55810
+---
 **1973:** Night Four of five for Bruce at The Quiet Knight in Chicago opening for the Persuasions.<br>
 
 **1985:** Bruce and the E Street Band wrap the first leg of the *Born in the U.S.A.* Tour at the Carrier Dome in Syracuse. The show is captured by a fan on video, and you can watch it here.<br>

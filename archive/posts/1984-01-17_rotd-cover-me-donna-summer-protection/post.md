@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Protection"
+author: "Ken"
+excerpt: "Bruce wrote this original disco-influenced rocker for Donna Summer and appears on the officially released track."
+tags: donna-summer protection
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/admin-ajax-14.jpg
+post_id: 18172
+---
 In 1982, David Geffen called in a favor. His record label was still an upstart at the time, and he was looking for material for the first recording artist he'd signed.
 
 Geffen phoned a friend who happened to manage a client who Geffen thought might be just the person to write a song for his artist's new album. Geffen's friend agreed to talk to his client about it, and his client was up for the opportunity.
@@ -16,41 +26,41 @@ He did exactly that. Bruce wrote "Protection," another disco-influenced song tha
 
 Where "Cover Me" featured a narrator begging for the shelter of his partner's love, the narrator of the anti-"Cover Me" needs protection *from* his lover.
 
-> *Night after night I keep holding on*
-> *You say you love me, then you leave me so lonely*
-> *I don't believe a single thing you're saying*
-> *I think it's all some evil game you're playing*
+> *Night after night I keep holding on*<br>
+> *You say you love me, then you leave me so lonely*<br>
+> *I don't believe a single thing you're saying*<br>
+> *I think it's all some evil game you're playing*<br>
 
-> *Still all day long, all I do is think about you*
-> *You got me believing that I can't live without you*
-> *Well, if you want it, well here's my confession*
-> *Well, I can't help it, you're my obsession*
+> *Still all day long, all I do is think about you*<br>
+> *You got me believing that I can't live without you*<br>
+> *Well, if you want it, well here's my confession*<br>
+> *Well, I can't help it, you're my obsession*<br>
 
-> *Protection, that's what I need*
-> *I want protection, baby, from your love*
+> *Protection, that's what I need*<br>
+> *I want protection, baby, from your love*<br>
 
 But despite its thematic inversion, "Protection" is similar to "Cover Me" in more ways than just its musical structure and blistering Boss guitar solos. They're both lyrically slight, as pop songs often are, relying on the chorus to carry the weight rather than fleshing out the verses with detail and character development.
 
 Still, it's effective here–considerably more so than in "Cover Me"–thanks in large part to an adrenaline-fueled backing track that captures our narrator's paranoia. He's fully wrapped around his lover's finger, and they both know it–and at least through his eyes, she seems to be enjoying torturing him.
 
-> *The phone rings in the middle of the night*
-> *And when I pick it up, you won't answer*
-> *A knock on the door, I rush down the stairs*
-> *When I open up, there's no one there*
+> *The phone rings in the middle of the night*<br>
+> *And when I pick it up, you won't answer*<br>
+> *A knock on the door, I rush down the stairs*<br>
+> *When I open up, there's no one there*<br>
 
-> *Out in the darkness I feel your eyes on me*
-> *I lay in bed and feel your hands upon me*
-> *Well, is it all just my imagination*
-> *You keep me in doubt, believing I can't live without your*
-> *Protection*
+> *Out in the darkness I feel your eyes on me*<br>
+> *I lay in bed and feel your hands upon me*<br>
+> *Well, is it all just my imagination*<br>
+> *You keep me in doubt, believing I can't live without your*<br>
+> *Protection*<br>
 
-> *I stand alone at my window*
-> *I see you waiting in the shadows down below*
-> *I feel your fingers on my face*
-> *I know I want to stay, but I want to run away*
+> *I stand alone at my window*<br>
+> *I see you waiting in the shadows down below*<br>
+> *I feel your fingers on my face*<br>
+> *I know I want to stay, but I want to run away*<br>
 
-> *Protection, that's what I need*
-> *I want protection, baby, from your love*
+> *Protection, that's what I need*<br>
+> *I want protection, baby, from your love*<br>
 
 It's never quite clear, however, whether the off-screen love interest is as manipulative as our narrator seems to believe. Those middle verses are very similar to the dream sequence in "Downbound Train" (Bruce was dipping into dream imagery often during that period), and it's easy to imagine our narrator is haunted by his imagination more than his infatuation.
 

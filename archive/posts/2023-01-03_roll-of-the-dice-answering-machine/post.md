@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Answering Machine"
+author: "Ken"
+excerpt: "This lost companion piece to “Hungry Heart” has only ever been officially released to friends and family with Bruce’s private number."
+tags: answering-machine hungry-heart
+categories: roll-of-the-dice spare-parts
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/ModernicaPH000105_3X9X11-LR.jpg
+post_id: 28873
+---
 If you weren't on the planet during the *Born in the U.S.A.* era, here's a quick history lesson:
 
 Way back in the 1980s, pretty much every American household had an answering machine.

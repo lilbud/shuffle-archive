@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Remember When the Music"
+author: "Ken"
+excerpt: "One time only: Bruce paid tribute to Harry Chapin by covering “Remember When the Music” and acknowledging Chapin’s influence on his social activism."
+tags: harry-chapin remember-when-the-music
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/rememberwhen.jpg
+post_id: 25804
+---
 > "[Harry Chapin] was trying to get me to do something, you know, and he said one thing that I always remembered. He said, "Gee, you know, I play one night for me and one night for the other guy." Later on, when I was trying to put my music to some pragmatic use, I remembered what he said. Not being bent to extremism, I wasn't as generous as he was... but he's probably laughing right now anyway." — *Bruce Springsteen on stage, December 7, 1987*
 
 Chapin wasn't kidding, but he might have been underplaying: by the mid-1970s, more than half of his concerts were benefits for the causes he supported–primarily the fight against world hunger, a cause to which he dedicated his life.

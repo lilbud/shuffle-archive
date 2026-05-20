@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Chipettes: Pink Cadillac"
+author: "Ken"
+excerpt: "Our rule for covers here on the Shuffle: Do it different or do it better. This one’s definitely different."
+tags: pink-cadillac the-chipettes
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/chipettes.jpg
+post_id: 21251
+---
 Where do we start–with the fact that a children's novelty record includes one of Bruce's most sexual songs?
 
 Or maybe the instantly dated Natalie Cole arrangement they used rather than Bruce's original? (Although to be fair, Cole had more success with it, and at least the Chipettes' version didn't have that cheesy video.)

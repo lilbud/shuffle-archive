@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 3"
+author: "Ken"
+excerpt: "The original River Tour kicks off with a Bob Seger duet, Bruce releases an American Land Edition of his Seeger Sessions album, and Springsteen on Broadway makes its debut. Many, many more highlights inside."
+tags: al-franken ann-arbor athens bob-seger born-to-run-book brilliant-disguise bruce-springsteen-band cats-on-a-smooth-surface detroit detroit-medley dixie-chicks gary-u-s-bonds ghost-of-tom-joad-tour giants-stadium greece human-rights-now-tour if-i-should-fall-behind jersey-girl kittys-back lawsuit-tour los-angeles minneapolis new-york-city open-all-night phoenix r-e-m rising-tour river-tour santa-clara shea-stadium springsteen-on-broadway stone-pony student-prince thunder-road vote-for-change-tour we-shall-overcome-the-seeger-sessions-american-land-edition willie-nile working-on-a-dream-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/american-land-edition.jpg
+post_id: 59752
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>

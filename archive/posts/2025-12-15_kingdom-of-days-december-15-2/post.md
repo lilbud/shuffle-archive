@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 15"
+author: "Ken"
+excerpt: "On this date: Winterland ’78. Need I say more? (Okay, how about a Rolling Stones guest appearance and the streaming video release of Springsteen on Broadway?)"
+tags: belfast born-to-run boston darkness-tour east-rutherford for-you ghost-of-tom-joad-tour magic-tour merry-christmas-baby mick-jagger newark northern-ireland river-tour rolling-stones san-francisco santa-claus-is-comin-to-town springsteen-on-broadway tim-mcloone tumbling-dice winterland
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/winterland.jpg
+post_id: 63007
+---
 ***New for 2025:** New entry for 1977; audio for 1978*<br>
 
 **1973:** Bruce and the E Street Band play a gig at Nassau Community College in Garden City, New York. The show is filmed, and snippets of it have been aired at special events and in documentaries.<br>

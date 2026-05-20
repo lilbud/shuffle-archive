@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: September 10"
+author: "Ken"
+excerpt: "Bruce pays tribute to the late, great Warren Zevon in Toronto, Clarence appears on Late Night with David Letterman, and Gene Siskel reveals what he and Bruce have in common when it comes to movies. More highlights inside."
+tags: barcelona bruce-springsteen-band canada chicago chile cincinnati clarence-clemons darkness-tour david-letterman gene-siskel human-rights-now-tour into-the-fire magic-tour my-rides-here rising-tour river-tour rosemont santiago seven-nights-to-rock siskel-and-ebert spain student-prince toronto warren-zevon wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/19880910_2_front.jpg
+post_id: 59633
+---
 ***New for 2025:** New entry for 1979; audio for 2003*<br>
 
 **1971:** The Bruce Springsteen Band continues their residency at The Student Prince.<br>

@@ -1,4 +1,14 @@
-> "Laying in bed the other night I said, 'What would really bend everybody's minds?... Achy Breaky Heart!" *–Bruce Springsteen, March 23, 1993*
+---
+layout: post
+title: "Cover Me: Achy Breaky Heart"
+author: "Ken"
+excerpt: "One time only (and I still can’t believe it happened at all): Bruce Springsteen covered Billy Ray Cyrus’ monster breakout hit, “Achy Breaky Heart.”"
+tags: achy-breaky-heart billy-ray-cyrus dont-tell-my-heart the-marcy-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/Achy-Breaky-Heart.jpg
+post_id: 17116
+---
+> "Laying in bed the other night I said, 'What would really bend everybody's minds?… Achy Breaky Heart!" *–Bruce Springsteen, March 23, 1993*<br>
 
 It sure bent mine.
 
@@ -30,9 +40,9 @@ But Bruce must have wanted to make absolutely sure that no mind was left unblown
 
 For the many years before I was able to get my hands on a bootleg recording from that night, I always assumed it must have been a train wreck. But when I finally was able to listen to Bruce's performance with my own ears, it was clear that the audience absolutely loved it.
 
-And as for me, I had to admit... very, *very* grudgingly... it was kinda fun.
+And as for me, I had to admit… very, *very* grudgingly… it was kinda fun.
 
-Shhhhh.... don't tell anyone.
+Shhhhh…. don't tell anyone.
 
 **Achy Breaky Heart**<br>
 **First performed:** March 23, 1993 (Red Bank, NJ)<br>

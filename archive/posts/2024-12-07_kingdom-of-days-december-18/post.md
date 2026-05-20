@@ -1,11 +1,20 @@
-
+---
+layout: post
+title: "Kingdom of Days: December 18"
+author: "Ken"
+excerpt: "Bruce plays “Who’ll Stop the Rain” for the first time. Plus: Listen to Bruce’s Asbury Park holiday show from 2000."
+tags: asbury-park bobby-bandiera bruce-springsteen-band holiday-shows madison-square-garden marah max-weinberg-7 new-york-city river-tour southside-johnny stone-pony student-prince
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/19801218_3_front.jpg
+post_id: 55360
+---
 **New for 2024:** *No updates*
 
 **1971:**<br>
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1971-1218-300x162.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1971-1218.jpg.webp)
 
 **1973:**<br>
 
@@ -21,9 +30,10 @@ A scheduled Darkness show in Portland, Oregon is postponed to the following day.
 
 The River Tour comes home (or close to it, anyway) for the holidays, as Bruce and the band play their first of two nights at Madison Square Garden. Early in the set, they play "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" for the first time ever.
 
-[https://videopress.com/embed/nmrhM2Ww](https://videopress.com/embed/nmrhM2Ww)
+[Watch Video Highlight](https://videopress.com/embed/nmrhM2Ww)
 
 **1988:**<br>
+
 Bruce joins local musicians at the Stone Pony and plays "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" for local ill and disabled children.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1988-12-18a.png.webp)
@@ -34,11 +44,14 @@ Bruce joins local musicians at the Stone Pony and plays "[Santa Claus is Comin' 
 
 Bruce holds his second of two inaugural Asbury Park holiday shows at Convention Hall, benefiting local charities, and once again he is surrounded by friends and family: The Max Weinberg 7 serves as the official house band, but Danny, Garry, Patti (who previews new music), Nils, Roy, Steve and Clarence are here, too. Also in the house and on stage: Soozie Tyrell, Lisa Lowell, Bobby Bandiera, Southside Johnny, and Marah.
 
-[https://videopress.com/embed/8HQV6Lmm](https://videopress.com/embed/8HQV6Lmm)
+[Watch Video Highlight](https://videopress.com/embed/8HQV6Lmm)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2000-12-18a.png.webp)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2000-12-18b.png.webp)
 
-**2016:**
+**2016:**<br>
+
 BBC Radio 4 airs Bruce's October 19th interview with Kirsty Young on *Desert Island Discs*, in which Bruce chooses eight songs he wouldn't want to live without.
+
+[https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3)

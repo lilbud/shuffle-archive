@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: August 30"
+author: "Ken"
+excerpt: "Bruce headlines the Harley Davidson Festival in Milwaukee and blows minds with a setlist for the ages in New Jersey, but it’s his surprise appearance with Southside Johnny at The Agora in Cleveland that wins the date."
+tags: across-the-border born-to-be-wild cats-on-a-smooth-surface cleveland darkness-tour east-rutherford emmylou-harris giants-stadium havin-a-party i-dont-want-to-go-home incident-on-57th-street jersey-girl julianne-phillips magic-tour maxs-kansas-city milwaukee new-york-city pretty-flamingo richfield rickie-lee-jones rising-tour river-tour-2016 rosalita secret-garden southside-johnny springsteen-on-broadway st-louis stagger-lee the-fever wooly-bully
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/20230830-east-rutherford-nj-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 59507
+---
 ***New for 2025:** New entry for 1977; video for 2023*<br>
 
 **1972:** Bruce plays an unadvertised acoustic set at Max's Kansas City in New York.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Stevie Rees and Wyatt Edmonson: Badlands"
+author: "Ken"
+excerpt: "Hot off the presses: Stevie Rees and Wyatt Edmonson transform “Badlands” into an acoustic, Cajun-country fiddle/mandolin romp that rocks way harder than you’d ever expect."
+tags: badlands stevie-rees wyatt-edmonson
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/badlands.jpg
+post_id: 19600
+---
 I normally work on a pretty long lead time, but every once in a while I discover a cover that I just can't bear to put at the back of the queue.
 
 This is one of those times.

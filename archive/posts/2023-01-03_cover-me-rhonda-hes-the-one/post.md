@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Rhonda: He's the One"
+author: "Ken"
+excerpt: "Among the earliest Springsteen covers was this disco-ish, gender-flipped version of Bruce’s 1975 deep cut."
+tags: hes-the-one rhonda shes-the-one
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/hestheone.jpg
+post_id: 35034
+---
 You know the rule: Do it better, or do it different.
 
 When it comes to this gender-flipped version of “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)” by the U.K. disco duo Rhonda… well, it’s different.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: May 13"
+author: "Ken"
+excerpt: "On this date: Bruce gets married for the first time, plays “Johnny Bye-Bye” for the first time, and joins an 80s nostaglia night with Sting, Lady Gaga, Elton John, and more. Great video inside!"
+tags: across-the-borderline albany cover-me cuts-like-a-knife dont-stop-beleivin high-hopes-tour im-goin-down indianapolis its-hard-to-be-a-saint-in-the-city johnny-bye-bye julianne-phillips laurel-canyon manchester new-orleans rainforest-foundation red-bank river-tour seville southside-johnny spain steve-van-zandt sting stone-pony tunnel-of-love-express-tour uk wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/009e470c.jpg
+post_id: 56765
+---
 ***New for 2025:** New entry for 1982*<br>
 
 **1976:** Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines it should have been for $2,000,000, ramping up a legal battle that will keep Bruce out of the studio for some time to come. In the meantime, Bruce and the E Street Band bring the Chicken Scratch Tour to New Orleans for a single show at the Municipal Auditorium. This show features Bruce's first performance of Gary U.S. Bonds' "[New Orleans](../2019-07-31-cover-me-new-orleans/post.md/)" and one of the longest-ever performances of "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)."<br>

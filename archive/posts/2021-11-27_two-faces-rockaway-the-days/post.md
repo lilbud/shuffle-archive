@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Two Faces: Rockaway the Days"
+author: "Ken"
+excerpt: "Katy Crane returns with a deep dive into Bruce’s 1984 outtake."
+tags: katy-crane rockaway-the-days
+categories: two-faces
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/rockaway.jpg
+post_id: 31153
+---
 Editor's Note
 
 ***Editor's Note:*** *By popular demand, guest blogger Katy Crane returns today with a new **Two Faces** entry.*<br>

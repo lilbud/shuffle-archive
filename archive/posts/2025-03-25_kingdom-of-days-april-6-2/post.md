@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: April 6"
+author: "Ken"
+excerpt: "A rare performance of “Lion’s Den” and a surprise cover of Van Halen’s “Jump” lead today’s highlights."
+tags: cleveland dallas high-hopes-tour jump kid-leo lions-den new-york-city springsteen-on-broadway steve-van-zandt trouble-river underground-garage wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/20140406_6_front.jpg
+post_id: 56370
+---
 ***New for 2025:** No updates*<br>
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
@@ -26,7 +36,7 @@
 
 **2006:** Bruce rehearses with the Sessions Band at Asbury Park's Paramount Theater, preparing for their upcoming tour. Meanwhile, Bruce is inducted into the Freehold High School Hall of Fame in absentia. Bruce's mom accepts the award on his behalf and reads a note from Bruce:<br>
 
-"*I'd like to thank everyone for the honor. It's especially nice coming from my hometown and my old alma mater. It's kind of funny, really. I spent my years at Freehold Regional pretty much as an outcast and at best a very mediocre student. I would probably have been voted ‘Least Likely to Succeed'. My only advice to teachers and the administrators would be to keep your eyes on the ones that don't fit in. They're the ones thinking out of the box and reimagining this place we live in… our hometown. You never know where they're going. So, thank you once again and please show my mother a good time. Without her I may not have survived Freehold Regional High School."*
+"*I'd like to thank everyone for the honor. It's especially nice coming from my hometown and my old alma mater. It's kind of funny, really. I spent my years at Freehold Regional pretty much as an outcast and at best a very mediocre student. I would probably have been voted 'Least Likely to Succeed'. My only advice to teachers and the administrators would be to keep your eyes on the ones that don't fit in. They're the ones thinking out of the box and reimagining this place we live in... our hometown. You never know where they're going. So, thank you once again and please show my mother a good time. Without her I may not have survived Freehold Regional High School."*
 
 **2012:** Bruce brings the Wrecking Ball Tour to Madison Square Garden for the first of two nights. The setlist features the tour premiere of "[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)" and a very rare "[Lion's Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)," only its fourth performance and its first in over a decade.<br>
 

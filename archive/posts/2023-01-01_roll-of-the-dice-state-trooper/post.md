@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: State Trooper"
+author: "Ken"
+excerpt: "“State Trooper” is unrivaled as Bruce Springsteen’s most harrowing and terrifying song, but it can’t match the song that inspired it. Backstory and rare performances inside."
+tags: nebraska state-trooper
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/statetrooper.jpg
+post_id: 15047
+---
 > "I don't know if it's even really a song or not… it's kinda weird.'" *–Bruce Springsteen, 1982*<br>
 
 In 1981, Bruce Springsteen was listening to a lot of Suicide, the punk pairing of Alan Vega and Martin Rev.

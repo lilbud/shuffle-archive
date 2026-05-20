@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Wayfarer"
+author: "Ken"
+excerpt: "The second track on Western Stars is another song with an itinerant hero, one whose freedom came at a price."
+tags: the-wayfarer western-stars
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/wayfarer.jpg
+post_id: 32246
+---
 If we were to distill the theme of *Western Stars* into a single word, it would be: *forward*.
 
 Bruce Springsteen's nineteenth studio album features a collection of short stories and character studies, all centering around late-in-life characters realizing that time only ever moves forward. Some embrace it ("[Hitch Hikin'](../2021-05-22_roll-of-the-dice-hitch-hikin/post.md)"), some make peace with it ("[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)"), and some look longingly backward before inching ahead ("[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)"). But none of us can stop time in our tracks, no matter how much we might wish to.

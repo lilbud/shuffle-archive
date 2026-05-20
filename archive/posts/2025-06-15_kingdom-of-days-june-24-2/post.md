@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: June 24"
+author: "Ken"
+excerpt: "Patti Scialfa tries out for the E Street Band, Bruce plays host to a ton of guests for a special Concert to Fight Hunger, and much more on this eventful date in Springsteen history."
+tags: bobby-bandiera born-in-the-usa-tour clarence-clemons concert-to-fight-hunger darkness-tour holmdel isle-of-wight joe-ely other-band patti-scialfa portland reunion-tour seeger-sessions-tour shackled-and-drawn southside-johnny steve-van-zandt stockholm stone-pony sweden twist-and-shout under-the-boardwalk wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/bba.png
+post_id: 57179
+---
 ***New for 2025:** New entry for 1977; audio for 1993*<br>
 
 **1973:** Bruce and the E Street Band play their third consecutive night at Fat City in Seaside Heights, New Jersey.<br>
@@ -6,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1973-0624.jpg.webp)
 
-**1977:** Bruce and the E Street Band record “[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)” at Atlantic Studios in New York City.<br>
+**1977:** Bruce and the E Street Band record "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" at Atlantic Studios in New York City.<br>
 
 [Watch on Youtube: Streets of Fire](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
 
@@ -16,15 +26,15 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/1978-06-23-scaled.jpg.webp)
 
-**1984:** Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man’s West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.<br>
+**1984:** Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man's West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.<br>
 
-**1989:** Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including “[Under the Boardwalk](../2018-05-04_meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/post.md).”<br>
+**1989:** Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including "[Under the Boardwalk](../2018-05-04_meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen with Bobby Bandiera - UNDER THE BOARDWALK 1989 (audio)](https://www.youtube.com/watch?v=j0h8kVXEdX0)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1989-06-24.jpg.webp)
 
-**1993:** A momentous night: Bruce and his touring band play a special “Concert to Fight Hunger” at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md).” For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
+**1993:** A momentous night: Bruce and his touring band play a special "Concert to Fight Hunger" at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell... and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
 
 [Watch on Youtube: Seeds (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=gc2zE_AcJBc)
 
@@ -60,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2006-06-24.jpg.webp)
 
-**2007:** Bruce performs “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for “[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md).”<br>
+**2007:** Bruce performs "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)."<br>
 
 [Watch on Youtube: Bruce with the JLB](https://www.youtube.com/watch?v=QIQjpeIfk9s)
 
@@ -72,7 +82,7 @@
 
 [Watch on Youtube: # IOW Bruce Springsteen + E Street Band @ Isle of Wight festival 2012 HQ.](https://www.youtube.com/watch?v=XNoFc-kna6g)
 
-**2019:** *Western Stars* debuts at #2 on the Billboard Album chart, just behind Madonna’s *Madame X* album–the first time Bruce and Madonna have sat atop the chart together since 1985.<br>
+**2019:** *Western Stars* debuts at #2 on the Billboard Album chart, just behind Madonna's *Madame X* album–the first time Bruce and Madonna have sat atop the chart together since 1985.<br>
 
 **2021:** Bruce holds a friends-and-family rehearsal show for the return of *Springsteen on Broadway* at the St. James Theater in New York City.<br>
 

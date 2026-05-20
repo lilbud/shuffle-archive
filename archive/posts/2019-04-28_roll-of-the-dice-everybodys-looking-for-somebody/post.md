@@ -1,6 +1,17 @@
+---
+layout: post
+title: "Roll of the Dice: Everybody's Looking for Somebody"
+author: "Ken"
+excerpt: "Everybody’s looking for *something*, but I’ll be darned if I can figure out what. Give this brief home demo a listen and see if you can figure out what Bruce is singing about."
+tags: everybodys-looking-for-somebody
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/Man-on-Suitcase.jpg
+post_id: 9380
+---
+
 Actually, it's not at all clear to me that *anybody's* looking for somebody.
 
-This demo was recorded in Bruce's home studio in Holmdel in late 1979. Fans have dubbed it "Everybody's Looking for Somebody" (after what appears to be the refrain) or alternatively, "Blackwood" (after what appears to be a location mentioned in the song.
+This demo was recorded in Bruce's home studio in Holmdel in late 1979. Fans have dubbed it "Everybody's Looking for Somebody" (after what appears to be the refrain) or alternatively, "Blackwood" (after what appears to be a location mentioned in the song).
 
 Here's the thing, though: I've listened to this thing waaaay more times than a 45-second, half-bluffed demo warrants, and I'm pretty darn sure Bruce is *not* saying "everybody's looking for somebody."
 
@@ -10,11 +21,11 @@ To me, the first syllable in whatever everybody's looking for sounds like "night
 
 So please give it a shot, and then you tell me. Take a listen below, and leave a comment if you think you know what Bruce is saying.
 
-[Watch Video Highlight](https://videopress.com/embed/cFNkYdxa)
+[https://videopress.com/embed/cFNkYdxa](https://videopress.com/embed/cFNkYdxa)
 
 **Everybody's Looking for ???**<br>
 **Recorded:** September-December 1979<br>
 **Never released**<br>
 **Never performed**<br>
 
-Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

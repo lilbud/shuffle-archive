@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Vampire Weekend: I'm Goin' Down"
+author: "Ken"
+excerpt: "Recorded live and professionally in Seattle, Vampire Weekend performs an acoustic cover of “I’m Goin’ Down.”"
+tags: im-goin-down vampire-weekend
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/vampire.jpg
+post_id: 3567
+---
 At a Vancouver concert in 2010, Vampire Weekend delighted fans with a cover of Bruce’s “I’m Goin’ Down.”
 
 Just after they premiered it in Vancouver, the band made a special stop to play an acoustic set for Seattle radio station 107.7 The End before their show in Redmond’s Marymoor Park.

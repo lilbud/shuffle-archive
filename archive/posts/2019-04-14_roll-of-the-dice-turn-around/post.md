@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Turn Around"
+author: "Ken"
+excerpt: "It’s time for another dip into the “1968 Notebook” — this time for a song so early in development that it doesn’t even have a name."
+tags: 1968-notebook turn-around
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1968_lyricsnotebook.jpg
+post_id: 2972
+---
 It's time for another dip into the "[1968 Notebook](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)" — this time for a song so work-in-progress that not only is it unfinished and unrecorded, it doesn't even have a name. ([Springsteenlyrics.com](https://www.springsteenlyrics.com/lyrics.php?song=turnaround) adopted the first words of the first line as the working title, so we'll do the same.)
 
 "Turn Around" appears to be about a lothario who warns his dalliance not to fall for him, because he's not sticking around for long–not especially surprising songwriting territory for an 18-year-old aspiring rock star. Except it's not at all clear who's falling for whom.

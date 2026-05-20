@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cautious Man"
+author: "Ken"
+excerpt: "One of the rarest and most revealing songs on Tunnel of Love, “Cautious Man” is an overlooked, unsettling gem."
+tags: cautious-man tunnel-of-love
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/cautious.jpg
+post_id: 18563
+---
 > "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*<br>
 
 It's an iconic scene in movie history: the Reverend Harry Powell's tale of Love vs. Hate in the 1955 film *Night of the Hunter.*

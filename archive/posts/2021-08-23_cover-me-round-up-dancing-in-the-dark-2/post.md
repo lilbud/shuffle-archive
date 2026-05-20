@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me Round-Up: Dancing in the Dark (#2)"
+author: "Ken"
+excerpt: "Five great, fresh takes on Bruce Springsteen’s greatest hit."
+tags: big-daddy dancing-in-the-dark harry-pane joshjosh kimmy sixtyfour tom-seth-johnson
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/tomseth.jpg
+post_id: 28861
+---
 Welcome to the third installment of our *Cover Me Round-Up* series, spotlighting Springsteen songs covered too frequently to keep up with unless I spotlight them in batches.
 
 "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" has always been one of Bruce's most popular songs, but over the past year or so, the number of quality covers of it has absolutely exploded–very likely because we're living through times of isolation and frustration not unlike the ones expressed by the song.
@@ -34,7 +44,7 @@ Fellow U.K. singer-songwriter Tom Seth Johnson completely transforms Bruce's son
 
 This one's an outlier in that it's neither modern nor indie. In fact, it's one of the earliest-ever covers of "Dancing in the Dark," and it proved so popular that it peaked at #21 in the U.K. in the summer of 1985.
 
-Big Daddy was formed as a cover band in the late 1970s in Los Angeles. They attracted a bit of a cult following in the U.S. thanks to their inventive cover arrangements and mash-ups and their appearances on the Doctor Demento radio show. Rhino Records signed them, and their second album *(Meanwhile... Back in the* *States*, released in 1985) featured a studio recording of "Dancing in the Dark."
+Big Daddy was formed as a cover band in the late 1970s in Los Angeles. They attracted a bit of a cult following in the U.S. thanks to their inventive cover arrangements and mash-ups and their appearances on the Doctor Demento radio show. Rhino Records signed them, and their second album *(Meanwhile… Back in the* *States*, released in 1985) featured a studio recording of "Dancing in the Dark."
 
 "Dancing in the Dark" became a moderately successful single, and they were invited to perform it on a children's show called Razzmatazz that ran in the U.K. throughout the 1980s.
 

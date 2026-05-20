@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: My Lover Man"
+author: "Ken"
+excerpt: "Yes, “My Lover Man” is a controversial song, but not because of the point-of-view character’s gender."
+tags: brilliant-disguise my-lover-man tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/How-to-be-a-Latin-Lover-850.jpg
+post_id: 5339
+---
 Bruce wrote "My Lover Man" for Patti Scialfa's first album, but she decided not to use it.
 
 No wait, that's not right: "My Lover Man" was originally intended for the movie *Philadelphia*, which explains its homoerotic theme.

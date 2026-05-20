@@ -1,3 +1,13 @@
+---
+layout: post
+title: "AUATC"
+author: "Ken"
+excerpt: "At the height of the pandemic, Bon Iver enlisted some surprising guest vocalists for their one-off anti-capitalist single."
+tags: auatc bon-iver justin-vernon
+categories: meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/auatc.jpg
+post_id: 33064
+---
 Bruce Springsteen appears in this song.
 
 I think.

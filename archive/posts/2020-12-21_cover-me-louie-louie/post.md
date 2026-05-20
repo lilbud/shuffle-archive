@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Louie Louie"
+author: "Ken"
+excerpt: "Bruce has covered “Louie Louie” several times through the decades–catch some of his best performances of the frat rock classic inside."
+tags: louie-louie richard-berry the-kingsmen
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/louie.jpg
+post_id: 16554
+---
 No recording exists of Bruce Springsteen's first known performance of "Louie Louie" on September 9, 1978. (**Update 3/21/20:** I'm wrong, as readers Mark and Suzanne point out below. I have the bootleg from that show but thought it was missing "Louie Louie." Thanks for the correction, guys!)
 
 That's okay, though, because it beggars belief to think that an aspiring rock star like Bruce wouldn't have played it long, long before the end of his 29th year on the planet.

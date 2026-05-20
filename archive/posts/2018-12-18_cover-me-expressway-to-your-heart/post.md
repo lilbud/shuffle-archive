@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Expressway to Your Heart"
+author: "Ken"
+excerpt: "Bruce Springsteen, The Soul Survivors, and “Expressway to Your Heart.” Can there be a Philly-er combination? I don’t think so."
+tags: expressway-to-your-heart in-the-pocket soul-survivors uniondale working-on-a-dream-tour
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/expressway.jpg
+post_id: 6683
+---
 Today's spotlight cover holds a special place in the hearts of Philly boys like me.
 
 If you grew up in Philly in the sixties or the seventies, The Soul Survivors' "Expressway to Your Heart" was unavoidable. Back in the days when songs could actually chart regionally, the song reached number one in the Philadelphia metropolitan area. It didn't do too shabby nationally, either, peaking at #4.

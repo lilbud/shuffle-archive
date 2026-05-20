@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 25"
+author: "Ken"
+excerpt: "Bruce unwrapped his very first electric guitar on this date in 1964–truly the gift that keeps on giving. Merry Christmas!"
+tags: adele-springsteen mtv
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/1964bruce.png
+post_id: 55389
+---
 ***New for 2024:** No updates*<br>
 
 **1964:** Adele Springsteen delights her fifteen -year-old son Bruce on Christmas morning, presenting him with a brand-new Japanese electric guitar and amplifier. Decades later, Bruce will retell the tale in "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)."<br>

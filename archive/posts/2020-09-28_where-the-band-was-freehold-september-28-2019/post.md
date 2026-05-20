@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Freehold, September 28, 2019"
+author: "Ken"
+excerpt: "Bruce surprised a literal hometown crowd by dropping by the opening of a new exhibit dedicated to his early life."
+tags: freehold springsteen-his-hometown
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/hometown.jpg
+post_id: 21478
+---
 Editor's Note
 
 ***Editor's Note:*** *I wrote the article that follows for Backstreets.com ; it was published on September 29, 2019, the day after the events chronicled. I'm reprinting it here as part of my [Where the Band Was series](https://estreetshuffle.com/index.php/category/where-the-band-was/), in which I recap shows I've attended on their anniversary dates.*<br>
@@ -11,8 +21,7 @@ And it was indeed a surprise: any secret hopes that attendees might have had wer
 But Bruce must have been determined to thank his hometown, because he made a brief appearance, sneaking in unceremoniously around 7pm to tour the exhibit and joining Joe Grushecky on stage for a blistering "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)" before leaving by 8:30 to rejoin his family.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/newsSHH_Michael-Kravetsky-DSC07444-Press.jpg.webp)
-
-*Photograph by Michael Kravetsky for MCHA*
+> *Photograph by Michael Kravetsky for MCHA*
 
 "I can't stay long, I've got my family in the city. But I wanted to just come down and thank everybody for supporting the Historical Association. It's nice to be honored in your hometown."
 
@@ -35,7 +44,7 @@ The "Born to Run" fire truck that Bruce donated to the local fire department in 
 Under the big tent were the silent auction items, including signed, famed photos by Frank Stefanko and Danny Clinch (Danny's photo of Bruce is in his Broadway dressing room had reached $5,000 by the time I left around 10:30pm), Freehold getaway packages (including a private, after-hours museum tour), Bruce's mysterious "Nites of Rutgers" tee shirt (sadly, only a reproduction), and even a Big Man's Brew tap handle. All proceeds benefited the Historical Association, and well before the evening ended it was clear that the Association would have a lucrative evening.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/newsSHHscrapbook.jpg.webp)
-> *Photograph by Lisa Iannucci*
+> *Photograph by Lisa Iannucci*<br>
 
 The exhibit itself held even greater treasures — whether you're interested in tour and album cover props, song lyrics, old newspaper clippings, or the Springsteen family tree, there's more to learn than one can reasonably take in during a single visit, especially for partygoers who were admitted through the evening in sequential 45-minute windows. I now know about the accomplishments and life events of Springsteens dating back to the American Revolution (which threatens to widen the scope of my ["Kingdom of Days" blog posts](https://estreetshuffle.com/index.php/category/kingdom-of-days/) to a frightening degree).
 

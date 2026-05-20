@@ -1,3 +1,12 @@
+---
+layout: post
+title: "Year Four: Complete!"
+author: "Ken"
+excerpt: "Today marks the end of Year Four of this site’s daily mission to document every song Bruce Springsteen has ever written, recorded, or performed in…"
+categories: uncategorized
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/one-two-three-four-bruce-springsteen-and-the-e-street-band.gif
+post_id: 32172
+---
 Today marks the end of Year Four of this site's daily mission to document every song Bruce Springsteen has ever written, recorded, or performed in concert.
 
 It also marks:

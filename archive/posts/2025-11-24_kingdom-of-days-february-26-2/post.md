@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 26"
+author: "Ken"
+excerpt: "An insanely eventful day in Bruce history with gigs galore, Grammy Awards, and TV appearances. Check out the highlights, including an amazing cover of “Stayin’ Alive” and a barely-pre-reunion clip from Conan O’Brian."
+tags: amsterdam brisbane bruce-springsteen-band castiles conan-obrien eddie-vedder ghost-of-tom-joad-tour grammy-awards high-hopes-tour indianapolis julianne-phillips lawsuit-tour magic-tour max-weinberg mtv nashville pete-seeger richmond river-tour rolling-stone-magazine stayin-alive the-exciters the-ghost-of-tom-joad the-netherlands the-promised-land tunnel-of-love-express-tour working-on-the-highway
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/officiallivedownloads_2014-02-26.jpg
+post_id: 56001
+---
 **1966:** The Castiles play the Matawan-Keyport Roller Drome in Matawan, serving as the backup band for The Exciters. Bruce will one day witness a young Patti Scialfa cover The Exciters’ biggest hit, “[Tell Him](../2020-03-22_matr-patti-scialfa-and-bruce-springsteen-tell-him/post.md),” and remember it as the night he first fell in love with Patti’s voice.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1966-0226.jpg.webp)

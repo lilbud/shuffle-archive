@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: November 22"
+author: "Ken"
+excerpt: "Happy birthday to Steven Van Zandt, born on this day in 1950! Plus: one acoustic tour kicks off while another one ends, Clarence plays his last public show with Bruce, and Bruce is honored by President Obama. Big, big day in Springsteen history!"
+tags: barack-obama child clarence-clemons devils-and-dust-tour earth ghost-of-tom-joad-tour greetings-from-asbury-park iron-butterfly joyce-hammann point-blank presidential-medal-of-freedom santa-claus-is-comin-to-town springsteen-on-broadway steel-mill steve-van-zandt tampa trenton west-chester working-on-a-dream-tour zero-and-blind-terry
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/sbn-20180605-steven-van-zandt-pic.jpg
+post_id: 62410
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1950:** Future singer/guitarist/songwriter/producer/arranger/actor/DJ/best-selling author, member of the E Street Band, co-founder of the Asbury Jukes, and leader of the Disciples of Soul–Steven Van Zandt is born today in Winthrop, Massachusetts.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Light of Day"
+author: "Ken"
+excerpt: "The twisty tale of a hit cover of an unreleased outtake by an imaginary band that evolved into a barnburning, set-closing showcase."
+tags: born-in-the-usa cats-on-a-smooth-surface in-concert-mtv-plugged joan-jett light-of-day live-in-new-york-city michael-j-fox paul-schrader the-barbusters
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/LOD.jpg
+post_id: 6181
+---
 In the pantheon of Springsteen songs, "Light of Day" is a song unlike any other. Which is saying a lot for a song that's pretty much a Springsteen stereotype.
 
 Stay close to me, because we're about to go off-road.

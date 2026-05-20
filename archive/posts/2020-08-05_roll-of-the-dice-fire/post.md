@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Fire"
+author: "Ken"
+excerpt: "Look past the dated lyrics (and the limp studio version), and “Fire” goes the distance as a fan-favorite rarity. The secret? It’s…"
+tags: fire the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/fire_1978-12-16_sin-es-6503816.jpg
+post_id: 19928
+---
 We're all friends here, so let's just acknowledge a couple of things up front, okay?
 
 First: the studio version of "Fire" is, at best, meh. This is a song that comes alive when Bruce performs it live but is rather limp on vinyl.

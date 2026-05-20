@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Fuse"
+author: "Ken"
+excerpt: "One of the strongest tracks on The Rising, “The Fuse” focuses on the one sure antidote for existential dread."
+tags: 25th-hour spike-lee terence-blanchard the-fuse the-rising
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/fuse.jpg
+post_id: 19179
+---
 If there's one song on *The Rising* that best captures the sense of collective dread gripping America in those first post-9/11 months, it's "The Fuse."
 
 "The Fuse" tends to puzzle fans and reviewers, because on the surface it seems almost flip in its juxtaposition of tragedy and sex, and I suspect that with distance new listeners will understand it less and less. "The Fuse" is a you-had-to-be-there song.

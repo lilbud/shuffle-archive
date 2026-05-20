@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Movin' Out (Anthony's Song)"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and Billy Joel trade lead vocals on Billy’s 1977 hit, “Movin’ Out (Anthony’s Song).”"
+tags: billy-joel movin-out-anthonys-song
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/admin-ajax-44.jpg
+post_id: 17936
+---
 "Movin' Out (Anthony's Song)" was a Top 20 hit (peaking at #17 on the Billboard Hot 100) for Billy Joel when it was released in 1977 as the second single from his breakthrough album, *The Stranger*.
 
 It's a song that drives straight down the center of Bruce Springsteen's songwriting lane, chronicling working-class would-be winners desperate to pull out of a town full of losers.

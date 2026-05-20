@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Milan, November 28, 2007"
+author: "Ken"
+excerpt: "My first show in Milano hooked me on Italian shows forever–once I managed to survive getting inside."
+tags: incident-on-57th-street italy magic-tour milan the-e-street-shuffle
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/milanmagic.png
+post_id: 5779
+---
 I'd already seen one Springsteen show in Italy, [the year prior in Verona](../2018-10-05_where-the-band-was-verona-october-5-2006/post.md). I *thought* I knew all about Italian fans and their legendary zeal for Bruce from that first-hand experience.
 
 I was wrong.

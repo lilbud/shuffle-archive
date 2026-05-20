@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Love and Mercy"
+author: "Ken"
+excerpt: "One time only: Bruce joins one of his musical heroes on stage for a moving encore performance of “Love and Mercy.”"
+tags: brian-wilson love-and-mercy
+categories: cover-me meeting-across-the-river
+post_id: 32481
+---
 On May 12, 2007, Brian Wilson headlined a benefit concert for the Count Basie Theatre Foundation in Red Bank, New Jersey.
 
 Recalling the evening years later in his 2016 memoir *I am Brian Wilson*, the Beach Boys co-founder and living legend remembered that "the whole time we were playing our show, there was a guy sitting in a folding chair on the side of the stage. I sit on the side of the stage sometimes myself during sound check, so I was paying special attention to the guy. I couldn't tell who he was at first. I couldn't see very well from the stage. But he definitely was someone–everyone who walked past him shook his hand.

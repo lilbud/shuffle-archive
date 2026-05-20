@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I'll Stand By You"
+author: "Ken"
+excerpt: "A couple of years ago, news leaked of an unreleased Springsteen song about Harry Potter, and it wasn’t long before the song leaked, too. This one probably should stay in the vault."
+tags: blinded-by-the-light conan-obrien harry-potter ill-stand-by-you-always
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/stand-by-you.jpg
+post_id: 3657
+---
 **Updated August 9, 2019:** An official version of "I'll Stand By You" was just released on the soundtrack album for *Blinded by the Light*. It's a tighter, shorter, and much better mix, with new (or at least different) vocals than the leaked demo. From a musical standpoint, it's a lot more listenable. Unfortunately, though, the lyrics are still the same.<br>
 
 [Watch on Youtube: Bruce Springsteen - I'll Stand By You (Official Lyric Video)](https://www.youtube.com/watch?v=hwfPtkxF0aA)
@@ -30,31 +40,31 @@ Musically, "I'll Stand By You" has a soft, easy-listening vibe–kind of like "[
 
 Lyrically, well…
 
-> *You wake me in the night and your tears falling down, come let me dry them for you*
-> *I wish I could tell a story, chase away all those ghosts you've got inside of you*
-> *A story of heroes that fight on at any cost of a kingdom of love to be won or lost*
-> *We'll fight here together 'til victory is won, come take my hand 'til the morning comes*
-> *Just close your eyes…*
+> *You wake me in the night and your tears falling down, come let me dry them for you*<br>
+> *I wish I could tell a story, chase away all those ghosts you've got inside of you*<br>
+> *A story of heroes that fight on at any cost of a kingdom of love to be won or lost*<br>
+> *We'll fight here together 'til victory is won, come take my hand 'til the morning comes*<br>
+> *Just close your eyes…*<br>
 
 Yeah, I get the allusions to a make-believe world, but the references to ghosts sound a bit forced, and the references to heroes fighting at any cost and a "‘kingdom of love" make me wonder if Bruce had actually even read the books.
 
-> *I'll stand by you always, always, always*
-> *I'll stand by you always, always, always*
+> *I'll stand by you always, always, always*<br>
+> *I'll stand by you always, always, always*<br>
 
 The chorus is lovely enough, though. It's just too bad about those verses…
 
-> *I know here in the dark, tomorrow can seem so very far away*
-> *Here the ghosts and the goblins can rise from your dreams to steal your heart away*
-> *Together we'll chase those thieves that won't leave you alone out from under the bed, out from over our home*
-> *And when the light comes we'll laugh my love about the things that the night had us so frightened of*
-> *And until then…*
+> *I know here in the dark, tomorrow can seem so very far away*<br>
+> *Here the ghosts and the goblins can rise from your dreams to steal your heart away*<br>
+> *Together we'll chase those thieves that won't leave you alone out from under the bed, out from over our home*<br>
+> *And when the light comes we'll laugh my love about the things that the night had us so frightened of*<br>
+> *And until then…*<br>
 
-> *I'll stand by you always, always, always*
-> *I'll stand by you always, always, always*
+> *I'll stand by you always, always, always*<br>
+> *I'll stand by you always, always, always*<br>
 
-> *Now I know it can feel like you're slipping away, at night you'll get lost in that deep dark place*
-> *We'll let the night come and do what it may, together we'll find the courage, we'll find faith*
-> *Until you awake…*
+> *Now I know it can feel like you're slipping away, at night you'll get lost in that deep dark place*<br>
+> *We'll let the night come and do what it may, together we'll find the courage, we'll find faith*<br>
+> *Until you awake…*<br>
 
 Also: that bridge. Ouch. So of course he repeats it.
 

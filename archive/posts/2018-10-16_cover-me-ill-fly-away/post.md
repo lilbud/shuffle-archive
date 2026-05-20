@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: I'll Fly Away"
+author: "Ken"
+excerpt: "The E Street Band covered one of the world’s most well-known gospel hymns to salute their dearly departed bandmate."
+tags: danny-federici ill-fly-away magic-tour
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/illflyaway.jpg
+post_id: 5341
+---
 "I'll Fly Away" is perhaps the world's most covered and recorded gospel song. You almost certainly know it. It dates back to 1929, when it was written by Albert E. Brumley, and recordings date back as far as 1941. Here's the earliest known recording by The Selah Singers:
 
 [Watch on Youtube: I'll Fly Away](https://www.youtube.com/watch?v=--kI7JTn5as)

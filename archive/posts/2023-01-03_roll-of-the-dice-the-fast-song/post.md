@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Fast Song"
+author: "Ken"
+excerpt: "If “Candy’s Boy” is the lyric donor for “Candy’s Room,” “The Fast Song” is Candy’s musical parent."
+tags: candys-room the-fast-song
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/ffwd.jpg
+post_id: 23581
+---
 Even for a songwriter notorious for swapping and recycling parts between songs, "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)" has a seriously gnarly evolutionary history.
 
 We traced one branch of its DNA in my recent entry on "[Candy's Boy](../2020-09-02_roll-of-the-dice-candys-boy/post.md)" (which itself shares DNA with "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)," "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," and "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)").

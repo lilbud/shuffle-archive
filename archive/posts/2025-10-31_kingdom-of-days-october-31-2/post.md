@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 31"
+author: "Ken"
+excerpt: "Highlights from Halloween shows across the years, plus: the release of “A Night with the Jersey Devil.”"
+tags: a-night-with-the-jersey-devil born-in-the-usa-tour born-to-run-tour bruce-springsteen-band forbes-magazine halloween haunted-house los-angeles minneapolis monster-mash my-fathers-house oakland out-of-limits point-blank river-tour rochester spirit-in-the-night springsteen-on-broadway the-main-point the-price-you-pay world-tour-1992 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/10/bs241031_01.jpg
+post_id: 61250
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1971:** The Bruce Springsteen Band plays a Halloween show at the National Guard Armory in Long Branch, New Jersey. The band will scale down following this show, losing members Delores Holmes, Francine Daniels and Bobby Feigenbaum.<br>

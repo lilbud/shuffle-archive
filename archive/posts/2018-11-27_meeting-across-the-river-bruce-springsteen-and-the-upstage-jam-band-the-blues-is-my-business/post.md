@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and the Upstage Jam Band, The Blues is My Business"
+author: "Ken"
+excerpt: "Mere weeks before Little Steven released his cover of Etta James’ “The Blues is My Business,” he and Bruce (and the rest of the Upstage Jam Band) covered it at the Paramount Theater in Asbury Park."
+tags: etta-james little-steven-and-the-disciples-of-soul soulfire the-blues-is-my-business upstage-jam-band
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/bluesbiz.jpg
+post_id: 5813
+---
 In 2003, songwriters Kevin Bowe and Todd Cerney wrote "The Blues Is My Business" for Etta James' Grammy-winning blues album, *Let's Roll.*
 
 [Watch on Youtube: The Blues Is My Business](https://www.youtube.com/watch?v=27cpSolK5Js)

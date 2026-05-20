@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Needles and Pins"
+author: "Ken"
+excerpt: "Never performed but occasionally soundchecked, Bruce was clearly taken with The Searchers’ “Needles and Pins” during the Born to Run tour."
+tags: jackie-deshannon needles-and-pins the-searchers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/needles.jpg
+post_id: 7290
+---
 Written by Sonny Bono and Jack Nitzsche, “Needles and Pins” was first recorded in 1963 by Jackie DeShannon, who scored a minor hit with it, peaking at #84 in the U.S. (but taking it all the way to the top in Canada.)
 
 [Watch on Youtube: JACKIE DE SHANNON - Needles and Pins (1963)](https://www.youtube.com/watch?v=SSbM_Zmx9kA)

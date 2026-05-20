@@ -1,3 +1,13 @@
+---
+layout: post
+title: "January 23"
+author: "Ken"
+excerpt: "Happy birthday to Danny Federici, born on this date in 1950. Also on this date: Steel Mill plays their last gig, an original River Tour show is captured on video, and more."
+tags: bobby-bandiera born-in-the-usa-tour canada danny-federici ghost-of-tom-joad-tour houston montreal providence river-tour springsteen-on-broadway steel-mill sundance-blues-band the-upstage
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/danny-1.jpg
+post_id: 55788
+---
 **1950:** Founding E Street Band member “Phantom” Dan Federici is born in Flemington, New Jersey.<br>
 
 **1971:** At the Upstage in Asbury Park, Steel Mill plays its final gig. Listen in on three songs from that show below.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Breakaway"
+author: "Ken"
+excerpt: "Is this the darkest song in Bruce’s catalog? (Spoiler alert: yes.)"
+tags: breakaway the-promise
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/breakaway.jpg
+post_id: 17744
+---
 It takes a lot of darkness to out-dark [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md), but "Breakaway" manages to do it.
 
 "Breakaway" is easily the bleakest song to come out of the Darkness sessions and is surely a contender for the title across Bruce's entire catalog.

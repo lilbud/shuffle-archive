@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Pipeline"
+author: "Ken"
+excerpt: "One time only: Bruce Springsteen and the E Street Band covered The Chantays’ “Pipeline” at a 1980 rehearsal session."
+tags: pipeline the-chantays
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/pipeline.jpg
+post_id: 22914
+---
 The Chantays were a one-hit wonder, but their one hit was monumental.
 
 Written by band members and guitarists Brian Carman and Bob Spickard and recorded in 1962, "Pipeline" became an instant hit, peaking at #4 on the Billboard Pop chart and cementing a place as one of the most important surf rock songs.

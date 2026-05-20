@@ -1,3 +1,13 @@
+---
+layout: post
+title: "River Deep – Mountain High"
+author: "Ken"
+excerpt: "Watch Bruce back Tina Turner one of her signature songs, then go vote her in to the Rock and Roll Hall of Fame!"
+tags: ike-tina-turner little-richard rick-and-roll-hall-of-fame river-deep-mountain-high stevie-wonder tina-turner
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/river.jpg
+post_id: 23068
+---
 > "‘River Deep — Mountain High' is one of the greatest rock records probably ever made. And [Tina Turner] is simply one of the greatest rock singers, you know." – *Bruce Springsteen, From My Home to Yours Volume 9*<br>
 
 It sure is, and she sure as *heck* is.

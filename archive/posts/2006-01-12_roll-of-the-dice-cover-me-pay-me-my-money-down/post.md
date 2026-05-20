@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Pay Me My Money Down"
+author: "Ken"
+excerpt: "Originally a worker protest song, “Pay Me My Money Down” became a set-closing highlight of merriment on the Seeger Sessions Tour."
+tags: pay-me-my-money-down pete-seeger the-weavers we-shall-over-come-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/MV5BNjA2ZWQyYjEtMjNjMy00N2E2LWFkY2QtMTM0N2U5OTQ1Y2Y4XkEyXkFqcGc@._V1_FMjpg_UY400_-1.jpg
+post_id: 2605
+---
 It's no surprise that Bruce chose "Pay Me My Money Down" to be the leadoff single from his 2006 album, *We Shall Overcome: The Seeger Sessions.* See how much fun they're having playing it?
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down (Tour Version Video)](https://www.youtube.com/watch?v=BYF8IntUFZI)
@@ -8,10 +18,10 @@ Which is a little ironic, if you think about it, because "Pay Me" originates as 
 
 The "down" in the title/chorus means "now" — so the song is actually a demand to be paid on the spot. Because the lyrics alternate call-and-response with "Pay me my money down," the lyrics are often misunderstood:
 
-> *I thought I heard the captain say*
-> *Pay me my money down*
-> *Tomorrow is our sailing day*
-> *Pay me my money down*
+> *I thought I heard the captain say*<br>
+> *Pay me my money down*<br>
+> *Tomorrow is our sailing day*<br>
+> *Pay me my money down*<br>
 
 The captain isn't saying "pay me my money down." He's saying "tomorrow is our sailing day"– in other words, promising that he'll still be around tomorrow to pay them but fully intending to slip off in the night. The stevedores will have none of it, of course.
 

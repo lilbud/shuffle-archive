@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 8"
+author: "Ken"
+excerpt: "Bruce shoots the video for “Brilliant Disguise,” Nils drops by David Letterman’s show, Jake makes an early E Street Band appearance back in 2009, and Ben Stiller resurrects his Bruce impression on SNL. More highlights inside."
+tags: american-land backstreets ben-stiller brilliant-disguise bruce-springsteen-band caserta castiles david-letterman east-rutherford giants-stadium italy jake-clemons john-fogerty little-steven-and-the-disciples-of-soul my-hometown native-american night nils-lofgren orlando permanent-vacation r-e-m saturday-night-live seeger-sessions-tour sun-city tenth-avenue-freeze-out tracy-chapman vote-for-change-tour working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/juststories.jpg
+post_id: 61075
+---
 ***New for 2025:** New entry for 1979; video for 2004*<br>
 
 **1965:** The Castiles play what is believed to be their first publicly advertised gig at the I.B. Club in Howell, New Jersey.<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Jesse James"
+author: "Ken"
+excerpt: "Band-friendly and Ironically faithful to the historically inaccurate original, Bruce’s 1997 arrangement of “Jesse James” is likely to come out at both Seeger and E Street shows. Backstory and great performances inside."
+tags: bentley-ball bob-seger jesse-james pete-seeger we-shall-overcome-the-seeger-sessions
+categories: cover-me roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/jesse.jpg
+post_id: 10637
+---
 Of all of Bruce's adaptations on his *We Shall Overcome: The Seeger Sessions* album, "Jesse James" is perhaps the most faithful. Which is more than a bit ironic, but we'll get to that later.
 
 Bruce's 2006 album is chock full of fresh arrangements and updated lyrics for classic folks songs from "Mrs. McGrath" to "Pay Me My Money Down" to the title track.

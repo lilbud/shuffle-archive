@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Little Latin Lupe Lu"
+author: "Ken"
+excerpt: "She doesn’t come out often, but when she does it’s probably going to be a loose but impassioned rave-up. Watch some of Bruce’s best (and funniest) performances of “Little Latin Lupe Lu.”"
+tags: little-latin-lupe-lu righteous-brothers
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1976/01/latinlupe.jpg
+post_id: 8406
+---
 [Watch Video Highlight](https://videopress.com/embed/ATK1qBy1)
 
 Yeah, I'm kinda with Barry on this one: it's the Righteous Brothers all the way.

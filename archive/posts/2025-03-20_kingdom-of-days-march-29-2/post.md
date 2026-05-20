@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: March 29"
+author: "Ken"
+excerpt: "On this date: Seattle and Philadelphia get set list rarities, and Bruce opens for Steve Wonder."
+tags: barack-obama charlotte chicken-scratch-tour detroit easy-money kittys-back magic-tour new-york-city one-step-up philadelphia point-blank renegades seattle springsteen-on-broadway stevie-wonder trapped tunnel-of-love-express-tour wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/2023-03-29-detroit-mi-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56306
+---
 ***New for 2025:** Video for 2023*<br>
 
 **1973:** Bruce and his band open for Stevie Wonder at Kutztown State College.<br>
@@ -14,13 +24,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0329.jpg.webp)
 
-**1988**: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)” below.<br>
+**1988:** Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" below.<br>
 
-[Watch on Youtube: Bruce Springsteen - "One Step Up" live in Detroit MI on March 29th 1988.](https://www.youtube.com/watch?v=RGj1gGvXJT8)
+[Watch on Youtube: Bruce Springsteen - "One Step Up" live in Detroit MI on March 29th 1988.](https://www.youtube.com/watch?v=RGj1gGvXJT8?start=117)
 
 **1989:** *Video Anthology/1978-1988* is certified 3x multi-platinum by the Recording Industry Association of America.<br>
 
-**2008:** Bruce opens with “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” and pulls out the Magic tour premiere of “[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)” and a very rare “[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)” at his KeyArena show in Seattle. For more highlights see my [*Where the Band Was* report](../2018-03-29_where-the-band-was-seattle-march-29-2008/post.md) from this date.<br>
+**2008:** Bruce opens with "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" and pulls out the Magic tour premiere of "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and a very rare "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" at his KeyArena show in Seattle. For more highlights see my [*Where the Band Was* report](../2018-03-29_where-the-band-was-seattle-march-29-2008/post.md) from this date.<br>
 
 [Watch on Youtube: Bruce Springsteen - Point Blank - Seattle - March 29, 2008](https://www.youtube.com/watch?v=RSl5Oe0oXIo)
 
@@ -28,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2008-03-29.png.webp)
 
-**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)” and a glorious, brassy “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md).” Also today: Bruce appears on the cover of the new issue of *Rolling Stone,* which features [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/).<br>
+**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" and a glorious, brassy "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)." Also today: Bruce appears on the cover of the new issue of *Rolling Stone*, which features [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/).<br>
 
 [Watch on Youtube: Trapped - Springsteen - Philadelphia March 29, 2012](https://www.youtube.com/watch?v=QimUtzbHEvg)
 
@@ -44,11 +54,11 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** Bruce and President Barack Obama release Episode 7 of their *Renegades: Born in the U.S.A.* podcast, entitled “Finding Home: Fatherhood.”<br>
+**2021:** Bruce and President Barack Obama release Episode 7 of their *Renegades: Born in the U.S.A.* podcast, entitled "Finding Home: Fatherhood."<br>
 
 [Spotify Embed: Fatherhood](https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&utm_source=oembed)
 
-**2023:** “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.<br>
+**2023:** "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Concert - Live in Detroit - March 29, 2023](https://www.youtube.com/watch?v=ozJ7CrhBLKI)
 

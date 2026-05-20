@@ -1,12 +1,22 @@
+---
+layout: post
+title: "Kingdom of Days: December 15"
+author: "Ken"
+excerpt: "On this date: Winterland ’78. Need I say more? (Okay, how about a Rolling Stones guest appearance and the streaming video release of Springsteen on Broadway?)"
+tags: belfast born-to-run boston darkness-tour east-rutherford for-you ghost-of-tom-joad-tour magic-tour merry-christmas-baby mick-jagger newark northern-ireland river-tour rolling-stones san-francisco santa-claus-is-comin-to-town springsteen-on-broadway tim-mcloone tumbling-dice winterland
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/winterland.jpg
+post_id: 63007
+---
 ***New for 2025:** New entry for 1977; audio for 1978*<br>
 
 **1973:** Bruce and the E Street Band play a gig at Nassau Community College in Garden City, New York. The show is filmed, and snippets of it have been aired at special events and in documentaries.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0GMcGpH8)
 
-**1977:** Bruce and the E Street Band work on “Adam Raised a Cain” at a recording session at The Record Plant in New York City.<br>
+**1977:** Bruce and the E Street Band work on "Adam Raised a Cain" at a recording session at The Record Plant in New York City.<br>
 
-**1978:** Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce’s archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23615/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-15-1978-Winterland-Arena-San-Francisco-CA.html).<br>
+**1978:** Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce's archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23615/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-15-1978-Winterland-Arena-San-Francisco-CA.html).<br>
 
 [Watch on Youtube: Streets of Fire (Live at Winterland Arena, San Francisco, CA - 12/15/1978)](https://www.youtube.com/watch?v=buib4a2xlDs)
 
@@ -34,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1995-1215.jpg.webp)
 
-**2001:** Bruce makes a guest appearance with Tim McLoone’s Holiday Express at the Continental Airlines Arena in East Rutherford.<br>
+**2001:** Bruce makes a guest appearance with Tim McLoone's Holiday Express at the Continental Airlines Arena in East Rutherford.<br>
 
 [Watch on Youtube: Merry Christmas Baby - Bruce Springsteen (live at the Meadowlands Arena, East Rutherford 2001)](https://www.youtube.com/watch?v=idLXa1qQmNc)
 
@@ -44,15 +54,15 @@
 
 **2007:** Bruce and the E Street Band bring the Magic Tour to the Odyssey Arena in Belfast.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lgj-Bn7CHv0)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lgj-Bn7CHv0?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XEc1X1toJxM)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XEc1X1toJxM?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
 
 [Watch on Youtube: Bruce Springsteen Belfast 15/12/2007 Full Concert](https://www.youtube.com/watch?v=SglU5VBOpR8)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/The_Daily_Telegraph_Mon__Dec_17__2007_.jpg.webp)
 
-**2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for “[Tumbling Dice](../2022-08-17_matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/post.md).”<br>
+**2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for "[Tumbling Dice](../2022-08-17_matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/post.md)."<br>
 
 [Watch on Youtube: Lady Gaga, Bruce Springsteen and the Black Keys rehearse with the Rolling Stones](https://www.youtube.com/watch?v=1MDytQVZb34)
 
@@ -70,6 +80,6 @@
 
 [Watch on Youtube: Springsteen on Broadway | Official Trailer [HD] | Netflix](https://www.youtube.com/watch?v=M1xDzgob1JI)
 
-**2020:** Bruce appears on a television special entitled *Play On: Celebrating the Power of Music to Make Change,* speaking in support of WhyHunger.<br>
+**2020:** Bruce appears on a television special entitled *Play On: Celebrating the Power of Music to Make Change*, speaking in support of WhyHunger.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/GHZohMSF)

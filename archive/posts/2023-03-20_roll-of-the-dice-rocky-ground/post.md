@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Rocky Ground"
+author: "Ken"
+excerpt: "“Rocky Ground” may be wrapped in gospel trappings, but its themes are as Springsteenian as anything on Darkness on the Edge of Town."
+tags: michelle-moore rocky-ground wrecking-ball
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/03/rocky.jpg
+post_id: 42140
+---
 "Rocky Ground" may be wrapped in gospel trappings, but its themes are as Springsteenian as anything on [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md).
 
 [Watch on Youtube: Bruce Springsteen - Rocky Ground (Video)](https://www.youtube.com/watch?v=qPmIIXXv0d8)

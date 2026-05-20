@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: December 17"
+author: "Ken"
+excerpt: "Bruce kicks off a multi-year tradition of Asbury Park Holiday shows. Plus: a Tonight Show appearance, last performances of several songs for years to come, and more."
+tags: asbury-park atlanta bobby-bandiera born-to-run-tour bruce-springsteen-band buffalo clarence-clemons-and-the-red-bank-rockers elliott-murphy france garry-tallent ghost-of-tom-joad-tour glory-days holiday-shows indianapolis jimmy-fallon lexington lisa-lowell loose-ends magic-tour mary-louis-watson max-weinberg-7 new-brunswick new-york-city paris rising-tour rutgers-university saturday-night-live steve-van-zandt student-prince the-big-muddy the-wish twist-and-shout world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/20001217_front.jpg
+post_id: 63382
+---
 ***New for 2025:** Advertisement for 1971; review for 1984; audio for 2007*<br>
 
 **1971:** The Bruce Springsteen Band headlines at Rutgers University in New Brunswick. Their setlist features the last known performance of "[Mary Louise Watson](../2018-09-27_roll-of-the-dice-mary-louise-watson/post.md)."<br>

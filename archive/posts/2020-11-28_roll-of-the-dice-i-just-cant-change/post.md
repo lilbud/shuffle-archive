@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: I Just Can't Change"
+author: "Ken"
+excerpt: "“I Just Can’t Change” is a long lost Bruce Springsteen Band song, but its melody survived into the E Street Band era attached to another song."
+tags: bruce-springsteen-band i-just-cant-change richmond the-e-street-shuffle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/stop-making-excuses-04-2.jpg
+post_id: 1995
+---
 Here's our second pre-ESB song this week. Unlike "[Funk Song](../2018-05-02_roll-of-the-dice-funk-song/post.md)," however, "I Just Can't Change" has lyrics and is a fully realized song. Bruce wrote it in 1971, and he performed it live with the Bruce Springsteen Band through 1972, although only one specific performance is documented and recorded.
 
 Although the song itself wouldn't survive 1972, its melody was resurrected in 1975. See if you recognize it.

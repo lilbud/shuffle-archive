@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and the Asbury Park All-Star Revue: It Ain't the Meat (It's the Motion)"
+author: "Ken"
+excerpt: "One time only: Bruce and the E Street Band join the Asbury Jukes (minus Southside Johnny) to cover one of rock’s earlier risque classics."
+tags: asbury-park-all-star-revue it-aint-the-meat-its-the-motion maria-maldaur southside-johnny the-swallows
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/aintmeat.jpg
+post_id: 33127
+---
 When rock and roll first hit the scene, parents fretted over its influence on their impressionable children. Looking back on it, most of those early songs were comparatively tame by today's standards.
 
 There were exceptions, though.

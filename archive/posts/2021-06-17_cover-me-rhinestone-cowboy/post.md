@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Rhinestone Cowboy"
+author: "Ken"
+excerpt: "Bruce couldn’t have chose a more perfect song to end his Western Stars film with than the 1975 classic by a New York songwriter yearning to make it big as a western country star."
+tags: glen-campbell rhinestone-cowboy western-stars
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/rhine.jpg
+post_id: 27899
+---
 > "It was just a song that came up in an instant, you know. A really beautifully written song, and it was always one of my favorites by Glen Campbell." *— Bruce Springsteen, Variety, October 17, 2019*<br>
 
 Sure, Bruce.

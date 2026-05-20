@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Racing in the Street"
+author: "Ken"
+excerpt: "It’s one of Bruce’s best songs, and it arose from a simple question: And then what?"
+tags: darkness-on-the-edge-of-town racing-in-the-street racing-in-the-street-78
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/racing.jpg
+post_id: 29310
+---
 > "Oh yeah, life goes on long after the thrill of living is gone." *–John Mellencamp*<br>
 
 It's the scariest question in rock and roll: *And then what?*

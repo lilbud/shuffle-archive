@@ -1,14 +1,23 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen, Midnight Thunder, and Southside Johnny, Keep A-Knockin'"
+author: "Ken"
+excerpt: "Bruce took a few runs at Little Richard’s “Keep A-Knockin’.” Listen to two of them here: one with Midnight Thunder, the other with Southside Johnny and The Asbury Jukes."
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/keep.jpg
+post_id: 5723
+---
 Some songs get passed down from generation to generation, with one artist inspiring the next.
 
-"Keep A-Knockin" was first recorded by blues artist James Wiggins in 1928...
+"Keep A-Knockin" was first recorded by blues artist James Wiggins in 1928…
 
 [Watch on Youtube: Keep A-Knockin' by James "Boodle It" Wiggins](https://www.youtube.com/watch?v=cPYeXbc8rns)
 
-...which inspired Louis Jordan to cut a smoother take on it in 1939...
+…which inspired Louis Jordan to cut a smoother take on it in 1939…
 
 [Watch on Youtube: Louis Jordan - Keep A-Knockin' (but You Can't Come In) 1939](https://www.youtube.com/watch?v=6pcve7daxNM)
 
-...which in turn inspired Louis Jordan fan Little Richard to turn it into an uptempo stomp rocker in 1957.
+…which in turn inspired Louis Jordan fan Little Richard to turn it into an uptempo stomp rocker in 1957.
 
 [Watch on Youtube: Keep-a-Knockin'](https://www.youtube.com/watch?v=FuvQ4ag4X5g)
 

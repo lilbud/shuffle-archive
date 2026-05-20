@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Red Headed Woman"
+author: "Ken"
+excerpt: "Keep your room clean, kids."
+tags: patti-scialfa red-headed-woman
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/bruce-springsteen-red-headed.jpg
+post_id: 29186
+---
 > "I think it's one of the finest songs ever written on the subject, but I don't know what the competition might be. Needless to say, the field is wide open."
 >
 > — *Bruce Springsteen introducing "Red Headed Woman," September 25, 1996*<br>

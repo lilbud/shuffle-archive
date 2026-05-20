@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Two Faces"
+author: "Ken"
+excerpt: "A 1960s doo-wop break-up song inspired one of Bruce’s most openly confessional songs about his depressive struggles."
+tags: tunnel-of-love two-faces
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/twofaces.jpg
+post_id: 34887
+---
 > "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*<br>
 
 This isn't the first time I've used that pull quote in a *Roll of the Dice* installment.

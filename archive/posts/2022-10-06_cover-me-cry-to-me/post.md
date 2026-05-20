@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Cry to Me"
+author: "Ken"
+excerpt: "During the Born to Run Tour, Bruce worked up a simmering, slow burn of a cover of Solomon Burke’s 1962 classic."
+tags: betty-harris cry-to-me solomon-burke the-rolling-stones
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/crytome.jpg
+post_id: 38509
+---
 With a new album of old soul covers on the way, let's take a look at a few more classics from the deep trove of R&B standards Bruce has covered over the years. We'll start with one you almost certainly know but almost certainly haven't heard him perform live.
 
 That's because "Cry to Me" has only appeared in a Springsteen set list once, way back in 1971, and that performance was not recorded. He did, however, play it at least two sound checks during the Born to Run Tour, and those performances survive thanks to the stealthy tapecraft of bootleggers.

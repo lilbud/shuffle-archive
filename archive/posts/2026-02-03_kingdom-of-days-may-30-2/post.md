@@ -1,3 +1,13 @@
+---
+layout: post
+title: "May 30"
+author: "Ken"
+excerpt: "Happy Birthday, Tom Morello! Also on this date: Bruce joins Southside Johnny’s legendary radio broadcast, headlines Pinkpop, and more."
+tags: belgium berlin boston chicago child columbus darkness-tour denmark devils-and-dust-tour gentofte germany having-a-party jackson-cage london my-beautiful-reward new-york-city north-carolina pinkpop prove-it-all-night rag-mama-rag river-tour save-my-love seeger-sessions-tour southside-johnny springsteen-on-broadway state-trooper stone-pony tom-morello tucson-train uk when-i-leave-berlin working-on-a-dream-tour working-on-the-highway world-tour-1993 wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/20230530-edinburgh-uk-bruce-springsteen-and-the-e-street-band-review.webp
+post_id: 56901
+---
 **1964**: Honorary E Streeter Tom Morello is born in New York City.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/Tom-Morello.jpg.webp)

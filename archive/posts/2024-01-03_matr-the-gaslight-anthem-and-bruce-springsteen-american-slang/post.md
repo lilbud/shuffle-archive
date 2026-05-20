@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: The Gaslight Anthem and Bruce Springsteen: American Slang"
+author: "Ken"
+excerpt: "When The Gaslight Anthem came through Asbury in 2011, Bruce joined them on their album’s title track in a surprise appearance for a hometown crowd."
+tags: american-slang the-gaslight-anthem
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/americanslang.jpg
+post_id: 27714
+---
 Did anyone really *not* expect Bruce to turn up when The Gaslight Anthem played Asbury Park's Convention Hall on their American Slang Tour?
 
 I mean, I'm not even sure it's possible to find a story about the band or an interview with Brian Fallon (their lead singer) that doesn't make the Springsteen comparison.

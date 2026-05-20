@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Sad Eyes"
+author: "Ken"
+excerpt: "Patiently romantic or cruelly manipulative? Read my take on Bruce’s one and only single from Tracks inside."
+tags: 18-tracks sad-eyes tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/Bruce-Springsteen-Sad-Eyes.jpg
+post_id: 13049
+---
 For a cast-off outtake from a poorly-received album buried on the fourth disc of a box set and only ever performed live once, "Sad Eyes" sure generates a lot of discussion among fans.
 
 I have many friends who regard "Sad Eyes" as a deeply romantic song and a few who view it more platonically in a "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" vein. I've read interpretations that argue a theme of acceptance, and others that posit patience.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Boston, August 14, 2012"
+author: "Ken"
+excerpt: "There’s no better example of the Night One/Night Two rule than Bruce’s Fenway Park stand on the Wrecking Ball Tour. On Night One, Bruce was certainly playing it safe…"
+tags: atlantic-city because-the-night boom-boom born-to-run boston darlington-county death-to-my-hometown dirty-water drive-all-night fenway-park johnny-99 my-city-of-ruins out-in-the-street rosalita shackled-and-drawn spirit-in-the-night the-e-street-shuffle the-promised-land thunder-road twist-and-shout wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/20120814_booklet2-1.jpg
+post_id: 3643
+---
 If you're a frequent concertgoer, there's a rule that you should know and follow: if an artist plays two or more shows in a given city, and you can only attend one, make sure you go to the last one. The first show is almost always the "standard set," the one the band is most comfortable with and varies only in minor ways from town to town. The last show is almost always a free-for-all, a loose and unpredictable barnburner where the artist and band gets a chance to cut loose and improvise. I've found this rule to hold true almost without fail–and most certainly when Bruce is involved.
 
 I knew that rule going in when I bought tickets for both of Bruce's 2012 Boston shows at Fenway Park, but I figured that since these would be Bruce's first shows in the U.S.A. in months, in the height of summer, at a special venue–well, maybe, just *maybe* we'd get a pair of shows to remember. Bruce had just played the longest show of his career two weeks prior when he wrapped up the European leg of the tour, so maybe we'd get a show of comparable length. Bruce Inc. was certainly promoting both shows as a special event:

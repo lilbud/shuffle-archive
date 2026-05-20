@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Murder Incorporated"
+author: "Ken"
+excerpt: "How an outcast from the Born in the U.S.A. sessions became the song that ushered in the E Street Band’s Reunion era."
+tags: greatest-hits murder-incorporated the-essential-bruce-springsteen
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/murder.jpg
+post_id: 17539
+---
 > "There's a body count incorporated into our way of life. We've come to accept the expendability of some of our citizens' lives and dreams as just a part of the price of doing business." *–Bruce Springsteen, December 17, 1995*<br>
 
 It was a Tuesday night in the dead of winter, and a lucky invite-only crowd packed the floor at the appropriately-named Tramps in New York City.

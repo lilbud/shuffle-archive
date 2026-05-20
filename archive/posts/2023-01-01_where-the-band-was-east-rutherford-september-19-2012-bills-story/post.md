@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: East Rutherford, September 19, 2012 (Bill's story)"
+author: "Ken"
+excerpt: "Guest blogger Bill Kenney takes us back to The Meadowlands on the Wrecking Ball Tour."
+tags: bill-kenney east-rutherford wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/20120919_booklet2.jpg
+post_id: 12573
+---
 Editor's Note
 
 ***Editor’s Note:*** *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*<br>
@@ -80,7 +90,7 @@ Racing in the Street
 The Rising
 Badlands
 Land of Hope and Dreams
-* * *
+---
 We Are Alive
 Thunder Road
 Born to Run

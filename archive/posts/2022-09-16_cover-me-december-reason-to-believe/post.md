@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, December: Reason to Believe"
+author: "Ken"
+excerpt: "Glasgow-based December is back with a terrific cover of Bruce Springsteen’s classic Nebraska-era track."
+tags: december reason-to-bellieve
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/december.jpg
+post_id: 37691
+---
 This is the second appearance on the Shuffle for Glasgow-based indie-rock band December.
 
 [Their cover of "No Surrender"](../2022-03-05_cover-me-december-no-surrender/post.md) was deservedly a reader favorite earlier this year, and now they're back with an upbeat cover of "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)."

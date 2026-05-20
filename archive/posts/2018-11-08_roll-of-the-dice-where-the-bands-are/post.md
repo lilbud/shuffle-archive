@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Where the Bands Are"
+author: "Ken"
+excerpt: "“Where the Bands Are” is power pop perfection, showcasing the E Street Band at their most joyous."
+tags: jackson-cage the-river tracks where-the-bands-are
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/WhereTheBandsAre.jpg
+post_id: 5529
+---
 Much of Bruce's catalog demands concentration and invites analysis.
 
 And then there are songs like "Where the Bands Are." If you analyze them too carefully, you miss their entire point.

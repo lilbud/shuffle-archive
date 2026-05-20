@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Long Goodbye"
+author: "Ken"
+excerpt: "Although often attributed to Bruce’s cross-country move, “The Long Goodbye” offers more a more universal theme about relationships that last too long."
+tags: human-touch the-long-goodbye
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/thelonggoodbye1.jpg
+post_id: 31029
+---
 > "The tragedy of life…is not that the beautiful things die young, but that they grow old and mean. It will not happen to me."
 >
 > *—* Raymond Chandler, *The Long Goodbye*<br>

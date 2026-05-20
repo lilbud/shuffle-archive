@@ -1,14 +1,24 @@
+---
+layout: post
+title: "MatR: Nicky Addeo, Bruce Springsteen and Friends: Crying in the Chapel"
+author: "Ken"
+excerpt: "One time only: Bruce backs a special Wonder Bar house band of local legends on a cover of Darrell Glenn’s classic “Crying in the Chapel.”"
+tags: crying-in-the-chapel darrell-glenn elvis-presley
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/crying-chapel.jpg
+post_id: 15846
+---
 ***Updated 2/25/20** with corrections from Rose Montana (thanks, Rose!)*<br>
 
 When I introduce one of these entries as "one for the completists," that's code for one of the following: either a) the accompanying recording is terrible, or b) Bruce isn't in it very much.
 
 Well, Bruce's only performance of "Crying in the Chapel" definitely isn't the former–we've got a great close-up video of the Stone Pony gig where he played it.
 
-And the song's pretty great, too–so great in fact that not only did Darrell Glenn take his original 1953 recording to #6 on the Billboard pop chart and #4 on the country and western chart...
+And the song's pretty great, too–so great in fact that not only did Darrell Glenn take his original 1953 recording to #6 on the Billboard pop chart and #4 on the country and western chart…
 
 [Watch on Youtube: 1st RECORDING OF: Crying In The Chapel - Darrell Glenn (1953)](https://www.youtube.com/watch?v=XM1PzEWnZZ0)
 
-...Rex Allen took his cover to #8, Ella Fitzgerald took hers to #15, and Art Lund notched at #23—*all in the same year as Glenn's original.* That's what you call a hit.
+…Rex Allen took his cover to #8, Ella Fitzgerald took hers to #15, and Art Lund notched at #23—*all in the same year as Glenn's original.* That's what you call a hit.
 
 But it was Elvis Presley's cover in 1960 that scored the highest: unreleased until 1965, "Crying in the Chapel" was a #3 hit for Elvis on the Billboard Hot 100 and #1 (for seven weeks!) on the easy listening chart.
 

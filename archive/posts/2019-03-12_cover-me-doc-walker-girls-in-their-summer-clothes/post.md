@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Doc Walker: Girls in Their Summer Clothes"
+author: "Ken"
+excerpt: "Canadian band Doc Walker finds a tender country song lurking inside Bruce’s underappreciated pop single, “Girls in Their Summer Clothes.”"
+tags: doc-walker girls-in-their-summer-clothes
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/docwalker.jpg
+post_id: 7884
+---
 Sure, we know that Bruce's songs translate well into country music arrangements. A good deal of his catalog is country-inspired, so it only makes sense that his music should appeal to country artists.
 
 Check out [The Mavericks' wonderful rendition of "All That Heaven Will Allow"](../2019-02-28_cover-me-the-mavericks-all-that-heaven-will-allow/post.md) for example, or Thompson Square on "[Brilliant Disguise](../2018-10-17_cover-me-thompson-square-brilliant-disguise/post.md)."

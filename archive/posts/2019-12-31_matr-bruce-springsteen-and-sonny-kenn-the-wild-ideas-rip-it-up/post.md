@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Bruce Springsteen and Sonny Kenn & The Wild Ideas: Rip It Up"
+author: "Ken"
+excerpt: "Twice only during the summer of 1982: Bruce covers “Rip It Up,” Little Richard’s #1 R&B 1956 hit, at back-to-back surprise club appearances."
+tags: little-richard rip-it-up sonny-kenn-and-the-wild-ideas
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/ripitup.jpg
+post_id: 15191
+---
 Despite Bruce's admiration for Little Richard and his catalog, only two of Little Richard's three Number One R&B hits ("[Lucille](../1976-01-07_cover-me-lucille/post.md/)" and "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)") seem to make Bruce's set lists.
 
 Which one's missing in action? That would be "Rip It Up," which topped the R&B chart for two weeks in 1956.

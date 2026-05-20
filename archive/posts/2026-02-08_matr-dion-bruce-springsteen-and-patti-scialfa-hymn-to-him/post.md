@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Hymn to Him"
+author: "Ken"
+excerpt: "When Dion resurrected his 1986 Christian rock hymn, he asked Patti Scialfa to provide new backing vocals. He got them–along with a bonus guitar solo from her husband."
+tags: dion hymn-to-him patti-scialfa
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/hymntohim.jpg
+post_id: 26872
+---
 Dion DiMucci is best known for his early doo-wop and rock hits in the 1960s and 1970s, but at the dawn of the eighties, Dion took a spiritual turn, becoming a born-again Christian and releasing a half-dozen Christian rock albums.
 
 The last of these was his 1986 LP *Velvet & Steel*, which featured a very eighties devotional entitled "Hymn to Him."

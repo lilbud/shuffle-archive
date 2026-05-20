@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 17"
+author: "Ken"
+excerpt: "On this date in Springsteen history: A live radio broadcast from The Roxy, guest appearances with The Knack and U2, and more."
+tags: american-babylon-tour bobby-bandiera born-in-the-usa-tour born-to-run-book born-to-run-tour boston bruce-springsteen-band calgary canada danny-federici david-gahr denver down-the-road-apiece england ghost-of-tom-joad-tour joe-grushecky lawsuit-tour london los-angeles madison-square-garden magic-tour mona new-york-city not-fadeaway patti-scialfa philadelphia reunion-tour river-tour sophie-satanovsky southside-johnny springsteen-on-broadway st-louis steel-mill stone-pony student-prince tacoma tenth-avenue-freeze-out the-knack u2 uk washington-dc wild-innocent-tour world-tour-1992
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/american-babylon.jpg
+post_id: 61150
+---
 ***New for 2025:** New entry for 1974 and 2024*<br>
 
 **1970:** Steel Mill headlines at Monmouth College, where Danny Federici, still on the lam after the infamous swim club show, makes an appearance and turns himself in shortly thereafter.<br>

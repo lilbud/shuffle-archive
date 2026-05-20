@@ -1,3 +1,13 @@
+---
+layout: post
+title: "February 12"
+author: "Ken"
+excerpt: "An embarrassment of riches on this date in Bruce history: the one and only performance of “Hunter of Invisible Game,” a Grammy performance with Paul McCartney, a Johnny Cash tribute, and much more–great footage and audio today!"
+tags: adelaide australia backstreets boz-scaggs bruce-springsteen-band canada crazy-horse drive-all-night frankfurt germany ghost-of-tom-joad-tour give-my-love-to-rose grammy-awards high-hopes-tour hunter-of-invisible-game i-wanna-marry-you johnny-cash kentucky lawsuit-tour love-is-like-a-heatwave mobile my-love-will-not-let-you-down ottawa paul-mccartney philadelphia ramrod river-tour river-tour-2016 san-francisco steel-mill sting sydney vini-lopez we-take-care-of-our-own
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/officiallivedownloads_2014-02-12.jpg
+post_id: 55935
+---
 **1970:** Steel Mill opens for Boz Scaggs at The Matrix in San Francisco.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1972-02-14.jpg.webp)

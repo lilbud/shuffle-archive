@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, The Descendants: Land of Hope and Dreams"
+author: "Ken"
+excerpt: "South African folk combo The Descendants turn in an inspirational cover of one of Bruce’s very best songs."
+tags: land-of-hope-and-dreams the-descendants
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/descendants.jpg
+post_id: 37160
+---
 They may be a folk trio, but this cover rocks.
 
 The Descendants hail from South Africa’s Eastern Cape. With twelve studio albums under their belts, Ingrid Potgieter (piano), Nicky Wilson (bass), and Melissa Larter (guitar and lead vocals) have amassed a considerable catalog of inspirational songs.

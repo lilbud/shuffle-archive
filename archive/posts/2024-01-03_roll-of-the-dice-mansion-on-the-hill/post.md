@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Mansion on the Hill"
+author: "Ken"
+excerpt: "How a tale of 19th-century heartbreak and a 1947 Hank Williams song led to one of the most affecting tracks on Nebraska."
+tags: mansion-on-the-hill nebraska
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/mansion.jpg
+post_id: 32613
+---
 > "This is a song about when I was a kid. My father was always transfixed… he used to drive me outside of town, there was this nice white house, used to sit up on this hill. Later on, when I thought back on it… as I got older, [the house] took on a lot of meaning for me. It became very mystical, like a touchstone.
 >
 > Now when I dream, sometimes I'm outside the gates looking in, and sometimes I'm the man inside." — *Bruce Springsteen, June 29, 1984*<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: 4th of July, Asbury Park (Sandy)"
+author: "Ken"
+excerpt: "“4th of July, Asbury Park (Sandy)” reveals Bruce Springsteen at a crossroads, caught between his attraction to and rejection of his adopted hometown. Backstory, insights, and great performances inside."
+tags: 4th-of-july-asbury-park-sandy danny-federici the-wild-the-innocent-and-the-e-street-shuffle
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/4thofjulyasburypark_sin-de.jpg
+post_id: 8769
+---
 > [Asbury Park] doesn't mean a thing. It's just a dumpy town. It doesn't mean anything… I used to go there a lot more than I do now; I've hardly been there this summer at all.
 > –Bruce Springsteen to an interviewer in the summer of 1975
 

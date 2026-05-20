@@ -1,18 +1,28 @@
+---
+layout: post
+title: "Kingdom of Days: June 12"
+author: "Ken"
+excerpt: "The legendary final stand of the Reunion Tour kicks off at Madison Square Garden, and Bruce joins Jackson Browne at the Rally for Disarmament. More highlights from this date in Springsteen history inside."
+tags: american-skin born-in-the-usa-tour clarence-clemons crawdaddy germany hamburg jackson-browne madison-square-garden reunion-tour rising-tour rotterdam running-on-empty southside-johnny the-netherlands the-promised-land wolfgang-niedecken
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/bs240612_01.jpg
+post_id: 57049
+---
 ***New for 2025:** New entry for 1979 and 2024; audio for 2000; video for 2003*<br>
 
-**1973:** Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce’s opening act performance along with it.<br>
+**1973:** Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce's opening act performance along with it.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Buffalo_Evening_News_Tue__Jun_12__1973_-scaled.jpg.webp)
 
-**1978:** Another abrupt cancellation: Bruce’s scheduled Darkness Tour stop in La Crosse, Wisconsin is advertised right up until the day before the show before cancelling without public explanation.<br>
+**1978:** Another abrupt cancellation: Bruce's scheduled Darkness Tour stop in La Crosse, Wisconsin is advertised right up until the day before the show before cancelling without public explanation.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg.webp)
 
-**1979:** Bruce works on “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)” during a recording session at The Power Station in New York City.<br>
+**1979:** Bruce works on "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" during a recording session at The Power Station in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen Ramrod #1](https://www.youtube.com/watch?v=XwJp0FaZNG4)
 
-**1982:** Bruce joins Jackson Browne on stage for “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” and “[Running on Empty](../2021-03-24_matr-jackson-browne-and-bruce-springsteen-running-on-empty/post.md)” in New York’s Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man’s West in Red Bank.<br>
+**1982:** Bruce joins Jackson Browne on stage for "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[Running on Empty](../2021-03-24_matr-jackson-browne-and-bruce-springsteen-running-on-empty/post.md)" in New York's Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man's West in Red Bank.<br>
 
 [Watch on Youtube: Bruce Springsteen & Jackson Browne - The Promised Land](https://www.youtube.com/watch?v=ONG5UOwbpu4)
 
@@ -32,7 +42,7 @@
 
 **1988:** Night Two in Turin on the Tunnel of Love Tour is cancelled due to low ticket sales(!)<br>
 
-**2000:** The Reunion Tour’s legendary ten-night final stand kicks off at Madison Square Garden with the world premiere of “[Code of Silence](../2018-08-27_codeofsilence/post.md).” Despite the controversy that preceded the show and the mixed audience reaction tonight, Bruce plays “American Skin (41 Shots)” at this and each remaining show. You can hear just how strong the audience reaction was below.<br>
+**2000:** The Reunion Tour's legendary ten-night final stand kicks off at Madison Square Garden with the world premiere of "[Code of Silence](../2018-08-27_codeofsilence/post.md)." Despite the controversy that preceded the show and the mixed audience reaction tonight, Bruce plays "American Skin (41 Shots)" at this and each remaining show. You can hear just how strong the audience reaction was below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1stOL4ZJ)
 
@@ -46,7 +56,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2000-06-12.jpg.webp)
 
-**2003:** Wolfgang Niedecken guest-stars on “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” at Bruce’s Rising show in Hamburg.<br>
+**2003:** Wolfgang Niedecken guest-stars on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" at Bruce's Rising show in Hamburg.<br>
 
 [Watch on Youtube: Born in the USA 12.06.2003](https://www.youtube.com/watch?v=bDfAzjmjOdc)
 
@@ -54,7 +64,7 @@
 
 [Watch on Youtube: Atlantic City](https://www.youtube.com/watch?v=tzH8YVrxIUY)
 
-**2005:** A scheduled solo acoustic show in Berlin is rescheduled after Terry Magovern’s fiancée passes away.<br>
+**2005:** A scheduled solo acoustic show in Berlin is rescheduled after Terry Magovern's fiancée passes away.<br>
 
 **2007:** Bruce joins Jackson Browne on stage in Red Bank for two encore performances at a benefit for People with ALS.<br>
 
@@ -62,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2011-06-12.jpg.webp)
 
-**2024:** World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering “[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)” and “Rockin’ All Over the World.”<br>
+**2024:** World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering "[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)" and "Rockin' All Over the World."<br>
 
 [Watch on Youtube: Frankie fell in love - Bruce Springsteen Madrid 12 June 2024](https://www.youtube.com/watch?v=o6m7GqNENNU)
 

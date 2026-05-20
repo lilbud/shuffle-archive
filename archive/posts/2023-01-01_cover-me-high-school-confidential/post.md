@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: High School Confidential"
+author: "Ken"
+excerpt: "Jerry Lee Lewis’ 1958 single might have been overshadowed by personal drama and the camp classic the song introduced, but Bruce drew inspiration from it for an unusual Halloween show opener."
+tags: high-school-confidential jerry-lee-lewis
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/hsconfidential.jpg
+post_id: 17931
+---
 What can we say in praise about the film *High School Confidential* other than: in terms of camp value, it only improves with age.
 
 Well, there's the great title song by Jerry Lee Lewis, who lip-syncs to it over the opening credits of the film while playing piano on a moving flatbed truck cum mobile record store bearing his own name, surrounded by a flock of teenagers. Lewis disappears after the opening credits–that's the kind of movie this is.

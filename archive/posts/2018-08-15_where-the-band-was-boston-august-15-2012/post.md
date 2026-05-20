@@ -1,4 +1,14 @@
-...and then came Night Two.
+---
+layout: post
+title: "Where the Band Was: Boston, August 15, 2012"
+author: "Ken"
+excerpt: "Mind. Blown."
+tags: american-land backstreets badlands boston darkness-on-the-edge-of-town detroit-medley does-this-bus-stop-on-82nd-street dropkick-murphys fenway-park frankie girls-in-their-summer-clothes hungry-heart ken-casey knock-on-wood prove-it-78 quarter-to-three rocky-ground sherry-darling summertime-blues tenth-avenue-freeze-out thunder-road thundercrack wholl-stop-the-rain working-on-the-highway wrecking-ball-tour
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/fenway2.jpg
+post_id: 3644
+---
+…and then came Night Two.
 
 My expectations going in were fairly low: [the previous night's show](../2018-08-14_where-the-band-was-boston-august-14-2012/post.md), while perfectly serviceable, was a pretty standard show. Any hope that I had of Bruce continuing the run of amazing, unpredicatable shows that characterized the European leg of the tour had been firmly reset.
 
@@ -8,7 +18,7 @@ When Bruce walked on stage with just Roy–the rest of the band nowhere in sight
 
 [Watch on Youtube: Bruce Springsteen: Fenway Park #2, 8-15-2012, Band Entry](https://www.youtube.com/watch?v=N0ys1FWfXYk)
 
-Bruce casually greeted the audience, "Good evening, good evening on this lovely night! We had a lot of fun last night. This place is like playing a big picnic or something... that's a good thing."
+Bruce casually greeted the audience, "Good evening, good evening on this lovely night! We had a lot of fun last night. This place is like playing a big picnic or something… that's a good thing."
 
 And then it began: "Roy and I are going to start with something., we used to start like this back in the seventies, and we haven't done it in the States in a long time."
 
@@ -24,7 +34,7 @@ Oh, yeah–a very different night indeed:
 
 The opening songs tend to set the tone for the night, and kicking things off with an acoustic "Thunder Road" into "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" signaled that Bruce was serious about treating this show like "a big picnic."
 
-At the end of "Hungry Heart," Bruce looked pretty satisfied. He turned to the band and signaled "Keep going! Alright we're going to keep that summertime theme going..." Bruce then called his first audible of the night–his first of *three in a row–*and launched into "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)."
+At the end of "Hungry Heart," Bruce looked pretty satisfied. He turned to the band and signaled "Keep going! Alright we're going to keep that summertime theme going…" Bruce then called his first audible of the night–his first of *three in a row–*and launched into "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)."
 
 [Watch Video Highlight](https://videopress.com/embed/2QpXB6MX)
 
@@ -32,7 +42,7 @@ Any hint of tiredness left in me was gone by this point, replaced by adrenaline.
 
 [Watch on Youtube: Bruce Springsteen - Summertime Blues- Fenway Park - 8-15-12 - Night 2](https://www.youtube.com/watch?v=-HK4bJboDfo)
 
-By the end of the song, Bruce looked looser than I'd ever seen him. He shouted, "Alright... we're flying by the seat of our pants now!" and called for "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)," one of my absolute favorite tracks from *Magic* and one that I hadn't heard live since that tour. The band was clearly bemused by this point–five songs in, and we were so far from the setlist that no one had any idea what was coming next. The band looked unprepared for this one, and there was some conferencing on stage about it.
+By the end of the song, Bruce looked looser than I'd ever seen him. He shouted, "Alright… we're flying by the seat of our pants now!" and called for "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)," one of my absolute favorite tracks from *Magic* and one that I hadn't heard live since that tour. The band was clearly bemused by this point–five songs in, and we were so far from the setlist that no one had any idea what was coming next. The band looked unprepared for this one, and there was some conferencing on stage about it.
 
 "You guys remember the bridge? We don't need everybody to remember, we just need *most* of the band to remember." Bruce the perfectionist was nowhere to be found tonight–this Bruce was only here for fun.
 
@@ -46,7 +56,7 @@ He did make it back for the rest of the opening pack, though, launching from "De
 
 And then Bruce collected signs. It hit me at that moment: he'd completely skipped that the night before. He'd honored a few requests at the tail end of the main set, but otherwise the show was pretty well scripted. Tonight, we'd already had four Bruce-induced wildcards, and he was now signaling a lot more: "The rest of the night? It's gonna feel like we're playing at a picnic!"
 
-First up: "This one has never been played by the E Street Band! At least not that I remember... I don't think it ever has." (It had, but not for a *very* long time.) "Ladies and gentlemen, we want you to knock–right now–on wood!"
+First up: "This one has never been played by the E Street Band! At least not that I remember… I don't think it ever has." (It had, but not for a *very* long time.) "Ladies and gentlemen, we want you to knock–right now–on wood!"
 
 [Watch Video Highlight](https://videopress.com/embed/FaVCWMDK)
 
@@ -60,11 +70,11 @@ A remarkable run of vintage Springsteen originals followed "for our old, old, ol
 
 "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" led to "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," which had Bruce in a nostalgic mood, recounting all the bands they'd opened for where "Thundercrack" was their "first showstopper."
 
-And then came another highlight of the night: my first full-band "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)" (I'd heard it only acoustically before), with an absolutely gorgeous new introductory guitar solo by Bruce, and a mid-song story. Bruce reminisced about the fireflies he used to watch as he wrote the song, and as he spoke, the crowd broke out their cel phones, and the park became filled with fireflies... "Light 'em up! That's good..." Even if you skipped the other videos, watch this one.
+And then came another highlight of the night: my first full-band "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)" (I'd heard it only acoustically before), with an absolutely gorgeous new introductory guitar solo by Bruce, and a mid-song story. Bruce reminisced about the fireflies he used to watch as he wrote the song, and as he spoke, the crowd broke out their cel phones, and the park became filled with fireflies… "Light 'em up! That's good…" Even if you skipped the other videos, watch this one.
 
 [Watch Video Highlight](https://videopress.com/embed/zkaKIjie)
 
-And then... my heart skipped a beat, because I recognized the piano notes that signaled the next song. I knew them by heart but never expected to hear them live:
+And then… my heart skipped a beat, because I recognized the piano notes that signaled the next song. I knew them by heart but never expected to hear them live:
 
 [Watch on Youtube: Bruce Springsteen - Prove It All Night (3cam mix with dubbed audio) 2012-08-15 Fenway Park, Boston](https://www.youtube.com/watch?v=n8kIjzIZL5g)
 
@@ -94,7 +104,7 @@ The rain had continued since "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the
 
 [Watch on Youtube: Springsteen Fenway 2 Detroit and Dancing](https://www.youtube.com/watch?v=CFbBVPTZ6_Y)
 
-And then, after "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" came one last sign request–and oh, what a great one: we were back in the seventies again, with the tour premiere of "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)," another first for me. The cherry on top: Bruce reprised his "I'm just a prisoner..... of rock and roll" declaration at the end of the song, another moment I'd never thought I'd get to witness live.
+And then, after "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" came one last sign request–and oh, what a great one: we were back in the seventies again, with the tour premiere of "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)," another first for me. The cherry on top: Bruce reprised his "I'm just a prisoner….. of rock and roll" declaration at the end of the song, another moment I'd never thought I'd get to witness live.
 
 We could have been done by that point as far as I was concerned, but Bruce wasn't. We still had "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" and a show-closing "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" (complete with guest-appearance by Ken Casey of Dropkick Murphys) in store.
 

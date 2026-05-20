@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Back in Your Arms"
+author: "Ken"
+excerpt: "“Back in Your Arms” is Bruce’s most soulful and rueful torch song, presaging themes he still grapples with today."
+tags: back-in-your-arms greatest-hits
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/back-in-your-arms.jpg
+post_id: 13790
+---
 > "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*<br>
 
 When Bruce Springsteen played "Back in Your Arms" live for the first time way back on the Reunion Tour, here's how he introduced it:

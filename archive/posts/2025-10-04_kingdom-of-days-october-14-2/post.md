@@ -1,14 +1,24 @@
+---
+layout: post
+title: "Kingdom of Days: October 14"
+author: "Ken"
+excerpt: "On this date: Arcade Fire makes a memorable guest appearance, Bruce plays his first-ever show in Argentina, and the European Rising Tour kicks off. Video and more highlights inside."
+tags: arcade-fire argentina canada france further-on-up-the-road gotham-playboys human-rights-now-tour keep-the-car-running land-of-hope-and-dreams magic-tour mendoza milwaukee ottawa paris philadelphia rising-tour river-tour springsteen-on-broadway state-trooper what-love-can-do working-on-a-dream-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/10/bs091014_01.jpg
+post_id: 61113
+---
 ***New for 2025:** Audio for 1977*<br>
 
-**1972:** Bruce runs a classified ad in the Asbury Park Press seeking a “together and ready to travel” pianist and country violinist. Let’s hope he finds at least one of them. Maybe David Sancious is still available?<br>
+**1972:** Bruce runs a classified ad in the Asbury Park Press seeking a "together and ready to travel" pianist and country violinist. Let's hope he finds at least one of them. Maybe David Sancious is still available?<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1972-10-14.png.webp)
 
-**1977:** At Atlantic Studios in New York City, Bruce records “[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md),” “[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md),” “[City of Night](../2020-06-28_roll-of-the-dice-city-of-night/post.md),” and “[Wrong Side of the Street](../2019-11-06_roll-of-the-dice-wrong-side-of-the-street/post.md)“– all of which will go unreleased for decades–plus “[The Ballad](../2019-12-29_roll-of-the-dice-the-ballad/post.md),” which is still unreleased to this day.<br>
+**1977:** At Atlantic Studios in New York City, Bruce records "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)," "[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md)," "[City of Night](../2020-06-28_roll-of-the-dice-city-of-night/post.md)," and "[Wrong Side of the Street](../2019-11-06_roll-of-the-dice-wrong-side-of-the-street/post.md)"– all of which will go unreleased for decades–plus "[The Ballad](../2019-12-29_roll-of-the-dice-the-ballad/post.md)," which is still unreleased to this day.<br>
 
 [Watch on Youtube: City of Night](https://www.youtube.com/watch?v=rtI5TxfhhUU)
 
-**1980:** Bruce calls an out-of-left-field audible at his River Tour stop at Milwaukee’s Mecca Arena, resulting in his first public performance of “[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md).”<br>
+**1980:** Bruce calls an out-of-left-field audible at his River Tour stop at Milwaukee's Mecca Arena, resulting in his first public performance of "[In the Midnight Hour](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "In the Midnight Hour" - Milwaukee, 1980-10-14](https://www.youtube.com/watch?v=BsPe6q9jYF0)
 
@@ -20,9 +30,9 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1988-10-14.png.webp)
 
-**2000:** Bruce jams with The Gotham Playboys (and future Sessions Band bandmates), who are once again the entertainment at Bruce’s belated birthday party at his house in Colts Neck.<br>
+**2000:** Bruce jams with The Gotham Playboys (and future Sessions Band bandmates), who are once again the entertainment at Bruce's belated birthday party at his house in Colts Neck.<br>
 
-**2002:** The first European leg of the Rising Tour kicks off in Paris, where Elliot Murphy makes a guest appearance for “Born to Run.”<br>
+**2002:** The first European leg of the Rising Tour kicks off in Paris, where Elliot Murphy makes a guest appearance for "Born to Run."<br>
 
 [Watch on Youtube: Bruce Springsteen - Further On Up The Road (live in Paris 2002)](https://www.youtube.com/watch?v=Rsfjntm1jok)
 
@@ -30,7 +40,7 @@
 
 [Watch on Youtube: Bruce Springsteen Paris 14/10/2002 Full Concert](https://www.youtube.com/watch?v=wbviL1BNRag)
 
-**2007:** The Magic Tour heads north to Canada, starting with a show at ScotiaBank Place in Ottawa, where Win Butler and Regine Chassagne of Arcade Fire guest star for the tour premiere of “[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)” and Bruce’s only performance of “[Keep the Car Running](../2020-04-01_matr-bruce-springsteen-and-arcade-fire-keep-the-car-running/post.md)” to date. Also tour premiering at this show: “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” and “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md),” performed back to back.<br>
+**2007:** The Magic Tour heads north to Canada, starting with a show at ScotiaBank Place in Ottawa, where Win Butler and Regine Chassagne of Arcade Fire guest star for the tour premiere of "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" and Bruce's only performance of "[Keep the Car Running](../2020-04-01_matr-bruce-springsteen-and-arcade-fire-keep-the-car-running/post.md)" to date. Also tour premiering at this show: "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)," performed back to back.<br>
 
 [Watch on Youtube: Bruce Springsteen with Win & Régine of Arcade Fire - State Trooper](https://www.youtube.com/watch?v=8RPriY-_iXw)
 
@@ -42,7 +52,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-14c.png.webp)
 
-**2009:** Night Two of the final four shows at the Philadelphia Spectrum opens with a rare “[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)” and features the only performance to date of “[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)” along with a full album performance of *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*. This show is available to stream or purchase [here](https://www.nugs.net/live-download-of-bruce-springsteen-wachovia-spectrum-philadelphia-pa-10-14-2009-mp3-flac-or-online-music-streaming/35337.html).<br>
+**2009:** Night Two of the final four shows at the Philadelphia Spectrum opens with a rare "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" and features the only performance to date of "[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)" along with a full album performance of *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*. This show is available to stream or purchase [here](https://www.nugs.net/live-download-of-bruce-springsteen-wachovia-spectrum-philadelphia-pa-10-14-2009-mp3-flac-or-online-music-streaming/35337.html).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/srxdgVQe)
 
@@ -50,10 +60,10 @@
 
 [Watch on Youtube: What Love Can Do (Live at Wachovia Spectrum, Philadelphia, PA - 10/14/2009)](https://www.youtube.com/watch?v=WVVFNDyM2as)
 
-**2017:** Bruce can’t seem to decide on the order of “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” and “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)” during his Broadway show at the Walter Kerr Theater in New York City–the two songs switch places for the third time.<br>
+**2017:** Bruce can't seem to decide on the order of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" during his Broadway show at the Walter Kerr Theater in New York City–the two songs switch places for the third time.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/2017-1003.jpg.webp)
 
-**2022:** Bruce releases “Nightshift,” the second single from his upcoming album, *Only the Strong Survive.*<br>
+**2022:** Bruce releases "Nightshift," the second single from his upcoming album, *Only the Strong Survive.*<br>
 
 [Watch on Youtube: Bruce Springsteen - Nightshift (Official Video)](https://www.youtube.com/watch?v=GsTKEQzLkmw)

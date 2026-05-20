@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Ballad of a Self-Loading Pistol"
+author: "Ken"
+excerpt: "“Ballad of a Self-Loading Pistol” is a lost gem from the Greetings era, a precursor to “Highway 29” decades later. It deserves wider attention."
+tags: ballad-of-a-self-loading-pistol
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/selfloading.jpg
+post_id: 9384
+---
 How?
 
 How is it possible that Bruce has never released "Ballad of the Self-Loading Pistol" or performed it even once?
@@ -19,47 +29,47 @@ There's so much to appreciate about "Ballad of the Self-Loading Pistol":
 
 "Ballad of the Self-Loading Pistol" may not compare as strongly with the similarly darkly themed songs of *Nebraska* and *The Ghost of Tom Joad*, but it stands tall among Bruce's earliest works and deserves an outing in concert.
 
-> *Father, I have come to tell you about something I done*
-> *Well, as the night reared its light head into a baby sun*
-> *We rolled down into the town from where the Black Throats come*
-> *And you know there was a robbery, there was a holdup*
-> *Oh, there was a shootout, and there was a killing*
-> *And there's blood on my hands*
-> *Today I killed a man*
+> *Father, I have come to tell you about something I done*<br>
+> *Well, as the night reared its light head into a baby sun*<br>
+> *We rolled down into the town from where the Black Throats come*<br>
+> *And you know there was a robbery, there was a holdup*<br>
+> *Oh, there was a shootout, and there was a killing*<br>
+> *And there's blood on my hands*<br>
+> *Today I killed a man*<br>
 
-> *Well now, sister, you know me well*
-> *And you ask me, well, how it was I felt*
-> *Well, she had an appetite for loving only a fading beauty could possess*
-> *She knew just what she wanted and she wouldn't take less*
-> *I figured it was a small town, it was at sundown*
-> *It was just a small crowd of people around*
-> *Oh, but he wouldn't put his guns down*
-> *No, he wouldn't put his guns down*
-> *Woah, he wouldn't put his guns down*
-> *Now his blood's on my hands*
-> *Today I killed a man*
+> *Well now, sister, you know me well*<br>
+> *And you ask me, well, how it was I felt*<br>
+> *Well, she had an appetite for loving only a fading beauty could possess*<br>
+> *She knew just what she wanted and she wouldn't take less*<br>
+> *I figured it was a small town, it was at sundown*<br>
+> *It was just a small crowd of people around*<br>
+> *Oh, but he wouldn't put his guns down*<br>
+> *No, he wouldn't put his guns down*<br>
+> *Woah, he wouldn't put his guns down*<br>
+> *Now his blood's on my hands*<br>
+> *Today I killed a man*<br>
 
-> *And papa, you showed me the beauty of buckshot*
-> *The love song a bullet sings as she whistles*
-> *And showed me the story of the self-loading pistol*
+> *And papa, you showed me the beauty of buckshot*<br>
+> *The love song a bullet sings as she whistles*<br>
+> *And showed me the story of the self-loading pistol*<br>
 
-> *Well now, father, I have come to tell you about something I done*
-> *He had a widow running through town screaming*
-> *He had a brother and his tears were streaming*
-> *Now I'm moving on the border with a rifle on my shoulder*
-> *‘Cause daddy, you showed me the beauty of buckshot*
-> *The love song a bullet sings as she whistles*
-> *And showed me the glory of the self-loading pistol*
+> *Well now, father, I have come to tell you about something I done*<br>
+> *He had a widow running through town screaming*<br>
+> *He had a brother and his tears were streaming*<br>
+> *Now I'm moving on the border with a rifle on my shoulder*<br>
+> *‘Cause daddy, you showed me the beauty of buckshot*<br>
+> *The love song a bullet sings as she whistles*<br>
+> *And showed me the glory of the self-loading pistol*<br>
 
-> *And I just come to tell you that it don't hurt no more*
-> *No, it don't hurt no more 'cause your son, he's an outlaw*
-> *Oh, your son, he's an outlaw*
-> *Yes, your son, he's an outlaw*
-> *Oh, your son, he's an outlaw*
-> *Now, your son, he's an outlaw*
-> *Oh, your son, he's an outlaw*
-> *And this blood feels good on my hands*
-> *Today I killed a man*
+> *And I just come to tell you that it don't hurt no more*<br>
+> *No, it don't hurt no more 'cause your son, he's an outlaw*<br>
+> *Oh, your son, he's an outlaw*<br>
+> *Yes, your son, he's an outlaw*<br>
+> *Oh, your son, he's an outlaw*<br>
+> *Now, your son, he's an outlaw*<br>
+> *Oh, your son, he's an outlaw*<br>
+> *And this blood feels good on my hands*<br>
+> *Today I killed a man*<br>
 
 **Ballad of a Self-Loading Pistol**<br>
 **Recorded** January 29-30, 1973<br>

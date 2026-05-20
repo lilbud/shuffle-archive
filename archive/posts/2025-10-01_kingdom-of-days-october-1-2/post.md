@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: October 1"
+author: "Ken"
+excerpt: "The Vote for Change Tour kicks off, The Rising Tour winds down, and Bruce kicks off a mini-tour of Italy with the Sessions Band. Plus: Bruce serenades Sting on his 60th birthday, and I meet Bruce in Seattle!"
+tags: american-land another-thin-line atlanta bologna born-to-run-book bright-eyes bruce-springsteen-band darkness-tour ghost-of-tom-joad-tour italy john-fogerty lost-in-the-flood mans-job new-york-city normal philadelphia r-e-m rainforest-fund-concert rising-tour roulette seattle seeger-sessions-tour shea-stadium southside-johnny sting student-prince the-castiles the-last-time this-little-light-of-mine vote-for-change-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/10/FeeWdoeXoAcMBZj.jpeg
+post_id: 59750
+---
 ***New for 2025:** Video for 2003; new entry for 2024*<br>
 
 **1966:** The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.<br>

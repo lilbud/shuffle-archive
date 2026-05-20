@@ -1,3 +1,13 @@
+---
+layout: post
+title: "MatR: Roy Orbison, Bruce Springsteen and Friends: Blue Bayou"
+author: "Ken"
+excerpt: "Bruce’s one-time-only performance of “Blue Bayou” with Roy Orbison and friends went missing in action for years after being edited out of Roy’s Black and White Night TV special, but you can watch that beautiful performance here."
+tags: black-and-white-night blue-bayou lind-ronstadt roy-orbison
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/bluebayou.jpg
+post_id: 17749
+---
 It's time for another trip back to *Black and White Night*, a one-time-only Roy Orbison concert with a backing band so deserving of the "all-star" label that you'll spend half your viewing time wondering, "is that...?" (It is.)
 
 This time, we take a look at "Blue Bayou," Orbison's 1963 hit single that peaked at #29 in the U.S. but made it all the way to #3 in the U.K. and #1 in Australia.

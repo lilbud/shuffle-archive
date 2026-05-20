@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Satin Doll"
+author: "Ken"
+excerpt: "Part novelty and part testimony to the E Street Band’s versatility, Bruce opened several early shows with a cover of Duke Ellington’s last great hit."
+tags: duke-ellington satin-doll
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/duke.jpg
+post_id: 4442
+---
 Definitely a contender for the "Least Likely to Be Covered by the E Street Band Award," Duke Ellington's "Satin Doll" was nevertheless an occasional show opener (usually for an on-air, in-studio radio acoustic appearance) during the both the Greetings and Wild & Innocent tours.
 
 An instrumental jazz standard since its release in 1953, "Satin Doll" made it to #27 on the pop chart and was familiar to anyone growing up in the 1950s and 1960s.

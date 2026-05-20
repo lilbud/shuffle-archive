@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Only the Good Die Young"
+author: "Ken"
+excerpt: "One time only: Bruce joins Billy Joel on stage at the Rock and Roll Hall of Fame 25th Anniversary Concert for Billy’s Top 40 hit, “Only the Good Die Young.”"
+tags: billy-joel only-the-good-die-young rock-and-roll-hall-of-fame
+categories: cover-me meeting-across-the-river
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/admin-ajax-17.jpg
+post_id: 16062
+---
 It's quaint now, but at the time of its release, Billy Joel's "Only the Good Die Young" generated so much controversy for its perceived anti-Catholic lyrics (Billy called the song "pro-lust") that radio stations across the country banned it from airplay.
 
 As a result, the third single from Billy's landmark 1977 album *The Stranger* rocketed up the charts, peaking at #24 and cementing itself as a forever-after fan favorite.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: The Wind and the Rain"
+author: "Ken"
+excerpt: "Bruce Springsteen, guitar hero. Don’t laugh, just listen."
+tags: steel-mill the-wind-and-the-rain
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/windrain.jpg
+post_id: 29315
+---
 Bruce Springsteen: Guitar Hero.
 
 If anybody ever laughs when you say those words, make them listen to "The Wind and The Rain" and collect your apology.

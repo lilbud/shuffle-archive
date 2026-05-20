@@ -1,19 +1,29 @@
-By now, we shouldn't be surprised at the range of covers Bruce Springsteen is prone to playing in concert.
+---
+layout: post
+title: "Cover Me: Hey, Good Lookin'"
+author: "Ken"
+excerpt: "Bruce’s one and only cover of “Hey, Good Lookin'” was a bit of a hot mess, but that’s its charm. Take a listen inside."
+tags: hank-williams hey-good-lookin southside-johnny
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/hey-good.jpg
+post_id: 13438
+---
+By now, we shouldn’t be surprised at the range of covers Bruce Springsteen is prone to playing in concert.
 
-Still, "Hey, Good Lookin'," Hank Williams' #1 country hit from 1951, seems like one of the least likely contenders. (It's certainly tough to imagine a fan bringing a sign for it.)
+Still, “Hey, Good Lookin’,” Hank Williams’ #1 country hit from 1951, seems like one of the least likely contenders. (It’s certainly tough to imagine a fan bringing a sign for it.)
 
 [Watch on Youtube: Hank Williams - Hey Good Lookin' (Official Video)](https://www.youtube.com/watch?v=bjCoKslQOEs)
 
-Bruce did play it live, though–one time only–and it wasn't even on the Seeger Sessions Tour where one might expect it.
+Bruce did play it live, though–one time only–and it wasn’t even on the Seeger Sessions Tour where one might expect it.
 
-Nope, this one was in Asbury Park, at Bruce's last show of the 20th century.
+Nope, this one was in Asbury Park, at Bruce’s last show of the 20th century.
 
-I wrote about that show last month when I shared Bruce's soundchecked cover of another Hank Williams song, "[Jambalaya (On the Bayou)](https://estreetshuffle.com/index.php/2019/09/14/cover-me-jambalaya-on-the-bayou/)." Bruce's cover of "Hey Good Lookin'" comes from the same rehearsal–in fact, it immediately followed "Jambalaya," making for a Hank Williams double-header.
+I wrote about that show last month when I shared Bruce’s soundchecked cover of another Hank Williams song, “[Jambalaya (On the Bayou)](https://estreetshuffle.com/index.php/2019/09/14/cover-me-jambalaya-on-the-bayou/).” Bruce’s cover of “Hey Good Lookin'” comes from the same rehearsal–in fact, it immediately followed “Jambalaya,” making for a Hank Williams double-header.
 
-It's more than a bit loose and messy, but that's part of the charm. Take a listen to Bruce, Patti, Garry, Nils, Soozie, Lisa Lowell, and Southside Johnny on the harp having a ball and falling all over themselves:
+It’s more than a bit loose and messy, but that’s part of the charm. Take a listen to Bruce, Patti, Garry, Nils, Soozie, Lisa Lowell, and Southside Johnny on the harp having a ball and falling all over themselves:
 
 [Watch on Youtube: Bruce Springsteen - HEY GOOD LOOKIN 2000 (audio)](https://www.youtube.com/watch?v=4Nbuk-j3VLw)
 
-**Hey, Good Lookin'**<br>
+**Hey, Good Lookin’**<br>
 **First performed:** December 18, 2000 (Asbury Park, NJ)<br>
 **Last performed:** December 18, 2000 (Asbury Park, NJ)<br>

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Cover Me"
+author: "Ken"
+excerpt: "Lyrically lazy and musically plodding, “Cover Me” is a candidate for Bruce’s weakest song ever."
+tags: arthur-baker born-in-the-u-s-a cover-me
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/coverme.jpg
+post_id: 23943
+---
 I always knew this day would come.
 
 There are only two songs in Bruce's catalog that I can't bear listening to, and I was lucky enough to get [the less irksome](../2018-08-09_roll-of-the-dice-ill-stand-by-you-always/post.md) of the two out of the way early in my blogging "career."

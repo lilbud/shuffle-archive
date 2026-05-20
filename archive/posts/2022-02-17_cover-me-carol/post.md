@@ -1,3 +1,12 @@
+---
+layout: default-post
+title: "Cover Me: Carol"
+author: "Ken"
+excerpt: "On the Born to Run Tour, Chuck Berry’s 1958 classic made frequent encore appearances."
+tags: carol check-berry
+categories: cover-me cover-you meeting-across-the-river
+post_id: 24477
+---
 It wasn't his biggest hit (it wasn't even his biggest hit that year), but it was one of his most influential.
 
 Chuck Berry recorded "Carol" on May 2, 1958, and by mid-September it had caught fire thanks to its famous guitar lick, reaching #9 on the Billboard R&B chart and #18 on the Hot 100.

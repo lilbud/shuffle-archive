@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Don't Change"
+author: "Ken"
+excerpt: "When Bruce and the E Street Band visited INXS’s home town of Sydney in 2014, they paid tribute with one of their very best modern covers."
+tags: dont-change inxs
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/dontchange.jpg
+post_id: 26079
+---
 It was their first international single, and it was the last song they ever performed live. And other than "New Sensation" (which just barely edged it out), it was the song they performed the most.
 
 INXS had other songs that could lay claim to being their signature, but "Don't Change" has a pretty good case to make for being their anthem.

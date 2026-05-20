@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Don't Look Back"
+author: "Ken"
+excerpt: "Recorded too late to become the hit it should have been, “Don’t Look Back” is one of Bruce’s rarest and hardest-rocking anthems. Let’s take a look at its evolution inside."
+tags: dont-look-back tracks
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/dontlookback.jpg
+post_id: 15272
+---
 It was one of the very first songs Bruce recorded for *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*, and it was the last song to be cut.
 
 At one point it closed the album, at another it kicked off Side Two. Early on, it was the second track on Side One, inheriting and building the out-of-the-gate momentum from "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)."

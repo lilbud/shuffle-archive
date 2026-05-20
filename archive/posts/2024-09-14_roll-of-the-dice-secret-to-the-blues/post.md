@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Secret to the Blues"
+author: "Ken"
+excerpt: "The Bruce Springsteen Band morphed into the E Street Band so naturally that for all of 1973 and half of 1974, no one seemed to…"
+tags: bruce-springsteen-band secret-to-the-blues the-bands-just-boppin-the-blues
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/0_kY9q5e9blrLBaPFT.jpg
+post_id: 54391
+---
 The Bruce Springsteen Band morphed into the E Street Band so naturally that for all of 1973 and half of 1974, no one seemed to notice or care that the band was between names.
 
 But while the band's personnel might have moved seamlessly to E Street, the same can't be said of their repertoire. When Bruce dissolved his eponymous band, he left behind almost the entire catalog of songs he'd written and tailored to their funky, bluesy, and often brassy sound.

@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Where the Band Was: Cleveland, October 2, 2004"
+author: "Ken"
+excerpt: "It may not have accomplished much in the short term, but Bruce and company put on a galvanizing show in Cleveland that helped reclaimed patriotism for the American left."
+tags: bad-day bright-eyes cleveland john-fogerty rem vote-for-change
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/20041002_4_front.jpg
+post_id: 4715
+---
 What's better than a Springsteen concert? A Springsteen concert with REM as the opening act and an extended John Fogerty guest appearance!
 
 All wrapped up in an unabashed, completely partisan concert cum political rally for John Kerry and John Edwards. Sure, it was all for naught, but boy was it cathartic at the time. Plus, Michael Stipe shook my hand and sang "The One I Love" directly to me, kneeling right in front of me and winking.

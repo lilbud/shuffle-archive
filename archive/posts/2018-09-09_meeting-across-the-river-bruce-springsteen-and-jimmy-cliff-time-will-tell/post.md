@@ -1,15 +1,24 @@
-Bruce is no stranger to Jimmy Cliff's catalog: his cover of "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" has been a fan favorite for decades, and "[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)" was a setlist staple during World Tour 1993.
+---
+layout: post
+title: "Meeting Across the River: Bruce Springsteen and Jimmy Cliff, Time Will Tell"
+author: "Ken"
+excerpt: "Bruce and Jimmy Cliff team up on the lead-off track from Jimmy’s 1969 self-titled album at Bruce’s World Tour 1993 show in Verona."
+tags: italy jimmy-cliff time-will-tell verona world-tour-1993
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/Jimmy-Cliff-1.jpg
+post_id: 4265
+---
+Bruce is no stranger to Jimmy Cliff’s catalog: his cover of “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)” has been a fan favorite for decades, and “[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)” was a setlist staple during World Tour 1993.
 
-But "Time Will Tell" is on the obscure side.
+But “Time Will Tell” is on the obscure side.
 
-The lead-off track on Cliff's self-titled 1969 album, "Time Will Tell" was never released as a single. It's easy to see why it would appeal to Bruce, however, and why he'd choose to cover it in 1993: with its reflective, uncertain lyrics offset by an optimistic melody and vocal delivery, it seems a natural fit for what Bruce was singing and writing about at the time.
+The lead-off track on Cliff’s self-titled 1969 album, “Time Will Tell” was never released as a single. It’s easy to see why it would appeal to Bruce, however, and why he’d choose to cover it in 1993: with its reflective, uncertain lyrics offset by an optimistic melody and vocal delivery, it seems a natural fit for what Bruce was singing and writing about at the time.
 
 [Watch on Youtube: Jimmy Cliff - Time Will Tell](https://www.youtube.com/watch?v=E6QWI7Fhodc)
 
-Perhaps that's why Bruce included it in the set when he had the chance to have Jimmy join him on stage during his 1993 show in Verona. Or maybe Jimmy was the one who suggested it. Either way, it was a one-time-only event, at least until Bruce and Jimmy reprised it together at SxSW in 2012.
+Perhaps that’s why Bruce included it in the set when he had the chance to have Jimmy join him on stage during his 1993 show in Verona. Or maybe Jimmy was the one who suggested it. Either way, it was a one-time-only event, at least until Bruce and Jimmy reprised it together at SxSW in 2012.
 
 [Watch on Youtube: Bruce Springsteen and Jimmy Cliff - "Time Will Tell" - Verona, 1993-04-11](https://www.youtube.com/watch?v=jxeRBjMH_ns)
 
-**Time Will Tell**<br>
-**First performed:** April 11, 1993 (Verona, Italy)<br>
+**Time Will Tell****First performed:** April 11, 1993 (Verona, Italy)<br>
 **Last performed:** March 15, 2012 (Austin, TX)<br>

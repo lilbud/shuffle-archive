@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Got My Mojo Working"
+author: "Ken"
+excerpt: "The Bruce Springsteen Band delivered a terrific cover of “Got My Mojo Working” in Richmond in 1971. Just don’t ask me who they were covering."
+tags: ann-cole bill-cosby got-my-mojo-working muddy-waters preston-foster ruth-stratchborneo
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/mojo.jpg
+post_id: 7159
+---
 Okay, pay attention now, because this might get a little confusing.
 
 Muddy Waters originally released the blues standard "Got My Mojo Working" in 1957. It became so popular that it's difficult to identify all of the artists that have covered it over the years since.

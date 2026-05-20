@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Kingdom of Days: July 27"
+author: "Ken"
+excerpt: "Happy birthday, Cindy Mizelle! Also on this date: Bruce sues Mike Appel, plays the first “Candy’s Room” in 15 years, duets with Glen Hansard, and more."
+tags: because-the-night boom-boom born-in-the-usa-tour cindy-mizelle drive-all-night east-rutherford funky-dusty-and-the-soul-broom giants-stadium gothenburg ireland kilkenny lonesome-day magic-tour mike-appel new-york-city norway oslo phoenix radio-nowhere reunion-tour rising-tour saratoga springsteen-on-broadway sweden the-fabulous-greaseband tunnel-of-love tunnel-of-love-tour uk wrecking-ball-tour
+categories: kingdom-of-days
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/july-27th-2024-london-uk-wembley-stadium-bruce-springsteen-and-the-e-street-band-review.jpg
+post_id: 57867
+---
 ***New for 2025:** New entry for 2024*<br>
 
 **1964:** Cindy Mizelle, backing vocalist on "[Shackled and Drawn,](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" "[High Hopes](../2021-08-25_cover-me-high-hopes/post.md)," "American Skin (41 Shots)," "[Just Like Fire Would](../2020-05-24_cover-me-just-like-fire-would/post.md)," and "[Heaven's Wall](../2020-02-02_roll-of-the-dice-heavens-wall/post.md)" — and of course, throughout the entire Seeger Sessions, Working on a Dream, Wrecking Ball, and High Hopes tours — is born in Englewood, New Jersey.<br>

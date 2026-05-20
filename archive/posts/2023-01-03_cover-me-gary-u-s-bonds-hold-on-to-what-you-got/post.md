@@ -1,3 +1,13 @@
+---
+layout: post
+title: "RotD/Cover Me, Gary U.S. Bonds: Hold On (To What You Got)"
+author: "Ken"
+excerpt: "One of Bruce’s perfect pop songs is hidden away on Gary U.S. Bonds’ 1982 album, On the Line."
+tags: gary-u-s-bonds hold-on-to-what-you-got
+categories: cover-me cover-you meeting-across-the-river roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/holdon.jpg
+post_id: 24473
+---
 Truthfully, I don't know how to classify this one.
 
 Gary U.S. Bonds released "Hold On (To What You Got)" on *On the Line*, but Bruce wrote it along with six other tracks on Bonds' 1982 album. Technically, that makes Bonds' recording a cover.

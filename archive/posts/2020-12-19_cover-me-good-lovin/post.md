@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me: Good Lovin'"
+author: "Ken"
+excerpt: "It took more than four decades for Bruce to cover “Good Lovin’,” but he made up for it when he did. Great performances inside."
+tags: good-lovin lemme-b-good the-olympics the-young-rascals
+categories: cover-me cover-you
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/young-rascals.jpg
+post_id: 14564
+---
 "Good Lovin'" has a curious history. Most of us associate it with the group that made it a #1 hit in 1966: The Young Rascals.
 
 [Watch on Youtube: The Young Rascals | Good Lovin' (HQ)](https://www.youtube.com/watch?v=DknhW6Mu55Q)

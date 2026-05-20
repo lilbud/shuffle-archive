@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: You Gotta Fight (For What You Want)"
+author: "Ken"
+excerpt: "Possibly a precursor to “Two Hearts,” “You Gotta Fight (For What You Want)” provides a peek into the reggae-inspired early home demos that led to Bruce’s 1980 album, The River."
+tags: two-hearts you-gotta-fight-for-what-you-want
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/you-gotta-fight.jpg
+post_id: 13192
+---
 Bruce was in a reggae mood during the autumn of 1979.
 
 Although this was the period when Bruce was writing and recording rockers that would eventually find a home on *The River*, he also tinkered with a few island-inspired songs, most of which never made it passed the home demo stage.

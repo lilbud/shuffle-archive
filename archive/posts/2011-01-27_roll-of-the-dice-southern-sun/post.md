@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Southern Sun"
+author: "Ken"
+excerpt: "“Southern Sun” is one of the original Hammond demos Bruce never committed to disc, and while there are elements to admire, that’s probably a good thing."
+tags: southern-sun
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/lead-moncks-corner-south-carolina-AMERICANSOUTH1017.jpg
+post_id: 29185
+---
 Everyone needs a change of scenery once in a while, even aspiring songwriters.
 
 Bruce Springsteen's early material drew heavily on the people and places that surrounded him. But when he wanted more exotic inspiration, his imagination tended to travel west.
@@ -16,30 +26,30 @@ Although he recorded it, Hammond wasn't particularly impressed with "Southern Su
 
 "Southern Sun" is based on the premise that people and places don't always live up to our romanticized notions of them. It's the story of a northern city boy with a streak of southern heritage via his grandmother (on which side, Bruce never makes clear), who regales him with tales that inspire his imagination.
 
-> *Born on the Hudson twenty-two years gone*
-> *Bred and raised in the city*
-> *From my daddy's knee I learned the Union songs*
-> *But Grandma sang lullabies of Dixie*
-> *And though the northern winter fills my heart with joy*
-> *It's a southern sun that shines down on this Yankee boy*
+> *Born on the Hudson twenty-two years gone*<br>
+> *Bred and raised in the city*<br>
+> *From my daddy's knee I learned the Union songs*<br>
+> *But Grandma sang lullabies of Dixie*<br>
+> *And though the northern winter fills my heart with joy*<br>
+> *It's a southern sun that shines down on this Yankee boy*<br>
 
 Although he loves the north, our narrator dreams of the south. He imagines escaping there someday, although he recognizes and accepts it may never happen, just as his mother dreams of starting a new life in Paris.
 
-> *Mama dreamed of Paris nights and boatin' on the Seine*
-> *She said, "we're gonna make it there too soon as Papa comes home again"*
-> *And she'd speak to me in broken French, dressed like a painting of Lautrec's*
-> *In the night she'd clutch me to her breast and say, "we'll make it outta here yet"*
-> *And though the Parisian women strut so fine down the Eiffel mall*
-> *It's a southern one I sing my songs for*
+> *Mama dreamed of Paris nights and boatin' on the Seine*<br>
+> *She said, "we're gonna make it there too soon as Papa comes home again"*<br>
+> *And she'd speak to me in broken French, dressed like a painting of Lautrec's*<br>
+> *In the night she'd clutch me to her breast and say, "we'll make it outta here yet"*<br>
+> *And though the Parisian women strut so fine down the Eiffel mall*<br>
+> *It's a southern one I sing my songs for*<br>
 
 When he does escape, our narrator heads west, with companions that sound suspiciously like a travelling band. Their route appears to take them through the south, where he has a brief dalliance with a local girl that doesn't seem to end well.
 
-> *With a local bunch of do-good boys and an old man from the West*
-> *We crossed the land in a caravan, yes, we traveled with the best*
-> *With circus acts and vaudeville hacks and a Mississippi Delta Queen*
-> *She told me the news and sold me the blues in an alley in New Orleans*
-> *And though the western plains are still stained with the blood of great cowboys*
-> *It's a southern sun that shines down on this Yankee boy*
+> *With a local bunch of do-good boys and an old man from the West*<br>
+> *We crossed the land in a caravan, yes, we traveled with the best*<br>
+> *With circus acts and vaudeville hacks and a Mississippi Delta Queen*<br>
+> *She told me the news and sold me the blues in an alley in New Orleans*<br>
+> *And though the western plains are still stained with the blood of great cowboys*<br>
+> *It's a southern sun that shines down on this Yankee boy*<br>
 
 But our narrator wears his broken heart as a badge of honor, and he refuses to let one sour romance ruin his infatuation with the South of his imagination.
 

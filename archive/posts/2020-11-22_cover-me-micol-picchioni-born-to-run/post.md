@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Cover Me, Micol Picchioni: Born to Run"
+author: "Ken"
+excerpt: "Italian harpist transforms Bruce’s signature song without ever losing its rock and roll soul."
+tags: born-to-run micol-picchioni
+categories: cover-me
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/picchioni.jpg
+post_id: 22421
+---
 When it comes to spotlighting artists who cover Bruce's songs here on the Shuffle, we have one rule:
 
 Do it better, or do it different.

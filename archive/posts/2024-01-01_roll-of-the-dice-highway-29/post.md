@@ -1,3 +1,13 @@
+---
+layout: post
+title: "Roll of the Dice: Highway 29"
+author: "Ken"
+excerpt: "“Highway 29” is a taut, cinematic masterpiece with some of Bruce’s best lyrics that challenge the listener to co-write the song."
+tags: ghost-of-tom-joad highway-29 losin-kind the-ghost-of-tom-joad
+categories: roll-of-the-dice
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/hwy-29-sign.png
+post_id: 1019
+---
 Way back in 1982, Bruce recorded a song called "[Losin' Kind](../2021-01-15_roll-of-the-dice-losin-kind/post.md)."
 
 Similar to (and probably inspired by, given notes Bruce wrote to Jon Landau about the song) the crime stories and films of James M. Cain, "Losin' Kind" was the bad-luck story of Frank Davis, who picks up a femme fatale against his better judgment, and ends up robbing a Best Western, flees from the police, and ends up wrapping his car around a telephone pole.
