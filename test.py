@@ -56,4 +56,35 @@ from database import load_db
 
 #     Path(folder, "post.md").write_text(content, encoding="utf-8")
 
-print("https://videopress.com/embed/laIqiHGm?hd=0&cover=1".split("?")[0])
+
+posts_dir = Path("./archive/posts")
+
+link_list = Path("./links.txt").open("w", encoding="utf-8")
+
+for post in posts_dir.glob("**/*.md"):
+    content = post.read_text(encoding="utf-8")
+
+    link_pattern = r"\[([^\)]*)\]\(([^\)/]*)/\)"
+
+    links = re.findall(link_pattern, content)
+
+    if len(links) > 0:
+        print(post.parent.name)
+        # link_list.write(f"{post.parent.name}:\n")
+        for url_text, url in links:
+            if "estreetshuffle" in url and "roll-of-the-dice-album-by-album" not in url:
+                slug = f"{'-'.join(url.split('/')[-4:-1])}_{url.split('/')[-1]}"
+                # print(slug)
+
+                exists = False
+
+                if Path(f"./archive/posts/{slug}").exists():
+                    exists = True
+                    content = content.replace(url, f"../{slug}/post.md")
+
+                # print(url_text, url)
+        #         link_list.write(f"\t{url} -> {exists}\n")
+
+        # link_list.write("\n")
+
+        post.write_text(content, encoding="utf-8")
