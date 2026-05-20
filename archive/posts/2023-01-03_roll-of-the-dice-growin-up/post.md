@@ -10,13 +10,13 @@ That remarkable performance was captured on film more than a half-century ago, j
 
 But many of the songs that would see release on that first album were already in the can, including the one Bruce performed in that clip from that August night in 1972.
 
-In fact, "Growin' Up" was among the earliest songs written and recorded for *Greetings From Asbury Park, N.J.* Its musical roots date back at least to early 1972 and an abandoned song called "[Eloise](https://estreetshuffle.com/index.php/2018/09/17/roll-of-the-dice-eloise/)" that features a familiar melody set against a very different set of lyrics.
+In fact, "Growin' Up" was among the earliest songs written and recorded for *Greetings From Asbury Park, N.J.* Its musical roots date back at least to early 1972 and an abandoned song called "[Eloise](../2011-01-16_roll-of-the-dice-eloise/post.md/)" that features a familiar melody set against a very different set of lyrics.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tkdPhiYlFa4)
 
 It wouldn't take along for him to discard those lyrics. Although they were much in keeping with his style up until that point, Bruce was starting to write more stylistically, breaking out the rhyming dictionary and embracing staccato alliteration, internal rhymes, and clever turns of phrase that dared the listener to keep up.
 
-Some songs, like "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" were so dense with alter egos and coded circumstance that they almost seemed written solely for their cast of characters. Others, like "[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)" and "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" seemed more like "Eloise," sophisticated lyrical poetry that bordered on (some say ventured into) pretension.
+Some songs, like "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" were so dense with alter egos and coded circumstance that they almost seemed written solely for their cast of characters. Others, like "[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)" and "[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" seemed more like "Eloise," sophisticated lyrical poetry that bordered on (some say ventured into) pretension.
 
 "Growin' Up" stands out for its approachability. It's no less flamboyant than any other track on *Greetings*, but Bruce shows just enough lyrical restraint for the casual listener to grok what he's singing about, if only they pay close attention.
 
@@ -30,7 +30,7 @@ Because "Growin' Up" isn't about growing up at all. It's about *refusing* to gro
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7b4nhdoY0TA)
 
-*Greetings From Asbury Park, N.J.* is the only Springsteen album that doesn't have a title track, but "Growin' Up" meets the criteria in every way but titular. With its brazen lyrics and brash confidence, it announces Bruce's arrival and introduces him as an artist ready to tackle grown-up themes without letting go of his youthful rebelliousness. It's no wonder that it was [covered almost immediately by David Bowie](https://estreetshuffle.com/index.php/2019/01/07/cover-me-david-bowie-growin-up/) (a cosmic kid in full costume dress if ever there was one), although it wouldn't be released for another 17 years. "Growin' Up" sounds like the autobiography of every kid who ever took up the guitar and dedicated his life to rock and roll.
+*Greetings From Asbury Park, N.J.* is the only Springsteen album that doesn't have a title track, but "Growin' Up" meets the criteria in every way but titular. With its brazen lyrics and brash confidence, it announces Bruce's arrival and introduces him as an artist ready to tackle grown-up themes without letting go of his youthful rebelliousness. It's no wonder that it was [covered almost immediately by David Bowie](../2011-02-01_cover-me-david-bowie-growin-up/post.md/) (a cosmic kid in full costume dress if ever there was one), although it wouldn't be released for another 17 years. "Growin' Up" sounds like the autobiography of every kid who ever took up the guitar and dedicated his life to rock and roll.
 
 It was a perfect song for Bruce to audition for John Hammond with in May of 1972, and Hammond was so taken with the song and its writer that he had Bruce record a demo for Columbia Records the very next day. (That demo would see release decades later on *Tracks* and *18 Tracks*.)
 

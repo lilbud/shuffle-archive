@@ -2,7 +2,7 @@ Here's another cover by an artist I've given up trying to find information about
 
 I know nothing about Catherine Davila–and I mean *nothing*. I can't find any trace of her on the Web or on social media, and her YouTube channel only has three videos, all of which were uploaded years ago.
 
-But one of those three videos is a tender cover of Bruce Springsteen's "[Valentine's Day,](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)" and Catherine's performance suggests she's an artist of considerable talent both as a singer and an arranger.
+But one of those three videos is a tender cover of Bruce Springsteen's "[Valentine's Day,](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)" and Catherine's performance suggests she's an artist of considerable talent both as a singer and an arranger.
 
 [Watch on Youtube: Catherine Davila - Valentine's Day - Bruce Springsteen cover](https://www.youtube.com/watch?v=QBICaTYtsVE)
 

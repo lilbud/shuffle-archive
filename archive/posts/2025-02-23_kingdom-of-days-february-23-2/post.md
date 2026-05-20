@@ -68,7 +68,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2003-02-23b.png.webp)
 
-**2014:** The second of two shows at Hope Estate winery in Hunter Valley, Australia. The show kicks off with a cover of "[Spill the Wine](../2018-03-15_cover-me-spill-the-wine/post.md)" and features a penultimate encore of a rare solo acoustic "[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md)." Also tour premiering tonight: "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[4th of July, Asbury Park (Sandy).](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)"<br>
+**2014:** The second of two shows at Hope Estate winery in Hunter Valley, Australia. The show kicks off with a cover of "[Spill the Wine](../2018-03-15_cover-me-spill-the-wine/post.md)" and features a penultimate encore of a rare solo acoustic "[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md)." Also tour premiering tonight: "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and "[4th of July, Asbury Park (Sandy).](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)"<br>
 
 [Watch on Youtube: "Spill The Wine" and "Seeds" (Hunter Valley 02/23/14)](https://www.youtube.com/watch?v=Xqvfb-h6k4w)
 

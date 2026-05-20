@@ -30,7 +30,7 @@ Holy. Freaking. Moley.
 
 [Watch on Youtube: Then She Kissed Me ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=Y0GfHJGmLQ8)
 
-Bruce rocketed from there into "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)," the usual opener, and then into "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)," and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)."
+Bruce rocketed from there into "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)," the usual opener, and then into "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)," and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)."
 
 [Watch on Youtube: Adam Raised a Cain ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=LueDvFdv3VI)
 
@@ -74,7 +74,7 @@ Finally, the show came in for its final approach, finishing the main set with th
 
 First up was "[Girls in Their Summer Clothes,](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)" always a highlight for me. But immediately after, Bruce once gain ventured into audible territory, taking a sign request for "Jungleland."
 
-Let me just pause for a minute and point out: we had by this point had "Backstreets, "Drive All Night," and "Jungleland" all in one show. Most fans are grateful if they get even one "epic" song per show–we had all three. But that also worried me a bit: usually when "Jungleland" appears in the encores, it essentially takes the place of two songs because of its length. Would this turn out to be an abbreviated encore set? Far from it: Bruce immediately launched into rocking "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)," and since we knew the "Born to Run," "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" and "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" standards were sure to follow (they did), it was clear we were getting a full-length encore–maybe even a final song after "American Land," as Bruce had started to do on this leg.
+Let me just pause for a minute and point out: we had by this point had "Backstreets, "Drive All Night," and "Jungleland" all in one show. Most fans are grateful if they get even one "epic" song per show–we had all three. But that also worried me a bit: usually when "Jungleland" appears in the encores, it essentially takes the place of two songs because of its length. Would this turn out to be an abbreviated encore set? Far from it: Bruce immediately launched into rocking "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)," and since we knew the "Born to Run," "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" and "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" standards were sure to follow (they did), it was clear we were getting a full-length encore–maybe even a final song after "American Land," as Bruce had started to do on this leg.
 
 [Watch on Youtube: Springsteen St Louis 8/23/08- Dancing in the Dark](https://www.youtube.com/watch?v=wNTL5cx2rME)
 
@@ -86,7 +86,7 @@ First up: a "Thunder Road" request and dedication, going out to Olympian Michael
 
 [Watch on Youtube: Springsteen Thunder Road St Louis 8/23/08](https://www.youtube.com/watch?v=CKDy3JF124Q)
 
-Then–just when it seemed the band had taken their final bows, Bruce caught a sign for "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" in the stands and launched into a loose-as-a-goose rendition that didn't seem like it would *ever* end.
+Then–just when it seemed the band had taken their final bows, Bruce caught a sign for "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)" in the stands and launched into a loose-as-a-goose rendition that didn't seem like it would *ever* end.
 
 [Watch on Youtube: Bruce Springsteen -- LITTLE QUEENIE --- St. Louis 2008](https://www.youtube.com/watch?v=oncRaQa76qA)
 

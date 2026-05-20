@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46735508144_21f270c05a_o.jpg.webp)
 
-**1987:** Bruce joins Bobby Bandiera on stage at The Stone Pony in Asbury Park for three songs: “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/),” “[Stand by Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md),” and “[Carol](../2022-02-17_cover-me-carol/post.md).”<br>
+**1987:** Bruce joins Bobby Bandiera on stage at The Stone Pony in Asbury Park for three songs: “[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/),” “[Stand by Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md),” and “[Carol](../2022-02-17_cover-me-carol/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen & Bobby Bandiera - Asbury Park 1987-11-20](https://www.youtube.com/watch?v=G1TI_0yZCzA)
 

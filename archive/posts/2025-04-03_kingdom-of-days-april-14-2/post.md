@@ -46,7 +46,7 @@ This show features the first-ever performance of "[Point Blank](../2020-12-19_ro
 
 Meanwhile, *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2023:** Bruce and the E Street Band close out the first domestic leg of their World Tour with a special homecoming show at Prudential Center in Newark. Bruce opens with "[Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)," an E Street Band rarity, and delights fans with "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" in the encores.<br>
+**2023:** Bruce and the E Street Band close out the first domestic leg of their World Tour with a special homecoming show at Prudential Center in Newark. Bruce opens with "[Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)," an E Street Band rarity, and delights fans with "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" in the encores.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN LOCAL HERO prudential center newark new jersey APRIL 14,2023](https://www.youtube.com/watch?v=cXO0o6mOoHY)
 

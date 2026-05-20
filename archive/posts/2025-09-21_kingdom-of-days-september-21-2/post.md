@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1978-09-21.jpg.webp)
 
-**1979:** Bruce headlines the first of two famous "No Nukes" concerts at Madison Square Garden under the aegis of Musicians United for Safe Energy (MUSE), performing an abbreviated but well-documented set that features the very first performance of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)." That debut performance will become the song's official video, and audio recordings of "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" and "[Stay](../2018-07-22_meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/post.md)" (with Jackson Browne and Rosemary Butler) will be released on the official companion album released toward the end of the year. This show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,20918/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-21-1979-Madison-Square-Garden-New-York-NY.html)), and selections are available on video in the concert film, *The Legendary 1979 No Nukes Concerts*.<br>
+**1979:** Bruce headlines the first of two famous "No Nukes" concerts at Madison Square Garden under the aegis of Musicians United for Safe Energy (MUSE), performing an abbreviated but well-documented set that features the very first performance of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)." That debut performance will become the song's official video, and audio recordings of "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" and "[Stay](../2018-07-22_meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/post.md)" (with Jackson Browne and Rosemary Butler) will be released on the official companion album released toward the end of the year. This show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,20918/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-21-1979-Madison-Square-Garden-New-York-NY.html)), and selections are available on video in the concert film, *The Legendary 1979 No Nukes Concerts*.<br>
 
 [Watch on Youtube: No Nukes Trailer](https://www.youtube.com/watch?v=r0dj1CPfwL8)
 
@@ -64,7 +64,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-21b.jpg.webp)
 
-**1999:** Night Four (of six) in Philadelphia on the Reunion Tour starts with a surprise: the tour premiere and one-off performance of "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" not seen at a proper concert since 1975. Rocketing from there into "[Take 'em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)," the show is off to a searing start.<br>
+**1999:** Night Four (of six) in Philadelphia on the Reunion Tour starts with a surprise: the tour premiere and one-off performance of "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)" not seen at a proper concert since 1975. Rocketing from there into "[Take 'em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)," the show is off to a searing start.<br>
 
 [Watch on Youtube: Philadelphia 21/09/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zA7rdeP92aA2CCyborw8VfW)
 

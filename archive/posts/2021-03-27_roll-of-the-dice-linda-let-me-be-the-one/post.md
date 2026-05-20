@@ -46,7 +46,7 @@ The second line recovers the emotional momentum with an achingly beautiful image
 
 If the second verse lyrically stumbles, the bridge makes up for it with what could have been my second-favorite sax solo on *Born to Run*. Oh, how I would have loved to see Clarence perform it in concert.
 
-Bruce's final verse offers no resolution and only hints at absolution (along with a "[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)" foreshadow in the third line):
+Bruce's final verse offers no resolution and only hints at absolution (along with a "[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)" foreshadow in the third line):
 
 > *In the basement of St. Mary's, Eddie hides from the rain*
 > *In with the stolen sisters 'til the streets are dry again*

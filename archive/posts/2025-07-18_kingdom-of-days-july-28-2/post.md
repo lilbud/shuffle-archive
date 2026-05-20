@@ -40,7 +40,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/8RRTltYG)
 
-**2005:** Bruce brings his solo Devils and Dust Tour to Pittsburgh, where local boy Joe Grushecky makes his customary guest appearance, dueting with Bruce on “[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)” in the encores. This show also features the tour premiere of “[One Step Up.](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)”<br>
+**2005:** Bruce brings his solo Devils and Dust Tour to Pittsburgh, where local boy Joe Grushecky makes his customary guest appearance, dueting with Bruce on “[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)” in the encores. This show also features the tour premiere of “[One Step Up.](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/LAEopDEc)
 
@@ -54,13 +54,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/1GhSWzqo)
 
-**2009:** The Working on a Dream Tour moves across Spain to Seville, where “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” is tour premiered by request. Jay Weinberg sits in for Max during the encores.<br>
+**2009:** The Working on a Dream Tour moves across Spain to Seville, where “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)” is tour premiered by request. Jay Weinberg sits in for Max during the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Youngstown" Sevilla (28 July 2009)](https://www.youtube.com/watch?v=T8v6X1whjJk)
 
 [Watch on Youtube: Bruce Springsteen Sevilla "Cuando sube al niño del público" Waitin' On A Sunny Day 28 07 2009](https://www.youtube.com/watch?v=rmJkagLEOzE)
 
-**2012:** Night Two in Gothenburg culminates in the return of “Jungleland,” performed for the first time since the passing of Clarence Clemons. A visibly emotional Jake does his uncle proud. The show also features the tour premieres of “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/),” “[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md),” and “[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md).” This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24593/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-28-2012-Ullevi-Gothenburg-SE.html).<br>
+**2012:** Night Two in Gothenburg culminates in the return of “Jungleland,” performed for the first time since the passing of Clarence Clemons. A visibly emotional Jake does his uncle proud. The show also features the tour premieres of “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/),” “[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md),” and “[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md).” This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24593/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-28-2012-Ullevi-Gothenburg-SE.html).<br>
 
 [Watch on Youtube: Jungleland - 2012-07-28 - ULLEVI, GOTHENBURG, SWEDEN](https://www.youtube.com/watch?v=E3xjS8MHufQ)
 

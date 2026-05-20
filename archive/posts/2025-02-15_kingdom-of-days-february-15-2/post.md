@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1974-02-15.jpg.webp)
 
-**1977:** Bruce and the E Street band return to the U.S. and continue the Lawsuit Tour at Detroit's Masonic Temple Theater, where "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" makes its tour premiere.<br>
+**1977:** Bruce and the E Street band return to the U.S. and continue the Lawsuit Tour at Detroit's Masonic Temple Theater, where "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" makes its tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen - DETROIT MEDLEY 1977 (audio)](https://www.youtube.com/watch?v=kiO9Y-V2z8Y)
 
@@ -20,7 +20,7 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Seven Tears (outtake, '83)](https://www.youtube.com/watch?v=6DNs1enmtNM)
 
-**1988:** At the Wonder Bar in Asbury Park, Bruce films footage used in the video for "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)."<br>
+**1988:** At the Wonder Bar in Asbury Park, Bruce films footage used in the video for "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - One Step Up (Official Video)](https://www.youtube.com/watch?v=MkFQHScyti0)
 

@@ -36,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1987-08-16.png.webp)
 
-**1989:** Bruce makes a guest appearance with Bobby Bandiera at Cheers in Long Branch, New Jersey. Their set includes “[New Orleans](https://estreetshuffle.com/index.php/2019/07/31/cover-me-new-orleans/),” “[Keep A-Knockin’,](../2018-11-09_matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/post.md)” “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md),” and more.<br>
+**1989:** Bruce makes a guest appearance with Bobby Bandiera at Cheers in Long Branch, New Jersey. Their set includes “[New Orleans](../2019-07-31-cover-me-new-orleans/post.md/),” “[Keep A-Knockin’,](../2018-11-09_matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/post.md)” “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md),” and more.<br>
 
 **1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to “scheduling conflicts.”<br>
 

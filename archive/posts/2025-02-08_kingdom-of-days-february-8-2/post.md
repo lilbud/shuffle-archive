@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Bruce Springsteen - AMERICAN LAND - Perth 8 February 2014.](https://www.youtube.com/watch?v=rZ-Ew2pZKtw)
 
-**2016:** The revived River Tour plays the Times Union Center in Albany and features the tour premieres of "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" and "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)."<br>
+**2016:** The revived River Tour plays the Times Union Center in Albany and features the tour premieres of "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" and "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen-Be True, Albany 2016-02-08](https://www.youtube.com/watch?v=kWwuOiSt-Ck)
 

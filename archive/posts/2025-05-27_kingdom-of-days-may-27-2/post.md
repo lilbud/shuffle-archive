@@ -32,7 +32,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/n9SXCX1I)
 
-**2000:** Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the MGM Grand Garden Arena. Bruce opens and closes with the premiere of "[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md)," and he tour premieres "[Can't Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)" for the occasion as well.<br>
+**2000:** Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the MGM Grand Garden Arena. Bruce opens and closes with the premiere of "[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md)," and he tour premieres "[Can't Help Falling in Love](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/)" for the occasion as well.<br>
 
 [Watch on Youtube: Las Vegas 27/05/2000](https://www.youtube.com/playlist?list=PLJTyL9twk3zC6-aOkAImq5An0nRfHsd63)
 
@@ -84,7 +84,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Land Of Hope And Dreams (2012-05-27 - Cologne)](https://www.youtube.com/watch?v=lGa65Wt94Ws)
 
-**2016:** Bruce and the E Street Band play the first of two River Tour (2016 edition) shows at Croke Park in Dublin. "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" and "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" both make their tour debuts.<br>
+**2016:** Bruce and the E Street Band play the first of two River Tour (2016 edition) shows at Croke Park in Dublin. "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" and "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" both make their tour debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen Dublin 27/05/2016 tv report](https://www.youtube.com/watch?v=Nq28PzXDr8Y)
 

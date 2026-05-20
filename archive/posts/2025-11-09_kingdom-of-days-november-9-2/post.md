@@ -72,7 +72,7 @@
 
 [Watch on Youtube: Glory Days (feat. Bruce Springsteen and Patti Scialfa)](https://www.youtube.com/watch?v=Zkr7zNayA5o)
 
-**2011:** Once again, Bruce makes an appearance at Stand Up for Heroes in its 5th annual edition. Tonight, Bruce performs "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," "[Long Tall Sally,](../2019-04-19_cover-me-long-tall-sally/post.md)" and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" with the Max Weinberg Big Band (Mindi Abair joins Bruce for "Spirit"), and Bruce plays a solo acoustic "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" as well. As has become a tradition, Bruce auctions off a guitar (plus his shirt and harmonica) for $160,000.<br>
+**2011:** Once again, Bruce makes an appearance at Stand Up for Heroes in its 5th annual edition. Tonight, Bruce performs "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," "[Long Tall Sally,](../2019-04-19_cover-me-long-tall-sally/post.md)" and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" with the Max Weinberg Big Band (Mindi Abair joins Bruce for "Spirit"), and Bruce plays a solo acoustic "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" as well. As has become a tradition, Bruce auctions off a guitar (plus his shirt and harmonica) for $160,000.<br>
 
 [Watch on Youtube: Bruce Springsteen Sprit in the Night "Stand up for Heroes" 11:9:11](https://www.youtube.com/watch?v=LliLpmgnbyM)
 

@@ -32,7 +32,7 @@ If you're not already duly impressed by that performance, then consider this: ju
 
 The Bruce Springsteen Band era has such a distinctly different sound than that of the E Street Band that it's easy to assume they were separated by years.
 
-But it was only a matter of weeks between those smoky Back Door performances and the creation of Springsteen originals like "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" and "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)" that we know and love today.
+But it was only a matter of weeks between those smoky Back Door performances and the creation of Springsteen originals like "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" and "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)" that we know and love today.
 
 **Sitting on Top of the World**<br>
 **First performed:** February 4, 1972 (Richmond, VA)*<br>

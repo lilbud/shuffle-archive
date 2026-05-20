@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1984-10-15b.png.webp)
 
-**1988:** The Human Rights Now! Tour comes to a close with a worldwide radio broadcast from the finale in Buenos Aires. This last show features some special guest appearances: David Sancious joins his old band for “[Glory Days,](../2024-06-04_roll-of-the-dice-glory-days/post.md)” “[Raise Your Hand,](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” and “Twist and Shout”–the latter two featuring Branford Marsalis as well. HBO will air portions of the show in a documentary later in the year, and a DVD/Blu-ray collection will be released many years later.<br>
+**1988:** The Human Rights Now! Tour comes to a close with a worldwide radio broadcast from the finale in Buenos Aires. This last show features some special guest appearances: David Sancious joins his old band for “[Glory Days,](../2024-06-04_roll-of-the-dice-glory-days/post.md)” “[Raise Your Hand,](../1976-01-13_cover-me-raise-your-hand/post.md/)” and “Twist and Shout”–the latter two featuring Branford Marsalis as well. HBO will air portions of the show in a documentary later in the year, and a DVD/Blu-ray collection will be released many years later.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/6Vqm2t6a)
 

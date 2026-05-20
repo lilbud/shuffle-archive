@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1980-12-11.png.webp)
 
-**1984:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add "My Old Kentucky Home" to "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" for the occasion.<br>
+**1984:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add "My Old Kentucky Home" to "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" for the occasion.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/80rWaa1S)
 

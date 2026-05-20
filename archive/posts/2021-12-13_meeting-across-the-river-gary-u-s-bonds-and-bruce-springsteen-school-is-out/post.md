@@ -1,6 +1,6 @@
 This one’s for the completists (like me).
 
-“School Is Out” was Gary U.S. Bonds follow-up to his smash hit (and frequent Springsteen encore) “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/).”
+“School Is Out” was Gary U.S. Bonds follow-up to his smash hit (and frequent Springsteen encore) “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/).”
 
 Released in 1961, “School Is Out” is certainly cut from the same cloth as its predecessor, opening with the same count-in, the same hand-clap syncopation, and the same use of background hoots and whistles.
 

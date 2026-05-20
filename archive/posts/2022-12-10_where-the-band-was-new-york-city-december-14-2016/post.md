@@ -10,7 +10,7 @@ He even made his entrance that way–announcing his arrival at the back of the h
 
 [Watch on Youtube: Bruce Springsteen, "Santa Claus Is Coming To Town", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=vKDxpiv7AiA)
 
-Bruce then segued from “Santa” to his other perennial seasonal classic, “[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/).” He’d only been on stage a few minutes, but he must have been restless, because he very quickly returned to the crowd, giving my row a *very* close encounter.
+Bruce then segued from “Santa” to his other perennial seasonal classic, “[Merry Christmas Baby](../2002-01-03_cover-me-merry-christmas-baby/post.md/).” He’d only been on stage a few minutes, but he must have been restless, because he very quickly returned to the crowd, giving my row a *very* close encounter.
 
 [Watch on Youtube: Bruce Springsteen, "Merry Christmas Baby", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=bhsJUCB5Gc8)
 
@@ -22,7 +22,7 @@ How do you top that? You don’t even try to–instead, the assembled artists ga
 
 [Watch on Youtube: Springsteen and Friends, "Do You Hear What I Hear", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=qZ6XNcPDUpA)
 
-…and finally, “[Joy to the World](https://estreetshuffle.com/index.php/2019/12/24/matr-sting-bruce-springsteen-and-friends-joy-to-the-world/).” Both songs were live debuts for Bruce.
+…and finally, “[Joy to the World](../2002-01-08_matr-sting-bruce-springsteen-and-friends-joy-to-the-world/post.md/).” Both songs were live debuts for Bruce.
 
 [Watch on Youtube: Springsteen and Friends, "Joy To The World", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=RUBQa8-1w28)
 

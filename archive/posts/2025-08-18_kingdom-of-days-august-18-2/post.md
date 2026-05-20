@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 1978; review for 2008; new entry for 2024*<br>
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to Philadelphia for the first of two nights at The Spectrum. Gary Busey joins the band for the final two encores of "[Rave On](../2019-03-25_matr-bruce-springsteen-and-gary-busey-rave-on/post.md)" and "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)."<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to Philadelphia for the first of two nights at The Spectrum. Gary Busey joins the band for the final two encores of "[Rave On](../2019-03-25_matr-bruce-springsteen-and-gary-busey-rave-on/post.md)" and "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)."<br>
 
 [Watch on Youtube: Special Guest Gary Busey w/ Bruce Springsteen - Rave On (Live) 8/18/78](https://www.youtube.com/watch?v=O0Lao3wtYhk)
 
@@ -68,7 +68,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg.webp)
 
-**2012:** Bruce wraps up a three-night Boston stadium stand with a show at Gillette Stadium in Foxborough. Bruce tour debuts "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" (played in the Seeger Sessions swing arrangement) as well as the first performance of "[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)" in 28 years.<br>
+**2012:** Bruce wraps up a three-night Boston stadium stand with a show at Gillette Stadium in Foxborough. Bruce tour debuts "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" (played in the Seeger Sessions swing arrangement) as well as the first performance of "[Drift Away](../1976-01-16_cover-me-drift-away/post.md/)" in 28 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Drift Away - (Full Version)](https://www.youtube.com/watch?v=ckwC2U4gn-Q)
 

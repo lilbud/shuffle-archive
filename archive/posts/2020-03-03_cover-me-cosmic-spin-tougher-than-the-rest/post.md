@@ -4,6 +4,6 @@ If you're a fan of early Everything But the Girl, you'll love Cosmic Spin.
 
 In fact, the duo's latest single (released just a few days ago as of this writing) is [a Springsteen song that Everything But the Girl covered](../2018-09-19_cover-me-everything-but-the-girl-tougher-than-the-rest/post.md) on their *Acoustic* album back in 1992.
 
-EBTG's version used to be my favorite of the "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" covers, but I think it's just been supplanted. Listen and enjoy.
+EBTG's version used to be my favorite of the "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" covers, but I think it's just been supplanted. Listen and enjoy.
 
 [Watch on Youtube: Tougher Than The Rest (Springsteen Cover) - Cosmic Spin [OFFICIAL MUSIC VIDEO]](https://www.youtube.com/watch?v=rSvM4Asm4qs)

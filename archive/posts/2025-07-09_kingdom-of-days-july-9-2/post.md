@@ -14,7 +14,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-09.jpg.webp)
 
-**1981:** Bruce and the E Street Band close out their opening stand at the Brendan Byrne Arena in the Meadowlands, and Gary U.S. Bonds joins them on stage for "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)." Bruce's performance of "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" will be released in 1984 as the B-side to "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" as well as on the *Live 1975-85* box set. This concert is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24818/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-9-1981-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
+**1981:** Bruce and the E Street Band close out their opening stand at the Brendan Byrne Arena in the Meadowlands, and Gary U.S. Bonds joins them on stage for "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)." Bruce's performance of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" will be released in 1984 as the B-side to "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" as well as on the *Live 1975-85* box set. This concert is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24818/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-9-1981-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
 
 [Watch on Youtube: This Land is Your Land (Live at Brendan Byrne Arena, E. Rutherford, NJ - 7/9/1981)](https://www.youtube.com/watch?v=c6InmR1IPs4)
 
@@ -32,7 +32,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 [Watch on Youtube: Bruce Springsteen Thunder Road Richfield 09/07/1984](https://www.youtube.com/watch?v=i2uzyHlLjSs?list=PLJTyL9twk3zBpMD6Z-NROlIhXjAwaWOdZ)
 
-**1988:** Bruce brings the Tunnel of Love Tour to Sheffield for the first of two nights. "[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)" from this show will be released on the *Spare Parts* EP and on *Video Anthology*. Bruce spends time with Roy Orbison at the hotel before the show.<br>
+**1988:** Bruce brings the Tunnel of Love Tour to Sheffield for the first of two nights. "[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)" from this show will be released on the *Spare Parts* EP and on *Video Anthology*. Bruce spends time with Roy Orbison at the hotel before the show.<br>
 
 [Watch on Youtube: Bruce Springsteen - Spare Parts (DVD Version)](https://www.youtube.com/watch?v=HKH3C3b2HzU)
 
@@ -48,7 +48,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 [Watch Video Highlight](https://videopress.com/embed/mY6CjOdb)
 
-**1995:** One of the stranger collaborations of Bruce's career: Bruce travels to Berlin, where he plays a short concert at Cafe Eckstein with Wolfgang Niedecken and His Leopardefellband. The purpose of the show is to yield a new recording and video for "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," which will be released on video and on the *Hungry Heart* EP (sort of–it will actually feature Bruce's new vocals over the original instrumental track, and it's kind of jarring. Compare the official video with the raw footage below). The setlist also features several covers, including Dylan's "[Knockin' on Heaven's Door](../2019-02-18_matr-bruce-springsteen-and-wolfgang-niedecken-knockin-on-heavens-door/post.md)" and "[Highway 61 Revisited](https://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)."<br>
+**1995:** One of the stranger collaborations of Bruce's career: Bruce travels to Berlin, where he plays a short concert at Cafe Eckstein with Wolfgang Niedecken and His Leopardefellband. The purpose of the show is to yield a new recording and video for "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," which will be released on video and on the *Hungry Heart* EP (sort of–it will actually feature Bruce's new vocals over the original instrumental track, and it's kind of jarring. Compare the official video with the raw footage below). The setlist also features several covers, including Dylan's "[Knockin' on Heaven's Door](../2019-02-18_matr-bruce-springsteen-and-wolfgang-niedecken-knockin-on-heavens-door/post.md)" and "[Highway 61 Revisited](../2018-11-07-meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Berlin '95 Version)](https://www.youtube.com/watch?v=0My2AqPFpFg)
 

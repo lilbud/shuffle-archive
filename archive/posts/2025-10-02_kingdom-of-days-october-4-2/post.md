@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1974-10-04.jpg.webp)
 
-**1975:** Bruce cancels a sold-out show at the University of Maryland when he learns that the venue holds 10,000 people. (At this point in his career, Bruce is violently opposed to playing large venues.) Instead, the Born to Run Tour moves on to Michigan Palace in Detroit, and the *Born to Run* hype and emerging backlash is starting to get to Bruce. Bruce will recall this as a night on which he didn’t want to perform, but with his band around him and a set list constructed to keep the energy level high, he nevertheless delivers a great show that features his live debut of “[Ain’t Too Proud to Beg.](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)”<br>
+**1975:** Bruce cancels a sold-out show at the University of Maryland when he learns that the venue holds 10,000 people. (At this point in his career, Bruce is violently opposed to playing large venues.) Instead, the Born to Run Tour moves on to Michigan Palace in Detroit, and the *Born to Run* hype and emerging backlash is starting to get to Bruce. Bruce will recall this as a night on which he didn’t want to perform, but with his band around him and a set list constructed to keep the energy level high, he nevertheless delivers a great show that features his live debut of “[Ain’t Too Proud to Beg.](../2018-10-07-cover-me-aint-too-proud-to-beg/post.md/)”<br>
 
 [Watch on Youtube: Bruce Springsteen - Ain't Too Proud To Beg (live 1975)](https://www.youtube.com/watch?v=lwV9dJ2yJMs)
 
@@ -48,7 +48,7 @@ That night, Bruce plays the Fleet Center, dedicating “[My Hometown](../2020-04
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2002-10-04d.jpg.webp)
 
-**2003:** The Rising Show reaches its end with a third and final show at Shea Stadium, and what a star-studded show it is: Opening with “[Code of Silence](../2018-08-27_codeofsilence/post.md)” and closing with “[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)” (played for the first time this tour) provides a sentimental callback to the end of the Reunion Tour. In between, Bruce and the band tour premiere “[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md)” (in its first E Street Band performance), “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md),” “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md),” “[Highway 61 Revisited](https://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)” (with Bob Dylan!), and “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” (with Gary U.S. Bonds, Laurie Anderson, Garland Jeffreys, and Willie Nile). An amazing end to a revitalizing tour.<br>
+**2003:** The Rising Show reaches its end with a third and final show at Shea Stadium, and what a star-studded show it is: Opening with “[Code of Silence](../2018-08-27_codeofsilence/post.md)” and closing with “[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)” (played for the first time this tour) provides a sentimental callback to the end of the Reunion Tour. In between, Bruce and the band tour premiere “[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md)” (in its first E Street Band performance), “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md),” “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md),” “[Highway 61 Revisited](../2018-11-07-meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/post.md/)” (with Bob Dylan!), and “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)” (with Gary U.S. Bonds, Laurie Anderson, Garland Jeffreys, and Willie Nile). An amazing end to a revitalizing tour.<br>
 
 [Watch on Youtube: Bruce Springsteen Highway 61 Revisited New York 04/10/2003](https://www.youtube.com/watch?v=sooYpK4s9HI)
 
@@ -66,7 +66,7 @@ That night, Bruce plays the Fleet Center, dedicating “[My Hometown](../2020-04
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2005-10-04.jpg.webp)
 
-**2006:** Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” in a brand new arrangement at his Seeger Sessions show in Udine, Italy.<br>
+**2006:** Bruce tour premieres “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” in a brand new arrangement at his Seeger Sessions show in Udine, Italy.<br>
 
 [Watch on Youtube: O Mary don't You Weep - Bruce Springsteen - Codroipo (Udine) 2006](https://www.youtube.com/watch?v=CN8CQNt46vc)
 

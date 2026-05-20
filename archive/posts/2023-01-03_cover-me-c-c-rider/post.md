@@ -26,7 +26,7 @@ But it was Mitch Ryder who had the most chart success with it, when his version 
 
 [Watch on Youtube: Mitch Ryder & The Detroit Wheels - Jenny Take A Ride C C Rider (1965)](https://www.youtube.com/watch?v=Zf1KiQuW2BE)
 
-By now, you know where we’re headed. In 1975, Bruce introduced Ryder’s “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” to his set list, and it became an immediate and enduring encore favorite.
+By now, you know where we’re headed. In 1975, Bruce introduced Ryder’s “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” to his set list, and it became an immediate and enduring encore favorite.
 
 [Watch on Youtube: Bruce Springsteen - DETROIT MEDLEY - BACK IN THE USA 1975 (audio)](https://www.youtube.com/watch?v=t87UMZI1cnE)
 

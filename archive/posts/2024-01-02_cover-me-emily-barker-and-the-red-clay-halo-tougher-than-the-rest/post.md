@@ -4,7 +4,7 @@ But that wasn't the only special vinyl release that day with Bruce's music on it
 
 Each side of the album was recorded *in a single take–*no editing, not even a break between songs other than the five-second gap that separates the tracks. The tracks themselves are all covers–Tom Waits, Patti Smith, and Aretha Franklin all get the Red Clay Halo treatment.
 
-And Bruce, of course. Barker's cover of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" is one of my very favorite Springsteen covers, and there are some mighty fine ones even for just that song.
+And Bruce, of course. Barker's cover of "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" is one of my very favorite Springsteen covers, and there are some mighty fine ones even for just that song.
 
 Take a listen:
 

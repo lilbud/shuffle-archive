@@ -2,7 +2,7 @@ The finalists have been selected for this year's [*Cover Me* competition](https:
 
 This year, though, you can vote too. Starting July 1, visit the official contest website to vote for your favorite–but don't wait until then to start watching and listening, because the finalists' entries are already posted for your viewing pleasure.
 
-Today's spotlight is on 22-year-old saxophonist/singer/songwriter Tommy Mauri and his reggae interpretation of Bruce's "[Spirit in the Night.](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)"
+Today's spotlight is on 22-year-old saxophonist/singer/songwriter Tommy Mauri and his reggae interpretation of Bruce's "[Spirit in the Night.](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)"
 
 [Watch on Youtube: Spirit in the Night (Bruce Springsteen) - Reggae/Cartoon Version](https://www.youtube.com/watch?v=-tHUB8KK7YI)
 

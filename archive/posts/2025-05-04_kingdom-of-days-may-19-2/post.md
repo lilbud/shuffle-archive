@@ -90,7 +90,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2009-05-19.jpg.webp)
 
-**2016:** Bruce makes a return appearance (his third) at the Rock in Rio Festival in Lisbon. *The River* gets thrown by the wayside, with only three songs from that album making a Greatest Hits setlist that includes the tour premieres of “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Downbound Train,](../2019-01-22_roll-of-the-dice-downbound-train/post.md)” “[I’m on Fire,](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” “[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md),” and “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/).” Watch the full pro-shot set below.<br>
+**2016:** Bruce makes a return appearance (his third) at the Rock in Rio Festival in Lisbon. *The River* gets thrown by the wayside, with only three songs from that album making a Greatest Hits setlist that includes the tour premieres of “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Downbound Train,](../2019-01-22_roll-of-the-dice-downbound-train/post.md)” “[I’m on Fire,](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” “[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md),” and “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/).” Watch the full pro-shot set below.<br>
 
 [Bruce Springsteen & The E Street Band - Rock In Rio 2016 - Full Concert](https://player.vimeo.com/video/176779980?dnt=1&app_id=122963)
 

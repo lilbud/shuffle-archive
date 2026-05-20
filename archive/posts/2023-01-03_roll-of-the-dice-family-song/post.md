@@ -31,7 +31,7 @@ Bruce was very much in that window.
 > *Papa wants a lawyer and mama, she wants an author*<br>
 > *And all you want is for them to want you*<br>
 
-For long-time fans, that first verse hits with the power of a sledgehammer, because we're familiar with the tale. Years later, well after he'd made it big, Bruce would tell a mid-song story during "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" in which he'd jokingly recount how his father would constantly encourage him to be a lawyer, how his mom would entreat him to become an author, how both just wanted him to "make something of himself." On stage in front of a roaring, adoring crowd, Bruce would address them (once or twice in person) and tell them they'd just have to settle for a rock and roll star.
+For long-time fans, that first verse hits with the power of a sledgehammer, because we're familiar with the tale. Years later, well after he'd made it big, Bruce would tell a mid-song story during "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" in which he'd jokingly recount how his father would constantly encourage him to be a lawyer, how his mom would entreat him to become an author, how both just wanted him to "make something of himself." On stage in front of a roaring, adoring crowd, Bruce would address them (once or twice in person) and tell them they'd just have to settle for a rock and roll star.
 
 Bruce would chuckle when telling that story in 1978, but in 1972's "Family Song," there was no humor in it.
 

@@ -1,6 +1,6 @@
-Bruce covered Elvis Presley throughout the Tunnel of Love Express Tour. On any given night, you were liable to hear “[Can’t Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)” or “[Love Me Tender](../2019-03-02_cover-me-love-me-tender/post.md).” Swiss fans even got a one-off of “Follow That Dream.”
+Bruce covered Elvis Presley throughout the Tunnel of Love Express Tour. On any given night, you were liable to hear “[Can’t Help Falling in Love](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/)” or “[Love Me Tender](../2019-03-02_cover-me-love-me-tender/post.md).” Swiss fans even got a one-off of “Follow That Dream.”
 
-So it’s remarkable to me that given the theme of the album he was touring behind, Bruce never once covered “Suspicious Minds” on that tour. A song of simmering distrust and latent emotional infidelity, “Suspicious Minds” would have been right at home in a setlist that had “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)” as tentpoles.
+So it’s remarkable to me that given the theme of the album he was touring behind, Bruce never once covered “Suspicious Minds” on that tour. A song of simmering distrust and latent emotional infidelity, “Suspicious Minds” would have been right at home in a setlist that had “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)” as tentpoles.
 
 [Watch on Youtube: Elvis Presley - Suspicious Minds (Official Audio)](https://www.youtube.com/watch?v=RxOBOhRECoo)
 

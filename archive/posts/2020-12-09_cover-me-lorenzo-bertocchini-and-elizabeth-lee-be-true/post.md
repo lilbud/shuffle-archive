@@ -1,6 +1,6 @@
 Some songs completely transform when you sing them with someone else.
 
-Just as "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" morphs from a song about betrayal and estrangement when sung alone into a song of acceptance and commitment when performed as a duet, so does "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" blossom from a "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)"-style pep talk into a pledge of intimacy and devotion.
+Just as "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" morphs from a song about betrayal and estrangement when sung alone into a song of acceptance and commitment when performed as a duet, so does "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" blossom from a "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)"-style pep talk into a pledge of intimacy and devotion.
 
 Allow Lorenzo Bertocchini and Elizabeth Lee to demonstrate with their breathtakingly tender and beautiful cover of "Be True" from the 2010 Italian tribute album, *For You 2.*
 

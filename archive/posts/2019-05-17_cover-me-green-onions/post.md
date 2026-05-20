@@ -4,7 +4,7 @@ Given Bruce's love for everything Stax, "Green Onions" was bound to make an appe
 
 "Green Onions" went on to enshrine itself in rock and soul history, earning a Grammy Hall of Fame Award in 1999 and distinction as the only instrumental in *Rolling Stone's* 500 Greatest Songs of All Time roster.
 
-In 2009, when Bruce needed some backing music while collecting mid-show sign requests for the "stump the band" segment of the show, he almost always called for the band to follow him with "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)." Towards the very end of the tour, however, Bruce decided to mix it up: for the final two shows he called for "Green Onions," an inspired choice for a slot where no one in the band knew at the start just how much time Bruce was going to need.
+In 2009, when Bruce needed some backing music while collecting mid-show sign requests for the "stump the band" segment of the show, he almost always called for the band to follow him with "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)." Towards the very end of the tour, however, Bruce decided to mix it up: for the final two shows he called for "Green Onions," an inspired choice for a slot where no one in the band knew at the start just how much time Bruce was going to need.
 
 How'd they do? You can listen for yourself below, but just remember: you may not be able to stump the E Street Band, but it's also pretty dang tough to beat Booker T. and the M.G.'s.
 

@@ -16,7 +16,7 @@ Bruce may not have covered "Blue Suede Shoes" in one of his "official" concerts,
 
 Although this club performance is the only time Bruce is known to have covered "Blue Suede Shoes" in concert, I'd be remiss if I didn't also acknowledge the one other time he *almost* did–and not by his plan.
 
-Eleven years ago today (at time of publication, at least), Bruce played [his penultimate show at the storied Philadelphia Spectrum](https://estreetshuffle.com/index.php/2019/10/19/kingdom-of-days-october-19-2/), and Springsteen fan and Elvis impersonator Nick Ferraro (forever after a.k.a. Philly Elvis) was in the pit.
+Eleven years ago today (at time of publication, at least), Bruce played [his penultimate show at the storied Philadelphia Spectrum](../2025-10-19_kingdom-of-days-october-19-2/post.md/), and Springsteen fan and Elvis impersonator Nick Ferraro (forever after a.k.a. Philly Elvis) was in the pit.
 
 Bruce played "[All Shook Up](../2019-08-03_matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/post.md)" for Nick during the sign request part of the set, and he invited Nick on stage as well. What followed was one of the few times a fan was able to completely steal the show.
 

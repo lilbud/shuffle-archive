@@ -130,7 +130,7 @@ And Bruce once told Ed Sciaky that "for some reason I always imagined Joe Cocker
 
 Whatever the recipe, "Spirit in the Night" stands out from the rest of *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*Sure, "Blinded by the Light" has a similar lighter feel to "Spirit" compared to the rest of the somber album, but "Blinded" shares the rhyming dictionary overuse that characterizes much of Bruce's early work. By contrast, "Spirit" is more restrained, letting the imagery paint the scene and allowing Clarence to carry the listener through it.
 
-It also provides the first glimpse at what would eventually evolve into the E Street sound. At 572 performances to date, it comes in a very close second to "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" as the most frequently played *Greetings* song–and if you don't count *Springsteen on Broadway* performances of "Growin' Up," "Spirit" runs away with the title altogether.
+It also provides the first glimpse at what would eventually evolve into the E Street sound. At 572 performances to date, it comes in a very close second to "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" as the most frequently played *Greetings* song–and if you don't count *Springsteen on Broadway* performances of "Growin' Up," "Spirit" runs away with the title altogether.
 
 "Spirit in the Night" made its live debut mere weeks after its vinyl debut. Here's the earliest known performance, from January 31, 1973.
 

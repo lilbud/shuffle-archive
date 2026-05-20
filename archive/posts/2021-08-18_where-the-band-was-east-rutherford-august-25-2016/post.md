@@ -18,7 +18,7 @@ Also, Tom Morello guest-starred on four songs, including an absolutely searing �
 
 [Watch on Youtube: Death to My Hometown - Springsteen - MetLife#2 Aug 25, 2016](https://www.youtube.com/watch?v=yxcZXcFykX0)
 
-And while the show may not have had any tour premieres, there were some genuine gems strewn through the setlist, including powerful performances of “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/).”
+And while the show may not have had any tour premieres, there were some genuine gems strewn through the setlist, including powerful performances of “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)” and “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/).”
 
 [Watch on Youtube: Lost in the Flood - Springsteen - MetLife#2 Aug 25, 2016](https://www.youtube.com/watch?v=C4iSpKS6M88)
 
@@ -52,7 +52,7 @@ It was a delight to watch her enjoy her son’s performance, but the whole famil
 
 Ultimately, I realized, it was just that kind of night–we didn’t have Intense Bruce, or Party Bruce, or Flying-by-the-seat-of-his-pants Bruce. We just had Family Bruce, and he was clearly happy to be in his home state, surrounded by friends and family and just allowing himself to enjoy himself on-stage. He looked happy all night long, and that was nice to see.
 
-And there couldn’t have been a more fitting way to end it than how it spontaneously played out: with a show-closing “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” and the marriage proposal that completely stopped it in its tracks at the stroke of midnight. Patti saw it first, then the band, and finally Bruce. And what happened next is magic. Take a moment and watch it, even if you’ve seen it before. This part I remember vividly.
+And there couldn’t have been a more fitting way to end it than how it spontaneously played out: with a show-closing “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/),” and the marriage proposal that completely stopped it in its tracks at the stroke of midnight. Patti saw it first, then the band, and finally Bruce. And what happened next is magic. Take a moment and watch it, even if you’ve seen it before. This part I remember vividly.
 
 [Watch on Youtube: Bruce Springsteen - Jersey Girl - MetLife Stadium New Jersey August 25, 2016](https://www.youtube.com/watch?v=qc7xSXUgiSA)
 

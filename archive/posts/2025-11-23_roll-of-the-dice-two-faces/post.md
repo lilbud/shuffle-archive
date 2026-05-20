@@ -4,7 +4,7 @@ This isn't the first time I've used that pull quote in a *Roll of the Dice* inst
 
 It's not even the first time I've used it in a [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) essay. Long before Bruce opened up publicly in interviews about his lifelong struggles with depression, he was telling us about it through his work.
 
-With the possible exception of "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)," nowhere is that more evident than in "Two Faces."
+With the possible exception of "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)," nowhere is that more evident than in "Two Faces."
 
 [Watch on Youtube: Two Faces](https://www.youtube.com/watch?v=119sq2IIoiA)
 
@@ -70,7 +70,7 @@ But the song isn't over yet–and atypically for Bruce, it's about to take a tur
 
 > *Well go ahead and let him try*<br>
 
-"Two Faces" ends with what I believe must be an intentional set of parallels. On the album, the song is paired with "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," which immediately follows "Two Faces" as if they were opposite sides of a coin.
+"Two Faces" ends with what I believe must be an intentional set of parallels. On the album, the song is paired with "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)," which immediately follows "Two Faces" as if they were opposite sides of a coin.
 
 They might well be.
 
@@ -84,7 +84,7 @@ It tells us that while our narrator may be confident in this moment, he'll need 
 
 "Two Faces" made its live premiere not during the Tunnel of Love Express Tour, as is commonly believed, but at a surprise Halloween gig at McLoone's Rum Runner in Sea Bright in 1987. Bruce and the band took to the stage in disguise that night, billing themselves as The Terrorists of Love and playing a mostly party-themed set.
 
-Strangely enough, sandwiched into an encore that included "Born to Run," "[Fortunate Son](../2019-11-09_matr-john-fogerty-and-bruce-springsteen-fortunate-son/post.md)," "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," and "Twist and Shout" was the unlikely world debut of "Two Faces."
+Strangely enough, sandwiched into an encore that included "Born to Run," "[Fortunate Son](../2019-11-09_matr-john-fogerty-and-bruce-springsteen-fortunate-son/post.md)," "[Lucille](../1976-01-07_cover-me-lucille/post.md/)," and "Twist and Shout" was the unlikely world debut of "Two Faces."
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3)
 

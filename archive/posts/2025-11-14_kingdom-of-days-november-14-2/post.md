@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Houston_Chronicle_1980_11_15_39-scaled.jpg.webp)
 
-**1987:** By way of introduction to Bruce's rising "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" single, *American Top 40* host Casey Kasem gives a dramatic re-enactment of a late night billboard defacement foray on the Darkness Tour.<br>
+**1987:** By way of introduction to Bruce's rising "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" single, *American Top 40* host Casey Kasem gives a dramatic re-enactment of a late night billboard defacement foray on the Darkness Tour.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1987-11-14.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1987-11-14.mp3)
 

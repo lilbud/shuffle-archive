@@ -16,9 +16,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/LRMoo2CB)
 
-**1987:** Bruce joins Cats on a Smooth Surface at their gig at Tradewinds in Sea Bright, playing "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)" and a selection of covers including "Proud Mary," "[Fortunate Son](../2019-11-09_matr-john-fogerty-and-bruce-springsteen-fortunate-son/post.md)," "If You Need Me," "[Around and Around](../2020-02-26_cover-me-around-and-around/post.md)," and "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."<br>
+**1987:** Bruce joins Cats on a Smooth Surface at their gig at Tradewinds in Sea Bright, playing "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)" and a selection of covers including "Proud Mary," "[Fortunate Son](../2019-11-09_matr-john-fogerty-and-bruce-springsteen-fortunate-son/post.md)," "If You Need Me," "[Around and Around](../2020-02-26_cover-me-around-and-around/post.md)," and "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
-**1999:** Bruce and the reunited E Street Band wrap their five-night stand at Boston's Fleet Center, tour debuting "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" in the encores with Peter Wolf.<br>
+**1999:** Bruce and the reunited E Street Band wrap their five-night stand at Boston's Fleet Center, tour debuting "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)" in the encores with Peter Wolf.<br>
 
 [Watch on Youtube: Bruce Springsteen - Boston, 1999-08-27](https://www.youtube.com/watch?v=8D06CtXE5y4)
 

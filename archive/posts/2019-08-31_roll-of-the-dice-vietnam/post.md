@@ -52,7 +52,7 @@ My favorite verse, though, is the final one:
 > *With a singer in a Rock ‘N' Roll band*
 > *She said, "I'm sorry son, but we understand"*
 
-Geez, that's quite a knife twist, isn't it? Not only did his girl not wait for him, but check out the clear reference to the Rolling Stones' classic "[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/)." Our hero risks his life only to find that his girlfriend left him for a poor boy who couldn't answer the question "what else can I do but sing in a rock and roll band?" In these six lines, Bruce lays out a fascinating, morally ambiguous circumstance that's far more thought-provokingly gray than any of the songs that would spin out of "Vietnam."
+Geez, that's quite a knife twist, isn't it? Not only did his girl not wait for him, but check out the clear reference to the Rolling Stones' classic "[Street Fighting Man](../1976-01-17_cover-me-street-fighting-man/post.md/)." Our hero risks his life only to find that his girlfriend left him for a poor boy who couldn't answer the question "what else can I do but sing in a rock and roll band?" In these six lines, Bruce lays out a fascinating, morally ambiguous circumstance that's far more thought-provokingly gray than any of the songs that would spin out of "Vietnam."
 
 "Vietnam" had the seeds of two great songs but was destined to never see the light of day. Although Bruce has never shied away from instrumental tracks that belie his lyrics, in this case, the brutally direct chorus and upbeat melody of "Vietnam" were both too overt for the polar approach to work.
 

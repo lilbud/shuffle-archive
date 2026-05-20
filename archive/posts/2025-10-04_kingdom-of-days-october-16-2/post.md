@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Bruce Springsteen - debut of "Long Time Comin'" Denver, 1996-10-16](https://www.youtube.com/watch?v=qTMe5fUtv3g)
 
-**2002:** Bruce and the E Street Band bring the Rising Tour to Barcelona, where the show is filmed and released on DVD as *Live in Barcelona.* Bruce tour premieres “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” on solo piano (forgetting the lyrics), and the setlist also includes a rare “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md).”<br>
+**2002:** Bruce and the E Street Band bring the Rising Tour to Barcelona, where the show is filmed and released on DVD as *Live in Barcelona.* Bruce tour premieres “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” on solo piano (forgetting the lyrics), and the setlist also includes a rare “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Live in Barcelona](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 

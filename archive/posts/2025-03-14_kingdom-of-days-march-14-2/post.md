@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1979-0314.jpg.webp)
 
-**1988:** Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved to add a mid-song story to "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)."<br>
+**1988:** Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved to add a mid-song story to "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0mmIy6i6)
 
@@ -40,7 +40,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/dKDhatIc)
 
-**2000:** At Alltel Arena in Little Rock, Bruce plays "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" for the first time in 26 years.<br>
+**2000:** At Alltel Arena in Little Rock, Bruce plays "[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" for the first time in 26 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9FPrwILR)
 

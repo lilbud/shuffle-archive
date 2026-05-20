@@ -18,7 +18,7 @@
 
 [Watch on Youtube: U.S.A. For Africa - We Are the World](https://www.youtube.com/watch?v=9AjkUyX0rVw)
 
-**2003:** Bruce and the band play their first show on the Atlantic City Boardwalk, opening with (of course) “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md),” closing with a scene-appropriate “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)” and featuring a rare cover of the Beatles’ “[Tell Me Why](../2020-08-01_cover-me-tell-me-why/post.md)” and the tour premiere of “[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” Listen to the soundcheck and highlights below.<br>
+**2003:** Bruce and the band play their first show on the Atlantic City Boardwalk, opening with (of course) “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md),” closing with a scene-appropriate “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)” and featuring a rare cover of the Beatles’ “[Tell Me Why](../2020-08-01_cover-me-tell-me-why/post.md)” and the tour premiere of “[Jersey Girl.](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” Listen to the soundcheck and highlights below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mqMlGDGF)
 
@@ -38,7 +38,7 @@
 
 **![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/2006-03-07.jpg.webp)**<br>
 
-**2008:** “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” and “[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)” make their Magic Tour premiere at HSBC Arena in Buffalo.<br>
+**2008:** “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” and “[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)” make their Magic Tour premiere at HSBC Arena in Buffalo.<br>
 
 [Watch on Youtube: Bruce Springsteen Buffalo Gals Buffalo 07/03/2008](https://www.youtube.com/watch?v=ZL5Uc-ezduQ)
 

@@ -42,12 +42,12 @@ Southside's version:
 
 Southside's version has more polished lyrics and a brassier arrangement, but for my ears, Bruce's guitar jam takes the prize.
 
-There are a few Bruce Springsteen Band performances of "When You Dance" circulating, but if you want to hear Bruce play it with the E Street Band, you'll have to turn to the [Asbury Park All-Star Revue shows from 1977](https://estreetshuffle.com/index.php/2018/05/12/kingdom-of-days-may-12/), where Bruce, Steve, the E Street Band, and the Jukes all teamed up to cover for an ailing Southside Johnny. These shows feature the only known performances of "When You Dance" in the E Street Band era.
+There are a few Bruce Springsteen Band performances of "When You Dance" circulating, but if you want to hear Bruce play it with the E Street Band, you'll have to turn to the [Asbury Park All-Star Revue shows from 1977](../2025-05-12_kingdom-of-days-may-12-2/post.md/), where Bruce, Steve, the E Street Band, and the Jukes all teamed up to cover for an ailing Southside Johnny. These shows feature the only known performances of "When You Dance" in the E Street Band era.
 
 [https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3)
 
 **When You Dance****Never Recorded<br>
 **First performed:** October 23, 1971 (Richmond, VA)<br>
-**Last performed:** [May 13](https://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/), 1977 (Red Bank, NJ)<br>
+**Last performed:** [May 13](../2025-05-13_kingdom-of-days-may-13-2/post.md/), 1977 (Red Bank, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

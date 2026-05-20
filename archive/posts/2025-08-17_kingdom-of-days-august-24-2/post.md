@@ -16,7 +16,7 @@
 
 [Watch on Youtube: You Can Look (But You Better Not Touch)](https://www.youtube.com/watch?v=69Gz0eCDtXs)
 
-**1981:** At the fourth night of a six-night River Tour stand at the L.A. Sports Arena, Tom Waits makes a guest appearance for (what else?) “[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)”<br>
+**1981:** At the fourth night of a six-night River Tour stand at the L.A. Sports Arena, Tom Waits makes a guest appearance for (what else?) “[Jersey Girl.](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)”<br>
 
 [Watch on Youtube: Tom and Bruce - Jersey Girl - Full Version - 1981](https://www.youtube.com/watch?v=1MXX0Y81eDI)
 

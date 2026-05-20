@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-10-06d.jpg.webp)
 
-**2002:** As the first American leg of the Rising Tour starts to wind down, Bruce starts pulling out the stops. At the First Union Center in Philadelphia, Bruce tour premieres “[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/),” “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md),” and as the show-closer, the first E Street Band performance of “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)” in 24 years. In attendance tonight: actors Tim Robbins, Susan Sarandon, MackKenzie Phillips, and Adrian Zmed, plus musician Ryan Adams.<br>
+**2002:** As the first American leg of the Rising Tour starts to wind down, Bruce starts pulling out the stops. At the First Union Center in Philadelphia, Bruce tour premieres “[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/),” “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md),” and as the show-closer, the first E Street Band performance of “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)” in 24 years. In attendance tonight: actors Tim Robbins, Susan Sarandon, MackKenzie Phillips, and Adrian Zmed, plus musician Ryan Adams.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ElTp7Vvc)
 

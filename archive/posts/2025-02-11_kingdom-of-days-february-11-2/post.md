@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU?list=OLAK5uy_kLnnZP0WkflWP_7pxkwgEnpQcwdOoEE1o)
 
-**2014:** The first night of two in Adelaide kicks off with a party-time cover of "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)" and an audibled "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)." The show also features a rare outing of "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)." Also tour premiering tonight: "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," "[Mary's Place,](../2022-03-25_roll-of-the-dice-marys-place/post.md)" and "[If I Should Fall Behind.](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)"<br>
+**2014:** The first night of two in Adelaide kicks off with a party-time cover of "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)" and an audibled "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)." The show also features a rare outing of "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)." Also tour premiering tonight: "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," "[Mary's Place,](../2022-03-25_roll-of-the-dice-marys-place/post.md)" and "[If I Should Fall Behind.](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)"<br>
 
 [Watch on Youtube: "Highway to Hell" (Adelaide, 02/11/14)](https://www.youtube.com/watch?v=Z3AzXGXnGcs)
 

@@ -16,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1977-02-25.png.webp)
 
-**1981:** The River Tour makes a stop at the Mid-South Coliseum in Memphis. Meanwhile, Bruce loses the Best Rock Vocal Performance (Male) Grammy Award to Billy Joel's *Glass Houses*. (Bruce was nominated for "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/).")<br>
+**1981:** The River Tour makes a stop at the Mid-South Coliseum in Memphis. Meanwhile, Bruce loses the Best Rock Vocal Performance (Male) Grammy Award to Billy Joel's *Glass Houses*. (Bruce was nominated for "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/).")<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/The_Memphis_Press_Scimitar_Thu__Feb_26__1981_-scaled.jpg.webp)
 
@@ -88,7 +88,7 @@ Listen in on the soundcheck...
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2012-02-25.jpg.webp)
 
-**2016:** The River Tour (2016 Edition) moves on to the First Niagara Center in Buffalo, where "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" makes its tour debut.<br>
+**2016:** The River Tour (2016 Edition) moves on to the First Niagara Center in Buffalo, where "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" makes its tour debut.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN, CADILLAC RANCH LIVE IN BUFFALO NY](https://www.youtube.com/watch?v=RZ7_HRv0_CA)
 

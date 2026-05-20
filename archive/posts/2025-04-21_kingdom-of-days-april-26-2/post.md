@@ -50,7 +50,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2005-04-26c.jpg.webp)
 
-**2006:** Bruce and the Sessions Band play their final rehearsal show at Asbury Park’s Convention Hall, opening and closing with debuts of “[Long Black Veil](../2020-02-05_cover-me-long-black-veil/post.md)” and “[The Daring Young Man on the Flying Trapeze](https://estreetshuffle.com/index.php/2020/08/17/cover-me-the-daring-young-man-on-the-flying-trapeze/)” respectively.<br>
+**2006:** Bruce and the Sessions Band play their final rehearsal show at Asbury Park’s Convention Hall, opening and closing with debuts of “[Long Black Veil](../2020-02-05_cover-me-long-black-veil/post.md)” and “[The Daring Young Man on the Flying Trapeze](../1976-02-01_cover-me-the-daring-young-man-on-the-flying-trapeze/post.md/)” respectively.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KUutZZqM)
 
@@ -62,7 +62,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ALvXy4hE)
 
-**2009:** The Working on a Dream Tour stops in Atlanta for a show at the Philips Arena. “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md),” “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/),” and “[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md)” make their tour debuts.<br>
+**2009:** The Working on a Dream Tour stops in Atlanta for a show at the Philips Arena. “[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md),” “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/),” and “[96 Tears](../2020-02-15_matr-bruce-springsteen-and-garland-jeffreys-96-tears/post.md)” make their tour debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen 96 Tears Atlanta 4/26/09 LIVE (From Pit)](https://www.youtube.com/watch?v=BaratxJFd_Q)
 

@@ -14,7 +14,7 @@ Numb and gauzy, Noah's version of "Born to Run" is an ironic, sad reminder of al
 
 The subtle second cover? Well, that one's in-your-face, too–in a different way.
 
-You might have already caught it, but if not: Noah took inspiration from Bruce's video for "[Brilliant Disguise,](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" pulling off a double homage to our favorite songwriter.
+You might have already caught it, but if not: Noah took inspiration from Bruce's video for "[Brilliant Disguise,](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" pulling off a double homage to our favorite songwriter.
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 

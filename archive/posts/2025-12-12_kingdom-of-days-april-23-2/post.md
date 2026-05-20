@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Osaka 23/04/1985](https://www.youtube.com/playlist?list=PLJTyL9twk3zD50qvA8LTkxCY5odh5R9PY)
 
-**1988:** At Night Two in Los Angeles on the Tunnel of Love Express Tour, Bruce debuts “[Ha](https://estreetshuffle.com/index.php/2019/12/20/cover-me-have-love-will-travel/)ve Love Will Travel” and tour premieres “Sweet Soul Music.” Roy Orbison is in attendance tonight, celebrating his 52nd birthday. Audio of the show is available for purchase as part of Bruce’s official archive series, but it was filmed by an enterprising fan as well.<br>
+**1988:** At Night Two in Los Angeles on the Tunnel of Love Express Tour, Bruce debuts “[Ha](../1976-01-19_cover-me-have-love-will-travel/post.md/)ve Love Will Travel” and tour premieres “Sweet Soul Music.” Roy Orbison is in attendance tonight, celebrating his 52nd birthday. Audio of the show is available for purchase as part of Bruce’s official archive series, but it was filmed by an enterprising fan as well.<br>
 
 [Watch on Youtube: Bruce Springsteen "Be True" LA 4-23-88](https://www.youtube.com/watch?v=Cnz_eKxTOwI)
 

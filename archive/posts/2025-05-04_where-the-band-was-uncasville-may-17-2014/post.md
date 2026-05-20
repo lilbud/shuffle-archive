@@ -6,7 +6,7 @@ Because there’s just no way I could have predicted:
 
 [Watch Video Highlight](https://videopress.com/embed/HZEm5bpm)
 
-* a mid-set 1970s encore throwback of “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” and “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/).”
+* a mid-set 1970s encore throwback of “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)” and “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/).”
 
 [Watch on Youtube: Bruce Springsteen Raise Your Hand-Mohegan](https://www.youtube.com/watch?v=IrQSfgjz4BY)
 
@@ -24,7 +24,7 @@ Because there’s just no way I could have predicted:
 
 [Watch Video Highlight](https://videopress.com/embed/SVpwOLpQ)
 
-* *four* acoustic songs in the encore (“[I’ll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md),” “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md),” and “Thunder Road”)–I’m not sure that’s ever happened before or since on an E Street Band tour.
+* *four* acoustic songs in the encore (“[I’ll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md),” “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md),” and “Thunder Road”)–I’m not sure that’s ever happened before or since on an E Street Band tour.
 
 [Watch on Youtube: I'll Work for your Love - Springsteen - Mohegan Sun Arena, CT - May 17, 2014](https://www.youtube.com/watch?v=ENCL6J0hidU)
 

@@ -1,4 +1,4 @@
-Singer-songwriter John Wesley Harding is no stranger to Bruce's music. He's performed with Bruce twice before (including a wonderful ["Wreck on the Highway" duet](https://estreetshuffle.com/index.php/2018/06/18/kingdom-of-days-june-18/)), and Bruce hand-picked Harding to be his opening act–Bruce's first in two decades–during his 1995 Berkeley gigs.
+Singer-songwriter John Wesley Harding is no stranger to Bruce's music. He's performed with Bruce twice before (including a wonderful ["Wreck on the Highway" duet](../2025-06-18_kingdom-of-days-june-18-2/post.md/)), and Bruce hand-picked Harding to be his opening act–Bruce's first in two decades–during his 1995 Berkeley gigs.
 
 Harding has a new album out this year–brilliantly entitled *Greatest Other People's Hits*— and it includes his wonderful cover of "[Jackson Cage,](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" originally recorded and released in 1997 on the *One Step Up/Two Steps Back* tribute album. It's also available as a bonus track on the reissue of his *Awake* album.
 

@@ -46,7 +46,7 @@ If there's any nuance to be found in "The Ballad of Jesse James," it's in that p
 
 Either way, in my opinion it's not enough to elevate "The Ballad of Jesse James" to a release-worthy Bruce Springsteen Band recording.
 
-Bruce could have given us the light-on-its feet "[I'm in Love Again](../2020-05-23_roll-of-the-dice-im-in-love-again/post.md)," the Van Morrison-esque "[Natural Magic](../2020-05-19_roll-of-the-dice-natural-magic/post.md)," or the lovely, lonely "[She's Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)." Maybe someday he still will.
+Bruce could have given us the light-on-its feet "[I'm in Love Again](../2020-05-23_roll-of-the-dice-im-in-love-again/post.md)," the Van Morrison-esque "[Natural Magic](../2020-05-19_roll-of-the-dice-natural-magic/post.md)," or the lovely, lonely "[She's Leaving](../2011-01-26_roll-of-the-dice-shes-leaving/post.md/)." Maybe someday he still will.
 
 But for now we have "The Ballad of Jesse James," and it seems like that wasn't a choice Bruce made lightly. In April 2017, the core of the Bruce Springsteen Band reunited alongside a host of additional Asbury Park musical legends.
 

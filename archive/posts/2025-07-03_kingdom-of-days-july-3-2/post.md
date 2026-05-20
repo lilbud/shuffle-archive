@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1985-0703.jpg.webp)
 
-**1988:** At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on radio stations around the world. Bruce plays "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)" for the first time on the tour, and he announces his participation in the upcoming Amnesty International Human Rights Tour. Bruce performs "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" immediately after the announcement, and that performance will be officially released as the title track of an EP later in the year. The entire show is now available as part of the official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18398/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-3-1988-Stockholms-Stadion-Stockholm-SE.html), and listen to the original radio pre- and post-shows below) and is well worth many repeated listens.<br>
+**1988:** At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on radio stations around the world. Bruce plays "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)" for the first time on the tour, and he announces his participation in the upcoming Amnesty International Human Rights Tour. Bruce performs "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" immediately after the announcement, and that performance will be officially released as the title track of an EP later in the year. The entire show is now available as part of the official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18398/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-3-1988-Stockholms-Stadion-Stockholm-SE.html), and listen to the original radio pre- and post-shows below) and is well worth many repeated listens.<br>
 
 [Watch on Youtube: Bruce Springsteen - news coverage from 1988 Stockholm concert](https://www.youtube.com/watch?v=UnODpc4SXdU)
 
@@ -72,7 +72,7 @@
 
 [Watch on Youtube: Bruce Springsteen Thunder Road Geneve 3 Juillet 2013 3rd of July 2013 Wrecking Ball Tour](https://www.youtube.com/watch?v=k9vJWcavohc)
 
-**2016:** The first of two nights in Milan kicks off with a surprise *for* Bruce: an amazing fan tribute that spans the entire stadium. But that's not all that makes this show special: Bruce treats early arrivals to a pre-show "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" and plays the tour premiere of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."<br>
+**2016:** The first of two nights in Milan kicks off with a surprise *for* Bruce: an amazing fan tribute that spans the entire stadium. But that's not all that makes this show special: Bruce treats early arrivals to a pre-show "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and plays the tour premiere of "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 > A short video clip of the audience at San Siro stadium tonight [pic.twitter.com/ykRECLtKn2](https://t.co/ykRECLtKn2)
 >
 > — Lef_iv Ⓥ (@Lef_iv) [July 3, 2016](https://twitter.com/Lef_iv/status/749673280341245956?ref_src=twsrc%5Etfw)

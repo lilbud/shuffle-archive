@@ -30,7 +30,7 @@ Perhaps the reason Bruce cast this song off is that lyrically, it's ground well 
 > *In your smile there's a sign in red*<br>
 > *It said "Thousand miles of hard road dead ahead"*<br>
 
-The notion of the mysterious girl he can never quite please–who remains just emotionally out of reach even though she professes otherwise–that's familiar territory in the vein of "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)," "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)." Even "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)" compares in its titular hook and its ain't-burning furnace vs. the leaky roof in "30 Days Out."
+The notion of the mysterious girl he can never quite please–who remains just emotionally out of reach even though she professes otherwise–that's familiar territory in the vein of "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)," "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)." Even "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" compares in its titular hook and its ain't-burning furnace vs. the leaky roof in "30 Days Out."
 
 Perhaps Bruce felt he'd gone to that well a bit too often; regardless, "30 Days Out" deserves rediscovery and airtime in concert. (Bruce has never performed it live.)
 

@@ -72,7 +72,7 @@ The Seeger Sessions Tour spanned a mere 56 shows–only 20 of which were in the 
 
 [Watch on Youtube: Bruce Springsteen - The New Orleans Jazz & Heritage Festival, 2006](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZHPNfXH8OrXBrsFLpmZvIi)
 
-As the tour went on, Bruce infused creative new arrangements of his original material while introducing re-written folk songs like "[How Can A Poor Man Stand Such Times and Live?](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" and the brand-new "American Land" along with additional classics like "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)."
+As the tour went on, Bruce infused creative new arrangements of his original material while introducing re-written folk songs like "[How Can A Poor Man Stand Such Times and Live?](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" and the brand-new "American Land" along with additional classics like "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)."
 
 Bruce felt strong enough about a few of the new additions to include live versions of them on a second edition of the album, released later that same year as an "American Land Edition."
 

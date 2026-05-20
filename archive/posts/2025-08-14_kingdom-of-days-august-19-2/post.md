@@ -10,7 +10,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/rAT8zq3b)
 
-**1984:** The penultimate night of Bruce’s ten-night Born in the U.S.A. Tour stand at East Rutherford’s Brendan Byrne Arena brings the U.S. debut of “[My Father’s House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)” and the return of the Miami Horns for “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md),” “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” and “Twist and Shout.” “[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)” is recorded and released on the *Live 1975-85* box set. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29593/bruce-springsteen-the-e-street-brendan-byrne-arena-east-rutherford-nj-08-19-1984-mp3-flac-or-online-music-streaming.html).<br>
+**1984:** The penultimate night of Bruce’s ten-night Born in the U.S.A. Tour stand at East Rutherford’s Brendan Byrne Arena brings the U.S. debut of “[My Father’s House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)” and the return of the Miami Horns for “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md),” “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” and “Twist and Shout.” “[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)” is recorded and released on the *Live 1975-85* box set. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29593/bruce-springsteen-the-e-street-brendan-byrne-arena-east-rutherford-nj-08-19-1984-mp3-flac-or-online-music-streaming.html).<br>
 
 [Watch on Youtube: Reason To Believe (Live at Meadowlands Arena, E. Rutherford, NJ - August 1984)](https://www.youtube.com/watch?v=-k2QcB6bV9o)
 
@@ -50,7 +50,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-19d.png.webp)
 
-**2009:** Bruce and the E Street Band kick off the final leg of the Working on a Dream Tour at the Comcast Theater in Hartford, where Bruce plays the first “[Sha La La](https://estreetshuffle.com/index.php/2018/02/21/cover-me-sha-la-la/)” in 34 years.<br>
+**2009:** Bruce and the E Street Band kick off the final leg of the Working on a Dream Tour at the Comcast Theater in Hartford, where Bruce plays the first “[Sha La La](../2018-02-21-cover-me-sha-la-la/post.md/)” in 34 years.<br>
 
 [Watch on Youtube: Springsteen Sha la la la 8/19/09](https://www.youtube.com/watch?v=8ReVAWH1rlc)
 

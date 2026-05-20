@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1985-01-15c.png.webp)
 
-**1988:** The video for "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" premieres on *Friday Night Videos*.<br>
+**1988:** The video for "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" premieres on *Friday Night Videos*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/u832h9EQ)
 

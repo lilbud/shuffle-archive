@@ -66,7 +66,7 @@ And then, with one final line, Bruce gently rouses us back to reality, as Eddie'
 
 "Meeting Across the River" is *so* different from Bruce's contemporaneous songwriting that we have to wonder: where the heck did it come from?
 
-Bruce was certainly no stranger to noirish street scenes: by this time, he'd already released songs like "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" and "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)." But those songs romanticized both the street and its leading men, whereas "Meeting Across the River" features an inept would-be hood against a palpably dangerous backdrop.
+Bruce was certainly no stranger to noirish street scenes: by this time, he'd already released songs like "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" and "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)." But those songs romanticized both the street and its leading men, whereas "Meeting Across the River" features an inept would-be hood against a palpably dangerous backdrop.
 
 Bruce himself doesn't seem to recall the exact inspiration for the lyrics, although looking back on it, he told Brian Hiatt in an interview that it was likely influenced by Bruce's own frustration at his inability to make the big time (remember, this was pre-*Born to Run*).
 

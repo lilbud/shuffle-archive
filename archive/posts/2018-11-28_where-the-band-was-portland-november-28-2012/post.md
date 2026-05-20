@@ -14,7 +14,7 @@ First up, a spinner randomizer that *almost* landed on "[Pay Me My Money Down](.
 
 [Watch on Youtube: Loose Ends Bruce Springsteen Portland November 28th 2012](https://www.youtube.com/watch?v=sB2oR8odTlc)
 
-The next request kept things loose: a fan requested "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" for his 50th birthday, and Bruce brought him up to the mic to make it a duet:
+The next request kept things loose: a fan requested "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" for his 50th birthday, and Bruce brought him up to the mic to make it a duet:
 
 [Watch on Youtube: Bruce Springsteen & E Street Band Portland 11-28-12 Growin' Up](https://www.youtube.com/watch?v=ed3_KLlVJd4)
 

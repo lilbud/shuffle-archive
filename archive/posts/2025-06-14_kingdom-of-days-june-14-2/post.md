@@ -70,7 +70,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2009-06-14.jpg.webp)
 
-**2016:** The River Tour sequel resumes in The Hague, following Bruce and Patti's 25th wedding anniversary, with Bruce's 25th show in The Netherlands. To mark the occasion, Bruce tour premieres "From Small Things (Big Things One Day Come)," "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," and "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)." An unusual note: this show features an opening act, The Stereophonics. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14114/Bruce-Springsteen-mp3-flac-download-6-14-2016-Malieveld-The-Hague-NL.html).<br>
+**2016:** The River Tour sequel resumes in The Hague, following Bruce and Patti's 25th wedding anniversary, with Bruce's 25th show in The Netherlands. To mark the occasion, Bruce tour premieres "From Small Things (Big Things One Day Come)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)." An unusual note: this show features an opening act, The Stereophonics. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14114/Bruce-Springsteen-mp3-flac-download-6-14-2016-Malieveld-The-Hague-NL.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - From Small Things (Big Things One Day Come) {HD} | The Hague, NL | 14 June 2016](https://www.youtube.com/watch?v=RYgiJn3LaqA)
 

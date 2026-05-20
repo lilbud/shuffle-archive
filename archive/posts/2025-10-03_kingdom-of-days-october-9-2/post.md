@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Where The Bands Are (Credits) (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=7FrUma-rtZA)
 
-**1980:** The River Tour moves on to Detroit’s Cobo Arena, where Bruce and the boys close with a tour one-off of “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” (following the first “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” with “I Hear a Train” in it). After the show, Bruce is interviewed for the January 1981 issue of *Creem Magazine.*<br>
+**1980:** The River Tour moves on to Detroit’s Cobo Arena, where Bruce and the boys close with a tour one-off of “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)” (following the first “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” with “I Hear a Train” in it). After the show, Bruce is interviewed for the January 1981 issue of *Creem Magazine.*<br>
 
 [Watch Video Highlight](https://videopress.com/embed/nldSXriz)
 

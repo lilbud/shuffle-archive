@@ -76,7 +76,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2016-04-03.jpg.webp)
 
-**2023:** Another tour premiere for New York fans: Bruce surprises with "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" at Barclays Center in Brooklyn.<br>
+**2023:** Another tour premiere for New York fans: Bruce surprises with "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" at Barclays Center in Brooklyn.<br>
 
 [Watch on Youtube: It's hard to be a Saint in the City/ Springsteen &The E ST Band - Brooklyn 4/3/23 "Tour Debut"](https://www.youtube.com/watch?v=9Iz9bA8NHbc)
 

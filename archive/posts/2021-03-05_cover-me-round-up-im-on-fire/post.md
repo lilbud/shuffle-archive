@@ -1,6 +1,6 @@
 So I've had this dilemma for a while now: there are just too many great covers of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" out there.
 
-Over the past three years or so, I've featured no less than [sixteen covers](https://estreetshuffle.com/index.php/cover-index/) of Bruce's 1985 Top Ten single, but they keep multiplying at an accelerating pace.
+Over the past three years or so, I've featured no less than [sixteen covers](/cover-songs/) of Bruce's 1985 Top Ten single, but they keep multiplying at an accelerating pace.
 
 What is it about "I'm on Fire" that appeals to so many artists? I wish I knew. All I know is that I could start a blog solely focused on "I'm on Fire" covers and have plenty of material.
 

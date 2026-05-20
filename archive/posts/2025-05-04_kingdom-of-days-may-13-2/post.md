@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1982*<br>
 
-**1976:** Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines it should have been for $2,000,000, ramping up a legal battle that will keep Bruce out of the studio for some time to come. In the meantime, Bruce and the E Street Band bring the Chicken Scratch Tour to New Orleans for a single show at the Municipal Auditorium. This show features Bruce’s first performance of Gary U.S. Bonds’ “[New Orleans](https://estreetshuffle.com/index.php/2019/07/31/cover-me-new-orleans/)” and one of the longest-ever performances of “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/).”<br>
+**1976:** Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines it should have been for $2,000,000, ramping up a legal battle that will keep Bruce out of the studio for some time to come. In the meantime, Bruce and the E Street Band bring the Chicken Scratch Tour to New Orleans for a single show at the Municipal Auditorium. This show features Bruce’s first performance of Gary U.S. Bonds’ “[New Orleans](../2019-07-31-cover-me-new-orleans/post.md/)” and one of the longest-ever performances of “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen - NEW ORLEANS 1976 (audio)](https://www.youtube.com/watch?v=2X3eF9FgzgE)
 

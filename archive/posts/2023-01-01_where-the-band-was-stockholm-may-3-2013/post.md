@@ -24,7 +24,7 @@ The show starts off in familiar fashion for the *Wrecking Ball* Tour: "[We Take 
 
 [Watch Video Highlight](https://videopress.com/embed/cgvnjE9h)
 
-Tonight, however, Springsteen has other plans. After "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," he starts declaring his love for Sweden and Stockholm. He talks about his first visit to Stockholm in 1975. It was the band's first appearance outside the U.S., and he says that it was the album *Born to Run* that took them here. In 1975, the show was 16 songs long and a ticket cost about 5 Euro. They played for a crowd of 2000 in the small Concert Hall – they've come far since then.
+Tonight, however, Springsteen has other plans. After "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," he starts declaring his love for Sweden and Stockholm. He talks about his first visit to Stockholm in 1975. It was the band's first appearance outside the U.S., and he says that it was the album *Born to Run* that took them here. In 1975, the show was 16 songs long and a ticket cost about 5 Euro. They played for a crowd of 2000 in the small Concert Hall – they've come far since then.
 
 He admits that he has been thinking about how to surprise us tonight, and because of the Swedish fans' long history of supporting his music, he says he wants to play *Born to Run*, the album that started it all, from start to finish! What a treat! I, and the rest of the crowd, couldn't be more ecstatic!
 

@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0329.jpg.webp)
 
-**1988**: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)” below.<br>
+**1988**: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)” below.<br>
 
 [Watch on Youtube: Bruce Springsteen - "One Step Up" live in Detroit MI on March 29th 1988.](https://www.youtube.com/watch?v=RGj1gGvXJT8)
 

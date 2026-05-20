@@ -1,4 +1,4 @@
-Despite Bruce's admiration for Little Richard and his catalog, only two of Little Richard's three Number One R&B hits ("[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" and "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)") seem to make Bruce's set lists.
+Despite Bruce's admiration for Little Richard and his catalog, only two of Little Richard's three Number One R&B hits ("[Lucille](../1976-01-07_cover-me-lucille/post.md/)" and "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)") seem to make Bruce's set lists.
 
 Which one's missing in action? That would be "Rip It Up," which topped the R&B chart for two weeks in 1956.
 

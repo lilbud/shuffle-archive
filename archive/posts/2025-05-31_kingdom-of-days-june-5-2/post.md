@@ -70,7 +70,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live in Dublin](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZqlZZkO9kobqgum89LpuQ1)
 
-**2009:** Swedish fans at the second of three Working on a Dream shows in Stockholm are treated to the tour premiere of “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and the first of only three performances ever of “[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md).”<br>
+**2009:** Swedish fans at the second of three Working on a Dream shows in Stockholm are treated to the tour premiere of “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)” and the first of only three performances ever of “[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Downbound Train (Live Stockholm Stadion 2009 06 05)](https://www.youtube.com/watch?v=s9-T5AaHkik)
 
@@ -80,7 +80,7 @@
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Queen of the Supermarket, Stockholm 5th June 2009](https://www.youtube.com/watch?v=r9_wvmOitoo)
 
-**2016:** Bruce returns to Wembley Stadium in London, opening with two tour premieres: “[Does this Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” and “[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md).” Other highlights include the tour premiere of “[I’ll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)” (acoustic), and a dedication of “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” to the late, great Muhammad Ali.<br>
+**2016:** Bruce returns to Wembley Stadium in London, opening with two tour premieres: “[Does this Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)” and “[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md).” Other highlights include the tour premiere of “[I’ll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)” (acoustic), and a dedication of “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” to the late, great Muhammad Ali.<br>
 
 [Watch on Youtube: 2016-06-05 Bruce Springsteen - Does This Bus Stop At 82nd Street (solo piano)](https://www.youtube.com/watch?v=VV9Rtf21lO8)
 

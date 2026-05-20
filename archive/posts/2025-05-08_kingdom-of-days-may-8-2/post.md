@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Point Blank 1981 (Intro Speech, audio)](https://www.youtube.com/watch?v=c79ved0jczQ)
 
-**1982:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park for “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md),” “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/),” and “[Around and Around](../2020-02-26_cover-me-around-and-around/post.md).”<br>
+**1982:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park for “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md),” “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/),” “[Lucille](../1976-01-07_cover-me-lucille/post.md/),” and “[Around and Around](../2020-02-26_cover-me-around-and-around/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R)
 

@@ -18,7 +18,7 @@
 
 **1977:** Bruce and the E Street Band work on "Racing in the Street" at Atlantic Studios in New York City.<br>
 
-**1978:** Bruce opens his Darkness show in Charlotte with the tour premiere of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."<br>
+**1978:** Bruce opens his Darkness show in Charlotte with the tour premiere of "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0802.jpg.webp)
 
@@ -84,7 +84,7 @@
 
 **2007:** Three days ago, Bruce's dear friend and personal assistant Terry Magovern passed away. In his grief, Bruce writes a new song–"[Terry's Song](../2018-07-30_roll-of-the-dice-terrys-song/post.md)"–and performs it this day at Terry's memorial service in Red Bank.<br>
 
-**2008:** On a rainy night in Foxboro, Boston fans at Gillette Stadium enjoy two Magic Tour premieres: "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" and "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)," last played in 1995.<br>
+**2008:** On a rainy night in Foxboro, Boston fans at Gillette Stadium enjoy two Magic Tour premieres: "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" and "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," last played in 1995.<br>
 
 [Watch on Youtube: Bruce Springsteen- Latin Lupe Lu](https://www.youtube.com/watch?v=DU2LzvOjhjc)
 

@@ -1,6 +1,6 @@
 One of rock's greatest riffs was based on another one of rock's greatest riffs, and Bruce has played them both.
 
-"[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" is the more common of the two (forever associated by fans with the infamous "bomb scare show" of 1975); Bruce's version of "Get It On" is a lot more obscure.
+"[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)" is the more common of the two (forever associated by fans with the infamous "bomb scare show" of 1975); Bruce's version of "Get It On" is a lot more obscure.
 
 The original, of course, is well-known and instantly recognizable. T. Rex released it as a single in 1971, and it went all the way to #10 in the U.S. and to the top spot in the U.K.
 

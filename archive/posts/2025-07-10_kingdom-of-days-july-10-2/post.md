@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1971-07-10.jpg.webp)
 
-**1983:** Bruce joins Cats on a Smooth Surface for five songs at The Stone Pony in Asbury Park, including "[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)" and "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)."<br>
+**1983:** Bruce joins Cats on a Smooth Surface for five songs at The Stone Pony in Asbury Park, including "[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)" and "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)."<br>
 
 **1987:** Columbia Records producer, executive, and Bruce Springsteen-signer John Hammond passes away at the age of 76. Here's Bruce talking about his admiration for Hammond in an early interview.<br>
 

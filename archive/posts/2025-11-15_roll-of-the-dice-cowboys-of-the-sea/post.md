@@ -56,7 +56,7 @@ Yes, there's a concluding verse that touches on environmental and possibly class
 
 It's easy to understand why Bruce was so taken with his song; it's equally easy to understand why those around him did their best to distract him from it. The concept is clever, but the lyrics are clunky. (There a few neat internal rhymes, a device to which Bruce was quickly warming, but nothing as noteworthy or as artful as those he'd write shortly after.)
 
-The song is stronger musically, but if the acoustic arrangement sounds familiar, that's because it's a prototype for what would eventually make the album as "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)."
+The song is stronger musically, but if the acoustic arrangement sounds familiar, that's because it's a prototype for what would eventually make the album as "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)."
 
 The full-band version is more noteworthy. It's one of those Steel Mill holdover arrangements that feels ill-suited for The Bruce Springsteen Band (Sancious gets a workout, but not a challenge), and the unrivaled highlight of the track is Bruce's' blisteringly, jaw-droppingly fast mid-song guitar solo. It's an instructive example for those who wonder how Bruce had earned his reputation as the fastest guitar-slinger on the Jersey Shore.
 

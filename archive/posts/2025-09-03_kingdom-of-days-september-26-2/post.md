@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/The_Flint_Journal_1996_09_27_26.jpg.webp)
 
-**1997:** Bruce plays “[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” with Bobby Bandiera at Cheers in Long Branch.<br>
+**1997:** Bruce plays “[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)” and “[Lucille](../1976-01-07_cover-me-lucille/post.md/)” with Bobby Bandiera at Cheers in Long Branch.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1997-0926.jpg.webp)
 

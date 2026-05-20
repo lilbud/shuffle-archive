@@ -1,6 +1,6 @@
 No fooling: Lorde made her first public performing appearance in almost two years last night (I think so, anyway–I don't follow her as closely as I do Bruce) when she joined fellow New Zealand singer-songwriter Marlon Williams on stage at the Hollywood in Auckland.
 
-Together at the piano, Lorde and Marlon covered one of Bruce's best songs, "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)," and it was just beautiful.
+Together at the piano, Lorde and Marlon covered one of Bruce's best songs, "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)," and it was just beautiful.
 
 [Watch Video Highlight](https://videopress.com/embed/OxW9Zavv)
 

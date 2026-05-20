@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Bruce Springsteen & E Street Band snuck into James Taylor, Eric Clapton](https://www.youtube.com/watch?v=z771CnLdzO8)
 
-**1972:** A watershed day for Bruce: Mike Appel arranges a meeting and audition for Bruce with John Hammond at Hammond’s Columbia Records office in New York City. By the time Bruce finishes playing “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/),” Hammond knows he wants to sign Bruce.<br>
+**1972:** A watershed day for Bruce: Mike Appel arranges a meeting and audition for Bruce with John Hammond at Hammond’s Columbia Records office in New York City. By the time Bruce finishes playing “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/),” Hammond knows he wants to sign Bruce.<br>
 
 Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)“), and then Hammond asks how Bruce is with a live audience. Mike Appel immediately arranges a gig at the Gaslight Au Go Go for early that evening, opening for Garland Jeffreys and Charlie Musselwhite. Satisfied with the performance, Hammond invites Bruce to come down the next day to make a demo.
 
@@ -76,7 +76,7 @@ Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_r
 
 [Watch on Youtube: It's All Over Now - Soozie Tyrell ft. Bruce Springsteen (The Stone Pony, 2 May 2003)](https://www.youtube.com/watch?v=J_Q803Ov1QE)
 
-**2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” “[If I Should Fall Behind,](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” “[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md),” and “[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)” (in only its second performance ever).<br>
+**2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” “[If I Should Fall Behind,](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)” “[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md),” and “[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)” (in only its second performance ever).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/628Kn0VK)
 
@@ -112,7 +112,7 @@ Bruce plays three more songs (including “[If I Was the Priest](../2018-12-28_r
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2010-05-02.jpg.webp)
 
-**2012:** Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first “[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)” in 39 years, the tour premiere of “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/),” and a cover of “[The Weight](../2019-03-26_cover-me-the-weight/post.md)” in memory of Levon Helm.<br>
+**2012:** Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first “[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)” in 39 years, the tour premiere of “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/),” and a cover of “[The Weight](../2019-03-26_cover-me-the-weight/post.md)” in memory of Levon Helm.<br>
 
 [Watch on Youtube: Bruce Springsteen Bishop Danced 2012 05 02 Newark, NJ CamMix Dubbed HD 720p](https://www.youtube.com/watch?v=8YntGDsYzlY)
 

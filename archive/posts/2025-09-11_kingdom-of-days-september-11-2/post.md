@@ -26,13 +26,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1971-09-11.jpg.webp)
 
-**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce records “[Blinded by the Light”](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md) and “[Spirit in the Night,](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” the final tracks for his upcoming debut album.<br>
+**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce records “[Blinded by the Light”](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md) and “[Spirit in the Night,](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” the final tracks for his upcoming debut album.<br>
 
 [Watch on Youtube: Blinded By The Light](https://www.youtube.com/watch?v=xPy82OO6vRg)
 
 **1975:** Bruce cancels a scheduled gig at the University of Texas in Arlington.<br>
 
-**1981:** Bruce and the E Street Band wrap their three-night stand at Chicago’s Rosemont Horizon, tour premiering “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and playing “[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)” for the last time for fifteen years.<br>
+**1981:** Bruce and the E Street Band wrap their three-night stand at Chicago’s Rosemont Horizon, tour premiering “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” and playing “[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)” for the last time for fifteen years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QLurWoc7)
 

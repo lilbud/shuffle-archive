@@ -46,7 +46,7 @@ The incredible energy and sense of inclusiveness that exuded from the stage foun
 
 And so, this was to be my last show of the tour, as I could not attend nights 2 or 3 due to other commitments, and the tour moved on in October to other locales.
 
-I do have one more video clip for you, one that shows a few minutes of the Bruce/Jake interplay and ending of "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" – along with shots of the awesome video screens that magnify the show for all in attendance:
+I do have one more video clip for you, one that shows a few minutes of the Bruce/Jake interplay and ending of "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" – along with shots of the awesome video screens that magnify the show for all in attendance:
 
 [Watch on Youtube: Spirit in the Night clip - 9/19/12, MetLife Stadium, NJ](https://www.youtube.com/watch?v=ZXntp14dP3I)
 

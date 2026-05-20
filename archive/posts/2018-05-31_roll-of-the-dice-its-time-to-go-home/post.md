@@ -18,7 +18,7 @@ We're covering walking a dark, lonely road here: the narrator, like Bruce, is a 
 > *When you're standing in the middle of a crowd and you feel so alone*
 > *The party's over, it's time to go home*
 
-Is Bruce singing from his imagination, or is this how he truly experiences coming down from his on-stage high? We don't know, but [this would not be the last time Bruce would visit this theme](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/).
+Is Bruce singing from his imagination, or is this how he truly experiences coming down from his on-stage high? We don't know, but [this would not be the last time Bruce would visit this theme](../2011-01-19-roll-of-the-dice-hollywood-kids/post.md/).
 
 There's also a particularly revealing bridge that Bruce sings with such power and feeling that it's easy to believe it's personal:
 

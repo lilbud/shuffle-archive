@@ -28,7 +28,7 @@ Bruce and Jerry Lee got another chance at it a couple of years later in the summ
 
 Fans expected more from the pairing of legendary talent, but that night is remembered more for its ego-driven drama, both pre-show and on-stage. Chuck Berry’s antics get most of the attention in recounts, but Lewis and Berry were notoriously life-long rivals, and Lewis reportedly did not take well to Bruce and Chuck opening the show, with Lewis following. Bruce and the band were not feeling the moment that night, and it shows in their performance
 
-Curiously, Bruce and the E Street Band actually served as backing band for both Berry and Lewis [for one night](https://estreetshuffle.com/index.php/2020/04/28/kingdom-of-days-april-28/) when the two pioneers toured together back in 1973–so long ago that the E Street Band hadn’t even been named yet. Bruce recalled that night in a Chuck Berry documentary:
+Curiously, Bruce and the E Street Band actually served as backing band for both Berry and Lewis [for one night](../2025-04-28_kingdom-of-days-april-28-2/post.md/) when the two pioneers toured together back in 1973–so long ago that the E Street Band hadn’t even been named yet. Bruce recalled that night in a Chuck Berry documentary:
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZdWu4peTI3Y)
 

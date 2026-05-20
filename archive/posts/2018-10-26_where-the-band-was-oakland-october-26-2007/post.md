@@ -30,7 +30,7 @@ Turns out a break was coming: Bruce took the pace down a bit to get topical agai
 
 [Watch on Youtube: Bruce Springsteen - Living In The Future - AWESOME!!10/26/07](https://www.youtube.com/watch?v=ICGQohAC4AQ)
 
-I was looking forward to a Patti spotlight tonight–Bruce had been rotating her "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)" in and out of the setlist–but it wasn't to be. It was hard to be upset about it, though, when the consolation prize was "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" — the first time I'd heard that song live since its original tour.
+I was looking forward to a Patti spotlight tonight–Bruce had been rotating her "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)" in and out of the setlist–but it wasn't to be. It was hard to be upset about it, though, when the consolation prize was "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" — the first time I'd heard that song live since its original tour.
 
 [Watch on Youtube: 11. Tunnel Of Love (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=52Jc01mvBqA)
 

@@ -1,6 +1,6 @@
 David Bowie was the original Springsteen cover artist.
 
-In the summer of 1973, mere months after the release of Bruce's debut album, Bowie recorded [a cover of "Growin' Up"](https://estreetshuffle.com/index.php/2019/01/07/cover-me-david-bowie-growin-up/) for his *Pin Ups* album. It didn't make the final cut, though, and it would remain in Bowie's vault for another seventeen years.
+In the summer of 1973, mere months after the release of Bruce's debut album, Bowie recorded [a cover of "Growin' Up"](../2011-02-01_cover-me-david-bowie-growin-up/post.md/) for his *Pin Ups* album. It didn't make the final cut, though, and it would remain in Bowie's vault for another seventeen years.
 
 The following year, he did it again: Bowie recorded[a cover of "It's Hard to Be a Saint in the City,"](../2018-01-10_cover-me-david-bowie-its-hard-to-be-a-saint-in-the-city/post.md) and that one also lingered in the vault–this time for fifteen years.
 

@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Born in the U.S.A.](https://www.youtube.com/watch?v=tRx212PUa4g)
 
-**1987:** Bruce premieres the video for his latest single, “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” the first single from *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* Watch the video and news coverage below.<br>
+**1987:** Bruce premieres the video for his latest single, “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/),” the first single from *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* Watch the video and news coverage below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 

@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1971-0910.jpg.webp)
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” makes its tour premiere. If you can’t make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” makes its tour premiere. If you can’t make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1978-09-10a.jpg.webp)
 
@@ -36,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1985-0909.jpg.webp)
 
-**1988:** The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).”<br>
+**1988:** The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/).”<br>
 
 [Watch on Youtube: Human Rights now! Europe1988 1](https://www.youtube.com/watch?v=VvG4cv96YiI)
 

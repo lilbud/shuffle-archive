@@ -20,7 +20,7 @@ The lyrics are a series of streetscapes–the first from above, as a boy watches
 > *Take a chance with me tonight, my contessa*<br>
 > *If it don't work out I ain't lame, I can walk, hey!*<br>
 
-The second verse is grittier and streetier, with imagery reminiscent of "[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)" from the same period. It also features a lyric pairing too good to languish in obscurity:
+The second verse is grittier and streetier, with imagery reminiscent of "[Hollywood Kids](../2011-01-19-roll-of-the-dice-hollywood-kids/post.md/)" from the same period. It also features a lyric pairing too good to languish in obscurity:
 
 > *Now some folks think cancer's taken to the streets of this town*<br>
 > *But Sandy eats her candy and then lays her money down*<br>

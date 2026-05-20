@@ -8,9 +8,9 @@ If ever there was an early Springsteen outtake crying out for an official releas
 
 After all, without "If I Was the Priest" there's a chance we would never have heard of Bruce Springsteen let alone be discussing his work on a blog devoted to it.
 
-The broad bones of the story are well known: Way back on [May 2, 1972](https://estreetshuffle.com/index.php/2018/05/02/kingdom-of-days-may-2/), Bruce's manager Mike Appel smooth-talked and fast-talked his and Bruce's way into the office of legendary Columbia A&R man John Hammond. Bruce played a few songs for the skeptical but intrigued Hammond, and by the time he was done, Hammond knew he had a star on his hands.
+The broad bones of the story are well known: Way back on [May 2, 1972](../2025-05-02_kingdom-of-days-may-2-2/post.md/), Bruce's manager Mike Appel smooth-talked and fast-talked his and Bruce's way into the office of legendary Columbia A&R man John Hammond. Bruce played a few songs for the skeptical but intrigued Hammond, and by the time he was done, Hammond knew he had a star on his hands.
 
-But the audition wasn't without its bumps: Hammond loved "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)," but wasn't particularly enamored with "[Mary, Queen of Arkansas.](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" Still not completely won over, he asked Bruce if he had anything "way out there," something he wouldn't dream of performing live.
+But the audition wasn't without its bumps: Hammond loved "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)," but wasn't particularly enamored with "[Mary, Queen of Arkansas.](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" Still not completely won over, he asked Bruce if he had anything "way out there," something he wouldn't dream of performing live.
 
 Bruce obliged him with "If I Was the Priest" (even though he almost certainly played it during his 1971 residency at The Student Prince in Asbury Park).
 
@@ -18,7 +18,7 @@ Hammond was knocked out by the song's mashup of Catholic and old west imagery, a
 
 Bruce has never released "If I Was the Priest," even though Alan Clarke covered it in 1975 and no less than three of Bruce's performances exist in bootleg form.
 
-Why? Who knows. It certainly doesn't rank among Bruce's best work, but then again this is a man who officially released "[Baby I](https://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/)." For historical significance alone, the vault cries out for its release.
+Why? Who knows. It certainly doesn't rank among Bruce's best work, but then again this is a man who officially released "[Baby I](../2018-12-20-roll-of-the-dice-baby-i/post.md/)." For historical significance alone, the vault cries out for its release.
 
 The song itself is no slouch though–in fact, it may be the best early prototype of a Springsteen "epic" song, ambitious in its reach, audacious in its content, and in a departure for Bruce he performed it solo on the piano.
 

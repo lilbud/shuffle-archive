@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1969-0901.jpg.webp)
 
-**1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of "[It's Time to Go Home,](../2018-05-31_roll-of-the-dice-its-time-to-go-home/post.md)" covers of "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)," "[(Get Your Kicks On) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/)" and "[The Night They Drove Old Dixie Down](../2020-06-13_cover-me-the-night-they-drove-old-dixie-down/post.md)," the fun "[Dance Dance Dance](../2018-06-22_roll-of-the-dice-dance-dance-dance/post.md)" and more.<br>
+**1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of "[It's Time to Go Home,](../2018-05-31_roll-of-the-dice-its-time-to-go-home/post.md)" covers of "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)," "[(Get Your Kicks On) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/)" and "[The Night They Drove Old Dixie Down](../2020-06-13_cover-me-the-night-they-drove-old-dixie-down/post.md)," the fun "[Dance Dance Dance](../2018-06-22_roll-of-the-dice-dance-dance-dance/post.md)" and more.<br>
 
 [Watch on Youtube: Bruce Springsteen Band - ROUTE 66 1971 (audio)](https://www.youtube.com/watch?v=I1hdt69lcSw)
 
@@ -16,7 +16,7 @@
 
 **1977:** Recording sessions for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) continue at The Record Plant in New York City.<br>
 
-**1978:** Darkness descends on the Masonic Temple Theater in Detroit, where Bruce and the band debut their cover of "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" and play the last known ["Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" for 22 years.<br>
+**1978:** Darkness descends on the Masonic Temple Theater in Detroit, where Bruce and the band debut their cover of "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" and play the last known ["Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" for 22 years.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live at Detroit 1978 (01/09/1978)](https://www.youtube.com/watch?v=_VGPkBaF0X0)
 
@@ -32,7 +32,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/1984-09-01-AT40.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/1984-09-01-AT40.mp3)
 
-**1985:** Bruce wraps up a six-show Giants Stadium stand on the Born in the U.S.A. Tour with the final "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" of the tour.<br>
+**1985:** Bruce wraps up a six-show Giants Stadium stand on the Born in the U.S.A. Tour with the final "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" of the tour.<br>
 
 [Watch on Youtube: Bruce Springsteen - Fire (Live) Giants Stadium New Jersey - September 1st 1985](https://www.youtube.com/watch?v=Emg8kiqwMmg)
 
@@ -48,7 +48,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 [https://estreetshuffle.com/wp-content/uploads/2025/09/Track_01__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2025/09/Track_01__Merged.mp3)
 
-**2001:** Bruce joins Clarence Clemons and the Temple of Soul on stage at The Stone Pony in Asbury Park. Their performance of "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" will be released three years later on Clarence's *Live in Asbury Park Vol. II* album.<br>
+**2001:** Bruce joins Clarence Clemons and the Temple of Soul on stage at The Stone Pony in Asbury Park. Their performance of "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)" will be released three years later on Clarence's *Live in Asbury Park Vol. II* album.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fH8ltr8g)
 
@@ -86,6 +86,6 @@ That evening, *Springsteen on Broadway* continues its final week of shows at the
 
 [Watch on Youtube: Bruce Springsteen - Don't Play That Song (Official Video)](https://www.youtube.com/watch?v=6bM3L296ZNw)
 
-**2023:** Bruce and the E Street Band play their second of two shows at MetLife Stadium in East Rutherford, where "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" makes its tour debut.<br>
+**2023:** Bruce and the E Street Band play their second of two shows at MetLife Stadium in East Rutherford, where "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" makes its tour debut.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Spirit In The Night - East Rutherford, NJ - 01/09/2023](https://www.youtube.com/watch?v=q7MFUZfuy8E)

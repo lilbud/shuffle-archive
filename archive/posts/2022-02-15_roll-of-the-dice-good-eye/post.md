@@ -6,7 +6,7 @@ Bruce Springsteen was singing the blues long before he signed his first record d
 
 Conceived and recorded in true Chicago fashion (except for perhaps the harmonica loop shortcut Bruce uses throughout the track), "Good Eye" is a deceptively simple track. Musically, it storms and stomps; lyrically it howls and wails. Bruce makes arguably his best use to date of the bullet microphone he was so fond of in the mid-aughts, producing vocal distortion that further shades his already dark lyrics.
 
-About those lyrics: Bruce wrote a total of six lines for a three-minute song. It's a testament to his economical songwriting skill that he says as much in those six lines as he did in the six verses of "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)" two decades earlier.
+About those lyrics: Bruce wrote a total of six lines for a three-minute song. It's a testament to his economical songwriting skill that he says as much in those six lines as he did in the six verses of "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)" two decades earlier.
 
 And that's not an arbitrary comparison: one can make a strong argument that "Good Eye" and "Cautious Man" are thematically the same song.
 

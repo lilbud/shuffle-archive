@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1970-08-28.jpg.webp)
 
-**1978:** Bruce tour premieres “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” by request at his Darkness show in Pittsburgh. Elsewhere, Columbia Records produces new commercials to promote *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md),* and *Rolling Stone* publishes their first of what will prove to be many cover features of Bruce.<br>
+**1978:** Bruce tour premieres “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)” by request at his Darkness show in Pittsburgh. Elsewhere, Columbia Records produces new commercials to promote *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md),* and *Rolling Stone* publishes their first of what will prove to be many cover features of Bruce.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/rs272.jpg.webp)
 

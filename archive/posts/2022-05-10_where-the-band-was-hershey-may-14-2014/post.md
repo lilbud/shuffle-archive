@@ -16,7 +16,7 @@ to a couple of classic River outtakes (“[Be True](../2020-12-02_roll-of-the-di
 
 [Watch on Youtube: Bruce Springsteen - Roulette - Hersheypark Stadium - May 14, 2014](https://www.youtube.com/watch?v=ViQqrhhyqLo)
 
-…a great rendition of “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)…”
+…a great rendition of “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)…”
 
 [Watch on Youtube: Bruce Springsteen Lost In The Flood Live at Hershey Park Stadium, PA 5-14-14 (Part 3)](https://www.youtube.com/watch?v=BrEJmWww6yw)
 

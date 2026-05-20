@@ -6,7 +6,7 @@ Verses and sometimes just fragments or phrases will loiter in his notebook for y
 
 And then there's "Party Lights," the product of so much Springsteenian in-breeding that it would be a joke–if it wasn't so darn catchy.
 
-Buried deep on the outtake disc that accompanies *The Ties That Bind: The River Collection*, "Party Lights" is two parts "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," one-and-a-half parts "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," and *almost* a heaping dollop of "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" before Bruce thought better of it and swapped it for a riff almost certainly influenced by Tom Petty's "Listen to Her Heart" (released just a year prior).
+Buried deep on the outtake disc that accompanies *The Ties That Bind: The River Collection*, "Party Lights" is two parts "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," one-and-a-half parts "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," and *almost* a heaping dollop of "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" before Bruce thought better of it and swapped it for a riff almost certainly influenced by Tom Petty's "Listen to Her Heart" (released just a year prior).
 
 Check out the official video(!) below:
 

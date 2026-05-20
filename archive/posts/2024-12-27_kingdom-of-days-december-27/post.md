@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1973-1227.jpg.webp)
 
-**1975:** Bruce and the band play their first of a four-night year-closing stand at the Tower Theater in Philadelphia. Tonight sees the tour premiere of "[Back in the U.S.A.](https://estreetshuffle.com/index.php/2019/03/11/cover-me-back-in-the-u-s-a/)" and the last full-band "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" for 25 years.<br>
+**1975:** Bruce and the band play their first of a four-night year-closing stand at the Tower Theater in Philadelphia. Tonight sees the tour premiere of "[Back in the U.S.A.](../1976-01-03_cover-me-back-in-the-u-s-a/post.md/)" and the last full-band "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" for 25 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Lost in the Flood" - Philadelphia, 1975-12-27](https://www.youtube.com/watch?v=zLwM0wC1Kg4)
 

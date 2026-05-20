@@ -8,7 +8,7 @@ Or perhaps they're both from the groom-to-be. "If I Should Fall Behind" sounds l
 
 Regardless, both songs reveal the significance of Bruce's second wedding day to him as both songwriter and a husband.
 
-Rewind to the aftermath of Bruce's first wedding, and we find songs like "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" and "[The Wish,](../2018-06-23_roll-of-the-dice-the-wish/post.md)" where Bruce's focus is on his parents, as if he chose to settle down at least in part for their approval.
+Rewind to the aftermath of Bruce's first wedding, and we find songs like "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" and "[The Wish,](../2018-06-23_roll-of-the-dice-the-wish/post.md)" where Bruce's focus is on his parents, as if he chose to settle down at least in part for their approval.
 
 We also find "[The Honeymooners,](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)" very similar in structure to "Book of Dreams," but with a narrator who sees marriage as at least a lark and at best a fairy tale.
 
@@ -41,7 +41,7 @@ Bruce's new story begins in verse number two, and it begins very similarly to "T
 
 That third verse is important. Taking place after the guests have gone home and the lovers retire to the bedroom, the singer is no longer an observer. He is both physically and emotionally connected to his bride-to-be, and the fact that he suddenly loses his vivid powers of observation that characterized the song up until this point is very, very significant. The groom is all in, Bruce is telling us, and his journey from here on out takes us places the eye can't see.
 
-In the final verse, the wedding day has arrived, and Bruce fully recognizes its power and mystery. As he previously wrote in "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and would someday warn in "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)," he knows there are parts of themselves that they'll never truly share or see, but that's part of what makes their pact so significant. He embraces it rather than fears it.
+In the final verse, the wedding day has arrived, and Bruce fully recognizes its power and mystery. As he previously wrote in "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and would someday warn in "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)," he knows there are parts of themselves that they'll never truly share or see, but that's part of what makes their pact so significant. He embraces it rather than fears it.
 
 The penultimate lines of the song are a callback to "If I Should Fall Behind" (if you can call it a callback when the preceding song is on the flip side of the same album), further cementing the notion that both songs are about the same characters:
 

@@ -43,7 +43,7 @@ Now he's got the cash to back up the image he's carefully groomed. He's set now�
 
 The Appel audition was on February 14, 1972–their second meeting. Appel had been unimpressed the first time around, but he was taken by the new batch of material Bruce performed on this day, songs that Bruce explained he had written just a couple of months earlier. Appel was so taken by "Saint in the City" that he made Bruce play it again.
 
-Appel immediately began to work on signing Bruce (which he did a month later), and on [May 2](https://estreetshuffle.com/index.php/2018/05/02/kingdom-of-days-may-2/), Appel talked his way into an audition for Bruce with the legendary John Hammond at Columbia Records. Hammond–like Appel–was hooked upon hearing "It's Hard to Be a Saint in the City."
+Appel immediately began to work on signing Bruce (which he did a month later), and on [May 2](../2025-05-02_kingdom-of-days-may-2-2/post.md/), Appel talked his way into an audition for Bruce with the legendary John Hammond at Columbia Records. Hammond–like Appel–was hooked upon hearing "It's Hard to Be a Saint in the City."
 
 The very next day, Bruce was recording demo tracks–fourteen of them–with Hammond at Columbia, and one of them was this acoustic version of "Saint in the City" — the one you can find on *Tracks*.
 

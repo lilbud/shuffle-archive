@@ -10,7 +10,7 @@ Three years later, [he took Bruce's deep cut "For You" to #15](../2018-06-14_cov
 
 But Mann actually covered another [*Greetings From Asbury Park, N.J.*](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) track even earlier–so early, in fact, that Bruce wasn't even cool yet.
 
-The Earth Band released two different covers of Bruce Springsteen's "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" in back-to-back years, with two different vocalists. Both versions charted, which probably would have annoyed the original artist just a tiny bit if he hadn't already broken through on his own by the time the second one hit.
+The Earth Band released two different covers of Bruce Springsteen's "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" in back-to-back years, with two different vocalists. Both versions charted, which probably would have annoyed the original artist just a tiny bit if he hadn't already broken through on his own by the time the second one hit.
 
 Their 1975 album *Nightingales & Bombers* led off with a lengthy, groovy cover of "Spirits in the Night" (the "s" would maddeningly come and go over the years with various edits and re-issues).
 

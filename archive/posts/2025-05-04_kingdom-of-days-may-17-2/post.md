@@ -4,7 +4,7 @@
 
 [Watch on Youtube: Bruce Springsteen - JOHNNY BYE BYE 1981 (audio)](https://www.youtube.com/watch?v=m4LeZxuFzvY)
 
-**1993:** Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of “[It’s All Right](https://estreetshuffle.com/index.php/2018/07/19/cover-me-its-all-right/).”<br>
+**1993:** Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of “[It’s All Right](../1976-01-25-cover-me-its-all-right/post.md/).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/kIYpIL7d)
 
@@ -58,7 +58,7 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 [Watch on Youtube: Springsteen gospel blues jam soundcheck Barcelona 170512](https://www.youtube.com/watch?v=43OA9MuzoGU)
 
-**2014:** The first night of a jaw-dropping two-night closing stand for the High Hopes Tour in an unusual venue: the Mohegan Sun Casino in Uncasville, Connecticut. The set list features an embarrassment of riches from the opening “[Racing in the Street ’78](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” to the tour premiere of “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” and “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” to the closing “Thunder Road.” Little Steven makes his unannounced and triumphant return to the band for these last two shows. For many more highlights from this incredible show, see my [*Where the Band Was* report](../2018-05-17_where-the-band-was-uncasville-may-17-2014/post.md) from this night.<br>
+**2014:** The first night of a jaw-dropping two-night closing stand for the High Hopes Tour in an unusual venue: the Mohegan Sun Casino in Uncasville, Connecticut. The set list features an embarrassment of riches from the opening “[Racing in the Street ’78](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” to the tour premiere of “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)” and “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)” to the closing “Thunder Road.” Little Steven makes his unannounced and triumphant return to the band for these last two shows. For many more highlights from this incredible show, see my [*Where the Band Was* report](../2018-05-17_where-the-band-was-uncasville-may-17-2014/post.md) from this night.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yI8lgGav)
 

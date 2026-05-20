@@ -14,7 +14,7 @@
 
 **1974:** Bruce and the band play a show at Fairleigh Dickinson University.<br>
 
-**1976:** The Chicken Scratch Tour moves on to Auburn University in Alabama, where a few songs were captured on Super-8 color film. Friend of the blog Bud McLaughlin [shares why Bruce went into the stands](https://buddmclaughlin.blogspot.com/2013/07/springsteen-i-even-noses.html) on "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)."<br>
+**1976:** The Chicken Scratch Tour moves on to Auburn University in Alabama, where a few songs were captured on Super-8 color film. Friend of the blog Bud McLaughlin [shares why Bruce went into the stands](https://buddmclaughlin.blogspot.com/2013/07/springsteen-i-even-noses.html) on "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)."<br>
 
 [Watch on Youtube: 10th Avenue Freeze Out - Bruce Springsteen 1976](https://www.youtube.com/watch?v=YreeqdgfHm8)
 

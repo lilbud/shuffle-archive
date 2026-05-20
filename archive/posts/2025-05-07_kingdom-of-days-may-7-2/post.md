@@ -78,7 +78,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2009-05-07.jpg.webp)
 
-**2013:** At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" for the first time on the tour and open the encores with a rare "[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md)."<br>
+**2013:** At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" for the first time on the tour and open the encores with a rare "[Queen of the Supermarket](../2018-10-04_roll-of-the-dice-queen-of-the-supermarket/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - My Lucky Day](https://www.youtube.com/watch?v=QuKwfdLA4gQ)
 

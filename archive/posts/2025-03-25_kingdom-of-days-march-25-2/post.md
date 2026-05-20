@@ -16,7 +16,7 @@
 
 That evening, Bruce catches The Ramones playing at The Fast Lane in Asbury Park. Backstage, Joey Ramone asks Bruce to write a song for them. Bruce starts writing "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" that very night.
 
-**1984:** Bruce joins Cats on a Smooth Surface on-stage at The Stone Pony in Asbury Park for "[I'm Bad, I'm Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md)" and "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."<br>
+**1984:** Bruce joins Cats on a Smooth Surface on-stage at The Stone Pony in Asbury Park for "[I'm Bad, I'm Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md)" and "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
 **1996:** Bruce performs "[Dead Man Walkin'](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md)" at the Academy Awards, where it is nominated (but loses) for Best Original Song. Watch the CNN news coverage and full performance:<br>
 

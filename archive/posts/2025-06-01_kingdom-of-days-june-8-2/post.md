@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1991-06-08.jpg.webp)
 
-**2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” for the occasion.<br>
+**2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” for the occasion.<br>
 
 [Watch on Youtube: Bruce Springsteen - YOU'RE MISSING (live @ Firenze)](https://www.youtube.com/watch?v=k7xqgp6x-44)
 

@@ -112,7 +112,7 @@ Meanwhile, Mike Appel's and Marc Eliot's new tell-all *Down Thunder Road* garner
 
 [Watch Video Highlight](https://videopress.com/embed/Vs5YaOAh)
 
-**2005:** At his solo acoustic show at Philips Arena in Atlanta, Bruce stuns fans with back-to-back live debuts of "[Sad Eyes](../2019-10-08_roll-of-the-dice-sad-eyes/post.md)" and "[Valentine's Day.](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)"<br>
+**2005:** At his solo acoustic show at Philips Arena in Atlanta, Bruce stuns fans with back-to-back live debuts of "[Sad Eyes](../2019-10-08_roll-of-the-dice-sad-eyes/post.md)" and "[Valentine's Day.](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)"<br>
 
 [Watch on Youtube: Bruce Springsteen - SAD EYES 2005](https://www.youtube.com/watch?v=7jxFax6wy-Q)
 
@@ -146,7 +146,7 @@ Meanwhile, Mike Appel's and Marc Eliot's new tell-all *Down Thunder Road* garner
 
 [Watch on Youtube: I'm On Fire - Bruce Springsteen - Bergen, Norway 2012-07-23](https://www.youtube.com/watch?v=fe5flXU5sQI)
 
-**2013:** Bruce and the E Street Band play a memorable show in Cardiff, opening with "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)" (he will reprise it in the encores) and closing with an acoustic "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" and "Thunder Road." In between, there was the live debut of "[TV Movie](../2020-05-11_roll-of-the-dice-tv-movie/post.md)," rare outings for "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" and "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)," the first "[We Gotta Get Out of This Place](../2022-03-17_matr-bruce-springsteen-and-eric-burdon-we-gotta-get-out-of-this-place/post.md)" in 37 years (and featuring a guest appearance by Eric Burdon from The Animals, who recorded the original).<br>
+**2013:** Bruce and the E Street Band play a memorable show in Cardiff, opening with "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)" (he will reprise it in the encores) and closing with an acoustic "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" and "Thunder Road." In between, there was the live debut of "[TV Movie](../2020-05-11_roll-of-the-dice-tv-movie/post.md)," rare outings for "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" and "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)," the first "[We Gotta Get Out of This Place](../2022-03-17_matr-bruce-springsteen-and-eric-burdon-we-gotta-get-out-of-this-place/post.md)" in 37 years (and featuring a guest appearance by Eric Burdon from The Animals, who recorded the original).<br>
 
 [Watch on Youtube: Bruce Springsteen - 2013-07-23 Cardiff - TV Movie (world debut)](https://www.youtube.com/watch?v=oGyff2FdcxE)
 

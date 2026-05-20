@@ -45,7 +45,7 @@ But our narrator wears his broken heart as a badge of honor, and he refuses to l
 
 How rooted in actual events was "Southern Sun"? Did Bruce really meet his Delta Queen en route to California in the winter of 1971? I suppose only Bruce or Tinker can answer that, and I doubt either have ever been asked about it.
 
-"Southern Sun" is a slight song, and it's easy to see why Hammond wasn't fond of it given the other songs Bruce demoed that day: "Growin' Up," "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)," [It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)," just to name a few.
+"Southern Sun" is a slight song, and it's easy to see why Hammond wasn't fond of it given the other songs Bruce demoed that day: "Growin' Up," "[If I Was the Priest](../2018-12-28_roll-of-the-dice-if-i-was-the-priest/post.md)," [It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)," just to name a few.
 
 Still, Bruce took another crack at recording the song a few weeks later. This is a more confident performance, but the song itself is no stronger.
 

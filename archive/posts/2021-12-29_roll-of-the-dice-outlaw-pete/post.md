@@ -47,7 +47,7 @@ And he does it against a Morricone-inspired, carefully crafted backing track (th
 
 It is breathtakingly effective.
 
-"Outlaw Pete" is the story of a man who tries his best to outrun his past, and for a while, he's successful. But what Bruce realized in the years since he introduced us to Frankie in "Highway Patrolman," Wilson in "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)," and Bill in "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)," is that if stories last long enough, the past *always* catches up.
+"Outlaw Pete" is the story of a man who tries his best to outrun his past, and for a while, he's successful. But what Bruce realized in the years since he introduced us to Frankie in "Highway Patrolman," Wilson in "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)," and Bill in "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)," is that if stories last long enough, the past *always* catches up.
 
 It's my wont to summarize the song in these essays, but in this case the author himself does it pretty well. In that same interview with Mark Hagen, Bruce described Pete's motivation:
 

@@ -2,13 +2,13 @@ When Bruce gathered the E Street Band at the Expo Theater in Fort Monmouth to re
 
 [Watch Video Highlight](https://videopress.com/embed/6TPI8gbd)
 
-But when the Express left the station, "When You're Alone" was left… well, not quite alone (since "[Valentine's Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)" didn't make the final set list either), but pretty close to it.
+But when the Express left the station, "When You're Alone" was left… well, not quite alone (since "[Valentine's Day](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)" didn't make the final set list either), but pretty close to it.
 
 With only a dozen outings since its release on *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*32 years ago (none of them on the original tour), "When You're Alone" is one of the least-played songs from the album. Even when he does play it, Bruce always seems somewhat ambivalent toward it, never commenting on the meaning, context, or genesis of the song.
 
 We're left to our own devices to intuit the reasons for Bruce's aversion to "When You're Alone," but I imagine most fans would arrive at a common hypothesis in pretty short order.
 
-While we don't know the exact recording date for "When You're Alone," I suspect it was one of the later songs to be written and laid down. *Tunnel of Love* started with songs that skirted the periphery of marriage; "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" and "[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)" were captured on the very first day of recording sessions in January 1987. When the album was completed in the early days of summer, Bruce had zeroed in on the heart of relationships; "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" was the last song recorded, with "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)" shortly before it.
+While we don't know the exact recording date for "When You're Alone," I suspect it was one of the later songs to be written and laid down. *Tunnel of Love* started with songs that skirted the periphery of marriage; "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" and "[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)" were captured on the very first day of recording sessions in January 1987. When the album was completed in the early days of summer, Bruce had zeroed in on the heart of relationships; "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" was the last song recorded, with "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" shortly before it.
 
 "When You're Alone" sounds like it was written with the latter group, and if we're to read anything into the arc of Bruce's songwriting, it would appear that over the course of the first half of the year, the reality of his dissolving marriage to Julianne Phillips had begun to sink in.
 

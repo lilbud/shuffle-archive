@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1988-08-03.jpg.webp)
 
-**2005:** Bruce opens his solo acoustic show in Grand Rapids with the tour premiere of “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/).” Later in the show, Bruce also tour premieres “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)” and “[It’s Hard to Be a Saint in the City.](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” It’s a fantastic performance, captured in full as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,18918/Bruce-Springsteen-mp3-flac-download-8-3-2005-Van-Andel-Arena-Grand-Rapids-MI.html).<br>
+**2005:** Bruce opens his solo acoustic show in Grand Rapids with the tour premiere of “[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/).” Later in the show, Bruce also tour premieres “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)” and “[It’s Hard to Be a Saint in the City.](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” It’s a fantastic performance, captured in full as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,18918/Bruce-Springsteen-mp3-flac-download-8-3-2005-Van-Andel-Arena-Grand-Rapids-MI.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - Odds and Sods Rarities - Tunnel Of Love Live 2005 - electric piano](https://www.youtube.com/watch?v=6tmhf6NPoe4)
 

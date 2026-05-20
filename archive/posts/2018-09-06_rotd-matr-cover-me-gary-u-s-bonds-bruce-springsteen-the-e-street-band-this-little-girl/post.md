@@ -8,7 +8,7 @@ I've already written about "[Your Love](../2018-07-27_cover-me-gary-u-s-bonds-yo
 
 It's also the only one of the three Bruce-penned songs on which you can actually and clearly hear Bruce singing and playing (along with the rest of the E Street Band). Hence my difficulty in knowing how to classify it: it's an original, a cover, and a team-up all at the same time.
 
-Musically, "This Little Girl" is clearly in Bonds' wheelhouse: it has the same beat and syncopated hand claps of "[Quarter to Three,](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)" Bonds' biggest hit, and it seems clearly designed to evoke associations with it while re-introducing Bonds to a new audience.
+Musically, "This Little Girl" is clearly in Bonds' wheelhouse: it has the same beat and syncopated hand claps of "[Quarter to Three,](../2021-08-21-cover-me-quarter-to-three/post.md/)" Bonds' biggest hit, and it seems clearly designed to evoke associations with it while re-introducing Bonds to a new audience.
 
 [Watch on Youtube: Gary U.S. Bonds : Quarter To Three ( 1961 )](https://www.youtube.com/watch?v=hoopfp5iaKw)
 

@@ -74,7 +74,7 @@ That evening, Bruce and the band play a benefit rehearsal show, where they debut
 
 [Watch on Youtube: 'Springsteen On Broadway' Lottery](https://www.youtube.com/watch?v=HWYbyDskN74)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" with Patti.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" with Patti.<br>
 
 **2019:** Bruce spends the day at his daughter's equestrian competition in New York. That evening, he stops by his hometown of Freehold to visit the opening of the Monmouth County Historical Association Museum's new exhibit, *Springsteen: His Home Town.* After touring the exhibit, Bruce surprises the assembled crowd by taking the stage with Joe Grushecky and The Houserockers for their opening number, "[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)." For more highlights from this event, see my first-hand [*Where the Band Was* report](../2020-09-28_where-the-band-was-freehold-september-28-2019/post.md).<br>
 

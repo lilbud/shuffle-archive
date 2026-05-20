@@ -1,4 +1,4 @@
-Sam Cooke's "A Change Is Gonna Come" predicted the achievements of the American Civil Rights movement, but tragically Cooke never lived to see them. In fact, he never even got to see how influential his song became, because he died mere days before the single was released (oddly, as a B-side to "[Shake](https://estreetshuffle.com/index.php/2018/04/15/cover-me-shake/)").
+Sam Cooke's "A Change Is Gonna Come" predicted the achievements of the American Civil Rights movement, but tragically Cooke never lived to see them. In fact, he never even got to see how influential his song became, because he died mere days before the single was released (oddly, as a B-side to "[Shake](../1976-01-12_cover-me-shake/post.md/)").
 
 Intensely and intimately autobiographical, Cooke's song was a marked departure for the romantic soul singer, but after experiencing acts of racism repeatedly, he was compelled to write about it. Born from first hand experience, the song came naturally, with lush orchestration that builds throughout the song and conveys a sense of determination that will not be denied.
 

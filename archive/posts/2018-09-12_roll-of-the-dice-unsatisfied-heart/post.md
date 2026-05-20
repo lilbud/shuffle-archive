@@ -46,7 +46,7 @@ We never learn the singer's secret, either in "Fugitive's Dream" or in "Unsatisf
 
 In "Fugitive's Dream" it's implied that the secret is more sinister, and while that song ends on a similar reflective scene, its imagery is darker and lonelier.
 
-In a sense, "Fugitive's Dream" presaged the style of songwriting that would feature heavily on *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)*, and "Unsatisfied Heart" might have been right at home on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md). The closing lines of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" would fit aptly here:
+In a sense, "Fugitive's Dream" presaged the style of songwriting that would feature heavily on *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)*, and "Unsatisfied Heart" might have been right at home on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md). The closing lines of "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" would fit aptly here:
 
 > *God have mercy on the man who doubts what he's sure of.*
 

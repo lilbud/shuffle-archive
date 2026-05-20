@@ -10,7 +10,7 @@ Sure enough, leading off the encore was "[We Shall Overcome](../2018-08-15_roll-
 
 [Watch on Youtube: Bruce Springsteen - We Shall Overcome - Cape Town - Bellville - 2014-01-26](https://www.youtube.com/watch?v=PE2lhLHeDBw)
 
-But Bruce must have had Pete Seeger on his mind the whole night, because interspersed throughout the set were two other Seeger tour staples not seen since 2006: the swing arrangement of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," and "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)."
+But Bruce must have had Pete Seeger on his mind the whole night, because interspersed throughout the set were two other Seeger tour staples not seen since 2006: the swing arrangement of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," and "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)."
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - CAPETOWN 28.01.2014 - OPEN ALL NIGHT](https://www.youtube.com/watch?v=HknI8UFAdbE)
 

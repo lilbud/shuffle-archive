@@ -54,7 +54,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Bruce Springsteen Night Gothenburg 05/07/2008](https://www.youtube.com/watch?v=15TaIa02qc0)
 
-**2009:** Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” outside of the U.S. for the first time, along with the tour premieres of “Into the Fire” and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
+**2009:** Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” outside of the U.S. for the first time, along with the tour premieres of “Into the Fire” and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Proud Mary Vienna 05.07.2009](https://www.youtube.com/watch?v=KGGHLdDWLxM)
 

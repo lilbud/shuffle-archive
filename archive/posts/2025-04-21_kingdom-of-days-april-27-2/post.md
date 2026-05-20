@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1983-0427.jpg.webp)
 
-**1988:** At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres “[Across the Borderline](../2022-03-26_matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/post.md)” and records “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” and “Born to Run” for inclusion on *Chimes of Freedom* and *Video Anthology*.<br>
+**1988:** At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres “[Across the Borderline](../2022-03-26_matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/post.md)” and records “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” and “Born to Run” for inclusion on *Chimes of Freedom* and *Video Anthology*.<br>
 
 [Watch on Youtube: Bruce Springsteen - Tougher Than the Rest (Official Video)](https://www.youtube.com/watch?v=_91hNV6vuBY)
 

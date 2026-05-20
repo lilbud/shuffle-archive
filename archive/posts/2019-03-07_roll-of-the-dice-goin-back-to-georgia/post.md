@@ -2,7 +2,7 @@ In later years, we'd call it an homage; in earlier years, we'd call it imitation
 
 One of the best early examples of this is Bruce's Steel Mill/Bruce Springsteen Band-era song, "Goin' Back to Georgia," one of the very first songs Bruce ever recorded in the studio.
 
-In fact, it was only his second time ever in a recording studio. [The first time](https://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/) was with his high school band, The Castiles, in his hometown of Freehold in 1966. Four years later, it was Bruce's band Steel Mill with him at Pacific Recording Studio in San Mateo, at the invitation of local promoter Bill Graham following a couple of very successful gigs at Graham's Filmore West club.
+In fact, it was only his second time ever in a recording studio. [The first time](../2018-12-20-roll-of-the-dice-baby-i/post.md/) was with his high school band, The Castiles, in his hometown of Freehold in 1966. Four years later, it was Bruce's band Steel Mill with him at Pacific Recording Studio in San Mateo, at the invitation of local promoter Bill Graham following a couple of very successful gigs at Graham's Filmore West club.
 
 The band knocked out three songs in a single take each, and one of them was this recording of "Goin' Back to Georgia." Take a listen and see if you can pick out the band he had in mind when he did this one.
 

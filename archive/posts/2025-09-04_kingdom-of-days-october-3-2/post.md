@@ -36,7 +36,7 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN : ROCK BABY ROCK ( with the cats on a smooth surface )](https://www.youtube.com/watch?v=vJg4g-kUrbs)
 
-**1987:** A couple of days ahead of the album it comes from, the first single from *Tunnel of Love* is released: “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/).”<br>
+**1987:** A couple of days ahead of the album it comes from, the first single from *Tunnel of Love* is released: “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
@@ -88,7 +88,7 @@
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - This Little Light of Mine (Live In Dublin)](https://www.youtube.com/watch?v=R0qAYq1GVec)
 
-**2009:** Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire *Born in the U.S.A.* album along with the tour premiere of “Last to Die” and a by-request “[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” Jeremy Chatzky joins the band and Curt Ramm for “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md),” and the set list continues to benefit from the presence of Curt and his trumpet.<br>
+**2009:** Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire *Born in the U.S.A.* album along with the tour premiere of “Last to Die” and a by-request “[Jersey Girl.](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” Jeremy Chatzky joins the band and Curt Ramm for “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md),” and the set list continues to benefit from the presence of Curt and his trumpet.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Long Walk Home - 10/03/09 - Giants Stadium](https://www.youtube.com/watch?v=UwyN4OLL0mk)
 

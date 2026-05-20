@@ -18,7 +18,7 @@ Not just because of one of the earliest performances of "[Wrecking Ball](../2022
 
 [Watch on Youtube: Springsteen "Surprise Surprise" Buffalo 11-22-09](https://www.youtube.com/watch?v=KADuwwUHbtU)
 
-...or even for the spectacular sign-request block, leading off with the it's-almost-Christmas double-shot of "[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)" and "[Santa Claus is Coming to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)..."
+...or even for the spectacular sign-request block, leading off with the it's-almost-Christmas double-shot of "[Merry Christmas Baby](../2002-01-03_cover-me-merry-christmas-baby/post.md/)" and "[Santa Claus is Coming to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)..."
 
 [Watch on Youtube: Springsteen "Green Onions" Buffalo 11-22-09](https://www.youtube.com/watch?v=nI4USi3emds)
 
@@ -44,7 +44,7 @@ And while the final two encores–"[(Your Love Keeps Lifting Me) Higher and High
 
 No, none of the above are the reasons why this show will always loom large for me.
 
-Watch the video below–it comes early in the show, during the full album set. Although "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" is hardly a rarity, tonight Bruce seemed to be feeling nostalgic, and he did something during the song break that he hadn't done for decades: he told a story. And not just any story, but the near legendary recollection of the first time he met Clarence Clemons. It's funny and moving, and then comes the moment where he leans toward Clarence, rests his arm on his shoulder, and recreates the iconic album pose from 34 years prior that first recognized and celebrated their deep friendship and made it one of the most famous in rock and roll.
+Watch the video below–it comes early in the show, during the full album set. Although "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" is hardly a rarity, tonight Bruce seemed to be feeling nostalgic, and he did something during the song break that he hadn't done for decades: he told a story. And not just any story, but the near legendary recollection of the first time he met Clarence Clemons. It's funny and moving, and then comes the moment where he leans toward Clarence, rests his arm on his shoulder, and recreates the iconic album pose from 34 years prior that first recognized and celebrated their deep friendship and made it one of the most famous in rock and roll.
 
 [Watch on Youtube: Bruce Springsteen Growing Up Buffalo,NY 11/22/09](https://www.youtube.com/watch?v=Xg-o6JqRL7E)
 

@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-28b-scaled.jpg.webp)
 
-**2009:** Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)," "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)," "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)." For more highlights from this show, see my [Where the Band Was report](../2018-04-28_where-the-band-was-philadelphia-april-28-2009/post.md) from this date.<br>
+**2009:** Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)," "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)," "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)." For more highlights from this show, see my [Where the Band Was report](../2018-04-28_where-the-band-was-philadelphia-april-28-2009/post.md) from this date.<br>
 
 [Watch on Youtube: Bruce Springsteen - Fire - Live from Philadelphia - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=0kTnyP33fbM)
 

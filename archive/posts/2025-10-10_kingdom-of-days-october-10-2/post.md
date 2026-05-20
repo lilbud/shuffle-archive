@@ -10,7 +10,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1976-1010.jpg.webp)
 
-**1980:** Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)."<br>
+**1980:** Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/OALtiJWP)
 

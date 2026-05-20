@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1975-10-29.jpg.webp)
 
-**1976:** "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" continues to evolve as a work-in-progress at the second of six nights at the Palladium in New York City, where Gary U.S. Bonds makes his first-ever guest appearance during the encore for (what else?) "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)."<br>
+**1976:** "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" continues to evolve as a work-in-progress at the second of six nights at the Palladium in New York City, where Gary U.S. Bonds makes his first-ever guest appearance during the encore for (what else?) "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - SOMETHING IN THE NIGHT 1976 (audio)](https://www.youtube.com/watch?v=3dm5sFJJ7do)
 

@@ -14,7 +14,7 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 **1975:** Yet another cancellation, this one in Syracuse, due to a conflict with mixing sessions for *Born to Run*.<br>
 
-**1980:** Bruce sits in with the David Johansen Group at The Fast Lane in Asbury Park, joining the band for "Personality Crisis" and "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."<br>
+**1980:** Bruce sits in with the David Johansen Group at The Fast Lane in Asbury Park, joining the band for "Personality Crisis" and "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
 **1985:** Friday Night Videos airs Part 2 of its "Private Reel" profile of Bruce.<br>
 

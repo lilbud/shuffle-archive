@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Racing in the Street (V1) - Studio Take, Atlantic Studios, NYC (July 2, 1977)](https://www.youtube.com/watch?v=pvMn2zFVX0E)
 
-**1981:** Bruce and the E Street Band kick off the final leg of the River Tour by playing the first-ever event (by anyone) at the Meadowlands. Bruce debuts his cover of "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" for the occasion; other highlights include the tour premiere of "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)" and the last-ever "Born to Run" opener.<br>
+**1981:** Bruce and the E Street Band kick off the final leg of the River Tour by playing the first-ever event (by anyone) at the Meadowlands. Bruce debuts his cover of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" for the occasion; other highlights include the tour premiere of "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)" and the last-ever "Born to Run" opener.<br>
 
 [Watch on Youtube: Bruce Springsteen Meadowlands 1981 Radio Announcement](https://www.youtube.com/watch?v=wXYdQPwPyF8)
 
@@ -46,7 +46,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/T5bpoXqm)
 
-**1989:** Bruce joins Gary U.S. Bonds at The Cafe Bar in Long Branch for six songs: "[This Little Girl,](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)" "[Angelyne](../2019-02-04_cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/post.md)," "[Bony Moronie](https://youtu.be/3QvN4MwV3wk)," "[Your Love](../2018-07-27_cover-me-gary-u-s-bonds-your-love/post.md)," "[Dedication,](../2018-06-17_cover-me-roll-of-the-dice-gary-u-s-bonds-dedication/post.md)" and "[New Orleans](https://estreetshuffle.com/index.php/2019/07/31/cover-me-new-orleans/)."<br>
+**1989:** Bruce joins Gary U.S. Bonds at The Cafe Bar in Long Branch for six songs: "[This Little Girl,](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)" "[Angelyne](../2019-02-04_cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/post.md)," "[Bony Moronie](https://youtu.be/3QvN4MwV3wk)," "[Your Love](../2018-07-27_cover-me-gary-u-s-bonds-your-love/post.md)," "[Dedication,](../2018-06-17_cover-me-roll-of-the-dice-gary-u-s-bonds-dedication/post.md)" and "[New Orleans](../2019-07-31-cover-me-new-orleans/post.md/)."<br>
 
 **1992:** A scheduled show in Barcelona is postponed by two days due to a transport worker strike.<br>
 

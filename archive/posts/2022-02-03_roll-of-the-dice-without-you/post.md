@@ -35,7 +35,7 @@ Second, "Without You" is just a standard "calendar song" in the mold of "[Seven 
 
 The E Street Band had talent in spades, and even after not playing together for more than six years it's remarkable how tightly in sync they are, even while they're each given space to stretch. Almost every band member is individually prominent in the mix, with Roy, Danny, Max, Garry, and Clarence all shining throughout.
 
-So why is this gem so well-hidden? It had the misfortune of being recorded at a time before Bruce was prone to including pop trifles on his albums. It would be a few years yet before songs like "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" or "[You've Got It](https://estreetshuffle.com/index.php/2020/07/29/roll-of-the-dice-youve-got-it/)" would start appearing in his catalog.
+So why is this gem so well-hidden? It had the misfortune of being recorded at a time before Bruce was prone to including pop trifles on his albums. It would be a few years yet before songs like "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" or "[You've Got It](../2020-07-30_roll-of-the-dice-youve-got-it/post.md/)" would start appearing in his catalog.
 
 The bigger mystery is why the band has yet to break it out in concert, because it would be a perfect encore opener and crowd-pleaser (if not a head-scratcher).
 

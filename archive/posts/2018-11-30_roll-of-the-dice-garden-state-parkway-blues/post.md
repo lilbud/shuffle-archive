@@ -52,7 +52,7 @@ Seriously, take a listen:
 > *But I don't care, what do I care?*
 > *It's really got a heart*
 
-Hello there, "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)." Did you catch that 1970 echo of a song that Bruce wouldn't write and record for another 17 years?
+Hello there, "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)." Did you catch that 1970 echo of a song that Bruce wouldn't write and record for another 17 years?
 
 But wait, there's more: right before the five-minute mark, we get our first faint hint of a familiar riff… but only for a few seconds. It'll be back, but first we have the introduction of our theme, and the next instance of Bruce wearing an influence on his sleeve.
 

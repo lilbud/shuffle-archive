@@ -1,4 +1,4 @@
-> ["Soul Days"] was a song I stumbled onto. You go on iTunes and you see you see "[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)" at No. 1. No. 2, "Soul Days." What's "Soul Days?" I've never heard of that. All right. Boom. I put it on. Oh, it's a great narrative. It's about somebody's love for soul music... It almost sounds like it could have been one of my tunes."
+> ["Soul Days"] was a song I stumbled onto. You go on iTunes and you see you see "[Drift Away](../1976-01-16_cover-me-drift-away/post.md/)" at No. 1. No. 2, "Soul Days." What's "Soul Days?" I've never heard of that. All right. Boom. I put it on. Oh, it's a great narrative. It's about somebody's love for soul music... It almost sounds like it could have been one of my tunes."
 >
 > *— Bruce Springsteen to Raina Douris, NPR, December 9, 2022*<br>
 

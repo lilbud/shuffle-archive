@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1978-11-17-1.png.webp)
 
-**1987:** Bruce and director Meiert Avis film the video for “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” in and around Asbury Park. You’ve seen the final result, no doubt, but have you seen this original rough cut? It features a lot more footage of Bruce.<br>
+**1987:** Bruce and director Meiert Avis film the video for “[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)” in and around Asbury Park. You’ve seen the final result, no doubt, but have you seen this original rough cut? It features a lot more footage of Bruce.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/laIqiHGm)
 

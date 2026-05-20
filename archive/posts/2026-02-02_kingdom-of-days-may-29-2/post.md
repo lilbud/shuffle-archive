@@ -52,7 +52,7 @@
 
 **1999:** Bruce and the E Street Band deliver a typical Night One show at the first of two Reunion shows in Berlin.<br>
 
-**2000:** When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays “[It’s Har](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)d[to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” for the first time in 19 years.<br>
+**2000:** When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays “[It’s Har](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)d[to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” for the first time in 19 years.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2000-05-29a.jpg.webp)
 

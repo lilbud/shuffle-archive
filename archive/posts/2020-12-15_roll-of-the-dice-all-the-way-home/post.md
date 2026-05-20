@@ -8,7 +8,7 @@ Across Bruce's entire catalog, "All the Way Home" is probably the song I grapple
 
 And whether "All the Way Home" soars or crashes like a drunk on a barroom floor varies depending on the arrangement and vocal style du jour (and of course, personal preference).
 
-"All the Way Home" made its debut on Southside Johnny's 1991 *Better Days* album. Produced by Steve Van Zandt, the album was something of a return to glory for Southside and arguably one of his best albums. And although Steve wrote most of the songs on the album, buried way down toward the very end you'll find a gorgeous, soulful "[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" style ballad written by Bruce.
+"All the Way Home" made its debut on Southside Johnny's 1991 *Better Days* album. Produced by Steve Van Zandt, the album was something of a return to glory for Southside and arguably one of his best albums. And although Steve wrote most of the songs on the album, buried way down toward the very end you'll find a gorgeous, soulful "[Tougher than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" style ballad written by Bruce.
 
 Bruce makes an appearance on the track, too–playing guitar and keyboard and contributing his backing vocals. (Garry and Max are on the track as well, a partial E Street Band reunion during the great diaspora.) But honestly, the track would have been just as strong without Bruce's presence–he'd written a perfect song for Southside's vocal stylings, and in fact I'd argue that "All the Way Home" is one of Southside's finest moments on record.
 

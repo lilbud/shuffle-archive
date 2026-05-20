@@ -24,7 +24,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/yyUIuX3l)
 
-**2012:** Peter Wolf guest-stars for "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" (a tour premiere) in the encores at this Wrecking Ball show at Boston's TD Garden. The show also features tour premieres of "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," "[Jackson Cage,](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" and "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)."<br>
+**2012:** Peter Wolf guest-stars for "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)" (a tour premiere) in the encores at this Wrecking Ball show at Boston's TD Garden. The show also features tour premieres of "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," "[Jackson Cage,](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" and "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JECwsM3m)
 

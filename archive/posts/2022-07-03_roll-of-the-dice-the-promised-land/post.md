@@ -71,7 +71,7 @@ When I thought I heard Bruce sing about "*the* promised land," the narrator stru
 
 But once I realized Bruce was singing about "*a* promised land," I felt the ground shift beneath me. *The* promised land is a specific goal, a place you run *to. A*promised land is simply an escape *from.*
 
-And once the song becomes more about running from than running toward, the narrator becomes (in my mind) more trapped, more desperate, more despairing. And that storm… I can't help but hear that verse as a callback to "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/):"
+And once the song becomes more about running from than running toward, the narrator becomes (in my mind) more trapped, more desperate, more despairing. And that storm… I can't help but hear that verse as a callback to "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/):"
 
 > *That pure American brother, dull-eyed and empty-faced*<br>
 > *Races Sundays in Jersey in a Chevy stock super eight*<br>
@@ -86,7 +86,7 @@ And once the song becomes more about running from than running toward, the narra
 > *I wonder what he was thinking when he hit that storm*<br>
 > *Or was he just lost in the flood?*<br>
 
-If not for the setting (Jersey vs. Utah), it wouldn't be a stretch to wonder if "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" and "The Promised Land" are the same song about the same character told from two different perspectives. The storm in "Lost in the Flood' is a metaphor for drugs, and that strikes me as a very plausible read of "The Promised Land" as well. Read it again, through that lens:
+If not for the setting (Jersey vs. Utah), it wouldn't be a stretch to wonder if "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" and "The Promised Land" are the same song about the same character told from two different perspectives. The storm in "Lost in the Flood' is a metaphor for drugs, and that strikes me as a very plausible read of "The Promised Land" as well. Read it again, through that lens:
 
 > *Well there's a dark cloud rising from the desert floor*<br>
 > *I packed my bags and I'm heading straight into the storm*<br>
@@ -110,7 +110,7 @@ And the tragedy of it is that the narrator–even in that moment of despair and 
 
 To my ears, "The Promised Land" is a deeply, deeply unsettling song.
 
-Am I able to still enjoy the anthemic arrangement at an E Street Band show? Sure. I'm well aware that Bruce sees "The Promised Land" (at least in some contexts) as a lesson to the importance of community, as a metaphor for the American dream. And I can accept that–he's the songwriter after all–in much the same way that I can accept Bruce and Patti singing "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" as a love song despite its origin as something else.
+Am I able to still enjoy the anthemic arrangement at an E Street Band show? Sure. I'm well aware that Bruce sees "The Promised Land" (at least in some contexts) as a lesson to the importance of community, as a metaphor for the American dream. And I can accept that–he's the songwriter after all–in much the same way that I can accept Bruce and Patti singing "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" as a love song despite its origin as something else.
 
 But every time I hear it in concert–which is a *lot* (Bruce has played it at 65% of my 65 shows)–I feel a strange mix of defiance and doubt, of ferocity and fear, of community and isolation that takes me a song or two after to fully shake off.
 

@@ -38,7 +38,7 @@ Watch footage from the video premiere below, and then listen to a never-before-c
 
 [Watch on Youtube: St Paul 29/06/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zAEeAs19HVKihUHhbpsNF26)
 
-In the setlist, a couple of notable moments: Bruce covers "[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/)" for the first time, and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" makes its debut as well, the latter song in a short-lived arrangement with an extended instrumental ending and a new final verse.
+In the setlist, a couple of notable moments: Bruce covers "[Street Fighting Man](../1976-01-17_cover-me-street-fighting-man/post.md/)" for the first time, and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" makes its debut as well, the latter song in a short-lived arrangement with an extended instrumental ending and a new final verse.
 
 [Watch on Youtube: Bruce Springsteen - No Surrender (Live 1984)](https://www.youtube.com/watch?v=_VQiGVKbLok)
 
@@ -106,7 +106,7 @@ Meanwhile, "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)," Br
 
 [https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3)
 
-**2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of "[Burning Love](../2018-05-01_cover-me-burning-love/post.md)." Elliot Murphy and his son guest-star on "Born to Run," and Bruce tour premieres "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" in the opening pack.<br>
+**2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of "[Burning Love](../2018-05-01_cover-me-burning-love/post.md)." Elliot Murphy and his son guest-star on "Born to Run," and Bruce tour premieres "[Lucille](../1976-01-07_cover-me-lucille/post.md/)" in the opening pack.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucille - Stade de France - Paris - 29.06.2013](https://www.youtube.com/watch?v=RPNgL3dOTpM)
 

@@ -1,4 +1,4 @@
-"[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)" had been missing in action for 17 years when Bruce unexpectedly brought it back at his Pittsburgh show on the Devils & Dust tour. He didn't say much by way of introduction, and what he did say was cryptic:
+"[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" had been missing in action for 17 years when Bruce unexpectedly brought it back at his Pittsburgh show on the Devils & Dust tour. He didn't say much by way of introduction, and what he did say was cryptic:
 
 "This for Ken. Thanks for the nice card."
 

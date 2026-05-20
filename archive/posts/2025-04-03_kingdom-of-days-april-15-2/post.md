@@ -50,7 +50,7 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 [Adam Sandler - Dancing in the Dark (Bruce Springsteen)](https://player.vimeo.com/video/188183887?dnt=1&app_id=122963)
 
-**1999:** Bruce and the E Street Band bring the Reunion Tour to Cologne, where Wolfgang Niedecken guest-stars in the encores on the tour premiere of “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).” “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” also make their tour debuts tonight.<br>
+**1999:** Bruce and the E Street Band bring the Reunion Tour to Cologne, where Wolfgang Niedecken guest-stars in the encores on the tour premiere of “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).” “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” also make their tour debuts tonight.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Su1bUwiO)
 
@@ -68,7 +68,7 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-04-15.jpg.webp)
 
-**2009:** At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” and “[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/).” Making their tour premieres tonight: “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Spirit in the Night,](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” and “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).”<br>
+**2009:** At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” and “[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/).” Making their tour premieres tonight: “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Spirit in the Night,](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” and “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen - The Ghost Of Tom Joad w/Tom Morello 2009 (Los Angeles, CA) HQ](https://www.youtube.com/watch?v=BWmUKr7iqZQ)
 

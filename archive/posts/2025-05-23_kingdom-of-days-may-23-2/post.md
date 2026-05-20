@@ -76,7 +76,7 @@
 
 [Watch on Youtube: Naples 23/05/2013](https://www.youtube.com/playlist?list=PLJTyL9twk3zClsrGQNJMvyH672fGlpumC)
 
-**2014:** Bruce and Joe Grushecky play their second of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh, featuring another eclectic set of rarities, including an acoustic "[Outlaw Pete](../2021-12-29_roll-of-the-dice-outlaw-pete/post.md)" and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" along with rare outings for "[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md)," "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)," "[I'll Work For Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)," "[Savin' Up](../2018-05-14_roll-of-the-dice-cover-me-clarence-clemons-savin-up/post.md)," and more.<br>
+**2014:** Bruce and Joe Grushecky play their second of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh, featuring another eclectic set of rarities, including an acoustic "[Outlaw Pete](../2021-12-29_roll-of-the-dice-outlaw-pete/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" along with rare outings for "[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md)," "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)," "[I'll Work For Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)," "[Savin' Up](../2018-05-14_roll-of-the-dice-cover-me-clarence-clemons-savin-up/post.md)," and more.<br>
 
 [Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - Further On Up The Road (solo acoustic)](https://www.youtube.com/watch?v=GQvnGb6YpaQ)
 

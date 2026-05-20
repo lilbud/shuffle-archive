@@ -1,6 +1,6 @@
 Meanwhile… I was thinking:
 
-Chuck Berry’s “Run Rudolph Run” is basically the same song as “[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/).” The man was one of the all-time great rock and roll performers, but he also sure knew how to get a lot of mileage from his songs.
+Chuck Berry’s “Run Rudolph Run” is basically the same song as “[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/).” The man was one of the all-time great rock and roll performers, but he also sure knew how to get a lot of mileage from his songs.
 
 [Watch on Youtube: Chuck Berry - Run Rudolph Run (Official Lyric Video)](https://www.youtube.com/watch?v=SqVtqbzTdVs)
 

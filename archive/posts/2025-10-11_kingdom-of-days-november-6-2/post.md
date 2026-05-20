@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1987-11-06.png.webp)
 
-**1992:** Bruce and his new touring band play their second of two nights at the Toronto Skydome, where “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” makes its final tour appearance.<br>
+**1992:** Bruce and his new touring band play their second of two nights at the Toronto Skydome, where “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” makes its final tour appearance.<br>
 
 [Watch on Youtube: Bruce Springsteen, "Spirit in the Night" - Toronto, 1992-11-06](https://www.youtube.com/watch?v=lwaQu6w9mWE)
 

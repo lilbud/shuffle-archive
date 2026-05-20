@@ -32,7 +32,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ueRkPB8b)
 
-**1999:** The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and an unusual opening arrangement for “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md).”<br>
+**1999:** The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and an unusual opening arrangement for “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise & Lucky Town (Live Bologna 1999)](https://www.youtube.com/watch?v=q2pvUIVEWyg)
 

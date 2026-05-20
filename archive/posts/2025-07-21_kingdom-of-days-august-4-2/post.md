@@ -18,7 +18,7 @@
 
 **1991:** Bruce joins The Outcry on stage for five songs (including “[Ain’t That a Shame](../2018-03-08_meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/post.md)” “[People Get Ready,](../2019-11-28_matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/post.md)” and “[Not Fade Away](../2020-06-24_cover-me-not-fade-away/post.md)“) at Cheers in Long Branch.<br>
 
-**1992:** Night Eight of eleven at the opening American stand of World Tour 1992 in East Rutherford brings three tour premieres (including “[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)” as the opener, “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” and “Because the Night”) and an ultra-rare “[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md).”<br>
+**1992:** Night Eight of eleven at the opening American stand of World Tour 1992 in East Rutherford brings three tour premieres (including “[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)” as the opener, “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” and “Because the Night”) and an ultra-rare “[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/TGLh27pu)
 

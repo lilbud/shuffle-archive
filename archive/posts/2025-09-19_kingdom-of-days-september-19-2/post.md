@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1969-0919.jpg.webp)
 
-**1970:** Local bands hold a benefit concert at Point Pleasant Beach to raise legal defense funds for those arrested at the [Clearwater Swim Club fiasco](https://estreetshuffle.com/index.php/2018/09/11/kingdom-of-days-september-11/) the week prior. Steel Mill doesn't play (possibly because Vini is still in Richmond and Danny is on the lam), but they lend their sound equipment for the cause.<br>
+**1970:** Local bands hold a benefit concert at Point Pleasant Beach to raise legal defense funds for those arrested at the [Clearwater Swim Club fiasco](../2025-09-11_kingdom-of-days-september-11-2/post.md/) the week prior. Steel Mill doesn't play (possibly because Vini is still in Richmond and Danny is on the lam), but they lend their sound equipment for the cause.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1970-09-19.jpg.webp)
 
@@ -76,7 +76,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 **2006:** Bruce rehearses with the Sessions Band for their upcoming European tour.<br>
 
-**2012:** Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLife Stadium in East Rutherford, surprising early arrivals with a pre-show of "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" and "[For You.](../2022-01-08_roll-of-the-dice-for-you/post.md)" The set list features the tour premiere of "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)," and Vini Lopez makes guest appearances in both the main set and the encores.<br>
+**2012:** Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLife Stadium in East Rutherford, surprising early arrivals with a pre-show of "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and "[For You.](../2022-01-08_roll-of-the-dice-for-you/post.md)" The set list features the tour premiere of "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)," and Vini Lopez makes guest appearances in both the main set and the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen, Growin' Up / For You, MetLife Stadium, 09/19/12](https://www.youtube.com/watch?v=uU4HFVGbvrY)
 

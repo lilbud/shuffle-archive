@@ -36,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1986-03-02.jpg.webp)
 
-**1988:** Bruce wins the Best Rock Vocal Performance (Solo) Grammy Award for "[Tunnel of Love.](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" Although he's also nominated for Best Pop Vocal Performance (Male) for "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and Best Rock Instrumental Performance (Orchestra, Group or Soloist) for "[Paradise by the 'C'](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)," he fails to win either.<br>
+**1988:** Bruce wins the Best Rock Vocal Performance (Solo) Grammy Award for "[Tunnel of Love.](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" Although he's also nominated for Best Pop Vocal Performance (Male) for "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and Best Rock Instrumental Performance (Orchestra, Group or Soloist) for "[Paradise by the 'C'](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)," he fails to win either.<br>
 
 [Watch on Youtube: Bruce Springsteen - Tunnel of Love (Official Video)](https://www.youtube.com/watch?v=M4K7XZGeHTE)
 

@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2003-03-22.jpg.webp)
 
-**2008:** "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" and "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" makes their tour premieres at Bruce's Magic show at the U.S. Bank Arena in Cincinnati.<br>
+**2008:** "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" and "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" makes their tour premieres at Bruce's Magic show at the U.S. Bank Arena in Cincinnati.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/q392pFh8)
 

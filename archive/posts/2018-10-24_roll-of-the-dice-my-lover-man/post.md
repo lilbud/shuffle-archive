@@ -16,7 +16,7 @@ If Bruce gives us any clue at all as to his motivation for the song, it's probab
 
 [Watch on Youtube: My Lover Man (Studio Outtake - 1990)](https://www.youtube.com/watch?v=n-jzr3jSDX0)
 
-Sound familiar? Musically, "My Lover Man" is *darn* close to "[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" They have similar percussion tracks, bass lines, and instrumentation, and I don't think that's accidental. Listen for yourself:
+Sound familiar? Musically, "My Lover Man" is *darn* close to "[Brilliant Disguise.](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" They have similar percussion tracks, bass lines, and instrumentation, and I don't think that's accidental. Listen for yourself:
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 

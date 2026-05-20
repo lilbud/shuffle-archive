@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1973-0821.jpg.webp)
 
-**1974:** Bruce hires Roy Bittan and Max Weinberg as new members of the E Street Band. Max and Roy responded to [Bruce's ad in the Village Voice](https://estreetshuffle.com/index.php/2018/08/08/kingdom-of-days-august-8/) and tried out during audition sessions in mid-August. The band immediately kicks off intense rehearsal days (up to ten hours a day) lasting for two weeks.<br>
+**1974:** Bruce hires Roy Bittan and Max Weinberg as new members of the E Street Band. Max and Roy responded to [Bruce's ad in the Village Voice](../2025-08-08_kingdom-of-days-august-8-2/post.md/) and tried out during audition sessions in mid-August. The band immediately kicks off intense rehearsal days (up to ten hours a day) lasting for two weeks.<br>
 
 **1975:** Bruce and the E Street Band wrap up their three-night stand at Alex Cooley's Electric Ballroom in Atlanta. The setlist includes "[Then She Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)" in its last appearance for 33 years to the day (see below).<br>
 
@@ -16,7 +16,7 @@
 
 **1977:** Bruce and the band work on "[Come On (Let's Go Tonight)](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)" at a recording session in New York City.<br>
 
-**1978:** On the final night (of three) at Madison Square Garden on the Darkness Tour, Bruce brings his mom on stage during the final encore of "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)."<br>
+**1978:** On the final night (of three) at Madison Square Garden on the Darkness Tour, Bruce brings his mom on stage during the final encore of "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/d0dss9zd)
 
@@ -64,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen "Hang on Sloopy" into "Growin' Up" Mansfield 8-23-09](https://www.youtube.com/watch?v=2GYEcPsBumI)
 
-**2016:** Bruce and the E Street Band kick off the ten-show "victory lap" leg of what really shouldn't be called the River Tour anymore, with the first of three shows at MetLife Stadium in East Rutherford. Right away, it's clear that this leg is going to be special: the show opens with "New York City Serenade," featuring an eight-piece string section led by Sam Bardfeld of the Sessions Band. The strings return later in the show for the tour premiere of "[Jack of All Trades,](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" but these are far from the only highlights: Bruce is reflective tonight, in fresh storytelling mode, perhaps in anticipation of the release of his autobiography. "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" is played by request, and "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" is played as a duet with Patti. A final encore of "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" accompanied by fireworks caps off the third longest show Bruce has ever played in the USA... but it will drop several notches before the tour ends. For more highlights from this show, see my [*Where the Band Was* report.](../2018-08-23_where-the-band-was-east-rutherford-august-23-2016/post.md)<br>
+**2016:** Bruce and the E Street Band kick off the ten-show "victory lap" leg of what really shouldn't be called the River Tour anymore, with the first of three shows at MetLife Stadium in East Rutherford. Right away, it's clear that this leg is going to be special: the show opens with "New York City Serenade," featuring an eight-piece string section led by Sam Bardfeld of the Sessions Band. The strings return later in the show for the tour premiere of "[Jack of All Trades,](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" but these are far from the only highlights: Bruce is reflective tonight, in fresh storytelling mode, perhaps in anticipation of the release of his autobiography. "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" is played by request, and "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" is played as a duet with Patti. A final encore of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" accompanied by fireworks caps off the third longest show Bruce has ever played in the USA... but it will drop several notches before the tour ends. For more highlights from this show, see my [*Where the Band Was* report.](../2018-08-23_where-the-band-was-east-rutherford-august-23-2016/post.md)<br>
 
 [Watch on Youtube: New York City Serenade (with strings) - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=jl1BSehj5Ss)
 

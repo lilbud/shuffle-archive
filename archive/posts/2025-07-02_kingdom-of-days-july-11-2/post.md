@@ -12,7 +12,7 @@
 
 **1979:** Bruce and the E Street Band work on “[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)” during a recording session at the Power Station in New York City.<br>
 
-**1981:** Clarence Clemons opens his new nightclub, Big Man’s West, in Red Bank. Bruce makes an appearance with Clarence and his band to mark the occasion, playing six songs, including a set closing “Y[ou Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)” and “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md).”<br>
+**1981:** Clarence Clemons opens his new nightclub, Big Man’s West, in Red Bank. Bruce makes an appearance with Clarence and his band to mark the occasion, playing six songs, including a set closing “Y[ou Can’t Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)” and “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MByTu4nD)
 

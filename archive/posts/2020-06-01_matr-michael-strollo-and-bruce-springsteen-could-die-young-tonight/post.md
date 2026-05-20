@@ -4,7 +4,7 @@ Strollo went solo in 2008 and released his first album, *Bedroom Eyes*, in 2010.
 
 [Watch on Youtube: Could Die Young Tonight](https://www.youtube.com/watch?v=SYn3Jp8Gqbc)
 
-Although Exit 105 had already [once shared a stage with Bruce](https://estreetshuffle.com/index.php/2019/12/02/kingdom-of-days-december-2-2/) (at Joe Grushecky's 2004 Flood Aid concert in Pittsburgh), Strollo probably never imagined he'd have the opportunity to do so again as a singer-songwriter. And given the circumstances that led to it, he certainly wouldn't have wished for it.
+Although Exit 105 had already [once shared a stage with Bruce](../2025-12-02_kingdom-of-days-december-2-2/post.md/) (at Joe Grushecky's 2004 Flood Aid concert in Pittsburgh), Strollo probably never imagined he'd have the opportunity to do so again as a singer-songwriter. And given the circumstances that led to it, he certainly wouldn't have wished for it.
 
 In early 2012, Bruce's long-time personal trainer died suddenly at the age of 40, and on the night of February 25th, Tony Strollo's friends and family turned out at the Press Room in Asbury Park to celebrate his too-short life. Bruce was one of Tony's friends in attendance, and Michael was part of the family.
 

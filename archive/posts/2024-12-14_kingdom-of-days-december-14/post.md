@@ -6,7 +6,7 @@
 
 **1974:** Bruce attends his second Billy Joel concert in three weeks, this time at Rutgers University, where Billy dedicates "The Entertainer" to Bruce. During the encores, Bruce joins Billy on stage for "Twist and Shout." After the show, Bruce walks over to the Rutgers Student Center, where he jams with the band Heavy Trucking into the wee hours of the morning.<br>
 
-**1984:** Bruce and the band play their second of two Born in the U.S.A. shows at the Mid-South Coliseum in Memphis, where Little Steven makes a surprise appearance, joining the band for the last six songs, including a beautiful version of "[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)."<br>
+**1984:** Bruce and the band play their second of two Born in the U.S.A. shows at the Mid-South Coliseum in Memphis, where Little Steven makes a surprise appearance, joining the band for the last six songs, including a beautiful version of "[Drift Away](../1976-01-16_cover-me-drift-away/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Drift Away" - Memphis, 1984-12-14](https://www.youtube.com/watch?v=BXBwzXjApLk)
 

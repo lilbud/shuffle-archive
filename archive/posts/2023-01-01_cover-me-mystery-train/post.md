@@ -1,4 +1,4 @@
-Ah, "Mystery Train." It's so easy to find snippets of it in Bruce's performances over the years. It shows up scores of times, from "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)…"
+Ah, "Mystery Train." It's so easy to find snippets of it in Bruce's performances over the years. It shows up scores of times, from "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)…"
 
 [Watch Video Highlight](https://videopress.com/embed/Ml73wUVB)
 

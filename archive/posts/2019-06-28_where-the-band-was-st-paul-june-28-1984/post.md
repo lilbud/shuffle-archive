@@ -20,7 +20,7 @@ One day, everyone will know Courtney Cox's name, but today she's just a model fr
 
 Even Courtney, the "lucky fan" Bruce invites on stage, is bored and impatient. She's vocal with her complaints, and her attitude turns worse when De Palma instructs the models to watch and act more like us fans. Plus she can't dance!
 
-The models may have be uppity, but we fans are grateful to be there. Bruce recognizes that, and at the end of a long day of shooting, he thanks us by putting on an impromptu concert just for us! Bruce and the band play for an hour, closing with "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" — it's a show that almost no one sees, but I do!
+The models may have be uppity, but we fans are grateful to be there. Bruce recognizes that, and at the end of a long day of shooting, he thanks us by putting on an impromptu concert just for us! Bruce and the band play for an hour, closing with "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" — it's a show that almost no one sees, but I do!
 
 And I have the photo to prove it. See? That's me on the left, and Bruce is wearing the same shirt he wears in the video.
 

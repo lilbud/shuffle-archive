@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Wages Of Sin (Studio Outtake - 1982)](https://www.youtube.com/watch?v=U5i69qRqL_0)
 
-**1988:** Bruce plays "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)" for the very first time (and the very last for 17 years) at Night Two in Bloomington. This show also features the premiere of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)."<br>
+**1988:** Bruce plays "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)" for the very first time (and the very last for 17 years) at Night Two in Bloomington. This show also features the premiere of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - CAUTIOUS MAN 1988 (audio)](https://www.youtube.com/watch?v=4VtfZH44nqk)
 

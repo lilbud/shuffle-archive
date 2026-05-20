@@ -61,7 +61,7 @@ Listen to it, and feel the bitterness and regret in "I didn't get it right"; the
 
 When the song first came out, fans would argue about the "white lines." Do they refer to cocaine or to highway lane dividers? To argue is to miss the point entirely: either way, the singer is self-medicating, distracting himself either with hard drugs or the soporific highway, unable to move past his loss.
 
-Those lines join "Is a dream a lie if it don't come true, or is it something worse" and "[God have mercy on the man who doubts what he's sure of](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" in the canon of devastating final Springsteen lyrics.
+Those lines join "Is a dream a lie if it don't come true, or is it something worse" and "[God have mercy on the man who doubts what he's sure of](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" in the canon of devastating final Springsteen lyrics.
 
 "Gypsy Biker" was a nightly staple throughout most of the Magic Tour, but following the passing of Danny Federici, Bruce performed it less frequently, dropping it from the setlist for most of the final months of the tour. Perhaps the song's loss of a dear friend hit too close to home; certainly the song demands a vocal performance that would make it hard to detach oneself from it.
 

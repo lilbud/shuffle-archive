@@ -20,13 +20,13 @@
 
 [Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
-That evening, Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” at Night Two in Detroit on the Born in the U.S.A. Tour.
+That evening, Bruce tour premieres “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” at Night Two in Detroit on the Born in the U.S.A. Tour.
 
 [Watch Video Highlight](https://videopress.com/embed/1IZ822FI)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-31.png.webp)
 
-**1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/),” “La Bamba,” and “Twist and Shout.”<br>
+**1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for “[You Can’t Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/),” “La Bamba,” and “Twist and Shout.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/91vNP1rr)
 
@@ -34,7 +34,7 @@ That evening, Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1987-07-31b.png.webp)
 
-**1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md),” “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)“, and the live debuts of “[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md)” and “[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md).”<br>
+**1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md),” “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/),” “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)“, and the live debuts of “[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md)” and “[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen Atlantic City Brendan Bryne Arena New Jersey 31/07/1992](https://www.youtube.com/watch?v=xeSRlWZq2lk)
 
@@ -58,11 +58,11 @@ That evening, Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/
 
 [Watch on Youtube: Lost in the Flood (Live at Schottenstein Center, Columbus, OH - 7/31/2005)](https://www.youtube.com/watch?v=vdZ12-Y7_pU)
 
-**2008:** At the final of three Giants Stadium shows on the Magic Tour, Bruce tour premieres “[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)” and “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and holds a mini-Seeger Sessions reunion when Jeremy Chatzky, Sam Bardfeld, and Curtis King join the band for “[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)”<br>
+**2008:** At the final of three Giants Stadium shows on the Magic Tour, Bruce tour premieres “[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)” and “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” and holds a mini-Seeger Sessions reunion when Jeremy Chatzky, Sam Bardfeld, and Curtis King join the band for “[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)”<br>
 
 [Watch on Youtube: Bruce Springsteen - Pretty Flamingo](https://www.youtube.com/watch?v=y1Pht9wCmdc)
 
-**2012:** Bruce wraps up the first European leg of the Wrecking Ball Tour with a marathon of a show in Helsinki–his longest ever, over four hours–and that’s not even including a five-song pre-show! Five songs have their tour premieres, including “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)“, “[Detroit Medley,](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” and covers of “[I Don’t Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md),” “Rockin’ All Over the World,” and “[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/).” Plus: rare outings for “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md),” “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md),” “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md),” and more–an absolutely amazing show. No surprise that it’s part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,16397/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-31-2012-Olympiastadion-Helsinki-FI.html).<br>
+**2012:** Bruce wraps up the first European leg of the Wrecking Ball Tour with a marathon of a show in Helsinki–his longest ever, over four hours–and that’s not even including a five-song pre-show! Five songs have their tour premieres, including “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)“, “[Detroit Medley,](../1976-01-02_cover-me-detroit-medley/post.md/)” and covers of “[I Don’t Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md),” “Rockin’ All Over the World,” and “[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/).” Plus: rare outings for “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md),” “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md),” “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md),” and more–an absolutely amazing show. No surprise that it’s part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,16397/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-31-2012-Olympiastadion-Helsinki-FI.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - 2012-07-31 For You (solo acoustic)](https://www.youtube.com/watch?v=b6wPi_h9O7k)
 

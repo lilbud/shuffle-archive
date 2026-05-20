@@ -56,7 +56,7 @@ That evening, Bruce and the E Street Band perform “The Promise” during their
 
 [Watch on Youtube: Bruce Springsteen - Giants Stadium - July 15th 2003 (Pro-Shot)](https://www.youtube.com/watch?v=9HICkNqhkJ0)
 
-**2008:** The final European leg of the Magic Tour enters the home stretch with a final run of shows in Spain, starting with a night in San Sebastian. Bruce opens with “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/),” and the set list features a rare “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)” as well.<br>
+**2008:** The final European leg of the Magic Tour enters the home stretch with a final run of shows in Spain, starting with a night in San Sebastian. Bruce opens with “[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/),” and the set list features a rare “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)” as well.<br>
 
 [Watch on Youtube: THE BOSS IN DONOSTI](https://www.youtube.com/watch?v=h6Rfl6Esl1g)
 

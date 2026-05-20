@@ -30,6 +30,6 @@ And another highlight was Michael and Bruce's tribute to Patti Smith–they perf
 
 [Watch Video Highlight](https://videopress.com/embed/NKQbVWnu)
 
-The encore though–from a "Born to Run" team up with R.E.M. to a reprise from Fogerty to a celebratory "[(What's So Funny 'Bout) Peace, Love, and Understanding](https://estreetshuffle.com/index.php/2022/12/15/matr-bruce-springsteen-eddie-vedder-dave-matthews-and-more-whats-so-funny-bout-peace-love-and-understanding/)" and "[People Have the Power](https://estreetshuffle.com/index.php/2020/01/09/matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/)" was jubilant and satisfying–at least for the night.
+The encore though–from a "Born to Run" team up with R.E.M. to a reprise from Fogerty to a celebratory "[(What's So Funny 'Bout) Peace, Love, and Understanding](https://estreetshuffle.com/index.php/2022/12/15/matr-bruce-springsteen-eddie-vedder-dave-matthews-and-more-whats-so-funny-bout-peace-love-and-understanding/)" and "[People Have the Power](../2020-01-09-matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/post.md/)" was jubilant and satisfying–at least for the night.
 
 There'd be another show the next day.

@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1971-1001.jpg.webp)
 
-**1975:** Bruce plays his first-ever show in the state of Wisconsin, at the Uptown Theater in Milwaukee. Partway through the first set, the show is halted due to a bomb threat, and the band and audience adjourn for three hours while security sweeps the place. The band takes up temporary residence at the Hotel Pfister bar, and by the time the show resumes at midnight (with the live debut of “[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/),” the band is, um, loose. The ensuing second set will become legend, known forever after as “The Bomb Scare Show,” with a *very* buzzed Springsteen enjoying himself immensely and continually asking the audience, “Are you loose?”<br>
+**1975:** Bruce plays his first-ever show in the state of Wisconsin, at the Uptown Theater in Milwaukee. Partway through the first set, the show is halted due to a bomb threat, and the band and audience adjourn for three hours while security sweeps the place. The band takes up temporary residence at the Hotel Pfister bar, and by the time the show resumes at midnight (with the live debut of “[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/),” the band is, um, loose. The ensuing second set will become legend, known forever after as “The Bomb Scare Show,” with a *very* buzzed Springsteen enjoying himself immensely and continually asking the audience, “Are you loose?”<br>
 
 [Watch on Youtube: Little Queenie - Bruce Springsteen & The E Street Band 1975 (audio) Remaster](https://www.youtube.com/watch?v=NvVtJcsz7hc)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1996-1002.jpg.webp)
 
-**2004:** The Vote for Change Tour of swing states moves on to Cleveland’s Gund Arena, where “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)” replaces “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and “[Bad Moon Rising](../2023-01-18_matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/post.md)” replaces “Proud Mary.” Bruce joins R.E.M. for two songs this time: “[Man on the Moon](../2021-01-06_matr-r-e-m-and-bruce-springsteen-man-on-the-moon/post.md)” (as with last night in Philly) and “[Bad Day](../2021-05-05_meeting-across-the-river-r-e-m-and-bruce-springsteen-bad-day/post.md).” For more highlights from this show, see my [*Where the Band Was* report.](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)<br>
+**2004:** The Vote for Change Tour of swing states moves on to Cleveland’s Gund Arena, where “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)” replaces “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)” and “[Bad Moon Rising](../2023-01-18_matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/post.md)” replaces “Proud Mary.” Bruce joins R.E.M. for two songs this time: “[Man on the Moon](../2021-01-06_matr-r-e-m-and-bruce-springsteen-man-on-the-moon/post.md)” (as with last night in Philly) and “[Bad Day](../2021-05-05_meeting-across-the-river-r-e-m-and-bruce-springsteen-bad-day/post.md).” For more highlights from this show, see my [*Where the Band Was* report.](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)<br>
 
 [Watch on Youtube: REM (and Bruce Springsteen), Cleveland, 2004-10-02](https://www.youtube.com/watch?v=sZcju8_8LpA)
 

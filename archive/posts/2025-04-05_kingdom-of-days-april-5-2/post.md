@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Bruce Springsteen & the E-Street Band - Cadillac Ranch - Dallas - April 5, 2016](https://www.youtube.com/watch?v=ynUvaSq_ynM)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in place of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in place of "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."<br>
 
 **2021:** Bruce and President Barack Obama release the final episode of their Spotify podcast, *Renegades: Born in the U.S.A.* This episode is entitled "The Rising: Looking Towards American Renewal" and features an acoustic performance of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
 

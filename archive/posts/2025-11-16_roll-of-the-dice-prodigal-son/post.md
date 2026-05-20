@@ -4,7 +4,7 @@ Because we now know so much about Bruce's early life, when we listen to "Family 
 
 But there's another influence at work in family song, and it's the impression that his parents' new home state of California made on him during his extended visit. (For many years in fact, "Family Song" was known by fans under another name–"California (You're a Woman).")
 
-But if Bruce seemed to romanticize California in "Family Song," that doesn't mean he was blind to its seedier side. He wrote another song around this time called "[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)" that painted a seamy street scene as seen through the eyes of an alienated musician.
+But if Bruce seemed to romanticize California in "Family Song," that doesn't mean he was blind to its seedier side. He wrote another song around this time called "[Hollywood Kids](../2011-01-19-roll-of-the-dice-hollywood-kids/post.md/)" that painted a seamy street scene as seen through the eyes of an alienated musician.
 
 And then there's "Prodigal Son."
 
@@ -12,7 +12,7 @@ And then there's "Prodigal Son."
 
 Presumably, Bruce wrote "Prodigal Son" around the same time as "Family Song" and "Hollywood Kids," because he recorded them all around the same time in early 1972, after he returned home from San Mateo. We can think of them as Bruce's early California trilogy, because they were each clearly infused with if not inspired by the vivid impressions that California must have made on a New Jersey kid spending his first extended period of time out of state.
 
-And if "Family Song" paved the way for more revealing autobiographical songs down the road like "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" or "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)," we can look at "Prodigal Son" as one of Bruce's earliest "saga songs" that paved the way for "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" just a couple of months later.
+And if "Family Song" paved the way for more revealing autobiographical songs down the road like "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" or "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)," we can look at "Prodigal Son" as one of Bruce's earliest "saga songs" that paved the way for "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" just a couple of months later.
 
 It's clear from the outset that Bruce is writing about California, but we should note the subtlety and poetry he employs even at the tender age of 22. He never name checks the state even once, but the locale is unmistakable:
 

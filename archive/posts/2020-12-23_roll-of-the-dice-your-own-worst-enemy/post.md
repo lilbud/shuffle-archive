@@ -55,7 +55,7 @@ It appears we may have been unfaithful, and it's haunting us. Even at night, asl
 
 Something else to note here: the second chorus is longer than the first, and the third will be longer than the second. It's a clever device that makes us feel increasingly off-balance, falling further and further into the whirlpool of our crime.
 
-By the time the bridge arrives—which, by the way, seems like it's shared with album-mate "Girls in Their Summer Clothes," so close are they–we're so disappointed in ourselves that we don't even recognize our own reflection. As in "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)," when we look at ourselves we don't see the people we wanted to be.
+By the time the bridge arrives—which, by the way, seems like it's shared with album-mate "Girls in Their Summer Clothes," so close are they–we're so disappointed in ourselves that we don't even recognize our own reflection. As in "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)," when we look at ourselves we don't see the people we wanted to be.
 
 > *There's a face you know*<br>
 > *Staring back from the shop window*<br>

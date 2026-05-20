@@ -1,4 +1,4 @@
-Bruce Springsteen has covered almost two dozen Chuck Berry tunes in concert, but none with more gusto than "Back in the U.S.A." (Perhaps "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" is tied for first, though.)
+Bruce Springsteen has covered almost two dozen Chuck Berry tunes in concert, but none with more gusto than "Back in the U.S.A." (Perhaps "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)" is tied for first, though.)
 
 Bruce played it occasionally on the Born to Run Tour, closing his legendary Main Point show with it on February 5th.
 

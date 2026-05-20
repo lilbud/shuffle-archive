@@ -18,7 +18,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 **1974:** A scheduled gig at the Agora in Columbus is cancelled due to low ticket sales.<br>
 
-**1978:** Bruce wraps his three-night Darkness Tour stand at Boston’s Music Hall with the tour premiere of “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/).”<br>
+**1978:** Bruce wraps his three-night Darkness Tour stand at Boston’s Music Hall with the tour premiere of “[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xqYnzHkh)
 

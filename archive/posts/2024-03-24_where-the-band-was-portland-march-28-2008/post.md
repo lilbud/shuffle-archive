@@ -8,7 +8,7 @@ The show was definitely on the short side (hard to believe that the shows grew f
 
 [Watch on Youtube: Bruce Springsteen "Lonesome Days" Portland OR March 28 2008](https://www.youtube.com/watch?v=xT7LMmSwdxA)
 
-The setlist definitely had a retro feel: sign requests for “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md),” and “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” combined with half of [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) almost made this a dark, grim show.
+The setlist definitely had a retro feel: sign requests for “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md),” and “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)” combined with half of [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) almost made this a dark, grim show.
 
 [Watch on Youtube: Bruce Springsteen - For You - Portland - March 28, 2008](https://www.youtube.com/watch?v=l9TWdEzs04g)
 

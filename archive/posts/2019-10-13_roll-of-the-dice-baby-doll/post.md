@@ -65,7 +65,7 @@ Bruce finishes the song the way he begins it, reinforcing the notion that Baby D
 
 "Baby Doll" had promise–enough promise that Bruce eventually recorded it as a demo at engineer Jim Cretecos' apartment shortly after signing with Appel in early 1972. (It's this version that we listened to above–Bruce's original "Baby Doll" performance for Appel was on the piano rather than guitar.)
 
-But just like "[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)," "[Jesse](https://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/)," and the other songs Bruce recorded during those original April 1972 demo sessions, "Baby Doll" was never released in any form.
+But just like "[Hollywood Kids](../2011-01-19-roll-of-the-dice-hollywood-kids/post.md/)," "[Jesse](../2011-01-20_roll-of-the-dice-jesse/post.md/)," and the other songs Bruce recorded during those original April 1972 demo sessions, "Baby Doll" was never released in any form.
 
 **Baby Doll**<br>
 **Recorded:** April 1972<br>

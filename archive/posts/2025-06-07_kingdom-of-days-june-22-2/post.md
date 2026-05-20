@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Gothenburg (6/22/2003)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CvQqNk_hSrxz1tlmF6MKNa)
 
-**2005:** The Devils & Dust Tour heads north to Copenhagen, where Bruce tour premieres “[Straight Time](../2022-12-05_roll-of-the-dice-straight-time/post.md),” “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” and “[Wild Billy’s Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md).”<br>
+**2005:** The Devils & Dust Tour heads north to Copenhagen, where Bruce tour premieres “[Straight Time](../2022-12-05_roll-of-the-dice-straight-time/post.md),” “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/),” and “[Wild Billy’s Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md).”<br>
 
 [Watch on Youtube: Copenhagen (6/22/2005)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1D-h5b2aQCFM2wJZ8n-7x-2)
 

@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1980-12-09.png.webp)
 
-**1984:** The Born in the U.S.A. Tour stops at Middle Tennessee State University in Murfreesboro, where “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” features a one-off “Wabash Cannonball.” A young Steve Earle is in attendance at this show and is inspired by Bruce’s performance to write “[Guitar Town](../2020-11-28_matr-steve-earle-and-bruce-springsteen-guitar-town/post.md).”<br>
+**1984:** The Born in the U.S.A. Tour stops at Middle Tennessee State University in Murfreesboro, where “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” features a one-off “Wabash Cannonball.” A young Steve Earle is in attendance at this show and is inspired by Bruce’s performance to write “[Guitar Town](../2020-11-28_matr-steve-earle-and-bruce-springsteen-guitar-town/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - "Detroit Medley" - Murfreesboro, 1984-12-09](https://www.youtube.com/watch?v=ce7PwWx40v4)
 
@@ -42,7 +42,7 @@
 
 [Watch Video](https://www.dailymotion.com/embed/video/xjumi)
 
-**2002:** Bruce and the E Street Band bring the Rising Tour to the brand-new Carolina Center in Columbia, South Carolina, where Bruce tour premieres “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” and “This Hard Land.”<br>
+**2002:** Bruce and the E Street Band bring the Rising Tour to the brand-new Carolina Center in Columbia, South Carolina, where Bruce tour premieres “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” and “This Hard Land.”<br>
 
 [Watch on Youtube: Columbia 09/12/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zB_NE2bJOF-H15O2OPTi0hc)
 

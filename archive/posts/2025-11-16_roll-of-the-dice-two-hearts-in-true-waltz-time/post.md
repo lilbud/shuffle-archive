@@ -12,7 +12,7 @@ Let's take a listen.
 
 "Two Hearts in True Waltz Time" takes its title from a 1930 German film/operetta, or perhaps the 1934 British remake. It's hard to imagine Bruce being familiar with either film in 1972, but somehow that phrase got lodged in his mind and intrigued him enough to base a song around it.
 
-If the song's melody sounds familiar, that's probably because it's very similar to "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" — and since both songs were recorded the same week (possibly even the same day), that may be a big reason why one of them had to be left off the album. (Interestingly, at one point they were slated to be back-to-back on the album.)
+If the song's melody sounds familiar, that's probably because it's very similar to "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" — and since both songs were recorded the same week (possibly even the same day), that may be a big reason why one of them had to be left off the album. (Interestingly, at one point they were slated to be back-to-back on the album.)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/04/1972_handwrittensonglist2.jpg.webp)
 

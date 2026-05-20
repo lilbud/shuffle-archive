@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Rendezvous (Live at Winterland Arena, San Francisco, CA - 12/16/1978)](https://www.youtube.com/watch?v=YX4hAJEQ3Co)
 
-**1980:** At Night Two at the Boston Garden on the original River Tour, Bruce tour premieres "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" and plays "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" for the last time for 28 years.<br>
+**1980:** At Night Two at the Boston Garden on the original River Tour, Bruce tour premieres "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" and plays "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" for the last time for 28 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Crush on You" - Boston, 1980-12-16](https://www.youtube.com/watch?v=PA-dLR83MhI)
 

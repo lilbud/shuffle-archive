@@ -4,7 +4,7 @@ But here's an example that's extreme even by Bruce's standards.
 
 In May of 1966, Bruce Springsteen was only sixteen years old. He was already in his first band, though–a combo called the Castiles.
 
-Not only was Bruce in a band, he was also ready to start songwriting. On the way to his very first-ever studio session, he and bandmate George Theiss co-wrote two songs in the car on the way to the session. The first, "[Baby I](https://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/)" would eventually be released a full half-century later on *Chapter and Verse*. The latter, however, still hasn't seen the light of day.
+Not only was Bruce in a band, he was also ready to start songwriting. On the way to his very first-ever studio session, he and bandmate George Theiss co-wrote two songs in the car on the way to the session. The first, "[Baby I](../2018-12-20-roll-of-the-dice-baby-i/post.md/)" would eventually be released a full half-century later on *Chapter and Verse*. The latter, however, still hasn't seen the light of day.
 
 That second song was called "That's What You Get," and while it may not have been officially released, we're lucky enough to have a leaked version of it from a surviving acetate. In the clip below, George Theiss sings lead vocals (as he did on "Baby I" as well), but Bruce is very much in the mix.
 

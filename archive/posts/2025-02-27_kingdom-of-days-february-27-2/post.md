@@ -26,7 +26,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1986-02-27.png.webp)
 
-**1988:** On the release date for "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)," his third single and video from *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*, Bruce visits his friend John Mulheren in the Monmouth County jail.<br>
+**1988:** On the release date for "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)," his third single and video from *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*, Bruce visits his friend John Mulheren in the Monmouth County jail.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1988-02-27.jpg.webp)
 

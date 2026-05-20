@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1973-12-07.jpg.webp)
 
-**1974:** Bruce and the band headline at the Geneva Theater in Geneva, New York. Listen to the incredible “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” (it includes a rap similar to the outtake version and the infamous “police siren” effect during the final instrumental), the 24-minute(!) “New York City Serenade,” and the work-in-progress “Jungleland.”<br>
+**1974:** Bruce and the band headline at the Geneva Theater in Geneva, New York. Listen to the incredible “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” (it includes a rap similar to the outtake version and the infamous “police siren” effect during the final instrumental), the 24-minute(!) “New York City Serenade,” and the work-in-progress “Jungleland.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cpuzdxrd)
 

@@ -12,7 +12,7 @@ It’s about the choices we make in life. Have we made the right ones? What do w
 
 Without exception, every song on *Tunnel of Love* concerns the consequences of choosing, written by a songwriter who’s reached the age where the enduring impact of his decisions can no longer be ignored.
 
-“[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)” and “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)” were the first songs recorded for the album in January 1987. The former takes place at the moment of one of life’s great choices, as a groom looks to his father for guidance as he commits to his bride. The latter introduces us to an unwed mother contemplating a terrible decision as she yearns to escape the lasting consequences of a moment of passion.
+“[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)” and “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)” were the first songs recorded for the album in January 1987. The former takes place at the moment of one of life’s great choices, as a groom looks to his father for guidance as he commits to his bride. The latter introduces us to an unwed mother contemplating a terrible decision as she yearns to escape the lasting consequences of a moment of passion.
 
 Over the weeks and months that followed, Bruce recorded song after song, all in *Nebraska* fashion at home by himself. (He’d eventually ask his bandmates to contribute overdubs to fill out the tracks.)
 
@@ -21,24 +21,24 @@ Over the weeks and months that followed, Bruce recorded song after song, all in 
 At first, the songs featured optimism, or at least acceptance.
 
 - “[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)” — the classic romance film homage about a working-class Ron who goes all in for his upper-class Cary
-- “[Valentine’s Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” — the tale of a man who finally finds the strength and motivation to overcome his fear of commitment
+- “[Valentine’s Day](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)” — the tale of a man who finally finds the strength and motivation to overcome his fear of commitment
 - “[Ain’t Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)” — a Billy Boy Arnold tribute by a self-mocking songwriter who realizes he’s committed to the wrong person
 
 As the sessions stretched on toward April, however, Bruce’s songs took on more shading. His characters appeared caught in some form of purgatory, forced to make the same choices each day while they become increasingly infected by self-doubt and temptation.
 
-- “[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)” — the *Night of the Hunter* tribute featuring a husband who chooses each day to resist temptation, knowing that he’ll eventually decide otherwise
+- “[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)” — the *Night of the Hunter* tribute featuring a husband who chooses each day to resist temptation, knowing that he’ll eventually decide otherwise
 - “[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)” — the Lou Christie tribute (if you haven’t realized by now, *Tunnel of Love* is also very much a tribute/homage album) about a man who wrestles with his inner demons daily
-- “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” — one of Bruce’s masterpieces, about the secrets we keep from each other and the choices we make to see past our insecurities
+- “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” — one of Bruce’s masterpieces, about the secrets we keep from each other and the choices we make to see past our insecurities
 
 And then there are the songs that take us to the other side of a relationship:
 
 - “[When You’re Alone](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md)” — What do you do when your ex realizes they made a mistake in leaving you?
-- “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” which salutes one of the hardest choices we ever face: to once again risk heartbreak in search of love
+- “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/),” which salutes one of the hardest choices we ever face: to once again risk heartbreak in search of love
 
 By the time these songs were in the can, Bruce and his first wife Julianne Phillips had separated, and he had long since taken up with his bandmate, Patti Scialfa. He had two more songs left in him, though, and in his early weeks of separation from Juli, he recorded two of the album’s finest tracks:
 
-- “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/),” one of the best songs ever written about the moment and the reasons one decides to stray
-- “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/),” the title track that celebrates the bravery of committing to love when you’ve had enough experience to understand exactly what that entails
+- “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/),” one of the best songs ever written about the moment and the reasons one decides to stray
+- “[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/),” the title track that celebrates the bravery of committing to love when you’ve had enough experience to understand exactly what that entails
 
 [Watch Video Highlight](https://videopress.com/embed/pXf5J7uB)
 

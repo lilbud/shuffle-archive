@@ -10,7 +10,7 @@ But what do you write about? Pressed for time, Bruce Springsteen wrote what he k
 
 With his debut album *almost* in the can (except for the elusive single) and the Bruce Springsteen Band dispersed across the eastern seaboard, Springsteen summoned the only two players he could find on short notice: Madman drummer Vini Lopez and Clarence Clemons, saxman for a local band called Norman Seldin's Joyful Noize.
 
-Together with award-winning Broadway conductor, composer and orchestrator (and future *Dancing with the Stars* musical director) Harold Wheeler on piano, the quartet came together in the studio on September 11, 1972 and walked away with what would become the two best-known tracks from Springsteen's debut album: "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," and "Blinded by the Light."
+Together with award-winning Broadway conductor, composer and orchestrator (and future *Dancing with the Stars* musical director) Harold Wheeler on piano, the quartet came together in the studio on September 11, 1972 and walked away with what would become the two best-known tracks from Springsteen's debut album: "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," and "Blinded by the Light."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xPy82OO6vRg)
 
@@ -45,7 +45,7 @@ The first verse sets the stage: our teenage hero spends his summer splitting his
 
 As for that "pumps his way into his hat" reference: Wikipedia authoritatively cites Bruce's Aunt Dora explaining Bruce's refusal to take off his hat while playing baseball. That's very sweet. I don't doubt that it's the explanation Bruce gave her. I'm sure I would have told my Aunt Dora that too, if she asked me to explain my masturbation reference.
 
-But let's pause for a minute, because those internal rhymes! This was one of Bruce's favorite techniques from his younger days. We can see it on display in released tracks like "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" and the aforementioned "Henry Boy," as well as unreleased early works like "[Marie](https://estreetshuffle.com/index.php/2021/11/15/roll-of-the-dice-marie/)," and "[All I Wanna Do Is Dance](../2021-04-20_roll-of-the-dice-all-i-want-to-do-is-dance/post.md)." (He was still using it as recently as "[Moonlight Motel.](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)")
+But let's pause for a minute, because those internal rhymes! This was one of Bruce's favorite techniques from his younger days. We can see it on display in released tracks like "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and the aforementioned "Henry Boy," as well as unreleased early works like "[Marie](../2011-01-22_roll-of-the-dice-marie/post.md/)," and "[All I Wanna Do Is Dance](../2021-04-20_roll-of-the-dice-all-i-want-to-do-is-dance/post.md)." (He was still using it as recently as "[Moonlight Motel.](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)")
 
 But nowhere in his catalog does he ever before or since approach the level of wizardry he employs here. He even gets an extra credit point for sneaking in some bookending alliteration!
 
@@ -125,7 +125,7 @@ If there's a moral to "Blinded by the Light," here it is: excitement often comes
 
 Not many artists score a Number One hit single with the first song on their first album, but Bruce Springsteen can claim membership in that club. It comes with an asterisk, though. Columbia issued his first-ever single in February 1973, shortly after the January release of the album. It tanked without ever charting, as did the album. (*Greetings* sold only about 23,000 copies the year of its release.)
 
-Then Manfred Mann came along. Mann and his Earth Band recorded a seven-minute cover of "Blinded" for their 1976 album *The Roaring Silence*. It wasn't [the first time](https://estreetshuffle.com/index.php/2021/02/24/cover-me-manfred-manns-earth-band-spirits-in-the-night/) Mann had covered one of Bruce's songs, and it wouldn't be [the last](../2018-06-14_cover-me-manfred-manns-earth-band-for-you/post.md). But it would certainly be the most successful, topping the charts in both the U.S. and Canada.
+Then Manfred Mann came along. Mann and his Earth Band recorded a seven-minute cover of "Blinded" for their 1976 album *The Roaring Silence*. It wasn't [the first time](../2011-02-01_cover-me-manfred-manns-earth-band-spirits-in-the-night/post.md/) Mann had covered one of Bruce's songs, and it wouldn't be [the last](../2018-06-14_cover-me-manfred-manns-earth-band-for-you/post.md). But it would certainly be the most successful, topping the charts in both the U.S. and Canada.
 
 That's probably at least in part due to a certain lyrical change in Mann's version that caused millions of listeners to wonder, "did he really just say that?" The irony is while Mann did indeed make an alteration to Bruce's words (from "cut loose like a deuce" to "revved up like a deuce," he didn't change the part that revved everyone up.
 

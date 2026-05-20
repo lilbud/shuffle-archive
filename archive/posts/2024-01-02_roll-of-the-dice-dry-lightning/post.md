@@ -10,7 +10,7 @@ First, let's take a listen to "Dry Lightning" together and take a close look ins
 
 As it stands, "Dry Lightning" is as close as we get to an E Street Band song on [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md), with bandmates Danny Federici, Garry Tallent, and Soozie Tyrell joining Bruce to bring this gorgeous track to life. (Gary Mallaber's drums are the only non-E Street contributions).
 
-Borrowing the melody from "[Jersey Girl,](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" Bruce spins a tale of torrid romance turned dry and distant memory. We meet our narrator as he rises from a sleepless night (in a verse that contains distant echoes of the opening of "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)").
+Borrowing the melody from "[Jersey Girl,](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" Bruce spins a tale of torrid romance turned dry and distant memory. We meet our narrator as he rises from a sleepless night (in a verse that contains distant echoes of the opening of "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)").
 
 > *I threw my robe on in the morning, watched the ring on the stove turn to red*<br>
 > *Stared hypnotized into a cup of coffee, pulled on my boots and made the bed*<br>

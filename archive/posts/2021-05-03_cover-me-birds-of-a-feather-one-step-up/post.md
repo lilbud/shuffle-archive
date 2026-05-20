@@ -8,10 +8,10 @@ Like many bands in 2020, the Birds of a Feather used the great shutdown as an op
 
 By any measure, they've been astoundingly productive: they recently finished recording their upcoming album while performing weekly livestream concerts for their fans (their *fiftieth* weekly show just aired last week).
 
-They've also been recording a series of beautiful cover performances in their Acoustic Sessions series, including this delicate rendition of "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)," featuring Ryan Leon on guitar, Amy McKay on piano, and their lovely duet vocal.
+They've also been recording a series of beautiful cover performances in their Acoustic Sessions series, including this delicate rendition of "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)," featuring Ryan Leon on guitar, Amy McKay on piano, and their lovely duet vocal.
 
 [Watch on Youtube: Bruce Springsteen - One Step Up - Acoustic Cover by Birds of a Feather](https://www.youtube.com/watch?v=1m13nDsiYrs)
 
-"One Step Up" is one of Bruce's saddest and loneliest songs, and like its album-mate "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," it translates to a duet without losing any of its poignancy.
+"One Step Up" is one of Bruce's saddest and loneliest songs, and like its album-mate "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)," it translates to a duet without losing any of its poignancy.
 
 For more music from Birds of a Feather visit their web site [here](https://www.birdsofafeathermusic.com/en/biography/), and [follow them on Facebook](https://www.facebook.com/birdsofafeathersound) to catch their next livestream concert.

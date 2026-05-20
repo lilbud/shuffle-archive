@@ -2,7 +2,7 @@ To the degree that fans think about "Lucky Man" at all (after all, it was a 1987
 
 Consider me on Team Sincere.
 
-Recorded late in the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)recording sessions, Bruce's songwriting had already taken a turn from the sweet ("[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)," "[Two for the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)," "[The Honeymooners](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)," and "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)" were all recorded near the outset) to the sinister ("[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)" and "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" were the last to be recorded at the end).
+Recorded late in the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)recording sessions, Bruce's songwriting had already taken a turn from the sweet ("[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)," "[Two for the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)," "[The Honeymooners](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)," and "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)" were all recorded near the outset) to the sinister ("[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" and "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" were the last to be recorded at the end).
 
 Bruce will probably never make it clear exactly what was going on between him and first wife Julianne Phillips at the time, but the darker turn in his songwriting certainly suggests that something was accelerating. The idea of a rootless, itinerant driver savoring his freedom from romantic ties must have seemed like a pretty potent escape fantasy.
 
@@ -64,7 +64,7 @@ The final lines of the song are strikingly familiar:
 > *I don't miss no girl, I don't miss no home*<br>
 > *He travels fastest who travels alone*<br>
 
-Bruce uses very similar words to very different ends in "[Valentine's Day,](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)" another song from the Tunnel of Love sessions:
+Bruce uses very similar words to very different ends in "[Valentine's Day,](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)" another song from the Tunnel of Love sessions:
 
 > *They say he travels fastest who travels alone*<br>
 > *But tonight I miss my girl mister tonight I miss my home*<br>

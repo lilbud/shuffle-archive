@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/33928903008_7b91ee25b6_o.jpg.webp)
 
-**1980:** A special Halloween show at the Los Angeles Memorial Sports Arena, with Bruce entering the stage in a coffin chased by ghosts and opening the show with a one-off of "[Haunted House](../2021-10-30_cover-me-haunted-house/post.md)." Special moments abound in this show: the live debut of "[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)" (in an acoustic arrangement, no less), the premiere of "[Out of Limits](../2021-10-14_cover-me-out-of-limits/post.md)" and the tour premiere of "[Growin' Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)"<br>
+**1980:** A special Halloween show at the Los Angeles Memorial Sports Arena, with Bruce entering the stage in a coffin chased by ghosts and opening the show with a one-off of "[Haunted House](../2021-10-30_cover-me-haunted-house/post.md)." Special moments abound in this show: the live debut of "[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)" (in an acoustic arrangement, no less), the premiere of "[Out of Limits](../2021-10-14_cover-me-out-of-limits/post.md)" and the tour premiere of "[Growin' Up.](../2011-01-03_roll-of-the-dice-growin-up/post.md/)"<br>
 
 [Watch on Youtube: Bruce Springsteen - HAUNTED HOUSE 1980 (audio)](https://www.youtube.com/watch?v=UsOUjoYIy8s)
 
@@ -38,13 +38,13 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Simi_Valley_Star_1984_11_02_21-scaled.jpg.webp)
 
-**1987:** Forbes Magazine lists Bruce as the third highest-earning American entertainer at $56 million. That night, Bruce and the E Street Band (minus Nils and Clarence) play at McLoone's Rum Runner in Sea Bright, where they play "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)," "[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)" and an acoustic "Born to Run" for the very first time.<br>
+**1987:** Forbes Magazine lists Bruce as the third highest-earning American entertainer at $56 million. That night, Bruce and the E Street Band (minus Nils and Clarence) play at McLoone's Rum Runner in Sea Bright, where they play "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)," "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)," "[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)" and an acoustic "Born to Run" for the very first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bSuRxEka)
 
 [Watch on Youtube: Bruce Springsteen - Fortunate Son (1987-10-31)](https://www.youtube.com/watch?v=CL-qWBgaIkw)
 
-**1992:** Bruce and his new touring band bring World Tour 1992 to the Target Center in Minneapolis for a Halloween show, where Bruce celebrates by opening with an unusual arrangement of "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)." Earlier in the day, Bruce goes shopping at Bloomingdale's.<br>
+**1992:** Bruce and his new touring band bring World Tour 1992 to the Target Center in Minneapolis for a Halloween show, where Bruce celebrates by opening with an unusual arrangement of "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)." Earlier in the day, Bruce goes shopping at Bloomingdale's.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Spirit in the Night" 1992-10-31, Minneapolis](https://www.youtube.com/watch?v=9qv1mKFw7T0)
 

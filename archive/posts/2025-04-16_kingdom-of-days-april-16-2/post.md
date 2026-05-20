@@ -28,7 +28,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/uFt2pexl)
 
-**1996:** Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, "[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)." This show was rescheduled from its original scheduled date in March.<br>
+**1996:** Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, "[Pilgrim in the Temple of Love](../2002-01-12_roll-of-the-dice-pilgrim-in-the-temple-of-love/post.md/)." This show was rescheduled from its original scheduled date in March.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xlOP1Ixx)
 

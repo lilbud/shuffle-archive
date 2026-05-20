@@ -12,7 +12,7 @@ Except for Gary Mallaber's drums, Bruce plays every instrument on the track. Eve
 
 What makes this song so enduringly endearing to fans is its recognition that (in the words of another great Springsteen song) it's easy for two people to lose each other in this tunnel of love.
 
-(In fact, "If I Should Fall Behind" serves as a great sequel to "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)." It's very easy to imagine that the same narrator sings both songs–"Tunnel of Love" at the beginning of a relationship and "If I Should Fall Behind" at their wedding.)
+(In fact, "If I Should Fall Behind" serves as a great sequel to "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)." It's very easy to imagine that the same narrator sings both songs–"Tunnel of Love" at the beginning of a relationship and "If I Should Fall Behind" at their wedding.)
 
 > *We said we'd walk together, baby, come what may*<br>
 > *That come the twilight should we lose our way*<br>

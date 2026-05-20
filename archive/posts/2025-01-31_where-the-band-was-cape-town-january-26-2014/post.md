@@ -6,7 +6,7 @@ Even the songs I'd heard dozens of times live were fresh and exciting because th
 
 The "arena" itself was strange–it was actually a velodrome, basically a giant bowl. It was really small (you can see that in some of the videos that follow), and Bruce compared it to Asbury Park's Convention Hall. For the first show, I didn't make the pit, but I was able to see directly over it with an unobstructed line of sight to the stage by standing off to the side along the edge of the "bowl." The price I paid for standing and dancing on a steep incline all night: aching calves the next day. It was worth it.
 
-Check out the videos, and you'll feel the mood that held for the whole evening–an exuberant celebration. The crowd wasn't quite sure what to do during some of the audience participation parts ("[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" was particularly funny–when Bruce asked the audience if anyone knew the question he was there to ask, he got responses like "I love you!" and "Italy!") but they figured it out pretty quick on the subsequent nights.
+Check out the videos, and you'll feel the mood that held for the whole evening–an exuberant celebration. The crowd wasn't quite sure what to do during some of the audience participation parts ("[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" was particularly funny–when Bruce asked the audience if anyone knew the question he was there to ask, he got responses like "I love you!" and "Italy!") but they figured it out pretty quick on the subsequent nights.
 
 [Watch on Youtube: Bruce Springsteen: Mandela Was The Real Boss](https://www.youtube.com/watch?v=FOCnZ6xwxTI)
 
@@ -28,7 +28,7 @@ Sure enough, leading off the encore was "[We Shall Overcome](../2018-08-15_roll-
 
 [Watch on Youtube: Bruce Springsteen - We Shall Overcome - Cape Town - Bellville - 2014-01-26](https://www.youtube.com/watch?v=PE2lhLHeDBw)
 
-But Bruce must have had Pete Seeger on his mind the whole night, because interspersed throughout the set were two other Seeger tour staples not seen since 2006: the swing arrangement of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," and "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)."
+But Bruce must have had Pete Seeger on his mind the whole night, because interspersed throughout the set were two other Seeger tour staples not seen since 2006: the swing arrangement of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," and "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)."
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - CAPETOWN 28.01.2014 - OPEN ALL NIGHT](https://www.youtube.com/watch?v=HknI8UFAdbE)
 
@@ -40,7 +40,7 @@ Bruce was also much looser at this show than at the opener. On Night 1, there we
 
 Night 3 was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)" and featuring standards from that tour like "[Jack of All Trades,](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" "[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)," and "[Rocky Ground](../2023-03-20_roll-of-the-dice-rocky-ground/post.md)." It's almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
 
-But it was also a night of premieres (including the first ever performance of "[This is Your Sword,](../2021-02-04_roll-of-the-dice-this-is-your-sword/post.md)" which Steve was clearly not prepared for), sign requests (including a memorable one for "[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)"), surprises (Tom Morello's brother proposed on-stage to his fiancee), and guest-stars (Mos Def joined the band during the encores for a unpredictable-yet-inevitable cover of "Sun City."
+But it was also a night of premieres (including the first ever performance of "[This is Your Sword,](../2021-02-04_roll-of-the-dice-this-is-your-sword/post.md)" which Steve was clearly not prepared for), sign requests (including a memorable one for "[Tougher than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)"), surprises (Tom Morello's brother proposed on-stage to his fiancee), and guest-stars (Mos Def joined the band during the encores for a unpredictable-yet-inevitable cover of "Sun City."
 
 [Watch on Youtube: Bruce Springsteen - 2014-01-29 - Cape Town Bellville Velodrome - This Is Your Sword - World Premiere](https://www.youtube.com/watch?v=PQLUN4h3KpA)
 

@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Verona 2006 - Full Broadcast (Italian FM Radio Broadcast)](https://www.youtube.com/watch?v=KvadUhGEKY0)
 
-**2007:** The young Magic Tour rolls into Philadelphia for its first two-night stand. Night One at the Wachovia Center features tour debuts for "[No Surrender,](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" (in place of Patti's "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)") and "[My Hometown.](../2020-04-09_roll-of-the-dice-my-hometown/post.md)"<br>
+**2007:** The young Magic Tour rolls into Philadelphia for its first two-night stand. Night One at the Wachovia Center features tour debuts for "[No Surrender,](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" (in place of Patti's "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)") and "[My Hometown.](../2020-04-09_roll-of-the-dice-my-hometown/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen Radio Nowhere live Philadelphia 10/05/2007](https://www.youtube.com/watch?v=1RrxmM2jpxg)
 

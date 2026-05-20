@@ -1,6 +1,6 @@
 If I had less restraint, I'd probably feature a cover from the outstanding *Play Some Pool, Skip Some School, Act Real Cool* compilation (released back in 2009) at least once a week. There are so many great tracks on that album–I really can't recommend it enough.
 
-(See my previous entry on Jeniferever's [stunning cover](../2019-11-03_cover-me-jeniferever-one-step-up/post.md) of "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)" from that compilation.)
+(See my previous entry on Jeniferever's [stunning cover](../2019-11-03_cover-me-jeniferever-one-step-up/post.md) of "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" from that compilation.)
 
 Today, the spotlight is on one of my favorites: a gorgeous cello and double bass-led arrangement of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" by Vatican Cellars.
 

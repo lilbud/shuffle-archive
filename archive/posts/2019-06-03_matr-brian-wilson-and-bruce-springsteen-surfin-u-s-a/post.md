@@ -6,7 +6,7 @@ Brian Wilson wrote "Surfin' U.S.A." (the lyrics at least–the melody was lifted
 
 Released as both a single and the title track from their 1963 album, "Surfin' U.S.A." rocketed up the charts. It peaked at #3 but had such staying power that Billboard ranked it #1 for the entire year. Curiously, though, its radio popularity didn't translate to record sales; "Surfin' U.S.A." has never been awarded gold record status.
 
-Bruce has often cited The Beach Boys as a musical influence, but although he'd [crossed paths](https://estreetshuffle.com/index.php/2019/04/07/kingdom-of-days-april-7-2/) with the band [a few times](https://estreetshuffle.com/index.php/2019/04/11/kingdom-of-days-april-11-2/) in the early days, he never performed with Brian or the band on stage.
+Bruce has often cited The Beach Boys as a musical influence, but although he'd [crossed paths](../2025-04-07_kingdom-of-days-april-7-2/post.md/) with the band [a few times](../2025-04-11_kingdom-of-days-april-11-2/post.md/) in the early days, he never performed with Brian or the band on stage.
 
 Until July 1, 2015, that is.
 

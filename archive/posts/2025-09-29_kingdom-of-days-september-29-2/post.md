@@ -84,7 +84,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2017-09-29.jpg.webp)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" with Patti. In attendance tonight: Hozier.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" with Patti. In attendance tonight: Hozier.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2018-09-29.jpg.webp)
 

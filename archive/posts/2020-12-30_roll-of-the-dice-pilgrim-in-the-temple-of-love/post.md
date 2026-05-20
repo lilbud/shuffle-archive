@@ -28,7 +28,7 @@ For Bruce actually is known to be an aficionado of the naked art scene–he's ad
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=THuosDWhJC4)
 
-Bruce shared that story almost a decade after his last performance of "Pilgrim in the Temple of Love" and in a much different context. By way of introducing "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)", Bruce used his anecdote to illustrate his theme of a "public face" and a "private face."
+Bruce shared that story almost a decade after his last performance of "Pilgrim in the Temple of Love" and in a much different context. By way of introducing "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)", Bruce used his anecdote to illustrate his theme of a "public face" and a "private face."
 
 The notion that we have different identities depending on who we're with and where is something we're all familiar with. But for celebrities (let alone icons), it's something they're *always* aware of. It's part of the cost of fame.
 

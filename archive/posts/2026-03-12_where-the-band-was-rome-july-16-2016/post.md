@@ -24,7 +24,7 @@ When the band ripped into "[Badlands](../2019-05-20_roll-of-the-dice-badlands/po
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_Gp1O7VJEaE)
 
-A healthy River eight-pack followed, interrupted only by a pair of sign requests to jolt the crowd with spontaneity: "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[Detroit Medley.](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)"
+A healthy River eight-pack followed, interrupted only by a pair of sign requests to jolt the crowd with spontaneity: "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[Detroit Medley.](../1976-01-02_cover-me-detroit-medley/post.md/)"
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2HpoJRElaJ4)
 

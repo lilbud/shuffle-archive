@@ -4,7 +4,7 @@
 
 **1970:** Bruce and Steel Mill open for the Elvin Bishop Band at The Matrix in San Francisco.<br>
 
-**1971**: Steel Mill’s last stand, the first of two nights at The Upstage in Asbury Park. Late in the show, the band makes a PSA to support The Upstage, and Bruce talks about how hard it’s been finding gigs thanks to the [Clearwater incident](https://estreetshuffle.com/index.php/2018/09/11/kingdom-of-days-september-11/) from last summer.<br>
+**1971**: Steel Mill’s last stand, the first of two nights at The Upstage in Asbury Park. Late in the show, the band makes a PSA to support The Upstage, and Bruce talks about how hard it’s been finding gigs thanks to the [Clearwater incident](../2025-09-11_kingdom-of-days-september-11-2/post.md/) from last summer.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/09-PSA.flac?_=2](https://estreetshuffle.com/wp-content/uploads/2018/01/09-PSA.flac?_=2)
 

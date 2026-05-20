@@ -8,7 +8,7 @@ Let's take a listen to the last recording first. Captured by Tinker West at a Br
 
 [Watch on Youtube: Bruce Springsteen - Look Towards The Land (1972 rehearsal) [improved audio]](https://www.youtube.com/watch?v=dY3To2izd3Y)
 
-"Look Towards the Land" is an exercise in restraint for the band. Bruce holds tight rein in order to make sure that the introspective, romantic lyrics don't get lost. The melody is piano-driven, and is very similar to "[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)," which Bruce would record for his first album later that year.
+"Look Towards the Land" is an exercise in restraint for the band. Bruce holds tight rein in order to make sure that the introspective, romantic lyrics don't get lost. The melody is piano-driven, and is very similar to "[Mary, Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)," which Bruce would record for his first album later that year.
 
 Although the song runs a full ten minutes, there's not a change-up to be found. Bruce isn't showing off here; instead, he's expressing the dream of a protagonist who fancies himself an explorer, and adventurer, a gypsy (in other words, a musician)–but one who's torn between his compass and his anchor. The anchor, of course, is a woman–one he yearns for as a travel companion, although the lack of detail about her implies that he misses the concept of her more than the fact of her.
 

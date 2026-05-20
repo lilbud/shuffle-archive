@@ -66,7 +66,7 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry'
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1995-09-02b.jpg.webp)
 
-**2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "[Green Onions](../2019-05-17_cover-me-green-onions/post.md)" during sign collection, as well as "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)," "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," and Philly special "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)."<br>
+**2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "[Green Onions](../2019-05-17_cover-me-green-onions/post.md)" during sign collection, as well as "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and Philly special "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VD2CbhUu)
 

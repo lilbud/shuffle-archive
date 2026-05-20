@@ -10,7 +10,7 @@ And then, almost as an afterthought, comes two bonus tracks: "Swallowed Up (In t
 
 The latter makes sense as a bonus track–although it's not a completely square peg in the album's roundly economic theme, Bruce had already given it an official release as a live performance back in 2006.
 
-But as for the former… I try not to second-guess Bruce's album inclusion and sequence choices (or at least I *try* to try not to), I can't help but feel like Bruce made the wrong call: the album would have been better served with "Swallowed Up" as its nadir and "This Depression" in the bonus track slot. (Or better yet, keep them both and kick "[You've Got It](https://estreetshuffle.com/index.php/2020/07/29/roll-of-the-dice-youve-got-it/)" to the back of the disc.)
+But as for the former… I try not to second-guess Bruce's album inclusion and sequence choices (or at least I *try* to try not to), I can't help but feel like Bruce made the wrong call: the album would have been better served with "Swallowed Up" as its nadir and "This Depression" in the bonus track slot. (Or better yet, keep them both and kick "[You've Got It](../2020-07-30_roll-of-the-dice-youve-got-it/post.md/)" to the back of the disc.)
 
 "This Depression" is a great song, but it breaks the album's theme. It shifts the focus from the societal wreckage wreaked by economic inequity to a more universal and personal depression.
 

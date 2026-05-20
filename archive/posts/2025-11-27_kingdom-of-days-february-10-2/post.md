@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2016-02-10.png.webp)
 
-**2023:** At the American Airlines Center in Dallas, Soozie is still down for the count with COVID, and now Little Steven is as well. Patti is absent too, as she will be for the rest of the tour, but while the E Street Band is diminished in size, they perform at full strength and tour premiere “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” in the encores.<br>
+**2023:** At the American Airlines Center in Dallas, Soozie is still down for the count with COVID, and now Little Steven is as well. Patti is absent too, as she will be for the rest of the tour, but while the E Street Band is diminished in size, they perform at full strength and tour premiere “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Detroit Medley [Dallas TX, USA - 10.FEB.2023] Official Audio](https://www.youtube.com/watch?v=XqA3NOz52gM)
 

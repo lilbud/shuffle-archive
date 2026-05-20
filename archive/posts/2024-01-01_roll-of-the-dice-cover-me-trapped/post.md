@@ -42,7 +42,7 @@ Bruce also changed the line "evil concentrated must be disintegrated" to "I'll t
 
 Combined with the slow build and powerful, explosive chorus, Bruce's "Trapped" conveys a blend of seething anger and obstinate determination missing from the more optimistic original.
 
-Bruce debuted the song at the opening show of a six-night stand at Wembley Arena in London. Bruce was carrying some personal baggage from previous shows there, and debuting an obscure cover in a new, untried arrangement was a bold move–but it worked, fabulously so. Here's that debut performance, from [May 29](https://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/), 1981:
+Bruce debuted the song at the opening show of a six-night stand at Wembley Arena in London. Bruce was carrying some personal baggage from previous shows there, and debuting an obscure cover in a new, untried arrangement was a bold move–but it worked, fabulously so. Here's that debut performance, from [May 29](../2025-05-29_kingdom-of-days-may-29-2/post.md/), 1981:
 
 [Watch on Youtube: Bruce Springsteen - live debut of "Trapped" - 1981-05-29](https://www.youtube.com/watch?v=RpGVwh0NkY4)
 
@@ -61,7 +61,7 @@ Despite its frequent inclusion and rare tour absences, Bruce has never altered t
 **Trapped**<br>
 Never recorded in-studio
 Released (live):** *We Are the World* (1985), *The Essential Bruce Springsteen* (2003)
-**First performed:** [May 29](https://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/), 1981 (London, England)<br>
+**First performed:** [May 29](../2025-05-29_kingdom-of-days-may-29-2/post.md/), 1981 (London, England)<br>
 **Last performed:** August 24, 2023 (Foxborough, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

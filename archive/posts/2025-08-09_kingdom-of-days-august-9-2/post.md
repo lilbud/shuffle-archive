@@ -72,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1996-0809.jpg.webp)
 
-**1999:** Night Thirteen of fifteen at the Meadowlands sees the Reunion Tour premiere and one-off performance of "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," not heard from in 23 years. During "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," Bruce opens the show with "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" (the second and last time to date that song has ever opened a show) and invites lifelong friend (and recent conga convert) Steve Eitelberg to join him on stage, making good on an alcohol-fueled promise. (Check out the story below.)<br>
+**1999:** Night Thirteen of fifteen at the Meadowlands sees the Reunion Tour premiere and one-off performance of "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," not heard from in 23 years. During "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," Bruce opens the show with "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" (the second and last time to date that song has ever opened a show) and invites lifelong friend (and recent conga convert) Steve Eitelberg to join him on stage, making good on an alcohol-fueled promise. (Check out the story below.)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/R5VjRrxz)
 

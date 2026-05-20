@@ -58,7 +58,7 @@ A remarkable run of vintage Springsteen originals followed "for our old, old, ol
 
 [Watch Video Highlight](https://videopress.com/embed/HeDEsJRX)
 
-"[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" led to "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," which had Bruce in a nostalgic mood, recounting all the bands they'd opened for where "Thundercrack" was their "first showstopper."
+"[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" led to "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)," which had Bruce in a nostalgic mood, recounting all the bands they'd opened for where "Thundercrack" was their "first showstopper."
 
 And then came another highlight of the night: my first full-band "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)" (I'd heard it only acoustically before), with an absolutely gorgeous new introductory guitar solo by Bruce, and a mid-song story. Bruce reminisced about the fireflies he used to watch as he wrote the song, and as he spoke, the crowd broke out their cel phones, and the park became filled with fireflies… "Light 'em up! That's good…" Even if you skipped the other videos, watch this one.
 
@@ -90,11 +90,11 @@ The rain had continued since "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the
 
 [Watch on Youtube: Springsteen Fenway 2 Creedence](https://www.youtube.com/watch?v=-TF0AHNL_PI)
 
-"Born to Run" followed–we certainly knew *that* was coming–followed by an appropriately old-school "[Detroit Medley.](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)"
+"Born to Run" followed–we certainly knew *that* was coming–followed by an appropriately old-school "[Detroit Medley.](../1976-01-02_cover-me-detroit-medley/post.md/)"
 
 [Watch on Youtube: Springsteen Fenway 2 Detroit and Dancing](https://www.youtube.com/watch?v=CFbBVPTZ6_Y)
 
-And then, after "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" came one last sign request–and oh, what a great one: we were back in the seventies again, with the tour premiere of "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)," another first for me. The cherry on top: Bruce reprised his "I'm just a prisoner….. of rock and roll" declaration at the end of the song, another moment I'd never thought I'd get to witness live.
+And then, after "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" came one last sign request–and oh, what a great one: we were back in the seventies again, with the tour premiere of "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)," another first for me. The cherry on top: Bruce reprised his "I'm just a prisoner….. of rock and roll" declaration at the end of the song, another moment I'd never thought I'd get to witness live.
 
 We could have been done by that point as far as I was concerned, but Bruce wasn't. We still had "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" and a show-closing "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" (complete with guest-appearance by Ken Casey of Dropkick Murphys) in store.
 

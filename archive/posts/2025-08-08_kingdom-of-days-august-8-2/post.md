@@ -30,7 +30,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/qUtloRcX)
 
-**2003:** Bruce and the E Street Band play their first of three Rising Tour nights at Lincoln Financial Field in Philadelphia, where fans enjoy the first full-band "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" of the tour.<br>
+**2003:** Bruce and the E Street Band play their first of three Rising Tour nights at Lincoln Financial Field in Philadelphia, where fans enjoy the first full-band "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" of the tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RC0F6oBf)
 

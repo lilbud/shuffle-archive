@@ -70,13 +70,13 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad�
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Philadelphia_Daily_News_2006_08_28_Page_37-scaled.jpg.webp)
 
-**2009:** Jay Weinberg flies solo on drums for the entire Working on a Dream show in Saratoga Springs, but it’s the soundcheck that’s most interesting about this show: check out a rare “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)” and Little Steven on lead vocals for “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” and “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
+**2009:** Jay Weinberg flies solo on drums for the entire Working on a Dream show in Saratoga Springs, but it’s the soundcheck that’s most interesting about this show: check out a rare “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)” and Little Steven on lead vocals for “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” and “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AmZyGrtP)
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2009-08-25.jpg.webp)
 
-**2016:** Bruce flirts with the four-hour mark at Night Two at MetLife Stadium, stopping just short of it but setting a new American record for show length just the same. “New York City Serenade” with strings is once again the opener, and “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” with fireworks is once again the closer (this time with a marriage proposal that ends the evening on a wonderfully loose and romantic note). Tom Morello makes his final E Street Band appearance to date, on stage for four songs. For more highlights from this show, see my [*Where the Band Was*](../2018-08-25_where-the-band-was-east-rutherford-august-25-2016/post.md) report.<br>
+**2016:** Bruce flirts with the four-hour mark at Night Two at MetLife Stadium, stopping just short of it but setting a new American record for show length just the same. “New York City Serenade” with strings is once again the opener, and “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” with fireworks is once again the closer (this time with a marriage proposal that ends the evening on a wonderfully loose and romantic note). Tom Morello makes his final E Street Band appearance to date, on stage for four songs. For more highlights from this show, see my [*Where the Band Was*](../2018-08-25_where-the-band-was-east-rutherford-august-25-2016/post.md) report.<br>
 
 [Watch on Youtube: Bruce Springsteen - Waiting on a Sunny Day - MetLife stadium 08/25/16](https://www.youtube.com/watch?v=odKf_k4x0iI)
 

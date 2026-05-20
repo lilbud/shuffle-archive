@@ -1,6 +1,6 @@
 Katee Cross is a country singer-songwriter from Scotland with four well-received albums to her credit. She's also a great cover artist, able to find and feed the heart of a song while bringing something fresh and new to it.
 
-Here's a perfect example: her 2016 performance of Bruce Springsteen's "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."
+Here's a perfect example: her 2016 performance of Bruce Springsteen's "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."
 
 [Watch on Youtube: Katee Kross - Tougher Than The Rest (Bruce Springsteen)](https://www.youtube.com/watch?v=J21gKsHyG10)
 

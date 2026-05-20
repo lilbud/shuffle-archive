@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1973; video for 1992, 2013 and 2023; audio for 1993*<br>
 
-**1972:** At 914 Sound Studios in New York, Bruce records “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and “[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” (minus the harmonica, which will be overdubbed later).<br>
+**1972:** At 914 Sound Studios in New York, Bruce records “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” and “[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)” (minus the harmonica, which will be overdubbed later).<br>
 
 [Watch on Youtube: It's Hard to Be a Saint in the City](https://www.youtube.com/watch?v=B2Rju9FVE2M)
 
@@ -16,7 +16,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1978-0626.jpg.webp)
 
-**1982:** Bruce joins Billy Chinnock on stage at Big Man’s West for “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”<br>
+**1982:** Bruce joins Billy Chinnock on stage at Big Man’s West for “[Lucille](../1976-01-07_cover-me-lucille/post.md/).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Y4S1mwaJ)
 

@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1975-07-25.png.webp)
 
-**1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for eight songs, including “[Come On, Let’s Go](../2018-10-19_cover-me-come-on-lets-go/post.md),” “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/),” “[Around and Around](../2020-02-26_cover-me-around-and-around/post.md),” and “[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md).” Listen to Bruce’s full set below.<br>
+**1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for eight songs, including “[Come On, Let’s Go](../2018-10-19_cover-me-come-on-lets-go/post.md),” “[Lucille](../1976-01-07_cover-me-lucille/post.md/),” “[Around and Around](../2020-02-26_cover-me-around-and-around/post.md),” and “[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md).” Listen to Bruce’s full set below.<br>
 
 [Watch on Youtube: Bruce Springsteen and Cats on a Smooth Surface - July 25, 1982](https://www.youtube.com/watch?v=RPenU9SOFzI)
 

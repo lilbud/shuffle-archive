@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Boston 12/3/75](https://www.youtube.com/watch?v=FFPOWal1TkM)
 
-**1978:** Bruce and the boys bring the Darkness Tour to Southern Illinois University in Carbondale, where they open with “[High School Confidential](../2020-05-04_cover-me-high-school-confidential/post.md)” and feature “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” as part of “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for only the second and final time.<br>
+**1978:** Bruce and the boys bring the Darkness Tour to Southern Illinois University in Carbondale, where they open with “[High School Confidential](../2020-05-04_cover-me-high-school-confidential/post.md)” and feature “[Lucille](../1976-01-07_cover-me-lucille/post.md/)” as part of “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” for only the second and final time.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Detroit Medley" - Carbondale, 1978-12-03](https://www.youtube.com/watch?v=MoJ2wz8bSU8)
 

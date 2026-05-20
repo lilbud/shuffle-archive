@@ -16,7 +16,7 @@ This was the first Night Two of the tour, and as predicted, the setlist started 
 
 [Watch on Youtube: "American Land" - Bruce Springsteen - The River Tour - Los Angeles 3/17/2016](https://www.youtube.com/watch?v=TcFpvn7M0iM)
 
-Both delighted me: Bruce may have played them for their Irish melodies (it was St. Patrick's Day!) but they're also two of my favorite songs from one of my favorite albums. Throw in a beautiful Bruce and Patti duet on "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" (only the second time I'd seen that song performed), and I was a very happy fan.
+Both delighted me: Bruce may have played them for their Irish melodies (it was St. Patrick's Day!) but they're also two of my favorite songs from one of my favorite albums. Throw in a beautiful Bruce and Patti duet on "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" (only the second time I'd seen that song performed), and I was a very happy fan.
 
 [Watch on Youtube: Bruce Springsteen - "Brilliant Disguise" - Los Angeles - 2016-03-17](https://www.youtube.com/watch?v=62vcj4oDbxs)
 

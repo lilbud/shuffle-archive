@@ -36,7 +36,7 @@ During the extended introduction, Bruce told a new story–the first of several 
 
 But lest we forget that this was still (officially at least) the River Tour, a six-song run of fan favorites from that album followed: "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)," "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)," "[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)" "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" and "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)."
 
-The River run wasn't unbroken, though–it was punctuated by a few even older songs, starting with "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)."
+The River run wasn't unbroken, though–it was punctuated by a few even older songs, starting with "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)."
 
 [Watch on Youtube: Bruce Springsteen - Spirit In The Night (MetLife Stadium - August 23, 2016)](https://www.youtube.com/watch?v=DAUkSarJWWk)
 
@@ -60,7 +60,7 @@ That beautiful performance was the start of a four-song slow set, which for any 
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - My Hometown 2016-08-23](https://www.youtube.com/watch?v=7yP6RETtn-Q)
 
-"[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)"–always a highlight–wrapped up the slow set. Bruce picked up the tempo with a fierce "American Skin (41 Shots)" (Bruce was clearly sending a message via the theme of his song selection tonight) and then launched into a round of crowd-pleasing hits: "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)." "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," "[Darlington County,](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" "Because the Night," "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" and "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)."
+"[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)"–always a highlight–wrapped up the slow set. Bruce picked up the tempo with a fierce "American Skin (41 Shots)" (Bruce was clearly sending a message via the theme of his song selection tonight) and then launched into a round of crowd-pleasing hits: "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)." "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," "[Darlington County,](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" "Because the Night," "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" and "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)."
 
 [Watch on Youtube: The Promised Land - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=LJNlxhf8E6E)
 
@@ -82,7 +82,7 @@ It was a typical encore party from there: "Born to Run" giving way to "[Dancing 
 
 [Watch on Youtube: Bruce Springsteen Rosalita 8/23/16 MetLife Stadium, NJ First row pit](https://www.youtube.com/watch?v=g2jIckE_LR8)
 
-It was a pretty sure bet that we'd get one last song after "Bobby Jean," and we all knew what it was likely to be (or at least what we hoped it to be). Bruce did not disappoint: he played us out with a hometown special–"[Jersey Girl,](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" complete with fireworks, and my second personal premiere of the night.
+It was a pretty sure bet that we'd get one last song after "Bobby Jean," and we all knew what it was likely to be (or at least what we hoped it to be). Bruce did not disappoint: he played us out with a hometown special–"[Jersey Girl,](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" complete with fireworks, and my second personal premiere of the night.
 
 [Watch on Youtube: Bruce Springsteen: JERSEY GIRL -- Tue, Aug. 23, 2016](https://www.youtube.com/watch?v=PdDNbaO9_PY)
 

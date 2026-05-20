@@ -46,7 +46,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/fpJ31k53)
 
-**2005:** Four tour premieres when the Devils & Dust Tour stops in Stockholm, including “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md),” “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md),” and the first “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)” in 17 years. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24925/bruce-springsteen-hovet-stockholm-se-06-25-2005-mp3-flac-or-online-music-streaming.html).<br>
+**2005:** Four tour premieres when the Devils & Dust Tour stops in Stockholm, including “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md),” “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md),” and the first “[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)” in 17 years. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24925/bruce-springsteen-hovet-stockholm-se-06-25-2005-mp3-flac-or-online-music-streaming.html).<br>
 
 [Watch on Youtube: Bruce Springsteen Archives: "Reason To Believe" Stockholm, Sweden, June 25, 2005](https://www.youtube.com/watch?v=o2GxcTjeu58)
 
@@ -58,7 +58,7 @@
 
 [Watch on Youtube: Bobby Jean (Live at Hovet, Stockholm, Sweden - 6/25/2005)](https://www.youtube.com/watch?v=q7zn6k9Cz5I)
 
-**2006:** The American leg of the Seeger Sessions Tour wraps up with a second show at the PNC Bank Arts Center in Holmdel, New Jersey. Bruce closes out the leg with a tour premiere: “[The Daring Young Man on the Flying Trapeze](https://estreetshuffle.com/index.php/2020/08/17/cover-me-the-daring-young-man-on-the-flying-trapeze/).”<br>
+**2006:** The American leg of the Seeger Sessions Tour wraps up with a second show at the PNC Bank Arts Center in Holmdel, New Jersey. Bruce closes out the leg with a tour premiere: “[The Daring Young Man on the Flying Trapeze](../1976-02-01_cover-me-the-daring-young-man-on-the-flying-trapeze/post.md/).”<br>
 
 [Watch on Youtube: Man on the flying trapeze](https://www.youtube.com/watch?v=voXHqkN2k9Q)
 
@@ -74,7 +74,7 @@
 
 [Watch on Youtube: Milan 25/06/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zDbjokWJS5Hcw7_zeuswtkM)
 
-**2016:** At Night One in Gothenburg on the River Tour sequel, Bruce opens with the tour premiere of “The Promise,” played solo on piano. “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” and “[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)” also make their first appearances of the tour. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14118/Bruce-Springsteen-mp3-flac-download-6-25-2016-Ullevi-Stadium-Goteborg-SE.html).<br>
+**2016:** At Night One in Gothenburg on the River Tour sequel, Bruce opens with the tour premiere of “The Promise,” played solo on piano. “[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)” and “[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)” also make their first appearances of the tour. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14118/Bruce-Springsteen-mp3-flac-download-6-25-2016-Ullevi-Stadium-Goteborg-SE.html).<br>
 
 [Watch on Youtube: Bruce Springsteen Pro Shot Ullevi Gothenburg 2016-06-25](https://www.youtube.com/watch?v=uowZAEAi7_Y)
 

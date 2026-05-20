@@ -84,7 +84,7 @@
 
 [Watch on Youtube: shackled & drawn ( pinkpop 2012 ) bruce springsteen](https://www.youtube.com/watch?v=yYRN-T-el_M)
 
-**2013:** The Wrecking Ball Tour moves to Hanover, Germany, where “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)” makes its tour premiere (in a rare acoustic arrangement) and “[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)” gets a rare outing.<br>
+**2013:** The Wrecking Ball Tour moves to Hanover, Germany, where “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)” makes its tour premiere (in a rare acoustic arrangement) and “[Drift Away](../1976-01-16_cover-me-drift-away/post.md/)” gets a rare outing.<br>
 
 [Watch on Youtube: Bruce Springsteen - Drift away -MULTICAM HD - Hannover (28-05-2013)](https://www.youtube.com/watch?v=u9U8Le7hz5Q)
 

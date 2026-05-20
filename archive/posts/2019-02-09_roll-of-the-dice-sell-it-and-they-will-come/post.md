@@ -2,7 +2,7 @@ Because the album that represents The Ghost of Tom Joad recording sessions is so
 
 But for all of the socially conscious material that made it on to the album, there were the misfits that were left by the wayside. "[Tiger Rose](../2019-01-26_rotd-matr-cm-tiger-rose/post.md)," for example, was an adulterous rockabilly farce; Bruce ended up giving it away to Sonny Burgess. "[I'm Turning Into Elvis](../2020-03-05_roll-of-the-dice-im-turning-into-elvis/post.md)" was a parody on the surface but belied some lurking sub-basement insecurity.
 
-And then there were the songs reputedly (and self-reportedly) written along the tour, during those long flights and lonely hotel nights. "[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)" is the best-known of these, probably because of its racy subject matter. But "Sell It and They Will Come" came first–in fact, Bruce used the same melody for both, which is probably why Bruce never played them both on the same night, even though he played both throughout the tour.
+And then there were the songs reputedly (and self-reportedly) written along the tour, during those long flights and lonely hotel nights. "[Pilgrim in the Temple of Love](../2002-01-12_roll-of-the-dice-pilgrim-in-the-temple-of-love/post.md/)" is the best-known of these, probably because of its racy subject matter. But "Sell It and They Will Come" came first–in fact, Bruce used the same melody for both, which is probably why Bruce never played them both on the same night, even though he played both throughout the tour.
 
 Here's Bruce describing the song's genesis just before he debuted it in Detroit in January 1996:
 

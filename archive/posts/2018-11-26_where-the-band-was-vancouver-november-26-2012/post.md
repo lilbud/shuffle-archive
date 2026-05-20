@@ -22,7 +22,7 @@ The emotional release of "My City of Ruins" was next, and Bruce's mid-song speec
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band, My City Of Ruins, Vancouver, BC, Nov. 26, 2012](https://www.youtube.com/watch?v=SesdatiDIK8)
 
-A couple of old-school selections were next: "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" followed by a by-request "[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)"
+A couple of old-school selections were next: "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" followed by a by-request "[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)"
 
 [Watch on Youtube: Spirit in the Night - Bruce Springsteen - Vancouver 2012-11-26](https://www.youtube.com/watch?v=JvnggbelvuA)
 
@@ -40,7 +40,7 @@ The second half of the *Born in the U.S.A.* double-header was better, although i
 
 [Watch Video Highlight](https://videopress.com/embed/hB0p0pet)
 
-After "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" came the main set's final curve ball: a rare non-sign-collection outing for "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)." A minor scare here: Bruce fell during the song at the 2-minute mark, and a couple of surprised fans suddenly found Bruce in their laps.
+After "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" came the main set's final curve ball: a rare non-sign-collection outing for "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)." A minor scare here: Bruce fell during the song at the 2-minute mark, and a couple of surprised fans suddenly found Bruce in their laps.
 
 [Watch on Youtube: Bruce Springsteen falls during Raise Your Hand](https://www.youtube.com/watch?v=eg5kS0PZm58)
 

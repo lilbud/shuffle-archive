@@ -24,7 +24,7 @@ Unfortunately, though, Bruce and Brendan leaned a bit too much into the power an
 
 If we strain and listen past the production, however, we hear a beautiful west coast melody paired with effortless Springsteenian lyrics.
 
-Those lyrics are so effortless, in fact, that one suspects that Bruce tossed this one off in an afternoon, liberally lifting phrases from "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)," "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" and the theme from "[Out in the Street](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" *all in the first verse*.
+Those lyrics are so effortless, in fact, that one suspects that Bruce tossed this one off in an afternoon, liberally lifting phrases from "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)," "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and the theme from "[Out in the Street](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" *all in the first verse*.
 
 > *It's the end of another working day*<br>
 > *Come on and pack your blues away*<br>

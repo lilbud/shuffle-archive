@@ -39,7 +39,7 @@ This is a mutual breakup song, plain and simple, with spare lyrics that leave ve
 > *I'm havin' trouble movin' on*
 > *Oh I don't wanna go…*
 
-If "Why's It So Hard" is notable for any other reason, it's because it's another early example of Bruce grappling with the right balance for a break-up song. (See "[She's Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)" for a contemporaneous example with less anger and more self-pity.) I'd argue that Bruce would finally land on the right recipe a year later, but that's an essay for another day.
+If "Why's It So Hard" is notable for any other reason, it's because it's another early example of Bruce grappling with the right balance for a break-up song. (See "[She's Leaving](../2011-01-26_roll-of-the-dice-shes-leaving/post.md/)" for a contemporaneous example with less anger and more self-pity.) I'd argue that Bruce would finally land on the right recipe a year later, but that's an essay for another day.
 
 **Why's It So Hard?**<br>
 **Never recorded**<br>

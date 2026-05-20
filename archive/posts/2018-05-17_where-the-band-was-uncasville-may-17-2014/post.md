@@ -5,7 +5,7 @@ Because there's just no way I could have predicted:
 **opening with the debut of the outtake ("'78" version) of "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)." (Sort of, anyway–after so many years of performing the released version, he had a really hard time sticking to the outtake arrangement and basically ended up with a hybrid.)**<br>
 [Watch Video Highlight](https://videopress.com/embed/HZEm5bpm)
 
-**a mid-set 1970s encore throwback of "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" and "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)."**<br>
+**a mid-set 1970s encore throwback of "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)" and "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)."**<br>
 [Watch on Youtube: Bruce Springsteen Raise Your Hand-Mohegan](https://www.youtube.com/watch?v=IrQSfgjz4BY)
 
 **Covers of "[Clampdown](../2021-09-10_cover-me-clampdown/post.md)" by The Clash and "[Stayin' Alive](../2020-09-01_cover-me-stayin-alive/post.md)" by The Bee Gees (both of which rocked).**<br>
@@ -19,7 +19,7 @@ Because there's just no way I could have predicted:
 **the welcome return of prodigals like "American Skin (41 Shots)," "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)," and Steve Van Zandt, who flew home from Norway for the tour-closing stand.**<br>
 [Watch Video Highlight](https://videopress.com/embed/SVpwOLpQ)
 
-* *four* acoustic songs in the encore ("[I'll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)," "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)," and "Thunder Road")–I'm not sure that's ever happened before or since on an E Street Band tour.
+* *four* acoustic songs in the encore ("[I'll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)," "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)," and "Thunder Road")–I'm not sure that's ever happened before or since on an E Street Band tour.
 
 [Watch on Youtube: I'll Work for your Love - Springsteen - Mohegan Sun Arena, CT - May 17, 2014](https://www.youtube.com/watch?v=ENCL6J0hidU)
 

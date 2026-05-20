@@ -4,7 +4,7 @@
 
 [Watch on Youtube: Dr. Zoom and the Sonic Boom (Bruce Springsteen) - 1971/05/15 Newark State College {private remaster}](https://www.youtube.com/watch?v=SKlCDDAWNx0)
 
-**1993:** Bruce, Shane Fontayne, Bobby King, and Tommy Sims notice a dancing school ball being held in their hotel in Munich and decide to make an uninvited guest appearance. Someone had the presence of mind to capture the merriment and mayhem, and although it’s very shaky at the start, it’s still a fun watch. Check out “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” and “Twist and Shout” below.<br>
+**1993:** Bruce, Shane Fontayne, Bobby King, and Tommy Sims notice a dancing school ball being held in their hotel in Munich and decide to make an uninvited guest appearance. Someone had the presence of mind to capture the merriment and mayhem, and although it’s very shaky at the start, it’s still a fun watch. Check out “[Lucille](../1976-01-07_cover-me-lucille/post.md/)” and “Twist and Shout” below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucille (1993-05-16, Bayerischen Hotel, Munchen, Germany)](https://www.youtube.com/watch?v=vKwG9rLdNHM)
 

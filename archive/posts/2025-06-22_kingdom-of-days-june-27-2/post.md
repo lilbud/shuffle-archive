@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1971-0627.jpg.webp)
 
-**1972:** It’s a big day in the studio for Bruce: he records “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md),” “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/),” “[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/),” “Visitation at Fort Horn,” “[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/),” and “[Arabian Nights](../2021-03-23_roll-of-the-dice-arabian-nights/post.md),” the last three of which remain unreleased to this day.<br>
+**1972:** It’s a big day in the studio for Bruce: he records “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md),” “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/),” “[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/),” “Visitation at Fort Horn,” “[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/),” and “[Arabian Nights](../2021-03-23_roll-of-the-dice-arabian-nights/post.md),” the last three of which remain unreleased to this day.<br>
 
 [Watch on Youtube: For You](https://www.youtube.com/watch?v=rdP3y4k2KKU)
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band "Back In Your Arms", MSG, New York, NY 6/27/2000](https://www.youtube.com/watch?v=rWH38b_L-Hk)
 
-**2005:** Bruce tour premieres “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md),” “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/),” and “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” at his solo acoustic show at Hamburg’s Color Line Arena. As he often does on this tour, Bruce stops to meet fans and sign autographs before the show.<br>
+**2005:** Bruce tour premieres “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md),” “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/),” and “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” at his solo acoustic show at Hamburg’s Color Line Arena. As he often does on this tour, Bruce stops to meet fans and sign autographs before the show.<br>
 
 [Watch on Youtube: Bruce Springsteen Hamburg 2005 before Soundcheck](https://www.youtube.com/watch?v=AuPqw2dxKAA)
 

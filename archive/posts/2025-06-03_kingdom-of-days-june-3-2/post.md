@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1978-0603.jpg.webp)
 
-**1979:** Bruce attends the wedding of his lighting director and travel agent at the Whisky a Go Go in West Hollywood. Bruce performs a three hour wedding-themed set (including "Wedding March," "[Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)," "Mother-in-Law" and "Hava Nagila") with the E Street Band, Rickie Lee Jones, and Boz Scaggs.<br>
+**1979:** Bruce attends the wedding of his lighting director and travel agent at the Whisky a Go Go in West Hollywood. Bruce performs a three hour wedding-themed set (including "Wedding March," "[Wear My Ring Around Your Neck](../2020-07-07-cover-me-wear-my-ring-around-your-neck/post.md/)," "Mother-in-Law" and "Hava Nagila") with the E Street Band, Rickie Lee Jones, and Boz Scaggs.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1979-0603.jpg.webp)
 

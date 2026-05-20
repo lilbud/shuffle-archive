@@ -85,7 +85,7 @@ Here is the song's triumphant return in 1995, one of my favorite Bruce and Steve
 
 [Watch on Youtube: Bruce Springsteen with Steven van Zandt - TWO HEARTS 2005 live](https://www.youtube.com/watch?v=VC0cEfadmGo)
 
-One more–this one solo, but remarkable for how heartfelt it is, and for how you can see the song play out in Bruce's facial expressions as Thom Zimny steals a trick from the [Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/) video by slowly zooming in on Bruce as he sings.
+One more–this one solo, but remarkable for how heartfelt it is, and for how you can see the song play out in Bruce's facial expressions as Thom Zimny steals a trick from the [Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/) video by slowly zooming in on Bruce as he sings.
 
 [Watch on Youtube: Bruce Springsteen - Two Hearts](https://www.youtube.com/watch?v=CsGLF8hHtT0)
 

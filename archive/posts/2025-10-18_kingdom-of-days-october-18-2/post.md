@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Carol (Live at The Roxy, West Hollywood, CA - 10/18/1975)](https://www.youtube.com/watch?v=kDnTDJjMi1s)
 
-**1976:** Bruce and the boys play their second of two Lawsuit Tour shows at Georgetown University. "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" features a strange one-off story interlude tonight, eerily incorporating "Tubular Bells" to underscore a (seasonal?) scary story.<br>
+**1976:** Bruce and the boys play their second of two Lawsuit Tour shows at Georgetown University. "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" features a strange one-off story interlude tonight, eerily incorporating "Tubular Bells" to underscore a (seasonal?) scary story.<br>
 
 [Watch on Youtube: Bruce Springsteen - Unique "Growin' Up" story, Georgetown 1976-10-18](https://www.youtube.com/watch?v=Q0XFjZ-y7Tg)
 

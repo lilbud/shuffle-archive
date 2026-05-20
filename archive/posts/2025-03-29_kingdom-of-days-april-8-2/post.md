@@ -4,7 +4,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-08 Allen Theatre, Cleveland, OH](https://www.youtube.com/watch?v=rij7NJhcmoI)
 
-**1984:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: “Proud Mary,” “[Dirty Water,](../2022-03-18_cover-me-dirty-water/post.md)” “[I’m Bad, I’m Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md),” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”<br>
+**1984:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: “Proud Mary,” “[Dirty Water,](../2022-03-18_cover-me-dirty-water/post.md)” “[I’m Bad, I’m Nationwide](../2020-02-17_cover-me-im-bad-im-nationwide/post.md),” and “[Lucille](../1976-01-07_cover-me-lucille/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen and Cats on a Smooth Surface - Stone Pony - 1984-04-08](https://www.youtube.com/watch?v=E0nGuxZTSNo)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Springsteen at Honda Center - 2008-04-08](https://www.youtube.com/watch?v=ZNgu0Ai-5CU)
 
-**2009:** The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)” and “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/).”<br>
+**2009:** The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)” and “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen Houston 2009 04 08 Badlands, Outlaw Pete and No Surrender](https://www.youtube.com/watch?v=iLs5BY-Ih94)
 
@@ -50,7 +50,7 @@
 
 [Watch Video](https://videopress.com/embed/1lqTkF5o?hd=1&loop=0&autoPlay=0&permalink=1)
 
-**2014:** The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of this leg due to *Lilyhammer* filming conflicts) with a show at the USBank Arena in Cincinnati, where “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” makes a rare appearance. News coverage and highlights below.<br>
+**2014:** The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of this leg due to *Lilyhammer* filming conflicts) with a show at the USBank Arena in Cincinnati, where “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)” makes a rare appearance. News coverage and highlights below.<br>
 
 [Watch on Youtube: Bruce Springsteen kicks of US tour in Cincinnati Tuesday](https://www.youtube.com/watch?v=EQ26Q42ntMw)
 

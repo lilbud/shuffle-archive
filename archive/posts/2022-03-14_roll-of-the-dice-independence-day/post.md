@@ -58,7 +58,7 @@ We never get a hint of what's drawing him away from home–there's no dream, no 
 
 In title and chorus, Bruce plays off of the American holiday of Independence Day, a time of celebration over a hard-won rebellion. But there's no celebration in this song… and in fact, it's not even clear from Bruce's pleading vocals whether his choruses are addressed to the father or the son. (I suspect the latter.)
 
-The verses are all about the father, though–and it's clear that even though he's desperate to escape his father's fate, our narrator feels their bond, as immutable as in "Adam Raised a Cain." That's not a coincidence: the two songs share the same narrator, the first two chapters of Bruce's "[Daddy Trilogy](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" that he would complete years later with "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)."
+The verses are all about the father, though–and it's clear that even though he's desperate to escape his father's fate, our narrator feels their bond, as immutable as in "Adam Raised a Cain." That's not a coincidence: the two songs share the same narrator, the first two chapters of Bruce's "[Daddy Trilogy](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" that he would complete years later with "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)."
 
 > *Now I don't know what it always was with us*<br>
 > *We chose the words and, yeah, we drew the lines*<br>

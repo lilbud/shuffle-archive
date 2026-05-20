@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2002-11-12.jpg.webp)
 
-**2006:** The Seeger Sessions Tour is in its home stretch now, but Bruce is still whipping out tour premieres. At Night Two in London's Wembley Arena, Bruce surprises with the tour premiere of "[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)"<br>
+**2006:** The Seeger Sessions Tour is in its home stretch now, but Bruce is still whipping out tour premieres. At Night Two in London's Wembley Arena, Bruce surprises with the tour premiere of "[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)"<br>
 
 [Watch on Youtube: Bruce Springsteen - "Does This Bus Stop at 82nd Street" - London, 2006-11-12](https://www.youtube.com/watch?v=oYpdBBmVWus)
 

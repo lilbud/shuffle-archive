@@ -28,7 +28,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-26b.png.webp)
 
-**1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "My Hometown," "Jersey Girl," and "Born in the U.S.A." Afterwards, he zips over to The Columns in Avon, where he performs "[L](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)u[cille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" and "Stand By Me" with The Cherubs.<br>
+**1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "My Hometown," "Jersey Girl," and "Born in the U.S.A." Afterwards, he zips over to The Columns in Avon, where he performs "[L](../1976-01-07_cover-me-lucille/post.md/)u[cille](../1976-01-07_cover-me-lucille/post.md/)" and "Stand By Me" with The Cherubs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2cGZrAWC)
 

@@ -85,7 +85,7 @@ Carl leaves the INS–whether from shame, moral compromise, ethical protest, or 
 > *At night I searched the local bars and the migrant towns*
 > *Looking for my Louisa with the black hair falling down*
 
-Was Louisa playing Carl? Perhaps–after all, "hunger is a powerful thing." But he can't be sure, and as Bruce wrote years earlier in [another song](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/), "God have mercy on the man who doubts what he's sure of."
+Was Louisa playing Carl? Perhaps–after all, "hunger is a powerful thing." But he can't be sure, and as Bruce wrote years earlier in [another song](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/), "God have mercy on the man who doubts what he's sure of."
 
 Bruce performed "The Line" nightly throughout the Ghost of Tom Joad Tour, as well as a half-dozen times on the Devils and Dust Tour–always acoustic, never electric, and only in intimate settings where the audience can be drawn into the world of the border and gain a greater understanding of its inhabitants.
 

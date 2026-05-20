@@ -6,7 +6,7 @@
 
 **1973:** Bruce and the E Street Band headline the third of three shows at Childe Harold in Washington, DC.<br>
 
-**1978:** The Darkness Tour picks up steam as it rolls into Philadelphia for the first of two nights at The Spectrum. "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" and "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" make their tour premieres. About six minutes of the show is captured on 8mm film–watch the earliest known footage from the Darkness Tour below.<br>
+**1978:** The Darkness Tour picks up steam as it rolls into Philadelphia for the first of two nights at The Spectrum. "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" make their tour premieres. About six minutes of the show is captured on 8mm film–watch the earliest known footage from the Darkness Tour below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Philadelphia 26/5/78 8mm footage](https://www.youtube.com/watch?v=gTWkVHl3Bw8)
 

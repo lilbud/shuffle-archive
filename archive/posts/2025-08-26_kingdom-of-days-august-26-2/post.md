@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-26b.png.webp)
 
-**1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Afterwards, he zips over to The Columns in Avon, where he performs "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" and "[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)" with The Cherubs.<br>
+**1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Afterwards, he zips over to The Columns in Avon, where he performs "[Lucille](../1976-01-07_cover-me-lucille/post.md/)" and "[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)" with The Cherubs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2cGZrAWC)
 

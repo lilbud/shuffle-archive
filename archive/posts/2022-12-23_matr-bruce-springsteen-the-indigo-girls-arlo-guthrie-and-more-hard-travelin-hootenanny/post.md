@@ -38,7 +38,7 @@ Bruce took the lead on a verse, as did Woody's son Arlo, The Indigo Girls, and A
 
 [Watch on Youtube: Hard Travelin' Hootenanny](https://www.youtube.com/watch?v=mKG0dVtuyDE)
 
-"Hard Travelin'" was a one-time-only performance for Springsteen, but he went on to have a long relationship with Nora Guthrie and the Woody Guthrie Center, culminating in [Bruce receiving his own honor from Nora and Santelli in 2021](https://estreetshuffle.com/index.php/2022/05/13/kingdom-of-days-may-13/).
+"Hard Travelin'" was a one-time-only performance for Springsteen, but he went on to have a long relationship with Nora Guthrie and the Woody Guthrie Center, culminating in [Bruce receiving his own honor from Nora and Santelli in 2021](../2025-05-13_kingdom-of-days-may-13-2/post.md/).
 
 [Watch Video Highlight](https://videopress.com/embed/byP6Gb2q)
 

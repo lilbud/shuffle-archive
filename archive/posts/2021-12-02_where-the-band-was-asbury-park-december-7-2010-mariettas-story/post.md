@@ -20,7 +20,7 @@ Much has been written and questioned over the years about the stiffness of the u
 
 [Watch on Youtube: Bruce Springsteen - The Promise (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=-X3m6mjtFFs)
 
-Bruce and the band performed all songs twice, and with the exception of "[Blue Christmas](https://estreetshuffle.com/index.php/2020/11/29/cover-me-blue-christmas/)" to close, all of the songs were from *The Promise*. Hearing Bruce's direction to the band in between takes was as magnificent as the songs themselves. It took a bit for Steve to get the harmony down for "[Gotta Get That Feeling](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)," but he nailed it on the second performance, and it was fantastic.
+Bruce and the band performed all songs twice, and with the exception of "[Blue Christmas](../2002-01-07_cover-me-blue-christmas/post.md/)" to close, all of the songs were from *The Promise*. Hearing Bruce's direction to the band in between takes was as magnificent as the songs themselves. It took a bit for Steve to get the harmony down for "[Gotta Get That Feeling](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)," but he nailed it on the second performance, and it was fantastic.
 
 [Watch on Youtube: Bruce Springsteen - Gotta Get That Feeling (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=itpktRH1iig)
 
@@ -34,7 +34,7 @@ I successfully fought off my impulse to grab one of the tambourines. Perhaps the
 
 [Watch on Youtube: Ain't Good Enough for You (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=Z6OCZFzHmiA)
 
-Two rounds of "[Blue Christmas](https://estreetshuffle.com/index.php/2020/11/29/cover-me-blue-christmas/)" was a festive way to end an amazing night, and all of those bopping Santa hats are reflective of the fun and pure joy.
+Two rounds of "[Blue Christmas](../2002-01-07_cover-me-blue-christmas/post.md/)" was a festive way to end an amazing night, and all of those bopping Santa hats are reflective of the fun and pure joy.
 
 [Watch on Youtube: Bruce Springsteen - Blue Christmas (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=8MGwtwX6IK0)
 

@@ -70,7 +70,7 @@ That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic w
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1999-11-21b.png.webp)
 
-**2002:** Bruce arrives in Florida for a week of shows, starting with a night at TD Waterhouse Center in Orlando, where Bruce tour premieres "[It's Hard to Be a Saint in the City,](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," and "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)."<br>
+**2002:** Bruce arrives in Florida for a week of shows, starting with a night at TD Waterhouse Center in Orlando, where Bruce tour premieres "[It's Hard to Be a Saint in the City,](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," and "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "It's Hard to Be a Saint in the City" - Orlando, 2002-11-21](https://www.youtube.com/watch?v=UNEXVBonAJw)
 

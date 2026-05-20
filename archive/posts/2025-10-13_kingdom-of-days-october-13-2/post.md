@@ -14,7 +14,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/medium.jpg.webp)
 
-**1977:** Bruce joins Southside Johnny on stage for four songs (including "[Down in the Valley](../2019-01-16_matr-bruce-springsteen-and-southside-johnny-down-in-the-valley/post.md)" and "[Ain't Too Proud to Beg](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)") at The Stone Pony in Asbury Park.<br>
+**1977:** Bruce joins Southside Johnny on stage for four songs (including "[Down in the Valley](../2019-01-16_matr-bruce-springsteen-and-southside-johnny-down-in-the-valley/post.md)" and "[Ain't Too Proud to Beg](../2018-10-07-cover-me-aint-too-proud-to-beg/post.md/)") at The Stone Pony in Asbury Park.<br>
 
 [Watch on Youtube: down in the valley ( Solomon Burke cover)](https://www.youtube.com/watch?v=pBaV-gpRnOg)
 

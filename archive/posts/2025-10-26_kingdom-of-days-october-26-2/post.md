@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1972; audio for 1974; video for 1996*<br>
 
-**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce completes "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)," "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)," and "[The Angel.](../2020-09-26_roll-of-the-dice-the-angel/post.md)"<br>
+**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce completes "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)," "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)," and "[The Angel.](../2020-09-26_roll-of-the-dice-the-angel/post.md)"<br>
 
 [Watch on Youtube: It's Hard to Be a Saint in the City](https://www.youtube.com/watch?v=B2Rju9FVE2M)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-26.png.webp)
 
-Later that night, Bruce and the band play their second of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, and Bruce slips a little "[California Sun](../2020-06-10_cover-me-california-sun/post.md)" into the "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" for the occasion.
+Later that night, Bruce and the band play their second of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, and Bruce slips a little "[California Sun](../2020-06-10_cover-me-california-sun/post.md)" into the "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" for the occasion.
 
 [Watch on Youtube: Bruce Springsteen - "Detroit Medley" w/ "California Sun" - Los Angeles, 1984-10-26](https://www.youtube.com/watch?v=CijvNHFY058)
 

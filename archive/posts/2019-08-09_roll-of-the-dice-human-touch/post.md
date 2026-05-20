@@ -76,7 +76,7 @@ I state all this here because of what I'm about to say: "Human Touch" kind of fa
 > *Yeah I know I ain't nobody's bargain*
 > *But hell a little touchup and a little paint*
 
-Gone are the religious metaphors and imagery that Bruce has so carefully and skillfully threaded up until this point, and with them went the subtextual layer that makes the first half of "Human Touch" so briliant. The bridge is essentially a "Two Hearts" rehash, and the verse that follows feels like a reprise of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."
+Gone are the religious metaphors and imagery that Bruce has so carefully and skillfully threaded up until this point, and with them went the subtextual layer that makes the first half of "Human Touch" so briliant. The bridge is essentially a "Two Hearts" rehash, and the verse that follows feels like a reprise of "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."
 
 Don't get me wrong–I actually love that verse and the way that Bruce revives his trusty car metaphor as a way of reminding us just how long he's been around (certainly more than a time or two). It's just that the second half of "Human Touch" feels like a very different song from the first half, and the first half comes out the winner in the comparison.
 

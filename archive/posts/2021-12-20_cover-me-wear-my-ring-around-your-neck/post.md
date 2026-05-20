@@ -6,7 +6,7 @@ It's far from Elvis' best song. In fact, if "Wear My Ring Around Your Neck" is n
 
 Still, despite its sometimes awkward lyrical simplicity (there must have been another rhyme available for neck besides "by heck"), and even though it's rarely covered by other artists, it still managed to catch Bruce Springsteen's attention.
 
-Bruce worked up a fast–almost manic at times–encore arrangement for it that sounds very similar to his arrangement for "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)" (with which "Wear My Ring Around Your Neck" was sometimes paired).
+Bruce worked up a fast–almost manic at times–encore arrangement for it that sounds very similar to his arrangement for "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)" (with which "Wear My Ring Around Your Neck" was sometimes paired).
 
 [Watch Video Highlight](https://videopress.com/embed/5Rg90Wc5)
 

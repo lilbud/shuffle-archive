@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen & the E-Street Band-You Mean So Much to Me (live)](https://www.youtube.com/watch?v=NOvFyNBkfhs)
 
-That afternoon, before the show, Bruce and the band rehearse “[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” with the intent for a full take to air on a local telethon. That rehearsal recording will surface decades later and can be found on the essential *Odds & Sods* bootleg compilation.
+That afternoon, before the show, Bruce and the band rehearse “[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)” with the intent for a full take to air on a local telethon. That rehearsal recording will surface decades later and can be found on the essential *Odds & Sods* bootleg compilation.
 
 [Watch on Youtube: Bruce Springsteen - "Does This Bus Stop at 82nd Street?" - Cambridge soundcheck, 1974-01-06](https://www.youtube.com/watch?v=5Cv4GcquJoY)
 

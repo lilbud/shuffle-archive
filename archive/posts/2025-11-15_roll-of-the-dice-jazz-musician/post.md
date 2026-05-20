@@ -6,7 +6,7 @@ That wasn't so much an artistic decision as a diplomatic one: while Bruce stubbo
 
 Bruce submitted his balanced album to Columbia in August 1972, but when president Clive Davis listened to it, he sent it back with a veto: the album had too many solo tracks and no hit singles.
 
-Bruce went back to his notebook, and before the month was out he'd written two new songs with radio sensibility in mind: "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night.](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" To make room for the new tracks, he had to jettison three existing ones, so off to the chopping block went "[Arabian Nights](../2021-03-23_roll-of-the-dice-arabian-nights/post.md)," "Visitation at Fort Horn," and a lovely solo piano character study called "Jazz Musician."
+Bruce went back to his notebook, and before the month was out he'd written two new songs with radio sensibility in mind: "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night.](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" To make room for the new tracks, he had to jettison three existing ones, so off to the chopping block went "[Arabian Nights](../2021-03-23_roll-of-the-dice-arabian-nights/post.md)," "Visitation at Fort Horn," and a lovely solo piano character study called "Jazz Musician."
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - jazz musician](https://www.youtube.com/watch?v=OPR6NIinPK4)
 

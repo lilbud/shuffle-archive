@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Detroit Medley - at Osaka-Joh Hall in Japan 1985.04.22](https://www.youtube.com/watch?v=8BTntTz9fW4)
 
-**1988:** Bruce brings the Tunnel of Love Express to the L.A. Sports Arena for the first of five nights. In the encore, "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" makes its final appearance of the tour.<br>
+**1988:** Bruce brings the Tunnel of Love Express to the L.A. Sports Arena for the first of five nights. In the encore, "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" makes its final appearance of the tour.<br>
 
 [Watch on Youtube: Bruce Springsteen Tunnel of Love Express LA Sports Arena 4-22-88](https://www.youtube.com/watch?v=SfrdUdHseog)
 
@@ -128,6 +128,6 @@ The video for "[American Beauty](../2019-02-21_roll-of-the-dice-american-beauty/
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/april22.jpg.webp)
 
-**2020:** Bruce and Patti perform "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" at the virtual Jersey 4 Jersey benefit for pandemic relief.<br>
+**2020:** Bruce and Patti perform "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" at the virtual Jersey 4 Jersey benefit for pandemic relief.<br>
 
 [Watch on Youtube: Jersey 4 Jersey - Bruce Springsteen & Patti Scialfa](https://www.youtube.com/watch?v=8hHfTEYt52w)

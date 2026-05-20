@@ -72,7 +72,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 12/07/2009 Full Concert](https://www.youtube.com/watch?v=Q1PHk-R0hOQ)
 
-**2012:** Pollstar magazine announces Bruce ranks second for the year in worldwide concert ticket sales with $79.9m sold, a distant second behind Roger Waters. Meanwhile, in Vienna, Bruce tour premieres "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)," "[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md)," and "[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."<br>
+**2012:** Pollstar magazine announces Bruce ranks second for the year in worldwide concert ticket sales with $79.9m sold, a distant second behind Roger Waters. Meanwhile, in Vienna, Bruce tour premieres "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)," "[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md)," and "[Tougher than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band TV report from ORF 2 about Vienna concert, July 13th 2012](https://www.youtube.com/watch?v=rYXXqcBHd-k)
 

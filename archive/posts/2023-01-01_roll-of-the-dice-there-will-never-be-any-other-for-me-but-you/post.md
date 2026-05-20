@@ -6,7 +6,7 @@ Maybe that's why he started debuting some lighthearted new songs just a few mont
 
 But something was different about this particular group of songs. They were melodically simple and lyrically light. They didn't sound like anything Bruce would ever commit to vinyl; in fact, they sounded for all the world like Bruce had written them the night before.
 
-He very well may have. His first couple of new songs, "[It's the Little Things That Count](../2022-01-12_roll-of-the-dice-its-the-little-things-that-count/post.md)" and "[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)," sound like the late-night fantasizing a married man on the road might entertain himself with in his hotel room.
+He very well may have. His first couple of new songs, "[It's the Little Things That Count](../2022-01-12_roll-of-the-dice-its-the-little-things-that-count/post.md)" and "[Pilgrim in the Temple of Love](../2002-01-12_roll-of-the-dice-pilgrim-in-the-temple-of-love/post.md/)," sound like the late-night fantasizing a married man on the road might entertain himself with in his hotel room.
 
 But as the tour wore on, it seemed like Bruce grew bored: "[Sell It and They Will Come](../2019-02-09_roll-of-the-dice-sell-it-and-they-will-come/post.md)" is little more than the musings of a night owl with nothing to do other than watch television, and its follow-up sounds almost like a sequel. At least at first. Because if we listen closely, even these seemingly dashed-off ditties contain some surprisingly deep insights.
 

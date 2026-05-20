@@ -6,7 +6,7 @@ Last year, in the middle of the pandemic, they finally released their debut albu
 
 [Watch on Youtube: NIGHT TRAVELER - Bad Enough (Official Lyric Video)](https://www.youtube.com/watch?v=mJCQ-uTgKdY)
 
-But the true standout track for Springsteen fans is the band's cover of "[Tougher Than the Rest.](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" It's moody, atmospheric, earnest, and true. Listen to this one with the lights off to feel its full effect.
+But the true standout track for Springsteen fans is the band's cover of "[Tougher Than the Rest.](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" It's moody, atmospheric, earnest, and true. Listen to this one with the lights off to feel its full effect.
 
 [Watch on Youtube: Tougher Than the Rest](https://www.youtube.com/watch?v=qko3wNrXE1A)
 

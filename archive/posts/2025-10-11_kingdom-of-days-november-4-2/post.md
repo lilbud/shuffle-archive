@@ -60,7 +60,7 @@ At the recording session itself, Bruce works on “[Independence Day](../2022-03
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/45615142024_ddbfa16a01_o.jpg.webp)
 
-**2007:** Continuing east, the Magic Tour stops at Cleveland’s Quicken Loans Arena, where Bruce tour premieres “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)” (a tour one-off).<br>
+**2007:** Continuing east, the Magic Tour stops at Cleveland’s Quicken Loans Arena, where Bruce tour premieres “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” and “[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)” (a tour one-off).<br>
 
 [Watch on Youtube: Bruce Springsteen - "Be True" - Cleveland, 2007-11-04](https://www.youtube.com/watch?v=sh-b29hsoIQ)
 

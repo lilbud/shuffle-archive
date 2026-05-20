@@ -26,7 +26,7 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 [Watch Video Highlight](https://videopress.com/embed/pK3XrIXK)
 
-**1984:** Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,12491/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-5-1984-Brendan-Byrne-Arena-East-Rutherford-NJ.html). Watch the pro-shot opening of the show below.<br>
+**1984:** Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” and is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,12491/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-5-1984-Brendan-Byrne-Arena-East-Rutherford-NJ.html). Watch the pro-shot opening of the show below.<br>
 
 [Watch on Youtube: Bruce Springsteen Born In The USA , New Jersey 1984](https://www.youtube.com/watch?v=xQWHgkEPO6M)
 

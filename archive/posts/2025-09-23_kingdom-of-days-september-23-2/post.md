@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Rosalita (Come Out Tonight)](https://www.youtube.com/watch?v=JuVKhS13eKY)
 
-**1975:** Bruce plays his first known birthday show, turning in a great performance at the University of Michigan in Ann Arbor on the day he turns 26. In the encores, Bruce and the E Street Band play "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" for the very first time.<br>
+**1975:** Bruce plays his first known birthday show, turning in a great performance at the University of Michigan in Ann Arbor on the day he turns 26. In the encores, Bruce and the E Street Band play "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" for the very first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - DETROIT MEDLEY - BACK IN THE USA 1975 (audio)](https://www.youtube.com/watch?v=t87UMZI1cnE)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1986-09-23.jpg.webp)
 
-**1988:** A special Human Rights Now! show in Oakland on the occasion of Bruce's 39th birthday: Roy Orbison surprises Bruce backstage and leads the crowd in singing "Happy Birthday," as does Joan Baez, who also performs "[Blowin' in the Wind](../2019-12-19_cover-me-blowin-in-the-wind/post.md)" with Bruce. During Bruce's set, he tour premieres "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" and plays his very first "[I Ain't Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)."<br>
+**1988:** A special Human Rights Now! show in Oakland on the occasion of Bruce's 39th birthday: Roy Orbison surprises Bruce backstage and leads the crowd in singing "Happy Birthday," as does Joan Baez, who also performs "[Blowin' in the Wind](../2019-12-19_cover-me-blowin-in-the-wind/post.md)" with Bruce. During Bruce's set, he tour premieres "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" and plays his very first "[I Ain't Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)."<br>
 
 [Watch on Youtube: Bruce springsteen at the amnesty international concert oakland california](https://www.youtube.com/watch?v=-nGfxpXnuBQ)
 

@@ -10,7 +10,7 @@ By the spring of 1976, Bruce had already been covering Bonds on a regular basis,
 
 Why? Maybe it had something to with the location: the Municipal Auditorium in New Orleans.
 
-Even if it was a local pander, it was still an inspired choice. Check out the audio below to hear the band nail the cover and segue seamlessly into "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)."
+Even if it was a local pander, it was still an inspired choice. Check out the audio below to hear the band nail the cover and segue seamlessly into "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)."
 
 [Watch Video Highlight](https://videopress.com/embed/4qUW1K7w?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0)
 

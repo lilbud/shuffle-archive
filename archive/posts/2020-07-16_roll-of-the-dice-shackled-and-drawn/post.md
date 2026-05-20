@@ -97,7 +97,7 @@ There's no song in Bruce's catalog that more aptly captures the emotional impact
 > *What's a poor boy to do but keep singing his song*
 > *I woke up this morning shackled and drawn*
 
-Oh, and we can't let that "poor boy" reference pass us by for a third time without noting Bruce's homage to The Rolling Stones' "[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/)." Bruce cited "What can a poor boy do but sing in a rock and roll band" as one of the greatest lyrics of all time; it's fitting that Bruce borrows it for his own call to revolution.
+Oh, and we can't let that "poor boy" reference pass us by for a third time without noting Bruce's homage to The Rolling Stones' "[Street Fighting Man](../1976-01-17_cover-me-street-fighting-man/post.md/)." Bruce cited "What can a poor boy do but sing in a rock and roll band" as one of the greatest lyrics of all time; it's fitting that Bruce borrows it for his own call to revolution.
 
 And make no mistake: "Shackled and Drawn" is as much a call to revolution (and as much an admission of its futility) as is "Street Fighting Man."
 

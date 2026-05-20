@@ -68,7 +68,7 @@
 
 **2006:** Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.<br>
 
-**2008:** An odd stunt to promote the Magic Tour in Sacramento: a local radio station runs a contest to pick the opening song. "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" won.<br>
+**2008:** An odd stunt to promote the Magic Tour in Sacramento: a local radio station runs a contest to pick the opening song. "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" won.<br>
 
 [Watch on Youtube: Bruce Springsteen - Spirit In The Night (Sacramento) 2008](https://www.youtube.com/watch?v=X7oIThTv7Qk)
 
@@ -94,7 +94,7 @@ Meanwhile, *Springsteen on Broadway* continues its theatrical run at the Walter 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/tony-goldwyn.jpg.webp)
 
-**2024:** Bruce shakes things up in Inglewood with a setlist inspired by the return of Patti Scialfa to the E Street stage. Four tour debuts tonight, including the show-opening cover of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)," "[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)."<br>
+**2024:** Bruce shakes things up in Inglewood with a setlist inspired by the return of Patti Scialfa to the E Street stage. Four tour debuts tonight, including the show-opening cover of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)," "[Tougher Than the Rest,](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" and "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band live "Boom Boom" Kia Forum Inglewood CA April 4, 2024](https://www.youtube.com/watch?v=rvg0VODMBYc)
 

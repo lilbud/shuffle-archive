@@ -2,7 +2,7 @@ In April of 1972, Bruce began recording demos with Jim Cretecos. (Bruce would si
 
 One of those songs–recorded sometime between April and July of that year–was the ironically named "No Need."
 
-It's not clear when exactly Bruce wrote "No Need"–the only known instance of him performing it live was just a couple of months earlier in February–but it feels like a less mature piece of songwriting than, say, "[Jesse](https://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/)," which was recorded around the same time. Which is not to say it's without merit–it's just not as confident and skillful as some of his other contemporary songs.
+It's not clear when exactly Bruce wrote "No Need"–the only known instance of him performing it live was just a couple of months earlier in February–but it feels like a less mature piece of songwriting than, say, "[Jesse](../2011-01-20_roll-of-the-dice-jesse/post.md/)," which was recorded around the same time. Which is not to say it's without merit–it's just not as confident and skillful as some of his other contemporary songs.
 
 [Watch on Youtube: Bruce Springsteen, "No Need"](https://www.youtube.com/watch?v=LHYB63VzWd0)
 
@@ -24,7 +24,7 @@ Performed on piano (one of Bruce's earliest recorded piano tracks) and sung at t
 > *And she's the only woman I ever knew*<br>
 > *Who could teach me more about me, bind me in chains and still let me be free*<br>
 
-There's a notion in that last line–being bound but free at the same time–that also surfaces in "[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/):" *I don't understand how you can hold me so tight and love me so damn loose.*
+There's a notion in that last line–being bound but free at the same time–that also surfaces in "[Mary, Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/):" *I don't understand how you can hold me so tight and love me so damn loose.*
 
 Both songs were recorded around the same time, so it's clear that either Bruce was taken by or struggling with this notion, or (equally likely) that it's just one of the first examples of one of Bruce's songwriting trademarks: an element of an earlier song working its way into a later one.
 

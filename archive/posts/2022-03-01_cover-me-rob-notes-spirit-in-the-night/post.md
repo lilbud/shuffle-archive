@@ -2,7 +2,7 @@ My apologies for the recent skip days: I've had a busy couple of weeks with work
 
 Rob Notes is a German singer-songwriter with incredible range, no matter how you measure it: musically (he's equally at home at the piano or with an electric guitar), vocally (with a range of more than three octaves), and in his choice of material, which includes both original songs and covers of classics from Bette Midler to Bruce Springsteen.
 
-A few weeks ago, Rob debuted an album of fresh cover arrangements, called (appropriately) *CoverTime*. And while I may be biased, I think the standout track is his seventies hard rock version of "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)."
+A few weeks ago, Rob debuted an album of fresh cover arrangements, called (appropriately) *CoverTime*. And while I may be biased, I think the standout track is his seventies hard rock version of "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)."
 
 [Watch on Youtube: 13 ROB NOTES - Spirits In The Night (Bruce Springsteen-Cover)](https://www.youtube.com/watch?v=13ZrwNkGwbs)
 

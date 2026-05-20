@@ -24,7 +24,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/0KQVFFpL)
 
-**1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" in the middle of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)." (Skip to the 21 minute-mark below to hear it.)<br>
+**1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" in the middle of "[Lucille](../1976-01-07_cover-me-lucille/post.md/)." (Skip to the 21 minute-mark below to hear it.)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9dFjGaHk)
 

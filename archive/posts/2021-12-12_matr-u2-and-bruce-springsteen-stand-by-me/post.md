@@ -34,7 +34,7 @@ One of those seven million performances was shortly after the song re-crested on
 
 In 1987, the Irish rock band U2 was exploding in popularity. Their latest album, *The Joshua Tree*, topped the charts in more than 20 countries and became one of the best-selling albums of all time. Their accompanying tour was also a smash, and in the midst of it the band graduated from arenas to stadiums.
 
-On September 25, 1987, The Joshua Tree Tour made a stop at Philadelphia's JFK Stadium, where their opening act was Little Steven and the Disciples of Soul. In the crowd to catch his old friend and former bandmate was Bruce Springsteen, still riding high on the heels of his mammoth Born in the U.S.A. Tour and *Live 1975-85* box set, and with a brand-new hit single ("[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)") on the radio.
+On September 25, 1987, The Joshua Tree Tour made a stop at Philadelphia's JFK Stadium, where their opening act was Little Steven and the Disciples of Soul. In the crowd to catch his old friend and former bandmate was Bruce Springsteen, still riding high on the heels of his mammoth Born in the U.S.A. Tour and *Live 1975-85* box set, and with a brand-new hit single ("[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)") on the radio.
 
 As for the headliners, well, Bono was a bit worse for the wear at the time–he'd fallen from the stage five days earlier and dislocated his arm. He performed that night with his arm in a sling, and while it didn't dampen his on-stage charisma one bit, it meant he was guitar-challenged for a while.
 

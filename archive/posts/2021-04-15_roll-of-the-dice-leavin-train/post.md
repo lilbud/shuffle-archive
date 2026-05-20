@@ -12,7 +12,7 @@ Want a hard-drivin' train song with a killer guitar solo? Look to ["Burnin' Trai
 
 [Watch on Youtube: Bruce Springsteen - Burnin' Train (Official Audio)](https://www.youtube.com/watch?v=tTwpR6SCyRw)
 
-Want a song that will wrench your heart and fill your soul with dread over the surety of impending but unconfirmed betrayal? Seek out "[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)"
+Want a song that will wrench your heart and fill your soul with dread over the surety of impending but unconfirmed betrayal? Seek out "[Brilliant Disguise.](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)"
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 

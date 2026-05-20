@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1975-0930.jpg.webp)
 
-**1976:** At Night Two on the Lawsuit Tour in Santa Monica, Bruce tells a mid-song “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” story for the first time. Later that night, Bruce and Steve make a surprise guest appearance on stage at Dion DiMucci’s show at The Roxy, providing backing vocals on “[A Teenager in Love.](../2020-08-16_matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/post.md)”<br>
+**1976:** At Night Two on the Lawsuit Tour in Santa Monica, Bruce tells a mid-song “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” story for the first time. Later that night, Bruce and Steve make a surprise guest appearance on stage at Dion DiMucci’s show at The Roxy, providing backing vocals on “[A Teenager in Love.](../2020-08-16_matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/post.md)”<br>
 
 [Watch on Youtube: Bruce Springsteen - GROWIN' UP 1976 (audio)](https://www.youtube.com/watch?v=G-xx8iVhaU8)
 

@@ -22,7 +22,7 @@ Okay, that's way more backstory that I ever cared to know about "Achy Breaky Hea
 
 On March 23, 1993, Bruce was getting ready to kick off his second world tour with his new post-E Street band, and to get everyone back in fighting shape, he staged a rehearsal/benefit show at the Count Basie Theater in Red Bank.
 
-Even by today's standards, the set list was one to envy: the very first "This Hard Land" and "[When You're Alone](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md)," the second-ever "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)," the first "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" in a quarter-century were certainly more than enough to blow fans' minds.
+Even by today's standards, the set list was one to envy: the very first "This Hard Land" and "[When You're Alone](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md)," the second-ever "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)," the first "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" in a quarter-century were certainly more than enough to blow fans' minds.
 
 But Bruce must have wanted to make absolutely sure that no mind was left unblown, so before playing "Blinded by the Light" for the first time in seventeen years, he shocked the audience (and judging by the recording, they shocked him right back by their reception) with his one-time-only-ever cover of "Achy Breaky Heart."
 

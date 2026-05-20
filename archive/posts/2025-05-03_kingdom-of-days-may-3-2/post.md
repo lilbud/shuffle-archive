@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 1972; new entry for 1982; video for 1988*<br>
 
-**1972:** After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them ("[Mary Queen of Arkansas,](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" "[It's Hard to Be a Saint in the City,](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," and "[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" will be released more than a quarter century later on *Tracks*. Others, like "[Two Hearts in True Waltz Time](../2019-09-10_roll-of-the-dice-two-hearts-in-true-waltz-time/post.md)" and "[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/)," remain unreleased.<br>
+**1972:** After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them ("[Mary Queen of Arkansas,](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" "[It's Hard to Be a Saint in the City,](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and "[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" will be released more than a quarter century later on *Tracks*. Others, like "[Two Hearts in True Waltz Time](../2019-09-10_roll-of-the-dice-two-hearts-in-true-waltz-time/post.md)" and "[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)," remain unreleased.<br>
 
 [Watch on Youtube: Mary Queen Of Arkansas (Demo Version - 1972)](https://www.youtube.com/watch?v=MvabtjLsDGI)
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Born in the U.S.A. (Official Video)](https://www.youtube.com/watch?v=EPhWR4d3FJQ)
 
-**1988:** Night Two at the Shoreline Amphitheater in Mountain View, California for the Tunnel of Love Express features the first "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)" in over ten years, along with the tour debut of "Twist and Shout." Check out the rare soundcheck of "[I'm So Lonesome I Could Cry](../2018-11-01_cover-me-im-so-lonesome-i-could-cry/post.md)."<br>
+**1988:** Night Two at the Shoreline Amphitheater in Mountain View, California for the Tunnel of Love Express features the first "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)" in over ten years, along with the tour debut of "Twist and Shout." Check out the rare soundcheck of "[I'm So Lonesome I Could Cry](../2018-11-01_cover-me-im-so-lonesome-i-could-cry/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm So Lonesome I Could Cry (Soundcheck) (1988-05-03)](https://www.youtube.com/watch?v=ZC_y56qVXX4)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Bruce Springsteen: Live In New York City](https://www.youtube.com/playlist?list=PL9tY0BWXOZFtiWf7eTl4vMN8PCpNL0jdu)
 
-**2005:** At the second night at the Pantages Theater in Hollywood, fans hear the tour premieres of "My Beautiful Reward" (in a beautiful new pump organ arrangement), "[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md)," "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)," "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)," and "[The Line.](../2018-08-08_roll-of-the-dice-the-line/post.md)" Nils makes a guest appearance on "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)."<br>
+**2005:** At the second night at the Pantages Theater in Hollywood, fans hear the tour premieres of "My Beautiful Reward" (in a beautiful new pump organ arrangement), "[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md)," "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)," "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)," and "[The Line.](../2018-08-08_roll-of-the-dice-the-line/post.md)" Nils makes a guest appearance on "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4EoHPdBo)
 

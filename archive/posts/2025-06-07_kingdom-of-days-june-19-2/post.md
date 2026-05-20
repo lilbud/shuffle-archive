@@ -68,7 +68,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2006-06-19.jpg.webp)
 
-**2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)."<br>
+**2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Montpellier 2012 06 19 Spirit in the Night Growin' Up](https://www.youtube.com/watch?v=oj8ss5Pt6TI)
 

@@ -60,7 +60,7 @@ Sometime between my Oakland show in May and the Portland show in August, a silen
 
 My wife and I made it right up to the front of the stage, where I was able to shake hands with Bruce for the second day in a row (the previous day was during the afternoon when Bruce took a parking lot stroll after the soundcheck). I must not have given her ample warning though, because to this day she still talks about the out-of-body experience of being dragged through a dark arena and suddenly being just inches in front of Bruce.
 
-From that vantage point we were treated to a double-shot from Bruce’s first album: “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” and the one and only acoustic guitar performance of “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)” on that tour.
+From that vantage point we were treated to a double-shot from Bruce’s first album: “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” and the one and only acoustic guitar performance of “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)” on that tour.
 
 [Watch on Youtube: Bruce Springsteen - For You (Acoustic) - Seattle - 8/11/05](https://www.youtube.com/watch?v=WUMuta55JIg)
 

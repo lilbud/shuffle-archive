@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Ain't Good Enough for You (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=kPg6ZZC3AcY)
 
-**1981:** It’s the end of the River Tour with this final show at Cincinnati’s Riverfront Coliseum, and it’s Steve Van Zandt’s last show as a member of the E Street Band for 18 years. Also saying their goodbyes for a while: “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” (next seen 15 years later) and “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)” (resurfacing 18 years later).<br>
+**1981:** It’s the end of the River Tour with this final show at Cincinnati’s Riverfront Coliseum, and it’s Steve Van Zandt’s last show as a member of the E Street Band for 18 years. Also saying their goodbyes for a while: “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” (next seen 15 years later) and “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)” (resurfacing 18 years later).<br>
 
 [Watch on Youtube: Bruce Springsteen - "Rosalita" - Cincinatti, 1981-09-14](https://www.youtube.com/watch?v=YhD26kZGafI)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1995-09-14.jpg.webp)
 
-**2003:** At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT/LT era, tour premiering “[Brilliant Disguise,](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md),” the latter of which is its first E Street Band performance. The trend will continue throughout the rest of the tour, perhaps not coincidentally while *The Essential Bruce Springsteen* compilation is in production.<br>
+**2003:** At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT/LT era, tour premiering “[Brilliant Disguise,](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and “[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md),” the latter of which is its first E Street Band performance. The trend will continue throughout the rest of the tour, perhaps not coincidentally while *The Essential Bruce Springsteen* compilation is in production.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QUWjxN0h)
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Blinded by the Light - Nationals Park - Wash DC - 9-14-12](https://www.youtube.com/watch?v=OE5lCqxugZA)
 
-**2013:** The Wrecking Ball Tour continues its South American leg with a stop in Buenos Aires, Argentina, where Bruce opens the show with “[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/).”<br>
+**2013:** The Wrecking Ball Tour continues its South American leg with a stop in Buenos Aires, Argentina, where Bruce opens the show with “[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen en Argentina 2013 - 1er cancion del recital "This Little Light of Mine" (TN)](https://www.youtube.com/watch?v=fn9nEbwrAD0)
 

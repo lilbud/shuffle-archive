@@ -47,7 +47,7 @@ Like many of Bruce's best songs, there's a killer lyric lying in wait for us. In
 > *To that place where you can't remember*<br>
 > *And you can't forget*<br>
 
-Oh, how I love that line. It haunts me just as much as the final lines of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" or "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" — the notion of knowing that there's a part of your partner that lies hidden away, unseeable but also unshakable.
+Oh, how I love that line. It haunts me just as much as the final lines of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" or "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" — the notion of knowing that there's a part of your partner that lies hidden away, unseeable but also unshakable.
 
 It's also worth pausing here for a moment to take note of the brilliance of the backing track. It's so very un-E Street, both before and since, and yet the band captures the delicate yet disconcerting mood of the song so perfectly that one would think it was written for them (it wasn't).
 

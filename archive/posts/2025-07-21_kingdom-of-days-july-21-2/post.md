@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-21b.png.webp)
 
-**2003:** Night Three of ten at the Rising Tour's Giants Stadium stand features a special guest star: original E Street Band drummer Vini Lopez takes the drums on "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)."<br>
+**2003:** Night Three of ten at the Rising Tour's Giants Stadium stand features a special guest star: original E Street Band drummer Vini Lopez takes the drums on "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band at Giants Stadium, 2003](https://www.youtube.com/watch?v=SE9VhyFLlCY)
 

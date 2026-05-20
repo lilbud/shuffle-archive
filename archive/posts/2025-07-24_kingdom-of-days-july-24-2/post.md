@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-07-24.png.webp)
 
-**2012:** Bruce opens Night Two in Bergen with an acoustic "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" (a Wrecking Ball tour premiere). The show features four additional tour premieres, including the live debut of "[You've Got It](https://estreetshuffle.com/index.php/2020/07/29/roll-of-the-dice-youve-got-it/)," the first full-band "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)," and rare outings for "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)" and "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)."<br>
+**2012:** Bruce opens Night Two in Bergen with an acoustic "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" (a Wrecking Ball tour premiere). The show features four additional tour premieres, including the live debut of "[You've Got It](../2020-07-30_roll-of-the-dice-youve-got-it/post.md/)," the first full-band "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)," and rare outings for "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)" and "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)."<br>
 
 [Watch on Youtube: Long Walk Home (solo acoustic) Bruce Springsteen Bergen, Norway July 24, 2012](https://www.youtube.com/watch?v=U1TUxEH0Gyw)
 

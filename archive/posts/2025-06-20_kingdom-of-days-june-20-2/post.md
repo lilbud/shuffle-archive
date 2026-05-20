@@ -14,7 +14,7 @@
 
 **1979:** Bruce and the E Street Band work on "Stolen Car" at The Power Station in New York City.<br>
 
-**1982:** Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of "[Come On, Let's Go](../2018-10-19_cover-me-come-on-lets-go/post.md)," "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)," "[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)," "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," and more.<br>
+**1982:** Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of "[Come On, Let's Go](../2018-10-19_cover-me-come-on-lets-go/post.md)," "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," "[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)," "[Lucille](../1976-01-07_cover-me-lucille/post.md/)," and more.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1982-0620.jpg.webp)
 

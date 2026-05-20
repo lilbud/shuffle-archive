@@ -1,6 +1,6 @@
 On April 23, 2008, the E Street Band was still raw from the recent loss of Danny Federici when they arrived in Orlando.
 
-It was only their second show since Danny's funeral, and the set list was still emotional, opening with a rare "[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)," and featuring a dedicated-to-Danny "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)." For the encore, though, Bruce wanted something uplifting, so he turned to one of his influences, Florida resident Roger McGuinn of The Byrds.
+It was only their second show since Danny's funeral, and the set list was still emotional, opening with a rare "[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)," and featuring a dedicated-to-Danny "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)." For the encore, though, Bruce wanted something uplifting, so he turned to one of his influences, Florida resident Roger McGuinn of The Byrds.
 
 After a heartfelt introduction (it was that kind of night), Bruce and Roger played a consoling "Turn! Turn! Turn!" that would eventually be officially released on the *Magic Tour Highlights* EP. But that wasn't the only number the two men played that night–they followed "[Turn! Turn! Turn!](../2021-06-09_matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/post.md)" with The Byrds' other number one hit, "Mr. Tambourine Man."
 

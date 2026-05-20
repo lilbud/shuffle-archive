@@ -80,7 +80,7 @@
 
 [Watch on Youtube: Addicted to Romance (Bruce Springsteen)](https://www.youtube.com/watch?v=FPM0gG2ueV8)
 
-**2023:** Featuring the tour premiere of “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” and rarities like “Jungleland” and “[Jersey Gir](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)l,” the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band’s last show of the year.<br>
+**2023:** Featuring the tour premiere of “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” and rarities like “Jungleland” and “[Jersey Gir](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)l,” the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band’s last show of the year.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Two Hearts - East Rutherford, NJ - 03/09/2023](https://www.youtube.com/watch?v=khQVExmECY0)
 

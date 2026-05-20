@@ -18,7 +18,7 @@ The first time was at The Stone Pony with Cats on a Smooth Surface in July 1983�
 
 [Watch on Youtube: Bruce Springsteen - I HEAR YOU KNOCKING 1983 (audio)](https://www.youtube.com/watch?v=HLTYWRfvc-U)
 
-Five years later, Bruce took one final (to date) run at "Keep A-Knockin'" — this time with Southside Johnny and The Asbury Jukes at The Stone in San Francisco over Thanksgiving weekend, 1988. It's a short performance (it segued into "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)") but a fun one, and you can hear it below.
+Five years later, Bruce took one final (to date) run at "Keep A-Knockin'" — this time with Southside Johnny and The Asbury Jukes at The Stone in San Francisco over Thanksgiving weekend, 1988. It's a short performance (it segued into "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)") but a fun one, and you can hear it below.
 
 [Watch on Youtube: Bruce Springsteen and Southside Johnny - "Keep A Knockin'" - San Francisco, 1988-11-26](https://www.youtube.com/watch?v=ZRShCBKt9Vs)
 

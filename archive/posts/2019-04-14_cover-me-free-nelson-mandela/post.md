@@ -1,6 +1,6 @@
 When Bruce took the stage in South Africa for the first time ever, we knew we were in for something special right from the beginning.
 
-From the High Hopes Tour [opening show on January 26, 2014](https://estreetshuffle.com/index.php/2018/01/26/where-the-band-was-cape-town-january-26-2014/), here’s a wonderful pro-shot video of Bruce’s opening number: a cover of “Free Nelson Mandela” by The Special A.K.A.
+From the High Hopes Tour [opening show on January 26, 2014](../2025-01-31_where-the-band-was-cape-town-january-26-2014/post.md/), here’s a wonderful pro-shot video of Bruce’s opening number: a cover of “Free Nelson Mandela” by The Special A.K.A.
 
 [Watch on Youtube: Nelson Mandela (Cape Town 01/26/14)](https://www.youtube.com/watch?v=vckWpLAFGCA)
 

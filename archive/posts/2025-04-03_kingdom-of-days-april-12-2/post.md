@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Wreck on the Highway](https://www.youtube.com/watch?v=D-MthLm7_m0)
 
-**1987:** Bruce, Patti, Max, Roy, Jon Bon Jovi, and John Luraschi join Cats on a Smooth Surface on stage at The Stone Pony, where Bruce plays “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)” for the very first time. Video clips of “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” and “[Kansas City](../2021-01-11_cover-me-kansas-city/post.md)” have been available on YouTube for a while, but here’s a longer, newly uploaded video that includes “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)” as well.<br>
+**1987:** Bruce, Patti, Max, Roy, Jon Bon Jovi, and John Luraschi join Cats on a Smooth Surface on stage at The Stone Pony, where Bruce plays “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)” for the very first time. Video clips of “[Lucille](../1976-01-07_cover-me-lucille/post.md/)” and “[Kansas City](../2021-01-11_cover-me-kansas-city/post.md)” have been available on YouTube for a while, but here’s a longer, newly uploaded video that includes “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)” as well.<br>
 
 [Watch on Youtube: Bruce Springsteen at The Stone Pony - April 12, 1987](https://www.youtube.com/watch?v=Qqyie3NByuY)
 
@@ -72,7 +72,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2012-04-12.jpg.webp)
 
-**2014:** A true seaside show, Bruce’s concert in Virginia Beach opens with a one-off cover of “[May I](../2019-10-01_cover-me-may-i/post.md),” and features rare performances of “[Seaside Bar Song](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)” and “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” along with the tour premieres of “[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)” and “[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md).”<br>
+**2014:** A true seaside show, Bruce’s concert in Virginia Beach opens with a one-off cover of “[May I](../2019-10-01_cover-me-may-i/post.md),” and features rare performances of “[Seaside Bar Song](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)” and “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” along with the tour premieres of “[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)” and “[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen "May I" Virginia's Bill Deal & the Rhondels Cover - 4/12/14](https://www.youtube.com/watch?v=YMBnU1bYsDc)
 

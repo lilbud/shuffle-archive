@@ -88,7 +88,7 @@ But I don't buy it–at least not for the final song. Perhaps it was true at the
 
 The lyrics in the video above are at just high enough resolution for us to discern that later verses differ from the *High Hopes* version, but not enough for us to actually make them out. So I suppose it's quite possible that the song did indeed start out as "local kingpin" stuff, but I can't listen to the entirety of the released song and conclude it's about anything other than addiction.
 
-Bruce also describes "Harry's Place" as an exercise in recapturing the spirit of his second album, and there are certainly echoes of that writing present (for example, the return of colorfully named characters like Seesaw Bobby). But "Harry's Place" has more in common with "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" from his first album than anything on his second.
+Bruce also describes "Harry's Place" as an exercise in recapturing the spirit of his second album, and there are certainly echoes of that writing present (for example, the return of colorfully named characters like Seesaw Bobby). But "Harry's Place" has more in common with "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" from his first album than anything on his second.
 
 So how do we make sense of all this? As near as I can tell, this is the story:
 

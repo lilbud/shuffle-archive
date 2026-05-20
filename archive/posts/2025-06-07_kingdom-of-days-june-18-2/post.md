@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1971-0618.jpg.webp)
 
-**1983:** Bruce makes a guest appearance at The Stone Pony with The Diamonds. Listen to their mini-set of “[Around and Around](../2020-02-26_cover-me-around-and-around/post.md), “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/),” and “Twist and Shout” below.<br>
+**1983:** Bruce makes a guest appearance at The Stone Pony with The Diamonds. Listen to their mini-set of “[Around and Around](../2020-02-26_cover-me-around-and-around/post.md), “[Lucille](../1976-01-07_cover-me-lucille/post.md/),” and “Twist and Shout” below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bfu6gyfx)
 

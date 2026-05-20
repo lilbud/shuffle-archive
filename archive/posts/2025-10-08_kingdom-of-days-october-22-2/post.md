@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Granada 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=ch7OXyP_JFw)
 
-**2007:** At Night Two in Chicago on the Magic Tour, “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/),” “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” and ” “Thunder Road” make their tour debuts.<br>
+**2007:** At Night Two in Chicago on the Magic Tour, “[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/),” “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/),” and ” “Thunder Road” make their tour debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen Chicago 10/22/07](https://www.youtube.com/watch?v=eFWOEkB44lI)
 

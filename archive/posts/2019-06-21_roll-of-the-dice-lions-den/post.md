@@ -4,7 +4,7 @@ I often get asked about my favorite Springsteen song, and I agonize over it each
 
 Once, though, a fellow fan asked me what my favorite Springsteen *lyrics* were, and although I'd never even considered the question, my answer came surprisingly quickly and easily.
 
-In theory, it should have been just as tough a task as picking a favorite song. After all, this is the man who wrote "Is a dream a lie if it don't come true, or is it something worse" and "[God have mercy on the man who doubts what he's sure of](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)."
+In theory, it should have been just as tough a task as picking a favorite song. After all, this is the man who wrote "Is a dream a lie if it don't come true, or is it something worse" and "[God have mercy on the man who doubts what he's sure of](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)."
 
 But as killer as those lines are, they're not what came immediately to mind when pressed for my favorite Springsteen lyrics.
 

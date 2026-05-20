@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Ramrod](https://www.youtube.com/watch?v=BEhmiGQvjOY)
 
-**1981:** One night after debuting “[Can’t Help Falling in Love,](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)” Bruce opens his second show in Paris by premiering his cover/adaptation of “Follow That Dream.” The encores include another world premiere: Bruce’s first cover of “[Sweet Soul Music](https://estreetshuffle.com/index.php/2019/11/01/cover-me-sweet-soul-music/).”<br>
+**1981:** One night after debuting “[Can’t Help Falling in Love,](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/)” Bruce opens his second show in Paris by premiering his cover/adaptation of “Follow That Dream.” The encores include another world premiere: Bruce’s first cover of “[Sweet Soul Music](../1976-01-20_cover-me-sweet-soul-music/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen - FOLLOW THAT DREAM 1981 (audio)](https://www.youtube.com/watch?v=isH0CoR8feg)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1996:** Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (“[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)“) will be released on Bruce’s *Missing* EP later in the year.<br>
+**1996:** Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (“[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)“) will be released on Bruce’s *Missing* EP later in the year.<br>
 
 [Watch on Youtube: Darkness On the Edge of Town (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=1rh5xrkopE4)
 

@@ -2,7 +2,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/RRqPEpjz)
 
-Following that first performance, Bruce absorbed the song into "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)," where it became a standard nightly encore throughout the remainder of the River Tour.
+Following that first performance, Bruce absorbed the song into "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)," where it became a standard nightly encore throughout the remainder of the River Tour.
 
 "Sweet Soul Music" resurfaced a few times (still as part of "Detroit Medley") during the Born in the U.S.A. Tour and then returned with a vengeance in 1988 on the Tunnel of Love Express Tour, where it eventually spun out of "Detroit Medley" into a slot of its own.
 

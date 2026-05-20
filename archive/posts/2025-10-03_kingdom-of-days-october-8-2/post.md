@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Nils Lofgren on Late Night with David Letterman, 1987-10-08](https://www.youtube.com/watch?v=Sm-860N8T1w)
 
-**1987:** Bruce films the video for “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” at Fort Hancock in Sandy Hook, New Jersey, singing the vocal live over the album’s instrumental track for a remarkable 24 takes. Meiert Avis directs the shoot and the video, and we are fortunate to have [his lengthy and fascinating recollection](https://meiertavis.com/archives/1215) of the events.<br>
+**1987:** Bruce films the video for “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” at Fort Hancock in Sandy Hook, New Jersey, singing the vocal live over the album’s instrumental track for a remarkable 24 takes. Meiert Avis directs the shoot and the video, and we are fortunate to have [his lengthy and fascinating recollection](https://meiertavis.com/archives/1215) of the events.<br>
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 

@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0812.jpg.webp)
 
-**1981:** Bruce and the E Street Band play their second of two nights at Detroit's Joe Louis Arena on the original River Tour. Mitch Ryder makes a guest appearance during the encores on (what else?) "[Detroit Medley.](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)"<br>
+**1981:** Bruce and the E Street Band play their second of two nights at Detroit's Joe Louis Arena on the original River Tour. Mitch Ryder makes a guest appearance during the encores on (what else?) "[Detroit Medley.](../1976-01-02_cover-me-detroit-medley/post.md/)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/O8YUTq5R)
 
@@ -42,7 +42,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1998-08-11b.png.webp)
 
-**1999:** Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand at the Meadowlands with two long-awaited and inevitable bookends: the show-opening tour premiere of "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" and the show-closing one-off performance of "Rosalita (Come Out Tonight)." During the encores, Jon Bon Jovi, Richie Sambora, and Melissa Etheridge join Bruce and the band for "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
+**1999:** Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand at the Meadowlands with two long-awaited and inevitable bookends: the show-opening tour premiere of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and the show-closing one-off performance of "Rosalita (Come Out Tonight)." During the encores, Jon Bon Jovi, Richie Sambora, and Melissa Etheridge join Bruce and the band for "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Jersey Girl (Live 1999 08 12)](https://www.youtube.com/watch?v=DNzLnlxJh20)
 

@@ -54,7 +54,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-11-08c.png.webp)
 
-**2003:** Bruce makes a guest appearance at a Muscular Dystrophy Association benefit in Aberdeen, New Jersey, performing “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and other songs with the house band.<br>
+**2003:** Bruce makes a guest appearance at a Muscular Dystrophy Association benefit in Aberdeen, New Jersey, performing “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)” and other songs with the house band.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2003-11-08.jpg.webp)
 
@@ -70,7 +70,7 @@
 
 [Watch on Youtube: Fade Away (solo electric piano) Bruce Springsteen 11/8/2005 Philly](https://www.youtube.com/watch?v=83Xoj2o5Dog)
 
-**2009:** Bruce and the E Street Band play the second of two very special full-album shows at Madison Square Garden in New York City. Tonight features a full performance of *The River,* featuring tour premieres of “[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)” (in only its fourth performance since the original River Tour), “Stolen Car” and “[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md).” The encore features a couple of premieres as well: “[Can’t Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)” and “[Sweet Soul Music](https://estreetshuffle.com/index.php/2019/11/01/cover-me-sweet-soul-music/).” This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,19644/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-8-2009-Madison-Square-Garden-New-York-NY.html). For more highlights from this show, see guest-blogger Marietta Phillips’ [*Where the Band Was* report](../2019-11-08_where-the-band-was-new-york-city-november-8-2009/post.md).<br>
+**2009:** Bruce and the E Street Band play the second of two very special full-album shows at Madison Square Garden in New York City. Tonight features a full performance of *The River,* featuring tour premieres of “[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)” (in only its fourth performance since the original River Tour), “Stolen Car” and “[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md).” The encore features a couple of premieres as well: “[Can’t Help Falling in Love](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/)” and “[Sweet Soul Music](../1976-01-20_cover-me-sweet-soul-music/post.md/).” This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,19644/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-8-2009-Madison-Square-Garden-New-York-NY.html). For more highlights from this show, see guest-blogger Marietta Phillips’ [*Where the Band Was* report](../2019-11-08_where-the-band-was-new-york-city-november-8-2009/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - Ties That Bind - 2009/11/08 - Madison Square Garden NYC](https://www.youtube.com/watch?v=E8TcpS5V-cg)
 

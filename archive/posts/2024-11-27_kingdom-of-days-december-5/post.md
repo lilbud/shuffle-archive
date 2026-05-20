@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1978-12-05.png.webp)
 
-**1987:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, including “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)” and “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/).”<br>
+**1987:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, including “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)” and “[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen & Cats on a Smooth Surface - Asbury Park, 1987-12-05](https://www.youtube.com/watch?v=aXcPqvpqdos)
 

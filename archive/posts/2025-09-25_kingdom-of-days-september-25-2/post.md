@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/29gtxmdA)
 
-**1984:** Bruce and the E Street Band play "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" for the last time for eight years at their second of two Born in the U.S.A. shows at Buffalo Memorial Auditorium.<br>
+**1984:** Bruce and the E Street Band play "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" for the last time for eight years at their second of two Born in the U.S.A. shows at Buffalo Memorial Auditorium.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D5KXaY9y)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Tom Joad (Live at EJ Thomas Performing Arts, Akron, OH - 9/25/1996)](https://www.youtube.com/watch?v=W8E6uGwkVD4)
 
-**1999:** Bruce and the reunited E Street Band close out their six-night stand in Philadelphia with a killer set list, opening with their first performance of "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" in 19 years and featuring a rare "New York City Serenade" and a show-closing "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25007/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-25-1999-First-Union-Center-Philadelphia-PA.html).<br>
+**1999:** Bruce and the reunited E Street Band close out their six-night stand in Philadelphia with a killer set list, opening with their first performance of "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" in 19 years and featuring a rare "New York City Serenade" and a show-closing "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25007/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-25-1999-First-Union-Center-Philadelphia-PA.html).<br>
 
 [Watch on Youtube: Incident on 57th Street (Live at First Union Center, Philadelphia, PA - 9/25/1999)](https://www.youtube.com/watch?v=UF1WY6t2UhU)
 

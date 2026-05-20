@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1991-0209.jpg.webp)
 
-**2017:** Night Two in Sydney again features the Australian Urban Orchestra for “New York City Serenade” along with a River outtake pairing of “[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)” and “[Be True.](../2020-12-02_roll-of-the-dice-be-true/post.md)” Also tour premiering tonight: “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)” and “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/).”<br>
+**2017:** Night Two in Sydney again features the Australian Urban Orchestra for “New York City Serenade” along with a River outtake pairing of “[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)” and “[Be True.](../2020-12-02_roll-of-the-dice-be-true/post.md)” Also tour premiering tonight: “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)” and “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/).”<br>
 
 [Watch on Youtube: Bruce Springsteen "New York City Serenade" Sydney 09.02.2017](https://www.youtube.com/watch?v=VDKm_1xZXVA)
 

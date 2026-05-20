@@ -2,7 +2,7 @@ For all of the countless hours they’ve shared a stage together, it’s surpris
 
 You can trip over performances where Patti’s vocals back her husband’s, of course–just pick any E Street Band show since 1984. The converse is a lot rarer, but [those performances](../2020-03-22_matr-patti-scialfa-and-bruce-springsteen-tell-him/post.md) are [out there, too](../2018-10-02_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/post.md).
 
-And while on almost any given night on Broadway, theatergoers were treated to lovely intimate Bruce-and-Patti performances of “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” these duets were essentially just Patti shadowing Bruce.
+And while on almost any given night on Broadway, theatergoers were treated to lovely intimate Bruce-and-Patti performances of “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/),” these duets were essentially just Patti shadowing Bruce.
 
 If you want a true trading-vocals duet between Bruce Springsteen and Patti Scialfa, you’re going to have to look carefully. But at least you don’t have to look far–no further than Asbury Park and the annual school benefit concerts and holiday shows where the Jersey Shore’s first couple made frequent appearances.
 

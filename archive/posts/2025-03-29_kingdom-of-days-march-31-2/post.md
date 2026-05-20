@@ -58,7 +58,7 @@ If you aren’t in Denver tonight, you still have a chance to see The Boss: the 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2008-03-31.jpg.webp)
 
-**2013:** Bruce and the E Street Band wrap up the Australian leg of the Wrecking Ball Tour with a second show at Hanging Rock in Macedon. Jimmy Barnes guests for “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/).”<br>
+**2013:** Bruce and the E Street Band wrap up the Australian leg of the Wrecking Ball Tour with a second show at Hanging Rock in Macedon. Jimmy Barnes guests for “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/).”<br>
 
 [Watch on Youtube: Tougher Than The Rest - Bruce Springsteen & Jimmy Barnes - Hanging Rock 2 - 31-03-2013](https://www.youtube.com/watch?v=NMRQgqeVd3c)
 

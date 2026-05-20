@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Dave Grohl on Bruce Springsteen's "secret" letter (CFOX - Vancouver 2017)](https://www.youtube.com/watch?v=ftsBk0Sq2A8)
 
-**2013:** Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."<br>
+**2013:** Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."<br>
 
 [Watch on Youtube: Tougher Than The Rest - Jimmy Barnes & Bruce Springsteen Hanging Rock Sat 30 March 2013](https://www.youtube.com/watch?v=rJtMOZ-MMRQ)
 

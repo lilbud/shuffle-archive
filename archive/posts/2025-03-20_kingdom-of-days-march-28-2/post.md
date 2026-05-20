@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1970-0328.jpg.webp)
 
-**1976:** Bruce and the E Street Band play a gig at Duke University, where “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” makes its proper live debut.<br>
+**1976:** Bruce and the E Street Band play a gig at Duke University, where “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)” makes its proper live debut.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-03-28 Cameron Indoor Stadium, Durham, NC](https://www.youtube.com/watch?v=5oWCb3rgJHA)
 

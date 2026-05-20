@@ -1,4 +1,4 @@
-A fascinating thing happens when a heterosexual woman sings "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."
+A fascinating thing happens when a heterosexual woman sings "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)."
 
 When you swap the genders of the singer and the addressee, but you keep the rest of the lyrics intact, the song transforms.
 

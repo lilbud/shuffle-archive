@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Bruce Springsteen, John Eddie, and Friends - "Bang a Gong (Get It On)" / "Route 66"](https://www.youtube.com/watch?v=9osA0jMFeBk)
 
-**1995:** Bruce joins Joe Grushecky and The Houserockers for their second of two shows at Nick's Fat City in Pittsburgh, where Bruce plays "[Gimme Shelter](../2019-09-09_matr-joe-grushecky-and-bruce-springsteen-gimme-shelter/post.md)" in full for the first and only time. "[Rebel Music](https://estreetshuffle.com/index.php/2020/03/25/matr-joe-grushecky-and-bruce-springsteen-rebel-music/)" will eventually be released on Grushecky's *October Assault* CD, and several songs from this show will be released on the 25th anniversary re-issue of [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md).<br>
+**1995:** Bruce joins Joe Grushecky and The Houserockers for their second of two shows at Nick's Fat City in Pittsburgh, where Bruce plays "[Gimme Shelter](../2019-09-09_matr-joe-grushecky-and-bruce-springsteen-gimme-shelter/post.md)" in full for the first and only time. "[Rebel Music](../2020-03-25_matr-joe-grushecky-and-bruce-springsteen-rebel-music/post.md/)" will eventually be released on Grushecky's *October Assault* CD, and several songs from this show will be released on the 25th anniversary re-issue of [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md).<br>
 
 [Watch on Youtube: Gimme shelter - Joe Grushecky with Bruce Springsteen](https://www.youtube.com/watch?v=5WmQuWwpyf8)
 

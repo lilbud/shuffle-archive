@@ -20,7 +20,7 @@ But neither the official studio track nor any full-band performance can match th
 
 "Long Time Comin'" is the song-length epiphany of a father who realizes belatedly–but not *too*-latedly–that the greatest gifts he can bestow upon his children are his presence in their lives and the freedom to reject the traits he had no choice but to accept from his own father.
 
-As a young man on the cusp of 30, Bruce railed and raged against his father's inheritance in "Adam Raised a Cain." At 32, he tried to bridge their gulf in "[My Father's House.](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)" By the age of 37, he'd begun to filter his father's influence in "[Walk Like a Man,](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" and by the time he debuted "Long Time Comin'" on his solo acoustic tour just a few days after his 47th birthday, he'd found redemption–his own, and his father's.
+As a young man on the cusp of 30, Bruce railed and raged against his father's inheritance in "Adam Raised a Cain." At 32, he tried to bridge their gulf in "[My Father's House.](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)" By the age of 37, he'd begun to filter his father's influence in "[Walk Like a Man,](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" and by the time he debuted "Long Time Comin'" on his solo acoustic tour just a few days after his 47th birthday, he'd found redemption–his own, and his father's.
 
 He hasn't released an original song about fathers and sons since.
 

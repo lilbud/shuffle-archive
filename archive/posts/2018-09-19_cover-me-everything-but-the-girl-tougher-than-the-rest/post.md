@@ -4,7 +4,7 @@ I've been in love with Tracey Thorn's voice since I first discovered Everything 
 
 Tracey's voice is more than beautiful–it's also layered with an amazing range of emotion and subtext beneath the lyrics of any song she embraces.
 
-So when EBTG released their *Acoustic* CD, including a cover of Bruce's "[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" I knew before I even heard it that it was going to be a keeper.
+So when EBTG released their *Acoustic* CD, including a cover of Bruce's "[Tougher Than the Rest,](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" I knew before I even heard it that it was going to be a keeper.
 
 She definitely groks the song:
 

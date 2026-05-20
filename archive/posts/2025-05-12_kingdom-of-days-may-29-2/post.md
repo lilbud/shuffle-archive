@@ -62,7 +62,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/3HRnAU3V)
 
-**2000:** When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” for the first time in 19 years.<br>
+**2000:** When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” for the first time in 19 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/7evt8l2F)
 

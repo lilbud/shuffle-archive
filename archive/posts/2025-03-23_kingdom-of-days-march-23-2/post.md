@@ -6,7 +6,7 @@
 
 **1974:** Bruce plays guest DJ on KDKB-FM in Phoenix, spinning platters for over an hour.<br>
 
-**1977:** Night Two in Boston features Bruce's live premiere of "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)."<br>
+**1977:** Night Two in Boston features Bruce's live premiere of "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)."<br>
 
 [Watch on Youtube: Boston (3/23/1977)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1Aq-sMiaBgq2zwKlLwAXQo3)
 
@@ -34,7 +34,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1988-0323.jpg.webp)
 
-**1993:** Bruce plays a food bank benefit show at the Count Basie Theater in Red Bank before kicking off the next European leg of his 1992-1993 tour. The set list holds an embarrassment of riches: the first "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" in 18 years, the live debut of "This Hard Land," "[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md)" and "[When You're Alone,](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md)" and only the second-ever performances of "[I Ain't Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" to close the show. All that plus a one-off cover of "[Achy Breaky Heart.](../2020-04-10_cover-me-achy-breaky-heart/post.md)" Watch Bruce soundcheck below.<br>
+**1993:** Bruce plays a food bank benefit show at the Count Basie Theater in Red Bank before kicking off the next European leg of his 1992-1993 tour. The set list holds an embarrassment of riches: the first "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" in 18 years, the live debut of "This Hard Land," "[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md)" and "[When You're Alone,](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md)" and only the second-ever performances of "[I Ain't Got No Home](../2019-02-10_cover-me-rotd-i-aint-got-no-home/post.md)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" to close the show. All that plus a one-off cover of "[Achy Breaky Heart.](../2020-04-10_cover-me-achy-breaky-heart/post.md)" Watch Bruce soundcheck below.<br>
 
 [Watch on Youtube: Bruce Springsteen Red Bank Rehearsal 23rd March 1993, Count Basie Theater, Red Bank, NJ](https://www.youtube.com/watch?v=2lfIHGtB5wE?start=872)
 

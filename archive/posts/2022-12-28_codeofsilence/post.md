@@ -1,6 +1,6 @@
 Quick, name the only live Springsteen performance to win a Grammy.
 
-Okay, that would probably be harder if you hadn't already read the title of this post. But yeah, it's not "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" or "[War](../2019-05-27_cover-me-war/post.md)" or "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" or "American Skin (41 Shots)" or any of the other live recordings you'll hear on the radio (other then E Street Radio, that is).
+Okay, that would probably be harder if you hadn't already read the title of this post. But yeah, it's not "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" or "[War](../2019-05-27_cover-me-war/post.md)" or "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" or "American Skin (41 Shots)" or any of the other live recordings you'll hear on the radio (other then E Street Radio, that is).
 
 In February 2005, the Grammy for Best Solo Rock Vocal Performance went to "Code of Silence," recorded live on June 29, 2000 and buried deep on the bonus disc included in the first run of *The Essential Bruce Springsteen.*
 

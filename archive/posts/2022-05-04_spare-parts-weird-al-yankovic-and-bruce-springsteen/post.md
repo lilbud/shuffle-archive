@@ -8,7 +8,7 @@ In the clip below, Al poses a series of questions I've never seen any other inte
 
 [Watch on Youtube: "Weird Al" Yankovic - The Bruce Springsteen Interview](https://www.youtube.com/watch?v=wudovyyvKDU)
 
-Bruce and Al are such good friends that Bruce invited Al to the set a couple of years later for the filming of the video for "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)." Of course, with Yankovic on the scene, hilarity was bound to ensue. In the rarely seen alternate and unreleased cut of Bruce's famously somber video, we see the artist doing his best to keep a straight face while his buddy does his best to make him laugh. (It also includes what is to my knowledge their one and only musical performance together.)
+Bruce and Al are such good friends that Bruce invited Al to the set a couple of years later for the filming of the video for "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)." Of course, with Yankovic on the scene, hilarity was bound to ensue. In the rarely seen alternate and unreleased cut of Bruce's famously somber video, we see the artist doing his best to keep a straight face while his buddy does his best to make him laugh. (It also includes what is to my knowledge their one and only musical performance together.)
 
 [Watch Video Highlight](https://videopress.com/embed/5ITpyjxy)
 

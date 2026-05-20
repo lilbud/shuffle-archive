@@ -28,7 +28,7 @@ Even in its earliest full-band version, "Roulette" kicks off with a terrifying d
 
 [Watch on Youtube: Shot By Both Sides (Remastered)](https://www.youtube.com/watch?v=Qu3R-H5on1s)
 
-The final version of "Roulette" became the first song recorded for the album that would become *The River*, and while it wouldn't make the final cut, its punk spirit and live energy set the tone for much of that record. No less than ten confirmed mixes were created, and the three official releases of the song (on the B-side of the 1988 single for "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)," the 1998 *Tracks* box set, and the disc of outtakes on the 2015 *The Ties That Bind* box set) are all different mixes of the same recording.
+The final version of "Roulette" became the first song recorded for the album that would become *The River*, and while it wouldn't make the final cut, its punk spirit and live energy set the tone for much of that record. No less than ten confirmed mixes were created, and the three official releases of the song (on the B-side of the 1988 single for "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)," the 1998 *Tracks* box set, and the disc of outtakes on the 2015 *The Ties That Bind* box set) are all different mixes of the same recording.
 
 [Watch on Youtube: Roulette (Studio Outtake - 1979)](https://www.youtube.com/watch?v=_QWRFI3M0mo)
 

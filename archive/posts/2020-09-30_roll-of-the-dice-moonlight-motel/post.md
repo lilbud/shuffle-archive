@@ -10,7 +10,7 @@ Okay, we can proceed now.
 
 Today marks one thousand days for me–one thousand *consecutive* days–of daily Springsteen blogging. I don't think I've *ever* done anything for a thousand days in a row before that isn't an involuntary or life-sustaining biological function, but for a thousand days in a row I've been writing my way through every song Bruce Springsteen has ever released, recorded, covered, and even discarded, never knowing what I'll be writing about next until my randomizer reveals it to me.
 
-So for my 1,000th daily-versary present, I'm allowing myself a dealer's choice (my first since [Day 1](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)) and writing about a song I've been champing at the bit to discuss since I first heard it on [Day 526](https://estreetshuffle.com/index.php/2020/06/14/kingdom-of-days-june-14/).
+So for my 1,000th daily-versary present, I'm allowing myself a dealer's choice (my first since [Day 1](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)) and writing about a song I've been champing at the bit to discuss since I first heard it on [Day 526](../2025-06-14_kingdom-of-days-june-14-2/post.md/).
 
 [Watch on Youtube: Bruce Springsteen - Moonlight Motel (Official Audio)](https://www.youtube.com/watch?v=paFUBjeTcZY)
 

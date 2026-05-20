@@ -1,4 +1,4 @@
-On August 22, 1987, Bruce made a guest appearance with Levon Helm’s All -Stars at The Stone Pony on August 22, 1987, and in addition to a rocking cover of “[Lucille,](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” they just *had* to play one of The Band’s greatest hits.
+On August 22, 1987, Bruce made a guest appearance with Levon Helm’s All -Stars at The Stone Pony on August 22, 1987, and in addition to a rocking cover of “[Lucille,](../1976-01-07_cover-me-lucille/post.md/)” they just *had* to play one of The Band’s greatest hits.
 
 Take a listen:
 

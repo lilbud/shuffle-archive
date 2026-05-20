@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1999-09-27b.jpg.webp)
 
-**2002:** Milwaukee gets tour one-offs of “[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” and a show-closing “[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)” (complete with “Are you loose?”) and a “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” tour premiere when the Rising Tour stops at the Bradley Center for a night.<br>
+**2002:** Milwaukee gets tour one-offs of “[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)” and a show-closing “[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)” (complete with “Are you loose?”) and a “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” tour premiere when the Rising Tour stops at the Bradley Center for a night.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jFG933Sz)
 
@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2002-09-27b.jpg.webp)
 
-**2003:** The Rising Tour is winding down, and each show of this last month is special. At Miller Park in Milwaukee (one year to the day since his last show in that city), Bruce opens with “[Candy’s Room](../2022-05-02_roll-of-the-dice-candys-room/post.md),” plays a rare “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md),” and by request: a Danny Federici spotlight on “[Beer Barrel Polka](../2020-03-24_cover-me-beer-barrel-polka/post.md).”<br>
+**2003:** The Rising Tour is winding down, and each show of this last month is special. At Miller Park in Milwaukee (one year to the day since his last show in that city), Bruce opens with “[Candy’s Room](../2022-05-02_roll-of-the-dice-candys-room/post.md),” plays a rare “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md),” and by request: a Danny Federici spotlight on “[Beer Barrel Polka](../2020-03-24_cover-me-beer-barrel-polka/post.md).”<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN | MILWAUKEE 2003 | FULL CONCERT](https://www.youtube.com/watch?v=WdlwIJmm6ro)
 
@@ -94,7 +94,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2016-09-27.jpg.webp)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is sick tonight, so Bruce Broadway-debuts “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” in place of his usual “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” duet with his wife. In attendance tonight: Robert Gordon and Simple Minds.<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is sick tonight, so Bruce Broadway-debuts “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” in place of his usual “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” duet with his wife. In attendance tonight: Robert Gordon and Simple Minds.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/2018-09-27a.jpg.webp)
 

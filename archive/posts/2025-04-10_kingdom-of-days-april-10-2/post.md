@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9hgdYBzC)
 
-**2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including "[Racing in the Street,](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" "[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)," and "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)."<br>
+**2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including "[Racing in the Street,](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" "[Tougher Than the Rest,](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)," and "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)."<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - JOHNNY 99 - DENVER 2009](https://www.youtube.com/watch?v=FDfLsusF-S8)
 

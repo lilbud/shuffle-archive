@@ -30,7 +30,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1984-06-06.jpg.webp)
 
-**2005:** At his solo acoustic show in Rome, Bruce tour premieres “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md).”<br>
+**2005:** At his solo acoustic show in Rome, Bruce tour premieres “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm on Fire (live in Rome 2005)](https://www.youtube.com/watch?v=W2WAlyG4YCk)
 

@@ -6,7 +6,7 @@ There are exceptions, however, and one of them is the 2009 compilation *Play Som
 
 There's something about hearing Bruce's music interpreted by young indie bands that appeals to me. I know virtually none of the album's 38 contributing indie artists and bands outside of this collection, but it's cool to hear how Bruce's music continues to connect with and influence new and up-and-coming artists. (Up-and-coming as of a decade ago, in this case, but you get my point.)
 
-Here's one of my favorite tracks on the album: a cover of "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)" as performed by Swedish band Jeniferever.
+Here's one of my favorite tracks on the album: a cover of "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" as performed by Swedish band Jeniferever.
 
 [Watch Video](https://bandcamp.com/EmbeddedPlayer/album=136685173/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/track=213265455/transparent=true/)
 

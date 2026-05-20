@@ -44,7 +44,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-22.png.webp)
 
-**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm's All-Stars for "[Up on Cripple Creek](../2018-01-29_meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/post.md)" and "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."<br>
+**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm's All-Stars for "[Up on Cripple Creek](../2018-01-29_meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/post.md)" and "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gxirqWhO)
 

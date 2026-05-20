@@ -22,7 +22,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/47491500642_fa4e3e24cd_o.jpg.webp)
 
-**1980:** Bruce plays a Thanksgiving Day concert at Madison Square Garden in New York City, and he tells a special Thanksgiving-themed story during "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" to mark the occasion.<br>
+**1980:** Bruce plays a Thanksgiving Day concert at Madison Square Garden in New York City, and he tells a special Thanksgiving-themed story during "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" to mark the occasion.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Growin' Up" - New York City, 1980-11-27](https://www.youtube.com/watch?v=Lsz2RPMWoY8)
 

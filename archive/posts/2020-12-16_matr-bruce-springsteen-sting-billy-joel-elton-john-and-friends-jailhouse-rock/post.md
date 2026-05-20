@@ -2,7 +2,7 @@ It was a team-up for the ages, an Elvis-themed evening featuring an all-star cas
 
 At Sting and Trudie Styler’s Rainforest Foundation benefit concert in 1995, Sting was joined on stage by Billy Joel, Elton John, James Taylor, Paul Simon, Jon Bon Jovi, and the late Geoffrey Oryema and Jessye Norman. Oh, and Bruce Springsteen of course.
 
-Bruce played a few of his own songs during his set (including a complete version of “[I’m Turning Into Elvis](../2020-03-05_roll-of-the-dice-im-turning-into-elvis/post.md),” which [he partially debuted the week before at Sony Studios](https://estreetshuffle.com/index.php/2019/04/05/kingdom-of-days-april-5-2/)). But he also paid tribute to The King, joining the assembled artists for a cover-filled encore.
+Bruce played a few of his own songs during his set (including a complete version of “[I’m Turning Into Elvis](../2020-03-05_roll-of-the-dice-im-turning-into-elvis/post.md),” which [he partially debuted the week before at Sony Studios](../2025-04-05_kingdom-of-days-april-5-2/post.md/)). But he also paid tribute to The King, joining the assembled artists for a cover-filled encore.
 
 Among the Elvis songs performed by that amazing line-up was “Jailhouse Rock,” and fortunately for us, it was captured (at least in part) in professionally shot video:
 

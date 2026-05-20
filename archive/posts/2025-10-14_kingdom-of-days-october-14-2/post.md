@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Bruce Springsteen Paris 14/10/2002 Full Concert](https://www.youtube.com/watch?v=wbviL1BNRag)
 
-**2007:** The Magic Tour heads north to Canada, starting with a show at ScotiaBank Place in Ottawa, where Win Butler and Regine Chassagne of Arcade Fire guest star for the tour premiere of "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" and Bruce's only performance of "[Keep the Car Running](../2020-04-01_matr-bruce-springsteen-and-arcade-fire-keep-the-car-running/post.md)" to date. Also tour premiering at this show: "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)," performed back to back.<br>
+**2007:** The Magic Tour heads north to Canada, starting with a show at ScotiaBank Place in Ottawa, where Win Butler and Regine Chassagne of Arcade Fire guest star for the tour premiere of "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)" and Bruce's only performance of "[Keep the Car Running](../2020-04-01_matr-bruce-springsteen-and-arcade-fire-keep-the-car-running/post.md)" to date. Also tour premiering at this show: "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)," performed back to back.<br>
 
 [Watch on Youtube: Bruce Springsteen with Win & Régine of Arcade Fire - State Trooper](https://www.youtube.com/watch?v=8RPriY-_iXw)
 

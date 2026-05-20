@@ -4,7 +4,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1968-0810.jpg.webp)
 
-**1972:** Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max’s Kansas City in New York. At one of these shows, Bruce opens with “[Henry Boy](../2022-04-08_roll-of-the-dice-henry-boy/post.md)” and closes with “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” and both are captured on video by Barry Rebo.<br>
+**1972:** Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max’s Kansas City in New York. At one of these shows, Bruce opens with “[Henry Boy](../2022-04-08_roll-of-the-dice-henry-boy/post.md)” and closes with “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” and both are captured on video by Barry Rebo.<br>
 
 [Watch on Youtube: Bruce Springsteen Henry Boy 1972](https://www.youtube.com/watch?v=BpKsq8Y7_EY)
 
@@ -66,7 +66,7 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2002-08-10.png.webp)
 
-**2005:** Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acoustic tour into its home stretch in the Pacific Northwest, starting with this gorgeous set in Portland. Bruce opens with the tour premiere of “[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)” (played here for the first and only time since the 1992-93 tour to date) and plays beautiful renditions of “[Valentine’s Day,](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/),” and “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” as well. For more highlights from this show, see my [Where the Band Was report](../2018-08-10_where-the-band-was-portland-august-10-2005/post.md).<br>
+**2005:** Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acoustic tour into its home stretch in the Pacific Northwest, starting with this gorgeous set in Portland. Bruce opens with the tour premiere of “[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)” (played here for the first and only time since the 1992-93 tour to date) and plays beautiful renditions of “[Valentine’s Day,](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)” “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/),” and “[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)” as well. For more highlights from this show, see my [Where the Band Was report](../2018-08-10_where-the-band-was-portland-august-10-2005/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - SOUL DRIVER 2005 (audio)](https://www.youtube.com/watch?v=-hWWOHqCtLU)
 

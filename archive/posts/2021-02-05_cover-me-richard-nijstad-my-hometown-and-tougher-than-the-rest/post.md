@@ -10,7 +10,7 @@ Why such a strong focus? Because like many of us, Richard found parallels to his
 
 In his tender cover of "My Hometown" below, we can feel Richard's genuine connection to Bruce's lyrics.
 
-In 2005, Richard's life took an unexpected turn: his marriage ended, his family split, and he looked to "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" for the strength he needed to soldier on.
+In 2005, Richard's life took an unexpected turn: his marriage ended, his family split, and he looked to "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" for the strength he needed to soldier on.
 
 "Tougher Than the Rest" became Richard's theme song... so much so that Bruce's words are literally written on his body. (Keep an eye out for them in the video below.)
 

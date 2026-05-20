@@ -10,7 +10,7 @@ Unfortunately only the end of the song was captured on video (and Bruce has neve
 
 [Watch on Youtube: YANKEES WIN (LIVE) -- BRUCE SPRINGSTEEN](https://www.youtube.com/watch?v=ICdF-oq48Hg)
 
-Bruce lifted the melody from his under-the-radar Ghost of Tom Joad Tour masterpiece, "[Pilgrim in the Temple of Love.](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)" (One wonders if Bruce keeps that tune on-hand for any occasion where he needs a custom ditty.)
+Bruce lifted the melody from his under-the-radar Ghost of Tom Joad Tour masterpiece, "[Pilgrim in the Temple of Love.](../2002-01-12_roll-of-the-dice-pilgrim-in-the-temple-of-love/post.md/)" (One wonders if Bruce keeps that tune on-hand for any occasion where he needs a custom ditty.)
 
 The lyrics are obviously a salute to Torres' amazing run of wins as manager, but (perhaps subconsciously due to the melody's origin) Bruce got a little risque at times, too, conjuring up an image of Patti in pinstripes.
 

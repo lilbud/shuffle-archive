@@ -22,7 +22,7 @@ I knew another tour standard was coming up next–"My City of Ruins"–and Bruce
 
 [Watch on Youtube: Bruce Springsteen @ Fenway Park 8.14.12](https://www.youtube.com/watch?v=d9lHAINYyNk)
 
-"[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" followed, bringing the first real crowd interaction of the night.
+"[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" followed, bringing the first real crowd interaction of the night.
 
 [Watch on Youtube: Springsteen Fenway 8-14-12 Spirit In The Night - Jake+Bruce](https://www.youtube.com/watch?v=La53VySTeVE)
 

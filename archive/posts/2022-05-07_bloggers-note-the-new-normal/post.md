@@ -17,7 +17,7 @@ This schedule change gives me a lot of time back in my week, and (so far, at lea
 
 It also adds a couple of other benefits:
 
-- I now have time to add new video to *Kingdom of Days* posts that can't be found on YouTube (see [today's post](https://estreetshuffle.com/index.php/2022/05/07/kingdom-of-days-may-7/) for two examples).
+- I now have time to add new video to *Kingdom of Days* posts that can't be found on YouTube (see [today's post](../2025-05-07_kingdom-of-days-may-7-2/post.md/) for two examples).
 - New posts will continue at least into 2023, maybe longer if Bruce releases or covers new music during that time. (Originally, I'd planned to wrap up the site this year.)
 
 One thing's certain: I have no intention of stopping until we make it through every song–and there's still about 200 left to go.

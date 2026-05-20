@@ -18,7 +18,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0801.jpg.webp)
 
-**1976:** A big night in Red Bank: unable to record due to Mike Appel’s legal injunction, Bruce prepares for what will come to be known as “The Lawsuit Tour” with a week of shows (six days out of seven) at the Monmouth Arts Center. This show features the debut of The Miami Horns, borrowed for this tour from Southside Johnny. Because Bruce is unable to go into the studio, he works out new material on-stage as the tour progresses, starting with this show: “[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)” is played for the very first time, as is an early work-in-progress version of “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md).” Bruce also covers “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)” for the first time, as well as a one-time-only “[She’s Sure the Girl I Love](../2020-08-27_cover-me-shes-sure-the-girl-i-love/post.md).” Whew!<br>
+**1976:** A big night in Red Bank: unable to record due to Mike Appel’s legal injunction, Bruce prepares for what will come to be known as “The Lawsuit Tour” with a week of shows (six days out of seven) at the Monmouth Arts Center. This show features the debut of The Miami Horns, borrowed for this tour from Southside Johnny. Because Bruce is unable to go into the studio, he works out new material on-stage as the tour progresses, starting with this show: “[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)” is played for the very first time, as is an early work-in-progress version of “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md).” Bruce also covers “[You Can’t Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)” for the first time, as well as a one-time-only “[She’s Sure the Girl I Love](../2020-08-27_cover-me-shes-sure-the-girl-i-love/post.md).” Whew!<br>
 
 [Watch on Youtube: Bruce Springsteen - RENDEZVOUS 1976 (audio)](https://www.youtube.com/watch?v=erYlQgL9v4I)
 
@@ -38,7 +38,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0801.jpg.webp)
 
-**1982:** Bruce makes a guest appearance with Cats on a Smooth Surface for six songs (including “[Come On Over to My Place](../2018-04-12_matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/post.md),” “[Come On, Let’s Go,](../2018-10-19_cover-me-come-on-lets-go/post.md)” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)“) at The Stone Pony in Asbury Park.<br>
+**1982:** Bruce makes a guest appearance with Cats on a Smooth Surface for six songs (including “[Come On Over to My Place](../2018-04-12_matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/post.md),” “[Come On, Let’s Go,](../2018-10-19_cover-me-come-on-lets-go/post.md)” and “[Lucille](../1976-01-07_cover-me-lucille/post.md/)“) at The Stone Pony in Asbury Park.<br>
 
 **1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former location of Big Man’s West in Red Bank.<br>
 
@@ -78,7 +78,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2003-08-01b.png.webp)
 
-**2005:** The remarkable run of tour debuts on the Devils and Dust Tour continues at this show at U.S. Bank Arena in Cincinnati. Bruce opens the show with “[Two For the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)” (its first airing ever), and follows it later in the show with “[Ain’t Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)” and “[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md).” Also getting rare outings: “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)” and “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md),” making for a wonderful set list.<br>
+**2005:** The remarkable run of tour debuts on the Devils and Dust Tour continues at this show at U.S. Bank Arena in Cincinnati. Bruce opens the show with “[Two For the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)” (its first airing ever), and follows it later in the show with “[Ain’t Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)” and “[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md).” Also getting rare outings: “[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)” and “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md),” making for a wonderful set list.<br>
 
 [Watch on Youtube: Living Proof (solo acoustic) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=6Zn3qhy37To)
 

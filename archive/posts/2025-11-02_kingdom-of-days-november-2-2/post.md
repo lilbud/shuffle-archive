@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Hobo's Lullaby](https://www.youtube.com/watch?v=FbiiRUSdUyg)
 
-**2002:** Bruce makes his by now expected appearance at the third annual Light of Day benefit at Tradewinds in Sea Bright, once again joining Joe Grushecky and The Houserockers for an hour of their set. Garland Jeffreys and Bob Benjamin join in the fun, as does Gary U.S. Bonds, who plays a set of his own later that night. Around midnight, Bruce returned to the stage with Bonds to play "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)."<br>
+**2002:** Bruce makes his by now expected appearance at the third annual Light of Day benefit at Tradewinds in Sea Bright, once again joining Joe Grushecky and The Houserockers for an hour of their set. Garland Jeffreys and Bob Benjamin join in the fun, as does Gary U.S. Bonds, who plays a set of his own later that night. Around midnight, Bruce returned to the stage with Bonds to play "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Y0ntYYJs)
 

@@ -20,7 +20,7 @@ That night, the boys play two shows at Liberty Hall.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3)
 
-**1988:** Bruce and the E Street Band play the second of two nights at the Spectrum in Philadelphia, where “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” closes the show in its first appearance in seven years.<br>
+**1988:** Bruce and the E Street Band play the second of two nights at the Spectrum in Philadelphia, where “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)” closes the show in its first appearance in seven years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JEl15R0m)
 
@@ -70,7 +70,7 @@ That night, the boys play two shows at Liberty Hall.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2012-03-09b.jpg.webp)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays “[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)” and “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” in place of “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” and “[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)”<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays “[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)” and “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” in place of “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” and “[Brilliant Disguise.](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)”<br>
 
 **2022:** Bruce reminisces about his legendary Apollo Theater show on its tenth anniversary, with E Street Radio host Jim Rotolo.<br>
 

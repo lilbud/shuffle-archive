@@ -18,7 +18,7 @@ Almost a decade later, Bruce opened another Denver show with “Get Out of Denve
 
 [Watch on Youtube: BRUCE SPRINGSTEEN "Get Outta Denver" Live at The P](https://www.youtube.com/watch?v=Mgs1yGger5A)
 
-“Get Out of Denver” makes for a great opener, and with its “[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)“-ish riff and chorus, it would make for a great encore, too. Let’s hope Bruce brings this one out more often.
+“Get Out of Denver” makes for a great opener, and with its “[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)“-ish riff and chorus, it would make for a great encore, too. Let’s hope Bruce brings this one out more often.
 
 **Get Out of Denver**<br>
 **First performed:** April 13, 2002 (Asbury Park, NJ)<br>

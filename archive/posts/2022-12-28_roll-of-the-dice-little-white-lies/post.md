@@ -58,7 +58,7 @@ Again, compare with "Stolen Car," which is less explicit and more compact–esta
 
 I don't want to be too hard on "Little White Lies" — it tells a more vivid story than "Stolen Car," with a more specific diagnosis and an uptempo melody that conveys more frustration and self-reproach than the track that made it on to *The River*. But they're similar enough that it wouldn't have made sense to include them both.
 
-I've often wondered if Bruce went back and listened to "Little White Lies" when writing "Brilliant Disguise." There's definitely a similarity in theme, and the closing lines of "Little White Lies" sound very similar to the closing couplet of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/):"
+I've often wondered if Bruce went back and listened to "Little White Lies" when writing "Brilliant Disguise." There's definitely a similarity in theme, and the closing lines of "Little White Lies" sound very similar to the closing couplet of "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/):"
 
 > *Now lying here in the dark, did you ever think, ever think that we could be this cold*<br>
 > *Just as cold as the little white lies that we told*<br>

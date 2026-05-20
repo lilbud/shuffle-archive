@@ -30,7 +30,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/J5MtQW5J)
 
-**1992:** At the third of eleven Meadowlands shows on World Tour 1992, Bruce closes the evening with the tour premiere of “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” the first performance of that song in almost seven years.<br>
+**1992:** At the third of eleven Meadowlands shows on World Tour 1992, Bruce closes the evening with the tour premiere of “[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/),” the first performance of that song in almost seven years.<br>
 
 [Watch on Youtube: Bruce Springsteen & His Mother - Working on the Highway (rare)](https://www.youtube.com/watch?v=08AOp1JK6cQ)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/News_and_Record_2005_07_28_18.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/News_and_Record_2005_07_28_46.jpg.webp)
 
-**2009:** Bruce and the E Street Band take the Working on a Dream Tour into its European home stretch, winding up the leg with a five-show mini-tour of Spain, starting with this first show in Bilbao. “[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” and “[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)” both get the tour premiere treatment.<br>
+**2009:** Bruce and the E Street Band take the Working on a Dream Tour into its European home stretch, winding up the leg with a five-show mini-tour of Spain, starting with this first show in Bilbao. “[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)” and “[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)” both get the tour premiere treatment.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Live Bilbao 2009 Working On A Dream Tour](https://www.youtube.com/watch?v=6pJmgGAePro)
 

@@ -36,7 +36,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1980-12-08.png.webp)
 
-**1992:** On Night Two in Philadelphia, Bruce debuts a new song (sort of) when nature calls in the middle of the show, Frank Bruno makes a guest appearance long before he joins the Sessions Band, and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" makes its only tour appearance outside of its namesake state.<br>
+**1992:** On Night Two in Philadelphia, Bruce debuts a new song (sort of) when nature calls in the middle of the show, Frank Bruno makes a guest appearance long before he joins the Sessions Band, and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" makes its only tour appearance outside of its namesake state.<br>
 
 [Watch on Youtube: Bruce Springsteen takes a pit-stop](https://www.youtube.com/watch?v=CC2hnnUR9VM)
 

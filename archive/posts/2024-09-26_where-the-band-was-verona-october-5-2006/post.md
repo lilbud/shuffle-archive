@@ -56,7 +56,7 @@ When the band returned for the encores, I thought for sure Bruce would open with
 
 A couple of standard encores ("[Rag Mama Rag](../2019-04-30_cover-me-rag-mama-rag/post.md)" and "[When the Saints Go Marching In](../2021-03-28_cover-me-when-the-saints-go-marching-in/post.md)") later, it seemed the show was just about over ("Saints" is how Bruce ended the shows during the American leg).
 
-But Bruce had one more song to send us off with — a celebratory arrangement of the gospel classic "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)" — and only at the very end of it, when I was absolutely *sure* he was done, did Bruce *finally* play my first "American Land." It immediately became on of my favorites and remains so to this day.
+But Bruce had one more song to send us off with — a celebratory arrangement of the gospel classic "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)" — and only at the very end of it, when I was absolutely *sure* he was done, did Bruce *finally* play my first "American Land." It immediately became on of my favorites and remains so to this day.
 
 [Watch Video Highlight](https://videopress.com/embed/26lYeTOG)
 

@@ -7,7 +7,7 @@ It's derided by critics and fans alike, and even the artist seems content to ign
 
 And yet, "The Angel" is a genuinely significant song. If we want to chart the songwriting path that led Bruce to his landmark "Born to Run," we start way back in the autumn of 1971, when Bruce auditioned for future manager Mike Appel with "[Baby Doll](../2019-10-13_roll-of-the-dice-baby-doll/post.md)," and "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)."
 
-Appel thought both songs sucked, but he saw enough potential in Bruce to challenge him to write more songs and then come back and see him again. Bruce accepted the challenge and wrote furiously over the weeks and months that followed. He reported back to Appel in February 1972, and although "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" is the song that famously captivated Appel enough to take Bruce on as a client, Bruce demoed at least seven other songs for Appel that day, two of which would make it onto Bruce's first album. One of them was "The Angel."
+Appel thought both songs sucked, but he saw enough potential in Bruce to challenge him to write more songs and then come back and see him again. Bruce accepted the challenge and wrote furiously over the weeks and months that followed. He reported back to Appel in February 1972, and although "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" is the song that famously captivated Appel enough to take Bruce on as a client, Bruce demoed at least seven other songs for Appel that day, two of which would make it onto Bruce's first album. One of them was "The Angel."
 
 "The Angel" was also one of a dozen songs that Bruce recorded for John Hammond the day after Appel famously bulldogged him into auditioning Bruce in May of 1972. Amazingly, that early recording of "The Angel" survives, and although Bruce's solo piano performance can't compete with the more confident yet delicate David Sancious performance that graces the official track, there's no question that Bruce's make-or-break vocal for Hammond is far superior to the final version.
 
@@ -19,7 +19,7 @@ Hammond signed Bruce to CBS shortly after that, on June 9, 1972. Within three we
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s-pdQKRQ_qY)
 
-In the early 1970s, Bruce had a fascination with seamy street scenes and sordid characters; several of his songs from that pre-label period were little more than the musical equivalent of a mural, or at best a character study. (See "[Hollywood Kids,](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)" for example.)
+In the early 1970s, Bruce had a fascination with seamy street scenes and sordid characters; several of his songs from that pre-label period were little more than the musical equivalent of a mural, or at best a character study. (See "[Hollywood Kids,](../2011-01-19-roll-of-the-dice-hollywood-kids/post.md/)" for example.)
 
 "The Angel" is very much in this vein, a portrait rather than a story, about a Hell's Angel biker whose bravado may mask some inner insecurity.
 
@@ -55,7 +55,7 @@ Let's get back to the song, because we're about to get to the part where Bruce h
 
 It's only a hop and a skip–not even a jump–from *the interstate's choked with nomadic hordes* to *the highway's jammed with broken heroes*, and I'd argue that the imagery of the angel weaving effortlessly in and around the endless procession of VW vans (with a grace only elevated by the delicate, almost slow-motion melody) conveys a far more visceral freedom than "Born to Run" does.
 
-("The Angel" isn't the only 1972 song to evince the DNA of greatness to come. Check out "[Jesse](https://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/)" for early evidence of yet another.)
+("The Angel" isn't the only 1972 song to evince the DNA of greatness to come. Check out "[Jesse](../2011-01-20_roll-of-the-dice-jesse/post.md/)" for early evidence of yet another.)
 
 The crude "hunk metal whore" metaphor is both apt (the angel is almost fetishistic toward his bike) and an ironic contrast to the intentionally nameless woman he's about to pick up.
 

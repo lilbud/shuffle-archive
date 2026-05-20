@@ -8,7 +8,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1973-0108.jpg.webp)
 
-**1983:** For a brief but glorious run, Big Man’s West was a center of gravity for the Jersey Shore Music scene. Owned by Clarence Clemons and managed by Bruce’s personal assistant Terry Magovern, the Springsteen connections were strong. Bruce played the small nightclub at least eighteen times during its eighteen-month life, along with Southside Johnny, John Eddie, Joan Jett, Bonnie Raitt, and others. On this final night in 1983, Bruce, Clarence, Max and Garry join Lance Larson on stage for covers of “Rockin’ All Over the World” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).” Big Man’s West closes immediately after, but the E Street Band will use the empty space to rehearse for the *Born in the U.S.A.* Tour the following year.<br>
+**1983:** For a brief but glorious run, Big Man’s West was a center of gravity for the Jersey Shore Music scene. Owned by Clarence Clemons and managed by Bruce’s personal assistant Terry Magovern, the Springsteen connections were strong. Bruce played the small nightclub at least eighteen times during its eighteen-month life, along with Southside Johnny, John Eddie, Joan Jett, Bonnie Raitt, and others. On this final night in 1983, Bruce, Clarence, Max and Garry join Lance Larson on stage for covers of “Rockin’ All Over the World” and “[Lucille](../1976-01-07_cover-me-lucille/post.md/).” Big Man’s West closes immediately after, but the E Street Band will use the empty space to rehearse for the *Born in the U.S.A.* Tour the following year.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/75Oa5mv6)
 
@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/32138842707_68818117f1_o.jpg.webp)
 
-**1985**: Bruce plays the second of two nights at the Market Square Arena in Indianapolis. This night would have been Elvis’ 50th birthday, and in his memory Bruce plays his first U.S. performance of “[Can’t Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/).”<br>
+**1985**: Bruce plays the second of two nights at the Market Square Arena in Indianapolis. This night would have been Elvis’ 50th birthday, and in his memory Bruce plays his first U.S. performance of “[Can’t Help Falling in Love](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YH9F3RWM)
 

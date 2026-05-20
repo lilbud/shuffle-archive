@@ -18,7 +18,7 @@ That performance became one of the most widely bootlegged Springsteen shows, but
 
 Which brings us to Philadelphia.
 
-Bruce returned to the Spectrum in mid-August (he'd already done one stand there at the start of the tour), and this time he invited Busey to join him on stage. On the night of August 18th, just when the show appeared over, Bruce invited Gary to the stage, and the two friends played a show-ending pairing of "Rave On" and "[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)."
+Bruce returned to the Spectrum in mid-August (he'd already done one stand there at the start of the tour), and this time he invited Busey to join him on stage. On the night of August 18th, just when the show appeared over, Bruce invited Gary to the stage, and the two friends played a show-ending pairing of "Rave On" and "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)."
 
 It was a strange and wonderful moment: the rocker who idolized Holly (in an interview the night of the Roxy show, Bruce confessed to playing Buddy Holly's music "every night before I go on") and the actor who portrayed Holly on screen, each channeling the legendary icon and for a few minutes returning him to life.
 

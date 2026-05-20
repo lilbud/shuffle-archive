@@ -50,7 +50,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Bruce Springsteen Milan 21/06/1985 Full Concert](https://www.youtube.com/watch?v=fKER3FQJQ3g)
 
-**1988:** The Tunnel of Love Tour stops at Villa Park in Birmingham, England, for the first of two nights. “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)” makes its final tour appearance at this show.<br>
+**1988:** The Tunnel of Love Tour stops at Villa Park in Birmingham, England, for the first of two nights. “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)” makes its final tour appearance at this show.<br>
 
 [Watch on Youtube: Bruce Springsteen, Villapark 1988, Tunnel of Love Tour](https://www.youtube.com/watch?v=aLPJR6LC8pg)
 
@@ -62,7 +62,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1988-0621.jpg.webp)
 
-**1992:** At Night Two in Milan, “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide “Badlands” tradition forevermore. (*Of course*, that starts in Milan!) “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” and “Born to Run” make their tour debuts as well, and a soundcheck of “[Club Soul City](../2019-05-07_cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/post.md)” is surreptitiously recorded.<br>
+**1992:** At Night Two in Milan, “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide “Badlands” tradition forevermore. (*Of course*, that starts in Milan!) “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Tougher than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” and “Born to Run” make their tour debuts as well, and a soundcheck of “[Club Soul City](../2019-05-07_cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/post.md)” is surreptitiously recorded.<br>
 
 [CSC Milano 1992 by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&show_artwork=true&maxheight=1000&maxwidth=758)
 

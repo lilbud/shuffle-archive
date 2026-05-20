@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Born to Run (Official Video)](https://www.youtube.com/watch?v=IxuThNgl3YA)
 
-**1988:** Joe Grushecky guest-stars for a final encore of "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" as the Tunnel of Love Express Tour hits the Civic Arena in Pittsburgh.<br>
+**1988:** Joe Grushecky guest-stars for a final encore of "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)" as the Tunnel of Love Express Tour hits the Civic Arena in Pittsburgh.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/TD3n5kg4)
 

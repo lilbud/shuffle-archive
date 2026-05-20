@@ -97,7 +97,7 @@ Whatever the reason, Jimmy turns away from temptation and returns home.
 > *I felt her arms around me*<br>
 > *She said, "Jimmy, I'm so glad you're home."*<br>
 
-Jimmy made the right call, but it wasn't an easy one. He and Pat are still in dire straits, and he knows he'll be called upon to make that same decision day after day after day. Bruce will return to this theme–the eternal struggle with one's inner demons–again and again, in songs like "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)" and "[Straight Time](../2022-12-05_roll-of-the-dice-straight-time/post.md)."
+Jimmy made the right call, but it wasn't an easy one. He and Pat are still in dire straits, and he knows he'll be called upon to make that same decision day after day after day. Bruce will return to this theme–the eternal struggle with one's inner demons–again and again, in songs like "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)" and "[Straight Time](../2022-12-05_roll-of-the-dice-straight-time/post.md)."
 
 Jimmy goes to bed, but lays awake in the night thinking, like the protagonist of "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)." As he drifts off finally to sleep, he hears the prison whistle–still fresh in his memory–warning him that Richfield still waits for him should he succumb to temptation.
 

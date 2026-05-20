@@ -14,7 +14,7 @@
 
 **1975:** Bruce and his studio team move to the Record Plant in New York City. On this first day of recording, they work on "Thunder Road" and "Jungleland."<br>
 
-**1981:** Bruce plays his first-ever show in France on this first of two nights at the Palais des Sports de Saint-Ouen in Paris. Another first: Bruce debuts his cover of "[Can't Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)" at this show.<br>
+**1981:** Bruce plays his first-ever show in France on this first of two nights at the Palais des Sports de Saint-Ouen in Paris. Another first: Bruce debuts his cover of "[Can't Help Falling in Love](../1976-01-21_cover-me-cant-help-falling-in-love/post.md/)" at this show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wNB0ZUQS)
 

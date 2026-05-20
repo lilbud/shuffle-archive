@@ -1,6 +1,6 @@
 Of all the Philadelphia shows I've seen, this was the Philly-est of all.
 
-From the "Holy moley" flashback opener "[When You Walked in the Room](https://estreetshuffle.com/?p=21789)" to the Philly special "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)" closer, this was the last concert I saw at the Spectrum before its destruction, and boy was it was a memorable one.
+From the "Holy moley" flashback opener "[When You Walked in the Room](https://estreetshuffle.com/?p=21789)" to the Philly special "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)" closer, this was the last concert I saw at the Spectrum before its destruction, and boy was it was a memorable one.
 
 I'd flown in for the show with a friend of mine and met another local friend there, and we passed a gorgeous October day in line waiting for the pit lottery. While I was long-since accustomed to meeting and making new friends in line before a show, I have to admit being surprised by the gentleman in full Elvis regalia standing not far to my left that afternoon. My first thought was, "He can't possibly wear that during the show... he'll be a human ball of sweat." But pretty soon, my attention returned to my friends, and I forgot about Elvis.
 
@@ -22,7 +22,7 @@ Then we settled in for the album performance–and surprisingly, even though I'd
 
 [Watch on Youtube: Springsteen - Backstreets - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=uz6KL6XNI94)
 
-But first it was wild card time–otherwise known as the "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" sign collection. The first request Bruce honored was from the wayback machine–"[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)"–but it was the next two that were special... and the first one was by accident!
+But first it was wild card time–otherwise known as the "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)" sign collection. The first request Bruce honored was from the wayback machine–"[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)"–but it was the next two that were special... and the first one was by accident!
 
 [Watch on Youtube: Springsteen - Saint in the City - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=vKddm_oELhU)
 
@@ -38,7 +38,7 @@ Watch and marvel at perhaps the only person to ever steal the stage from Bruce. 
 
 [Watch on Youtube: Springsteen - All Shook Up - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=XyJgPQRw4JA)
 
-If the rest of the main set was predictable from there, the encores still held a few last surprises: opening back up with "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)," a Rocky-themed intro to "Rosalita (Come Out Tonight)," and a show-closing "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)," a cover of Philly local legends The Dovells.
+If the rest of the main set was predictable from there, the encores still held a few last surprises: opening back up with "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)," a Rocky-themed intro to "Rosalita (Come Out Tonight)," and a show-closing "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)," a cover of Philly local legends The Dovells.
 
 [Watch on Youtube: Springsteen - Land of Hopes and Dreams - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=OsAYV2uzzNA)
 

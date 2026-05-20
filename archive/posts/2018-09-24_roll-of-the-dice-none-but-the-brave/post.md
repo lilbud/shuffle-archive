@@ -141,7 +141,7 @@ And a man… a man who's defeat seems all the more understandable, and his rage 
 
 A man whose bravery isn't ironic in the least.
 
-Is that the song Bruce wrote and recorded in 1983? Of course not. But I believe it's the one he sang in 2003. Bruce has shown us how songs can transform and transcend their original meanings–sometimes over long periods of time ("[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)") and sometimes short ones ("My City of Ruins").
+Is that the song Bruce wrote and recorded in 1983? Of course not. But I believe it's the one he sang in 2003. Bruce has shown us how songs can transform and transcend their original meanings–sometimes over long periods of time ("[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)") and sometimes short ones ("My City of Ruins").
 
 I'll add this one to that club. Either way, in either incarnation, it remains one of my favorite Springsteen songs.
 

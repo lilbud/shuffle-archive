@@ -26,7 +26,7 @@ And yes, I realize I've diverted from the topic at hand twice now, but again: to
 
 Anyway: after Bruce and Niedecken's band played "Hungry Heart" ***six times***, they decided they should play a couple of Dylan covers, because it was just that kind of day.
 
-So they played impromptu, fun, bilingual and surprisingly tight versions of "[Highway 61 Revisited](https://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)" and (naturally) "Knockin' on Heaven's Door." And for *that* performance, we're lucky enough to have both pro-shot video and actual audio.
+So they played impromptu, fun, bilingual and surprisingly tight versions of "[Highway 61 Revisited](../2018-11-07-meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/post.md/)" and (naturally) "Knockin' on Heaven's Door." And for *that* performance, we're lucky enough to have both pro-shot video and actual audio.
 
 Enjoy.
 

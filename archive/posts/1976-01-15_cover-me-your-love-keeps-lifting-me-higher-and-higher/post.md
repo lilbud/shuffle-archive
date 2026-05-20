@@ -30,7 +30,7 @@ It's not surprising in the least that "Higher and Higher" turned up in Bruce's s
 
 [Watch Video Highlight](https://videopress.com/embed/5budtv00)
 
-Bruce played "Higher and Higher" a couple of times at one-off '77 shows after the tour ended (along with a [1981 guest appearance with The Pretenders](https://estreetshuffle.com/index.php/2018/09/05/kingdom-of-days-september-5/)), but after that the song was MIA for more than twenty years.
+Bruce played "Higher and Higher" a couple of times at one-off '77 shows after the tour ended (along with a [1981 guest appearance with The Pretenders](../2025-09-05_kingdom-of-days-september-5-2/post.md/)), but after that the song was MIA for more than twenty years.
 
 And then: on October 20, 2009, just as Bruce was about to wrap the main set at the very last show Bruce would ever play at the Philadelphia Spectrum, a brilliant fan (to whom I owe a beer if I ever run into him or her at a show) held up a sign, caught Bruce's eye, and...
 

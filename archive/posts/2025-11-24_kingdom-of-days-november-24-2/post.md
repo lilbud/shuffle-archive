@@ -10,7 +10,7 @@
 
 **1974:** Bruce takes the bus from Asbury Park down to Philadelphia to spend a couple of days with local DJ Ed Sciaky, starting with a visit to a local studio the next morning to meet David Bowie.<br>
 
-**1975:** Bruce makes a return visit to the Hammersmith Odeon in London a week after his debut performance. Bruce tour premieres "[Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)" for the occasion, and he closes the show with the last "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)" for almost a quarter-century. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25780/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-24-1975-Hammersmith-Odeon-London-UK.html).<br>
+**1975:** Bruce makes a return visit to the Hammersmith Odeon in London a week after his debut performance. Bruce tour premieres "[Wear My Ring Around Your Neck](../2020-07-07-cover-me-wear-my-ring-around-your-neck/post.md/)" for the occasion, and he closes the show with the last "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)" for almost a quarter-century. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25780/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-24-1975-Hammersmith-Odeon-London-UK.html).<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band "When You Walk In The Room" London, UK 11/24/75](https://www.youtube.com/watch?v=mCTPCy1Pxrc)
 

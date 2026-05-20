@@ -4,15 +4,15 @@ At the very least, we tend to characterize the album as an anthology of love gon
 
 But it didn't start out that way.
 
-When Bruce sat down in his home studio on January 20, 1987 to start recording songs for his next album, he recorded three songs on that first day: "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)," a tribute to his father; "[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)," a song about self-love and -respect; and "When You Need Me," which may hold the distinction of being the most syrupy song Bruce ever wrote.
+When Bruce sat down in his home studio on January 20, 1987 to start recording songs for his next album, he recorded three songs on that first day: "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)," a tribute to his father; "[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)," a song about self-love and -respect; and "When You Need Me," which may hold the distinction of being the most syrupy song Bruce ever wrote.
 
 [Watch on Youtube: When You Need Me (Studio Outtake - 1987)](https://www.youtube.com/watch?v=mimaPIQVUjI)
 
-Only as the recording sessions progressed did Bruce's marital dissatisfaction work its way to the surface through songs like "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," "[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)," and "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)."
+Only as the recording sessions progressed did Bruce's marital dissatisfaction work its way to the surface through songs like "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)," "[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)," and "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)."
 
-In its final form, *Tunnel of Love* is actually more balanced than most fans give it credit for: its first three tracks are true-blue love songs, as is the gorgeous, underrated "[Valentine's Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)."
+In its final form, *Tunnel of Love* is actually more balanced than most fans give it credit for: its first three tracks are true-blue love songs, as is the gorgeous, underrated "[Valentine's Day](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)."
 
-But whereas "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)" had its humble-brag humor, and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" had its machismo-dipped vulnerability, "When You Need Me" had… well, it had syrup.
+But whereas "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)" had its humble-brag humor, and "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" had its machismo-dipped vulnerability, "When You Need Me" had… well, it had syrup.
 
 There's not much to write home about in "When You Need Me." I'm probably going to get some comments from affronted readers who chose it as their wedding song (I apologize in advance), but if you're looking for a wedding song in Bruce Springsteen's catalog, there are better choices out there than this one.
 

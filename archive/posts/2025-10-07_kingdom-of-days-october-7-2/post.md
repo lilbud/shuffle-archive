@@ -8,7 +8,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/43CW31ld)
 
-**1984:** Bruce makes a guest appearance with Cats on a Smooth Surface at The Stone Pony in Asbury Park for a cover-filled set, including "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)," and more.<br>
+**1984:** Bruce makes a guest appearance with Cats on a Smooth Surface at The Stone Pony in Asbury Park for a cover-filled set, including "[Lucille](../1976-01-07_cover-me-lucille/post.md/)," "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," and more.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Od5POU9j)
 
@@ -20,7 +20,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-10-07.jpg.webp)
 
-**2002:** Bruce and the E Street Band close out the first leg of the Rising Tour at HSBC Arena in Buffalo, tour premiering "You Can Look (But You Better Not Touch)," "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)," and "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)."<br>
+**2002:** Bruce and the E Street Band close out the first leg of the Rising Tour at HSBC Arena in Buffalo, tour premiering "You Can Look (But You Better Not Touch)," "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)," and "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Tougher than the rest - Buffalo 2002](https://www.youtube.com/watch?v=lTcTDFeyL78)
 

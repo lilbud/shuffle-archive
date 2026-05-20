@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/tYm0RPgx)
 
-**1980:** Bruce and the band play their final night of a four-night stand at the Los Angeles Memorial Sports Arena, where the 1978 version of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" makes its final appearance for 32 years. Flo and Eddie guest star on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," and Jackson Browne joins the band for a final encore of "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)."<br>
+**1980:** Bruce and the band play their final night of a four-night stand at the Los Angeles Memorial Sports Arena, where the 1978 version of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" makes its final appearance for 32 years. Flo and Eddie guest star on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," and Jackson Browne joins the band for a final encore of "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Jackson Browne, "Detroit Medley" Los Angeles, 1980-11-03](https://www.youtube.com/watch?v=4H0xsYHJYw8)
 

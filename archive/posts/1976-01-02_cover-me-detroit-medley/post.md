@@ -20,7 +20,7 @@ With Jenny, however, we need to take a ride *much* further back in time, because
 
 [Watch on Youtube: Johnny Moore's Three Blazers with Mari Jones - Johnny Johnny](https://www.youtube.com/watch?v=Jum4Qa5bUJI)
 
-"Johnny Johnny" was a 1952 single by Johnny Moore's Three Blazers, one of their last. (You may not have heard of Johnny Moore's Three Blazers, but you certainly know [one of their most beloved contributions to Bruce's seasonal set lists](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/).)
+"Johnny Johnny" was a 1952 single by Johnny Moore's Three Blazers, one of their last. (You may not have heard of Johnny Moore's Three Blazers, but you certainly know [one of their most beloved contributions to Bruce's seasonal set lists](../2002-01-03_cover-me-merry-christmas-baby/post.md/).)
 
 [Watch on Youtube: Johnny Moore's Three Blazers With Charles Brown - Merry Christmas, Baby - Exclusive 1145 - 1947](https://www.youtube.com/watch?v=pquaVRipw4M)
 
@@ -58,7 +58,7 @@ Fast forward to September 23, 1975 in Ann Arbor, Michigan, where Bruce Springste
 
 [Watch on Youtube: Bruce Springsteen - DETROIT MEDLEY - BACK IN THE USA 1975 (audio)](https://www.youtube.com/watch?v=t87UMZI1cnE)
 
-That first-ever performance of "Detroit Medley" is already very close to the version Springsteen fans know and love: the mash-up of mash-ups is in place, featuring all four songs from the Ryder medleys. Of note in this early version, however, are Roy's brief piano solo and the medley-closing "[Back in the U.S.A.](https://estreetshuffle.com/index.php/2019/03/11/cover-me-back-in-the-u-s-a/)" (the band does not return to "Devil" to close the song out).
+That first-ever performance of "Detroit Medley" is already very close to the version Springsteen fans know and love: the mash-up of mash-ups is in place, featuring all four songs from the Ryder medleys. Of note in this early version, however, are Roy's brief piano solo and the medley-closing "[Back in the U.S.A.](../1976-01-03_cover-me-back-in-the-u-s-a/post.md/)" (the band does not return to "Devil" to close the song out).
 
 "Detroit Medley" stayed in the set, and when Bruce's show at the Hammersmith Odeon was professionally filmed not even two months later, we can hear the medley coming together. "Back in the U.S.A." is gone now, and the instrumental bridge is present (although we still don't have the "Devil" reprise).
 

@@ -32,7 +32,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp3)
 
-**1988:** While introducing Bruce’s current hit on the charts (“[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)“), *American Top 40* host Casey Kasem reveals how *Us Magazine’s* derision of Bruce’s physique prompted him to bulk up.<br>
+**1988:** While introducing Bruce’s current hit on the charts (“[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)“), *American Top 40* host Casey Kasem reveals how *Us Magazine’s* derision of Bruce’s physique prompted him to bulk up.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3)
 
@@ -70,7 +70,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2003-04-09b.jpg.webp)
 
-**2012:** Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” and “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md),” and the show breaks the three-hour mark.<br>
+**2012:** Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” and “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md),” and the show breaks the three-hour mark.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/OuA08kLJ)
 

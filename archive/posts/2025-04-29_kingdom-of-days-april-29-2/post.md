@@ -8,7 +8,7 @@
 
 **1974:** Bruce and the still unnamed E Street Band play two shows at the Roxy Theater in Northampton, Pennsylvania.<br>
 
-**1976:** Eddie Floyd guest-stars on "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)," and "[Knock on Wood](../2021-04-02_cover-me-knock-on-wood/post.md)" (Floyd's greatest hit) at Bruce's show in Memphis. Following the show, Bruce and Steve taxi out to Graceland and jump the gate, hoping to meet Elvis but instead are kicked off the property by security. Watch Bruce tell the story decades later (he gets the year wrong, though).<br>
+**1976:** Eddie Floyd guest-stars on "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)," and "[Knock on Wood](../2021-04-02_cover-me-knock-on-wood/post.md)" (Floyd's greatest hit) at Bruce's show in Memphis. Following the show, Bruce and Steve taxi out to Graceland and jump the gate, hoping to meet Elvis but instead are kicked off the property by security. Watch Bruce tell the story decades later (he gets the year wrong, though).<br>
 
 [Watch on Youtube: Bruce Springsteen Broke Into Graceland To Meet Elvis Presley | The Graham Norton Show](https://www.youtube.com/watch?v=mbXCfpYZwIk)
 

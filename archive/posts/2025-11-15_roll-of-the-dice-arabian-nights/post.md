@@ -1,4 +1,4 @@
-Until it was bumped from [*Greetings From Asbury Park, N.J*,](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) by "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," "Arabian Nights" was a lock for inclusion on Bruce's debut album.
+Until it was bumped from [*Greetings From Asbury Park, N.J*,](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md) by "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "Arabian Nights" was a lock for inclusion on Bruce's debut album.
 
 But CBS President Clive Davis felt that *Greetings* had a little too much solo material and not enough band songs or potential hits, so off to the brand-new vault went "Arabian Nights."
 
@@ -8,7 +8,7 @@ But it came *so* close… so close, in fact, that there are not one but three te
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - arabian night](https://www.youtube.com/watch?v=YDtMbVrfpeA)
 
-Bruce recorded four songs on that first day of recording, of which only one would make the album. That's probably a good thing, too. Like the other two lost outtakes ("[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/)" and "[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/)"), "Arabian Nights" is sexually graphic at times. (Let's give the guy a break–he was only 22 when he recorded them.)
+Bruce recorded four songs on that first day of recording, of which only one would make the album. That's probably a good thing, too. Like the other two lost outtakes ("[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)" and "[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/)"), "Arabian Nights" is sexually graphic at times. (Let's give the guy a break–he was only 22 when he recorded them.)
 
 But like the famous book that inspired him, "Arabian Nights" has some shockingly racist and misogynist language as well, albeit attributed to the narrator's mother. (Let's not try to read too much autobiography into the circumstances; it's hard to imagine either of his parents in the roles they're cast in here.)
 

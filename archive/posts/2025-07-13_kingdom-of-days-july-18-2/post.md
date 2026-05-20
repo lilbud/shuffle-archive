@@ -42,7 +42,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/XehyRDDQ)
 
-**1984:** Bruce wraps up a three-night Born in the U.S.A. stand at the Rosemont Horizon with his live debut of “[Do You Love Me?](https://estreetshuffle.com/index.php/2021/12/01/cover-me-do-you-love-me/)”<br>
+**1984:** Bruce wraps up a three-night Born in the U.S.A. stand at the Rosemont Horizon with his live debut of “[Do You Love Me?](../1976-01-18_cover-me-do-you-love-me/post.md/)”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/kHVTjhMH)
 
@@ -80,7 +80,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-07-18b.png.webp)
 
-**2012:** On Night Two in Dublin on the Wrecking Ball Tour, an injured Jake Clemons takes the stage in a wheelchair. He threw his back out the night before, and Bruce gently (and very cleverly) teases him during “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/).”<br>
+**2012:** On Night Two in Dublin on the Wrecking Ball Tour, an injured Jake Clemons takes the stage in a wheelchair. He threw his back out the night before, and Bruce gently (and very cleverly) teases him during “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/).”<br>
 
 [Watch on Youtube: Spirit in the night - Bruce Springsteen RDS Dublin 18/7/2012](https://www.youtube.com/watch?v=ITkN4pOsWgk)
 

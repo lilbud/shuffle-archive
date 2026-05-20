@@ -10,7 +10,7 @@
 
 **1977:** Bruce and the E Street Band work on “The Promise” and “[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)” during recording sessions at Atlantic Studios in New York City.<br>
 
-**1978:** One day after their legendary Roxy show, Bruce and the boys take the Darkness Tour to the Arizona Veterans Memorial Coliseum in Phoenix, where several songs are filmed and released as promotional clips (and later included in the *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*30th anniversary box set). Bruce’s official video for “Rosalita (Come Out Tonight)” is from this show. “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” is filmed but not released, but you can watch it below.<br>
+**1978:** One day after their legendary Roxy show, Bruce and the boys take the Darkness Tour to the Arizona Veterans Memorial Coliseum in Phoenix, where several songs are filmed and released as promotional clips (and later included in the *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*30th anniversary box set). Bruce’s official video for “Rosalita (Come Out Tonight)” is from this show. “[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)” is filmed but not released, but you can watch it below.<br>
 
 [Watch on Youtube: The Promised Land (Phoenix, 78) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=YAxyHv7k0hA)
 

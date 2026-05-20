@@ -12,7 +12,7 @@
 
 **1983:** Bruce records "[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)" and "[Betty Jean](../2019-02-13_roll-of-the-dice-betty-jean/post.md)." Both remain unreleased to this day.<br>
 
-**1987:** In his home studio, Bruce kicks off recording sessions for what will become his next album, *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* On this first day, Bruce records "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)," "[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)," and "[When You Need Me](../2020-01-30_roll-of-the-dice-when-you-need-me/post.md)." That last one won't be released for more than a decade.<br>
+**1987:** In his home studio, Bruce kicks off recording sessions for what will become his next album, *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md).* On this first day, Bruce records "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)," "[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)," and "[When You Need Me](../2020-01-30_roll-of-the-dice-when-you-need-me/post.md)." That last one won't be released for more than a decade.<br>
 
 [Watch on Youtube: Springsteen When You Need Me](https://www.youtube.com/watch?v=SEFHIAdPyo4)
 

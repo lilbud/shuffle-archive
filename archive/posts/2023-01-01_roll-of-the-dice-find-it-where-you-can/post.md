@@ -14,7 +14,7 @@ The lyrics are a bit tough to make out in the band version. Bruce didn't bother 
 
 But luckily we have the early acoustic version below for comparison, and with the lyrics from one and the band performance from the other, we can get a sense of just how strong a track this might have become had the band committed it to record.
 
-Bruce's lyrics seem to be a forerunner to "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)." In the later song, Bruce sings:
+Bruce's lyrics seem to be a forerunner to "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)." In the later song, Bruce sings:
 
 > *Some girls they want a handsome Dan*<br>
 > *Or some good-lookin' Joe, on their arm*<br>

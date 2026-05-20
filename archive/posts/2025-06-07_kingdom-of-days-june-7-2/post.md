@@ -2,7 +2,7 @@
 
 **1969:** Child headlines at the eighth grade graduation concert at Blessed Sacrament Regional School in Margate, New Jersey.<br>
 
-**1972:** Recording sessions begin for Bruce's first album, *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*Bruce records five solo tracks today: "[Arabian Nights,](../2021-03-23_roll-of-the-dice-arabian-nights/post.md)" "[Cowboys of the Sea](../2021-09-17_roll-of-the-dice-cowboys-of-the-sea/post.md)," "[Growin' Up,](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" "[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/)," and "[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/)." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
+**1972:** Recording sessions begin for Bruce's first album, *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*Bruce records five solo tracks today: "[Arabian Nights,](../2021-03-23_roll-of-the-dice-arabian-nights/post.md)" "[Cowboys of the Sea](../2021-09-17_roll-of-the-dice-cowboys-of-the-sea/post.md)," "[Growin' Up,](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" "[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/)," and "[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/IvoYACpv)
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Light of day with a snippet of 'Wipe out' of The surfaris](https://www.youtube.com/watch?v=D5qUFPcnuJU)
 
-**2005:** Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" and "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)."<br>
+**2005:** Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" and "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9YTQEWlJ)
 

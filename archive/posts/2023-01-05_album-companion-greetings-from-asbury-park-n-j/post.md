@@ -19,14 +19,14 @@ But oh, what a collage! Even if the sum of its parts is greater than the whole, 
 We hear remnants of the loose, jazzy sound of The Bruce Springsteen Band and hints of E Street future; contemplative character studies and vibrant streetscapes; imprints of influences like Dylan and Van Morrison; and a range of styles spanning from Latin-tinged acoustic to almost prog rock.
 
 - "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" — the dazzling, dizzying barrage that made *Rolling Stone's* Lester Bangs exclaim, *"Hot damn, what a passel o' verbiage! …[t]he joy of utter crass showoff talent run amuck and totally out of control!"*
-- "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" — a nostalgic, defiant anthem about anything but
-- "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" — the album's languorous, breathtaking musical apex and one of the most beautiful tracks in Springsteen's entire catalog
-- "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" — with no plot, no chorus, no point-of-view character, this two-minute track is barely even a song, but it sure is fun
-- "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" — a ferocious but under-realized prog nightmare that only comes to life on stage
+- "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" — a nostalgic, defiant anthem about anything but
+- "[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" — the album's languorous, breathtaking musical apex and one of the most beautiful tracks in Springsteen's entire catalog
+- "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" — with no plot, no chorus, no point-of-view character, this two-minute track is barely even a song, but it sure is fun
+- "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" — a ferocious but under-realized prog nightmare that only comes to life on stage
 - "[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)" — a sophisticated ballad about an innocent trying to live up to his self-styled image
 - "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" — a love song for anyone who's tried to save someone who refused to be saved
-- "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" — a swinging bacchanal that wears its literary influences on its sleeve
-- "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" — the album's best writing, about a street rat-turned-cool cat and legend in his own mind
+- "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" — a swinging bacchanal that wears its literary influences on its sleeve
+- "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" — the album's best writing, about a street rat-turned-cool cat and legend in his own mind
 
 *Greetings* took only a few weeks to make and cost about $10,000–and sounds like it. The production is often muddy, thanks to poor studio acoustics, and band members (The Bruce Springsteen Band minus Steven Van Zandt plus a few special guests) often disappear in the collective rather than stand out in the mix.
 

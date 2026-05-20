@@ -42,7 +42,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/BlkrjD6J)
 
-**2014:** Night Two in Melbourne on the High Hopes Tour features a full album performance of *Born to Run* and tour debuts of “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md),” “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md),” “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” [Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/),” and “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md).” Curiously, no official recording is available of this show.<br>
+**2014:** Night Two in Melbourne on the High Hopes Tour features a full album performance of *Born to Run* and tour debuts of “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md),” “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md),” “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” [Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/),” and “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md).” Curiously, no official recording is available of this show.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucky Town - Roulette -- Melbourne 16 February 2014](https://www.youtube.com/watch?v=CmsEn31SK_E)
 
@@ -62,7 +62,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2016-02-16.png.webp)
 
-**2017:** Night Two in Brisbane features the Australian premiere of “[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md),” rare outings for “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md),” “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md),” and “Follow that Dream,” and a guest audience member for “[Growin’ Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” Also tour premiering tonight: “[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)” and “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md).”<br>
+**2017:** Night Two in Brisbane features the Australian premiere of “[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md),” rare outings for “[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md),” “[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md),” and “Follow that Dream,” and a guest audience member for “[Growin’ Up.](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” Also tour premiering tonight: “[Long Time Comin’](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)” and “[Fire](../2020-08-05_roll-of-the-dice-fire/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Y4yBWysX)
 

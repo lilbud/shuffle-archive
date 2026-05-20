@@ -6,12 +6,12 @@ And with those words, he revealed a roadmap through the terrain of his songwriti
 
 And more often that not, we can see it playing out in his hands.
 
-We can see it in "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)" —
+We can see it in "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)" —
 
 > *On his right hand Billy tattooed the word love and on his left hand was the word fear*<br>
 > *And in which hand he held his fate was never clear*<br>
 
-We see it in "[Valentine's Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)" —
+We see it in "[Valentine's Day](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)" —
 
 > *I'm driving a big lazy car rushin' up the highway in the dark*<br>
 > *I got one hand steady on the wheel and one hand's tremblin' over my heart*<br>

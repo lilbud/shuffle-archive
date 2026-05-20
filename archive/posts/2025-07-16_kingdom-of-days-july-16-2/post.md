@@ -24,7 +24,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-16.jpg.webp)
 
-**1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," "[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)," and "[Keep-a-Knockin](../2018-11-09_matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/post.md)'."<br>
+**1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including "[Lucille](../1976-01-07_cover-me-lucille/post.md/)," "[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)," and "[Keep-a-Knockin](../2018-11-09_matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/post.md)'."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rSVwCU6r)
 
@@ -32,7 +32,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-16.png.webp)
 
-**1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including "[I Played the Fool](../2019-04-04_matr-i-played-the-fool/post.md)," "[Funky Broadway,](../2019-10-28_matr-bruce-springsteen-and-the-shots-funky-broadway/post.md)" and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)."<br>
+**1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including "[I Played the Fool](../2019-04-04_matr-i-played-the-fool/post.md)," "[Funky Broadway,](../2019-10-28_matr-bruce-springsteen-and-the-shots-funky-broadway/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)."<br>
 
 [Watch on Youtube: I PLAYED THE FOOL (Bruce Springsteen and Southside Johnny and the Asbury Jukes)](https://www.youtube.com/watch?v=ytSVHBMmYqg)
 
@@ -46,7 +46,7 @@
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/rehearsal.jpg.webp)
 
-**2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" for the occasion.<br>
+**2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" for the occasion.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bYjdK3w0)
 
@@ -64,7 +64,7 @@
 
 [Watch on Youtube: Springsteen Live "10th Avenue Freeze Out,I'm Going Down"Carhaix 16-07-2009](https://www.youtube.com/watch?v=RuIcvmViugc)
 
-**2013:** Bruce opens his show in Limerick with the tour premiere of "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)" and closes it the same way. In between, fans enjoy the tour premiere of "[Ain't Too Proud to Beg](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)" and a full album performance of *Born to Run*. If you count a three-song pre-show, this show also features the live debut of "[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md)" at one of Bruce's own shows.<br>
+**2013:** Bruce opens his show in Limerick with the tour premiere of "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)" and closes it the same way. In between, fans enjoy the tour premiere of "[Ain't Too Proud to Beg](../2018-10-07-cover-me-aint-too-proud-to-beg/post.md/)" and a full album performance of *Born to Run*. If you count a three-song pre-show, this show also features the live debut of "[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md)" at one of Bruce's own shows.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live In Limerick 2013-07-16 (HD) Documentary](https://www.youtube.com/watch?v=t-dRgoK7cjQ)
 

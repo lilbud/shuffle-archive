@@ -28,7 +28,7 @@ Bruce didn't perform it again for thirty-three years... to the day. Whether he k
 
 [Watch on Youtube: Bruce Springsteen--Then She Kissed Me (Scottrade Center, St. Louis, August 23, 2008)](https://www.youtube.com/watch?v=hUzP8DQyBD0)
 
-That was no audible, and to the best of my knowledge it wasn't by request. Bruce just seemed to be in a 1975 mood that night–those of us in the lottery line outside the arena were able to hear him soundcheck not just "Then She Kissed Me" but also "[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)" and "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)," two other notable 1975 tour covers. Not only that, he even played "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)" during the show by request. (You can listen in on that soundcheck below.)
+That was no audible, and to the best of my knowledge it wasn't by request. Bruce just seemed to be in a 1975 mood that night–those of us in the lottery line outside the arena were able to hear him soundcheck not just "Then She Kissed Me" but also "[When You Walk in the Room](../2020-10-08_cover-me-when-you-walk-in-the-room/post.md)" and "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)," two other notable 1975 tour covers. Not only that, he even played "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)" during the show by request. (You can listen in on that soundcheck below.)
 
 https://www.youtube.com/watch?v=geYTbeoe2Lc
 
