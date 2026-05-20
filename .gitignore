@@ -41,4 +41,5 @@ notes/booktest/
 books/*
 
 archive/assets
-/assets
+assets/
+assets_webp/
