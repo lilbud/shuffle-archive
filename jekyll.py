@@ -226,11 +226,11 @@ def replace_video(content: str) -> str:
 
 def replace_links(content: str) -> str:
     """Replace post link with post_url format"""
-    link_pattern = r"(\[[^\]]*\])\(..\/(\d{4}-\d{2}-\d{2})_([^/)]*)\/post.md\/?\)"
+    link_pattern = r"(\[[^\]]*\])\(..\/(\d{4})-(\d{2})-(\d{2})_([^/)]*)\/post.md\/?\)"
 
     content = re.sub(
         link_pattern,
-        r"\1({% link _posts/\2-\3.md %})",
+        r"\1(/\2/\3/\4/\5)",
         content,
     )
 
