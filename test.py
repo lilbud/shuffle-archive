@@ -62,49 +62,44 @@ posts_dir = Path("./archive/posts")
 linklist = []
 with load_db() as conn, conn.cursor() as cur:
     for post in posts_dir.glob("**/*.md"):
+        print(post.parent.name)
         content = post.read_text(encoding="utf-8")
+        data = json.loads(Path(post.parent, "meta.json").read_text(encoding="utf-8"))
 
-        link_pattern = r"\[([^\)]*)\]\(([^\)]*)/\)"
+        last_modified = datetime.datetime.strptime(
+            data["modified_gmt"],
+            "%Y-%m-%dT%H:%M:%S",
+        )
 
-        links = re.findall(link_pattern, content)
+        res = cur.execute(
+            """select * from all_posts where post_id = %(id)s and published = %(last_modified)s""",
+            {"id": data["id"], "last_modified": last_modified},
+        ).fetchone()
 
-        if len(links) > 0:
-            for url_text, url in links:
-                if (
-                    url
-                    and "estreetshuffle" in url
-                    and "roll-of-the-dice-album-by-album" not in url
-                    and "category" not in url
-                    and "tag" not in url
-                    and "bookshelf" not in url
-                ):
-                    date = (
-                        re.search(r"(\d{4}\/\d{2}\/\d{2})", url)
-                        .group(0)
-                        .replace("/", "-")
-                    )
-                    slug = (
-                        re.search(r"\d{4}\/\d{2}\/\d{2}/(.*)/?", url)
-                        .group(1)
-                        .strip("/")
-                    )
+        title = res["title"].strip('"').replace('"', "'")
 
-                    filename = f"{date}_{slug}"
+        with post.open("w", encoding="utf-8") as f:
+            f.write("---\n")
 
-                    print(url)
+            if res["header_img"]:
+                f.write("layout: post\n")
+            else:
+                f.write("layout: default-post\n")
 
-                    # if not Path(f"./archive/posts/{filename}").exists():
-                    #     print(filename)
-                    # content = content.replace(url, f"../{filename}/post.md")
-        #                 res = cur.execute(
-        #                     """select url, filename from published_posts where slug = %(slug)s""",
-        #                     {"slug": slug},
-        #                 ).fetchone()
+            f.write(f'title: "{res["title"]}"\n')
+            f.write(f'author: "{res["author"]}"\n')
+            f.write(f'excerpt: "{res["excerpt"].strip()}"\n')
 
-        #                 if res:
-        #                     content = content.replace(
-        #                         url,
-        #                         f"../{res['filename']}/post.md",
-        #                     )
+            if res["tag_list"]:
+                f.write(f"tags: {res['tag_list']}\n")
 
-        # post.write_text(content, encoding="utf-8")
+            if res["category_list"]:
+                f.write(f"categories: {res['category_list']}\n")
+
+            if res["header_img"]:
+                f.write(f"header_img: {res['header_img']}\n")
+
+            f.write(f"post_id: {res['post_id']}\n")
+
+            f.write("---\n")
+            f.write(content)

@@ -230,46 +230,12 @@ def replace_video(content: str) -> str:
 
 
 def get_posts(
-    slug: int,
     cur: psycopg.Cursor,
 ) -> list | None:
     res = cur.execute(
         """
-        with ids as (
-            select max(id) as id, post_id from posts where last_modified < '2025-10-31' group by 2
-        ),
-        rows as (
-            select
-                p.version as version,
-                p.id as id,
-                p.post_id,
-                p.published as published,
-                p.last_modified,
-                p.title,
-                p.excerpt,
-                'Ken' as author,
-                p.published::date || '-' || p.slug as filename,
-                string_agg(distinct t.slug, ' ') as tag_list,
-                string_agg(distinct c.slug, ' ') FILTER (WHERE c.id < 3601) as category_list,
-                regexp_replace(m.url, '(http|https)://estreetshuffle.com/wp-content/uploads/', '../../assets/') as header_img,
-                p.post_id,
-                p.content,
-                p.url,
-                p.slug
-            from posts p
-                left join post_categories pc on pc.post_id = p.id
-                left join categories c on c.id = pc.category_id
-                left join post_tags pt on pt.post_id = p.id
-                left join tags t on t.id = pt.tag_id
-                left join featured_media m on m.id = p.featured_media
-            group by
-            2,3,12
-        )
-
-        select * from rows
-        where id = %(id)s
+        select * from published_posts
         """,
-        {"id": slug},
     ).fetchall()
 
     if res:
@@ -292,7 +258,7 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
             )
 
             content = replace_video(post["content"])
-            content = replace_img(content)
+            # content = replace_img(content)
             content = replace_audio(content)
 
             with post_file.open("w", encoding="utf-8") as f:
@@ -325,9 +291,4 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
 if __name__ == "__main__":
     ids = []
     with load_db() as conn, conn.cursor() as cur:
-        df = pd.read_csv(
-            r"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\shuffle-archive\notes\sheets\master-post-list.csv",
-        )
-
-        for row in df.itertuples():
-            main(slug=row.id, cur=cur)
+        main(cur=cur)
