@@ -323,6 +323,7 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
 
 
 if __name__ == "__main__":
+    ids = []
     with load_db() as conn, conn.cursor() as cur:
         df = pd.read_csv(
             r"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\shuffle-archive\notes\sheets\master-post-list.csv",

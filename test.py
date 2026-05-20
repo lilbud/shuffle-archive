@@ -59,32 +59,58 @@ from database import load_db
 
 posts_dir = Path("./archive/posts")
 
-link_list = Path("./links.txt").open("w", encoding="utf-8")
+linklist = []
+with load_db() as conn, conn.cursor() as cur:
+    for post in posts_dir.glob("**/*.md"):
+        # print(post.parent.name)
+        content = post.read_text(encoding="utf-8")
 
-for post in posts_dir.glob("**/*.md"):
-    content = post.read_text(encoding="utf-8")
+        # for old, new in links_list:
+        #     content = content.replace(old, new)
 
-    link_pattern = r"\[([^\)]*)\]\(([^\)/]*)/\)"
+        # post.write_text(content, encoding="utf-8")
 
-    links = re.findall(link_pattern, content)
+        link_pattern = r"\[([^\)]*)\]\(([^\)]*)/\)"
 
-    if len(links) > 0:
-        print(post.parent.name)
-        # link_list.write(f"{post.parent.name}:\n")
-        for url_text, url in links:
-            if "estreetshuffle" in url and "roll-of-the-dice-album-by-album" not in url:
-                slug = f"{'-'.join(url.split('/')[-4:-1])}_{url.split('/')[-1]}"
-                # print(slug)
+        links = re.findall(link_pattern, content)
 
-                exists = False
+        if len(links) > 0:
+            for url_text, url in links:
+                if (
+                    url
+                    and "estreetshuffle" in url
+                    and "roll-of-the-dice-album-by-album" not in url
+                    and "category" not in url
+                    and "tag" not in url
+                    and "bookshelf" not in url
+                ):
+                    date = (
+                        re.search(r"(\d{4}\/\d{2}\/\d{2})", url)
+                        .group(0)
+                        .replace("/", "-")
+                    )
+                    slug = (
+                        re.search(r"\d{4}\/\d{2}\/\d{2}/(.*)/?", url)
+                        .group(1)
+                        .strip("/")
+                    )
 
-                if Path(f"./archive/posts/{slug}").exists():
-                    exists = True
-                    content = content.replace(url, f"../{slug}/post.md")
+                    filename = f"{date}_{slug}"
 
-                # print(url_text, url)
-        #         link_list.write(f"\t{url} -> {exists}\n")
+                    print(url)
 
-        # link_list.write("\n")
+                    # if not Path(f"./archive/posts/{filename}").exists():
+                    #     print(filename)
+                    # content = content.replace(url, f"../{filename}/post.md")
+        #                 res = cur.execute(
+        #                     """select url, filename from published_posts where slug = %(slug)s""",
+        #                     {"slug": slug},
+        #                 ).fetchone()
 
-        post.write_text(content, encoding="utf-8")
+        #                 if res:
+        #                     content = content.replace(
+        #                         url,
+        #                         f"../{res['filename']}/post.md",
+        #                     )
+
+        # post.write_text(content, encoding="utf-8")
