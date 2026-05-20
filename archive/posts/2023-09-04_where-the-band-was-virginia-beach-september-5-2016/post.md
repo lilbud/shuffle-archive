@@ -1,4 +1,4 @@
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/09/vb.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/vb.jpg.webp)
 
 So yeah… I really did fly across the country into a hurricane on an ill-considered whim because I was able to get a ridiculously cheap pit ticket for a Bruce Springsteen concert.
 

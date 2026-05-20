@@ -22,9 +22,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/NqB6kNCG)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-07-01a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-01a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-07-01b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-01b.jpg.webp)
 
 **1989:** Bruce hops on stage with La Bamba at The Stone Pony in Asbury Park to perform "Long Tall Sally."<br>
 
@@ -44,19 +44,19 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rllkvMtVRQk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/07/2000-07-01.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/2000-07-01.jpg.webp)
 
 **2015:** Bruce joins Brian Wilson at the PNC Banks Arts Center in Holmdel, New Jersey, for "Barbara Ann" and "Surfin' U.S.A."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rL6wd3OgUrY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/07/Asbury_Park_Press_2015_07_03_Page_A3.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Asbury_Park_Press_2015_07_03_Page_A3.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/07/Asbury_Park_Press_2015_07_03_Page_A4.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Asbury_Park_Press_2015_07_03_Page_A4.jpg.webp)
 
 **2018:** Bruce has the night off from his Broadway show, but he still spends it in New York. U2 is in concert at Madison Square Garden, and Bruce is there to see the show.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/06/u2.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/u2.jpg.webp)
 
 **2020:** E Street Radio airs a special installment of Bruce's radio show, *From My Home to Yours*, with guest-stars Little Steven and Southside Johnny. This seventh episode is entitled *4th of July, Asbury Park*, and together the three lifelong friends celebrate the rich history of the Asbury Park music scene.<br>
 

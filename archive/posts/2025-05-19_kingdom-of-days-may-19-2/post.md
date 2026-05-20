@@ -2,7 +2,7 @@
 
 **1973:** Bruce cancels a scheduled performance at Detroit's Masonic Temple Theater.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1973-05-19.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1973-05-19.jpg.webp)
 
 **1975:** Bruce and the E Street Band work on what will become *Born to Run* at the Record Plant in New York City, including a version of "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" with strings.<br>
 
@@ -10,7 +10,7 @@
 
 **1977:** Bruce drops by The Stone Pony and joins The Shakes for two numbers, "[Jailhouse Rock](https://estreetshuffle.com/index.php/2019/10/12/matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/)" and "[Sea Cruise](https://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1977-0519.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1977-0519.jpg.webp)
 
 **1978:** Bruce and the E Street Band rehearse for the upcoming Darkness Tour at the Paramount Theater in Asbury Park. Among the songs they rehearse but never play publicly: "[Spanish Eyes](https://estreetshuffle.com/index.php/2023/01/14/roll-of-the-dice-spanish-eyes/)," "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)," and "[The Way.](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/)" Listen to them all below, especially "The Brokenhearted," on which you can hear the original coda (Bruce obviously and jarringly recorded a new one for the version that's on *The Promise*) and "The Way," which to this day has never had a proper performance. The recording quality isn't the best, but the performance is stunning.<br>
 
@@ -30,9 +30,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/8PYuzTA6)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1984-0519.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1984-0519.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1984-05-19.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1984-05-19.jpg.webp)
 
 **1988:** At Night Three (of five) at Madison Square Garden, Bruce records the videos for "[Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)" and "[I Ain't Got No Home.](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)"<br>
 
@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/SsOq1hBx)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1993-05-19.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1993-05-19.jpg.webp)
 
 **1997:** Bruce plays a solo acoustic show in Toulon, France.<br>
 
@@ -58,7 +58,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/L763UO8r)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Evening_Standard_Fri__May_21__1999_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Evening_Standard_Fri__May_21__1999_-scaled.jpg.webp)
 
 **2003:** Elliott Murphy guest-stars on "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)" and "Born to Run" when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.<br>
 
@@ -80,7 +80,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dream Baby Dream](https://www.youtube.com/watch?v=mJPloPHGbjc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2005-05-19.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-19.jpg.webp)
 
 **2009:** The first and only E Street Band performance of "[Like a Rolling Stone](https://estreetshuffle.com/index.php/2019/06/09/cover-me-like-a-rolling-stone/)" debuts at the Mellon Arena in Pittsburgh. Plus: a rare outing for "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/);" Joe and Johnny Grushecky join the band for two final encores of "[Glory Day](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)s" and "[Mony Mony](https://estreetshuffle.com/index.php/2021/03/18/cover-me-mony-mony/)."<br>
 
@@ -88,7 +88,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Joe Grushecky "Glory Days" 05-19-09 Mellon Arena Pittsburgh PA](https://www.youtube.com/watch?v=LLRvqyV-a_M)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2009-05-19.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2009-05-19.jpg.webp)
 
 **2016:** Bruce makes a return appearance (his third) at the Rock in Rio Festival in Lisbon. *The River* gets thrown by the wayside, with only three songs from that album making a Greatest Hits setlist that includes the tour premieres of "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," "[Downbound Train,](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)" "[I'm on Fire,](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)," and "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)." Watch the full pro-shot set below.<br>
 

@@ -1,6 +1,6 @@
 **1973:** Bruce and the E Street Band conclude their seven-day, twice-a-day gig at Paul’s Mall in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1973-01-14.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1973-01-14.png.webp)
 
 **1980:** At the Power Station in New York City, Bruce and the E Street Band record “Restless Nights.”<br>
 
@@ -10,9 +10,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ATjdzWXO)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1984-01-14a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1984-01-14a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/The_Central_New_Jersey_Home_News_1984_01_16_7-1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Central_New_Jersey_Home_News_1984_01_16_7-1.jpg.webp)
 
 **2005:** *MTV Unplugged* (the home video release) is certified gold by the Recording Industry Association of America.<br>
 
@@ -24,7 +24,7 @@
 
 [Watch on Youtube: SPRINGSTEEN JOKES NEBRASKA PROJECT GOT IT WRONG](https://www.youtube.com/watch?v=fzmcmc6s35U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2006-01-14.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2006-01-14.png.webp)
 
 **2012:** Bruce makes a “surprise” appearance at the Light of Day benefit in Asbury Park (it’s usually more of a surprise when he *doesn’t* show up), joining Garland Jeffreys for “[Wild in the Streets](https://estreetshuffle.com/index.php/2018/04/18/matr-garland-jeffreys-and-bruce-springsteen-wild-in-the-streets/),” Willie Nile for “[One Guitar](https://estreetshuffle.com/index.php/2018/05/16/meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/),” a solo rendition of “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” and then an entire set with Joe Grushecky and the Houserockers.<br>
 
@@ -50,10 +50,10 @@ Oh, and the first and only performance of “[Gov. Christie Traffic Jam](https:/
 
 [www.facebook.com/SpringsteenChile](https://player.vimeo.com/video/84278263?dnt=1&app_id=122963)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2014-01-14.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2014-01-14.png.webp)
 
 **2020:** Bruce and Patti attend the swearing-in ceremony for their son Sam as he becomes a firefighter for the Jersey City Fire Department.<br>
 
 [Watch on Youtube: Sam Springsteen, Bruce Springsteen's son, sworn in as Jersey City firefighter](https://www.youtube.com/watch?v=LT9bWyCtO6E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2020-01-14.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2020-01-14.png.webp)

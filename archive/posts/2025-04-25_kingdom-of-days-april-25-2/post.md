@@ -2,7 +2,7 @@
 
 **1973:** Bruce plays two shows at The Main Point in Bryn Mawr, Pennsylvania. (Photo credit: Phil Ceccola)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1973-0425.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1973-0425.jpg.webp)
 
 **1975:** Bruce works on "Jungleland" and "Thunder Road" at the Record Plant in New York City.<br>
 
@@ -24,7 +24,7 @@
 
 **1989:** At Micky Rourke's Rubber Club in Los Angeles, Bruce joins a local band on stage for "[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1989-04-25.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1989-04-25.jpg.webp)
 
 **1996:** Elliott Murphy and Joe Grushecky join Bruce for a final encore of "[Blowin' Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)" at Bruce's second solo acoustic show at Brixton Academy in London.<br>
 
@@ -38,9 +38,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ZCVQXnYW)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2000-04-25a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2000-04-25a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2000-04-25b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2000-04-25b.jpg.webp)
 
 **2004:** Bruce plays a benefit for Rumson Country Day School (along with Patti, Southside Johnny, and Bobby Bandiera) for the third year running at The Stone Pony in Asbury Park.<br>
 
@@ -50,11 +50,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/DZZkyhyC)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2005-04-25a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-04-25a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2005-04-25b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2005-04-25b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2005-04-25c.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2005-04-25c.jpg.webp)
 
 **2006:** Bruce releases [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)and appears on *Good Morning America* to promote the album and upcoming tour.<br>
 
@@ -68,19 +68,19 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 [Watch Video Highlight](https://videopress.com/embed/yTqnj3vq)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2006-04-25a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2006-04-25a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2006-04-26c.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2006-04-26c.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2006-0425b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2006-0425b.jpg.webp)
 
 **2008:** The Magic Tour moves to Atlanta for a show at Philips Arena, where "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" makes its tour premiere.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/CcJp0LLz)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2008-04-25a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-25a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2008-04-25b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-25b.jpg.webp)
 
 **2016:** The closing night of the first U.S. leg of the River Tour (2016 version) at Barclays Center in Brooklyn brings the tour premieres of "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" and "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)" along with a reprise of Bruce's "[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)" tribute, a rare "[Loose Ends,](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)" and an adorable fan singalong to "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)."<br>
 
@@ -94,4 +94,4 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 **2019:** After days of teasing and speculation, Bruce officially announces his next album, *Western Stars*, coming in June.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2019-04-25.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2019-04-25.jpg.webp)

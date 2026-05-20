@@ -10,7 +10,7 @@ It's bad enough that pages circulate from [his songwriting notebook](https://est
 
 But when an untitled page of original Springsteen lyrics surfaced in [an on-line auction in 2010](https://www.hakes.com/Auction/ItemDetail/59442/BRUCE-SPRINGSTEEN-HAND-WRITTEN-UNPUBLISHED-LYRICS), and the auction site helpfully labeled the song "Vaginal Vandals" (after a phrase that appears in the song but which in no way represents what the song is actually about)… well, I have to imagine there was some cringing in the Springsteen household that day.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/vagvandals.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/vagvandals.jpg.webp)
 
 Nevertheless, it's a Springsteen-authored song (or at least the beginnings of one), and it's out there, so according to my self-imposed rules, I gotta cover it.
 

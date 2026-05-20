@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen, Chaka Khan, John Fogerty & More - "In the Midnight Hour" | 1991 Induction](https://www.youtube.com/watch?v=S3eEz680qYg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/USA_Today_1991_01_17_34-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/USA_Today_1991_01_17_34-scaled.jpg.webp)
 
 **1996:** Bruce plays the first of two acoustic shows at the Cleveland Music Hall.<br>
 
@@ -22,11 +22,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/wN7yH2Kd)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/The_Plain_Dealer_1996_01_17_17.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Plain_Dealer_1996_01_17_17.jpg.webp)
 
 **2001:** Bruce releases an updated video anthology, retitled *Video Anthology 1978-2000*.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/2001-01-16.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2001-01-16.png.webp)
 
 **2010:** A Light of Day guest appearance, with Bruce joining Willie Nile for "[Heaven Help the Lonely](https://estreetshuffle.com/index.php/2018/12/29/matr-willie-nile-and-bruce-springsteen-heaven-help-the-lonely/)," Jesse Malin for "[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)," and Joe Grushecky and the Houserockers for a full set.<br>
 
@@ -42,7 +42,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/OEHPIUrz)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/2010-01-16.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/2010-01-16.jpg.webp)
 
 **2016:** The River (2016) tour kicks off in Pittsburgh, featuring the entire double-album played start to finish, the live premiere of "[Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)," and a tribute to the recently departed David Bowie, "[Rebel Rebel.](https://estreetshuffle.com/index.php/2021/11/21/cover-me-rebel-rebel/)"<br>
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Rebel Rebel (Live at Consol Energy Center, Pittsburgh, PA - 01/16/16 - Official Audio)](https://www.youtube.com/watch?v=YYiyufw1Wqw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/Pittsburgh_Post_Gazette_2016_01_18_C3.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Pittsburgh_Post_Gazette_2016_01_18_C3.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

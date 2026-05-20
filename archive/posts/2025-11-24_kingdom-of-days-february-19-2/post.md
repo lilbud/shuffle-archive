@@ -4,7 +4,7 @@
 
 **1975:** Bruce and the E Street Band headline at Penn State University, their first-ever appearance there.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/02/1975-0219.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1975-0219.jpg.webp)
 
 **1977:** Bruce brings the Lawsuit Tour to St. Paul, where a fan films parts of the performance on 8mm film.<br>
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - THUNDER ROAD 1977 live](https://www.youtube.com/watch?v=JjW0TpZ5VAY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1977-02-19.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1977-02-19.png.webp)
 
 Also on this date in 1977: Manfred Mann’s Earth Band gifts Bruce with his only number one single. Their cover of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)” tops the charts in the U.S. and Canada today.
 
@@ -32,7 +32,7 @@ Also on this date in 1977: Manfred Mann’s Earth Band gifts Bruce with his only
 
 [Watch on Youtube: Bruce Springsteen - Somerville Q&A 2003-02-19](https://www.youtube.com/watch?v=5xAno406gPk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2003-02-19.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2003-02-19.png.webp)
 
 **2014:** Bruce and the E Street Band play the Allphones Arena in Sydney, Australia, where they open with a cover of “[Friday on My Mind](https://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)” by The Easybeats. Another surprise cover kicks off the encores: “[Don’t Change](https://estreetshuffle.com/index.php/2021/03/26/cover-me-dont-change/)” by INXS, followed by a blazingly fast “Born to Run.” Also tour premiering tonight: “[Racing in the Street,](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” “[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/),” and “[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/).”<br>
 

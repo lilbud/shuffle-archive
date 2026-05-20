@@ -2,7 +2,7 @@
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the last of a five-night/ten-show stand.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/1973-1109.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1973-1109.jpg.webp)
 
 **1974:** Bruce cancels a scheduled show at the Sportatorium in Dallas.<br>
 
@@ -10,9 +10,9 @@
 
 [Watch on Youtube: Bruce Springsteen - 1975-11-10 Jai Alai Fronton, Tampa, FL](https://www.youtube.com/watch?v=gFX-7keXdzU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1975-11-10-a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1975-11-10-a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/11/1975-11-10b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/1975-11-10b.png.webp)
 
 **1977:** Bruce and the E Street Band record the base track for "[Give the Girl a Kiss.](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)" It will be a couple of decades before Bruce decides to finish it.<br>
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band 1987 interview](https://www.youtube.com/watch?v=z9tTpuWWOGs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1986-11-10.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1986-11-10.png.webp)
 
 **1992:** At World Tour 1992 Night Two at the Nassau Coliseum, Bruce and his new touring band play "[Cross My Heart](https://estreetshuffle.com/index.php/2020/12/29/roll-of-the-dice-cross-my-heart/)" in its only acoustic performance to date, and Billy Joel guests on "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)."<br>
 
@@ -46,15 +46,15 @@
 
 [Watch on Youtube: Bruce Springsteen & Billy Joel - "Glory Days" - Uniondale - 1992-11-10](https://www.youtube.com/watch?v=_PP0zqBrzo0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/11/Hartford_Courant_1992_11_19_Page_65-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Hartford_Courant_1992_11_19_Page_65-scaled.jpg.webp)
 
 **1998:** Bruce delights fans worldwide by releasing a box set of unreleased outtakes and demos, an "alternate route" through his recording career simply entitled *Tracks.*<br>
 
 [Watch on Youtube: Bruce Springsteen - Commercial for Tracks - 1998](https://www.youtube.com/watch?v=8lMwzkTOzpc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1998-11-10a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1998-11-10a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1998-11-10b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1998-11-10b.png.webp)
 
 **1999:** When Bruce and the E Street Band bring the Reunion Tour to Indianapolis, they're joined on stage by an audience member, who plays guitar on "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)." This is the first concert to be held at the new arena, and fans in attendance are not happy with the sound quality.<br>
 
@@ -62,13 +62,13 @@
 
 [Watch on Youtube: Bruce Springsteen - "Working on the Highway" - Indianapolis, 1999-11-10](https://www.youtube.com/watch?v=uWt6K8K1rY8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-11-10.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-11-10.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/1999-11-10.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1999-11-10.jpg.webp)
 
 **2002:** A scheduled Rising Tour show in Indianapolis is postponed to December due to Clarence's detached retina.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2002-11-10.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2002-11-10.png.webp)
 
 **2005:** *VH1 Storytellers* is certified gold by the Recording Industry Association of America.<br>
 
@@ -78,7 +78,7 @@
 
 [Watch on Youtube: "Joy" Lucinda Williams & Bruce Springsteen - London '06 (Complete)](https://www.youtube.com/watch?v=pq02XzTGGIs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/11/The_Independent_Wed__Nov_15__2006_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Independent_Wed__Nov_15__2006_-scaled.jpg.webp)
 
 **2009:** Bruce and the E Street Band continue the final stretch of the Working on a Dream Tour with a show at the Quicken Loans Arena in Cleveland, where *Born to Run* gets a full album performance and "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" makes a rare appearance. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28532/Bruce-Springsteen-mp3-flac-download-11-10-2009-Quicken-Loans-Arena-Cleveland-OH.html).<br>
 
@@ -116,7 +116,7 @@
 
 [Watch on Youtube: Bruce Springsteen - This Hard Land](https://www.youtube.com/watch?v=w85WZS2YR1o)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/rodrigo-pessoa.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/rodrigo-pessoa.jpg.webp)
 
 **2021:** Stephen Colbert delights E Street Nation by convincing Bruce to take the Colbert Questionert. The segment was filmed during his *Late Show* appearance last month but airs tonight.<br>
 

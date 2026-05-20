@@ -1,6 +1,6 @@
 **1970:** Steel Mill headlines an outdoor concert at Monmouth College in West Long Branch, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1970-0510.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1970-0510.jpg.webp)
 
 **1974:** A scheduled gig in Providence, Rhode Island is cancelled to make room for recording sessions for *Born to Run*.<br>
 
@@ -28,9 +28,9 @@
 
 [Watch on Youtube: Bruce Springsteen 'Born To Run' (May 10, 1988)](https://www.youtube.com/watch?v=HNUqIApF_pA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-05-10a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-05-10a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-05-10b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-05-10b.jpg.webp)
 
 **1997:** Night Two for Bruce in Warsaw during his first visit to Poland features the final performance to date of “There Will Never Be Any Other for Me But You.”<br>
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Bruce Springsteen - A GOOD MAN IS HARD TO FIND 2005 (audio)](https://www.youtube.com/watch?v=AjEjoHqz4LA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/05/Star_Tribune_2005_05_11_B5.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/Star_Tribune_2005_05_11_B5.jpg.webp)
 
 **2006:** The Seeger Sessions Tour moves on to Paris, where Bruce premieres “Bring ‘Em Home.” The show also features the proper tour premiere of the waltz arrangement of “If I Should Fall Behind.” Elliott Murphy and Garland Jeffreys join Bruce for “Buffalo Gals” in the encore.<br>
 

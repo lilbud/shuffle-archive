@@ -2,7 +2,7 @@ In December 2013, a previously unknown page of original Bruce Springsteen lyrics
 
 Entitled "Want Me," the song lyrics are written in pencil on a notebook page. The page is undated but almost certainly stems from his pre-Columbia Records days.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/05/wantme_lyrics.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/05/wantme_lyrics.jpg.webp)
 
 The lyrics are a bit tough to make out, but my best guess is below:
 

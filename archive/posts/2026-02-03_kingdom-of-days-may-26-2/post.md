@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Bruce Springsteen Live Concert - Spectrum Philly 5/26/78](https://www.youtube.com/watch?v=EgCVHSpz_a0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/05/Courier_Post_1978_05_27_Page_39.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/Courier_Post_1978_05_27_Page_39.jpg.webp)
 
 **1981:** Bruce plays the first of two shows in Brighton, England.<br>
 
@@ -18,7 +18,7 @@
 
 **1988:** Bruce joins John Mellencamp on stage for “Like a Rolling Stone” at the Irvine Meadows Amphitheater in Irvine, California.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1988-05-26.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1988-05-26.jpg.webp)
 
 **1997:** Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris. Elliot Murphy makes a guest appearance, joining Bruce for “Blowin’ Down This Road,” and “Diamonds by the Yard” (the only known performance of this song).<br>
 
@@ -36,9 +36,9 @@
 
 **2003:** At the first of two Rising shows at the Crystal Palace in London, Bruce tour premieres “Meeting Across the River” (into “Jungleland,” of course).<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/The_Independent_Tue__May_27__2003_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Independent_Tue__May_27__2003_.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/2003-0526.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/2003-0526.jpg.webp)
 
 **2013:** At the first of three shows in Germany–this one in Munich–Bruce opens with a solo acoustic “Who’ll Stop the Rain” and plays a rare “Seaside Bar Song” along with *Born in the U.S.A.* in full.<br>
 
@@ -54,4 +54,4 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/05/The_Freehold_Transcript_and_The_Monmouth_Inquirer_1957_05_30_4-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/The_Freehold_Transcript_and_The_Monmouth_Inquirer_1957_05_30_4-scaled.jpg.webp)

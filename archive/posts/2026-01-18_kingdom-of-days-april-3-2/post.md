@@ -16,11 +16,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9ND97yT2)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/The_Age_Thu__Apr_4__1985_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Age_Thu__Apr_4__1985_.jpg.webp)
 
 **1988:** *The Asbury Park Press* spotlights Los Angeles outposts for Springsteen fans.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1988-04-03-1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1988-04-03-1.jpg.webp)
 
 **1993:** Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover of “Many Rivers to Cross” and Jon Bon Jovi and Richie Sambora join him on stage for “Glory Days.”<br>
 
@@ -34,13 +34,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/lUa1zb5B)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/The_Columbian_Tue__Apr_4__2000_-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/The_Columbian_Tue__Apr_4__2000_-1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Columbian_Tue__Apr_4__2000_-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Columbian_Tue__Apr_4__2000_-1.jpg.webp)
 
 **2001:** *Live in New York City* is released, documenting the E Street Band’s Reunion Tour. The album goes on sale shortly after midnight, and Bruce makes a surprise visit to Jack’s Music in Red Bank to kick off the festivities and sign autographs for the first buyers.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2001-04-03a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2001-04-03a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2001-04-03b-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2001-04-03b-scaled.jpg.webp)
 
 **2009:** In Glendale, Night Two on the Working on a Dream Tour brings six set list change-ups (including “Night,” “Working on the Highway,” and “Downbound Train”), rare for this early in the tour.<br>
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Land of Hope and Dreams - Springsteen - Meadowlands April 3, 2012](https://www.youtube.com/watch?v=ySez8aX8Pe0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2012-04-03.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2012-04-03.jpg.webp)
 
 **2014:** Bruce and the E Street Band rehearse for the U.S. leg of the High Hopes Tour at Sir Studios in New York City.<br>
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Dancing In The Dark (Multi Cam) - Oklahoma City w/Pro Audio](https://www.youtube.com/watch?v=mQzGg5pRTxQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2016-04-03.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2016-04-03.jpg.webp)
 
 **2023:** Another tour premiere for New York fans: Bruce surprises with “It’s Hard to Be a Saint in the City” at Barclays Center in Brooklyn.<br>
 
@@ -80,4 +80,4 @@
 
 **2025:** Bruce announces the upcoming June release of *Tracks II: The Lost Albums.*<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/The_Philadelphia_Inquirer_2025_04_04_B5.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/The_Philadelphia_Inquirer_2025_04_04_B5.jpg.webp)

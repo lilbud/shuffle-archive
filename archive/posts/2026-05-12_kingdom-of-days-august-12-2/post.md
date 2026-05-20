@@ -6,7 +6,7 @@
 
 **1975:** Columbia Records begins distributing a limited run of advanced promo copies of *Born to Run.*<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1975-0812.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0812.jpg.webp)
 
 **1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record "Gotta Get That Feeling." It will be released 38 years later.<br>
 
@@ -14,7 +14,7 @@
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to Augusta, Maine, for one show at the Civic Center.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1978-0812.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0812.jpg.webp)
 
 **1981:** Bruce and the E Street Band play their second of two nights at Detroit's Joe Louis Arena on the original River Tour. Mitch Ryder makes a guest appearance during the encores on (what else?) "Detroit Medley."<br>
 
@@ -32,9 +32,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=59rOfptTacI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1998-08-11a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1998-08-11a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1998-08-11b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1998-08-11b.png.webp)
 
 **1999:** Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand at the Meadowlands with two long-awaited and inevitable bookends: the show-opening tour premiere of "Jersey Girl" and the show-closing one-off performance of "Rosalita (Come Out Tonight)." During the encores, Jon Bon Jovi, Richie Sambora, and Melissa Etheridge join Bruce and the band for "Hungry Heart."<br>
 
@@ -44,7 +44,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/kGzGDIv0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1999-08-12.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-08-12.png.webp)
 
 **2002:** Bruce and the E Street Band bring the Rising Tour to Madison Square Garden, where they play the second of four identical set lists in one week. When the show ends, a new video of an acoustic arrangement of "Countin' on a Miracle" (directed by Danny Clinch) debuts.<br>
 
@@ -54,4 +54,4 @@
 
 [Watch Video Highlight](https://videopress.com/embed/hUQAannx)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/08/Newsday_2002_08_15_78.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Newsday_2002_08_15_78.jpg.webp)

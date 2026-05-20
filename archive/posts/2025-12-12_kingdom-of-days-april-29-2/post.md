@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-29 Ellis Auditorium, Memphis, TN](https://www.youtube.com/watch?v=irKEx_arMWA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/The_Memphis_Press_Scimitar_Fri__Apr_30__1976_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Memphis_Press_Scimitar_Fri__Apr_30__1976_-scaled.jpg.webp)
 
 **1980:** At Clover Studios in Los Angeles, mixing work is completed for “Fade Away.”<br>
 
@@ -30,7 +30,7 @@ Later in the show, Bruce performs “Racing in the Street,” but something move
 
 [Watch Video Highlight](https://videopress.com/embed/wpKaZCbf)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/The_New_Standard_Tue__May_5__1981_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_New_Standard_Tue__May_5__1981_.jpg.webp)
 
 **1984:** Bruce catches Elvis Costello’s show at the Warfield Theater in San Francisco and jams with him a bit backstage.<br>
 
@@ -42,9 +42,9 @@ Later in the show, Bruce performs “Racing in the Street,” but something move
 
 [Watch Video Highlight](https://videopress.com/embed/Ga6Verkm)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2003-04-29a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2003-04-29a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2003-04-29b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2003-04-29b.jpg.webp)
 
 **2007:** Bruce plays a private fundraiser (backed by Bobby Bandiera and his band) for the Ranney School at The Stone Pony in Asbury Park.<br>
 
@@ -62,7 +62,7 @@ Later in the show, Bruce performs “Racing in the Street,” but something move
 
 [Watch on Youtube: Bruce Springsteen Badlands Philadelphia 29/04/2009](https://www.youtube.com/watch?v=pSqmdReVPwA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2009-04-29.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2009-04-29.jpg.webp)
 
 **2012:** Bruce makes a return trip to New Orleans Jazzfest and to Seeger Sessions set lists, as several songs from that tour make their Wrecking Ball Tour premiere (including a beautiful “When the Saints Go Marching In” with a “Rocky Ground” tag). Dr. John joins Bruce for “Something You Got.”<br>
 
@@ -76,7 +76,7 @@ Later in the show, Bruce performs “Racing in the Street,” but something move
 
 [Watch on Youtube: Bruce Springsteen - When The Saints Go Marching In - New Orleans Jazz and Heritage Festival - 2012](https://www.youtube.com/watch?v=elRm2HRX2Bk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2012-04-29.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2012-04-29.jpg.webp)
 
 **2013:** The European leg of the Wrecking Ball Tour kicks off in Oslo with a stunning acoustic pre-show that includes “All That Heaven Will Allow” and “The Fever.” The main event is no slouch either, opening with Stevie in Lilyhammer character singing “My Kind of Town” and the tour premiere of “Follow that Dream.”<br>
 

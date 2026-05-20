@@ -1,12 +1,12 @@
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1971-0423.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1971-0423.jpg.webp)
 
 **1973:** Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first show in Connecticut. Bruce opens the show with the earliest known performance of “4th of July, Asbury Park (Sandy).”<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1973-0423.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1973-0423.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg.webp)
 
 **1975:** Bruce works on “Jungleland” and “Thunder Road” at the Record Plant in New York City.<br>
 
@@ -52,9 +52,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch on Youtube: Bruce Springsteen - VH1 Storytellers](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2005-04-23a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-04-23a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2005-04-23b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-04-23b.jpg.webp)
 
 **2008:** Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of “Blood Brothers.” Roger McGuinn guests on “Turn! Turn! Turn!” and “Mr. Tambourine Man” in the encores, the former of which will appear on the *Magic Tour Highlights* EP later in the year. Also tour premiering at this show: “Does This Bus Stop at 82nd Street?” This show is available as part of Bruce’s official archive series.<br>
 
@@ -66,9 +66,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2008-04-23a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-23a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2008-04-23b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-23b.jpg.webp)
 
 **2016:** As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens the first of two closing shows at Brooklyn’s Barclays Center with “Purple Rain” in tribute to Prince, who passed away two days prior.<br>
 
@@ -84,8 +84,8 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch on Youtube: Patti Smith w/ Bruce Springsteen and Michael Stipe 4/23/18 Beacon](https://www.youtube.com/watch?v=5iOLJTm6YNA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2018-04-23.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2018-04-23.jpg.webp)
 
 **2019:** For the second day in a row, Bruce’s twitter account offers a mysterious photo with no accompanying text. Rumors begin to fly: is a new album imminent?<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2019-04-23.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2019-04-23.jpg.webp)

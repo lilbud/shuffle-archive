@@ -2,7 +2,7 @@
 
 **1973:** Studio sessions force Bruce to cancel a gig at Asbury Park's Convention Hall, where he and the as-yet-unnamed E Street Band were scheduled to open for Cheech & Chong.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1973-08-04.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1973-08-04.jpg.webp)
 
 **1977:** Bruce works on "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" during recording sessions at Atlantic Studios in New York City.<br>
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: August 4th, 1981 - Largo, MD](https://www.youtube.com/playlist?list=PLsxNBNx2akeXZxSnlTIVoWJ6s6HT8nI1z)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1981-08-04.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1981-08-04.png.webp)
 
 **1991:** Bruce joins The Outcry on stage for five songs (including "[Ain't That a Shame](https://estreetshuffle.com/index.php/2018/03/08/meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/)" "[People Get Ready,](https://estreetshuffle.com/index.php/2019/11/28/matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/)" and "[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)") at Cheers in Long Branch.<br>
 

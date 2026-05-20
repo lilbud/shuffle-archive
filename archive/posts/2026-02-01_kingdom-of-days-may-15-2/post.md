@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Stolen Car (solo piano) Bruce Springsteen 5/15/2005 Cleveland, OH](https://www.youtube.com/watch?v=QjKxwljcdiM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2005-05-15.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-15.jpg.webp)
 
 **2009**: Jay Weinberg sits in on drums again when the Working on a Dream Tour stops at Hersheypark Stadium in Hershey, Pennsylvania. The highlight: the tour premiere and first performance in a decade of “Give the Girl a Kiss.”<br>
 
@@ -32,9 +32,9 @@
 
 [Watch on Youtube: Bruce Springsteen ~ Trapped ~ 5/15/09](https://www.youtube.com/watch?v=JXUkD-5WWf4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2009-05-15a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2009-05-15a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2009-05-15b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2009-05-15b.jpg.webp)
 
 **2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: “Born in the U.S.A.,” “Two Hearts,” “Working on the Highway,” and “The River.”<br>
 

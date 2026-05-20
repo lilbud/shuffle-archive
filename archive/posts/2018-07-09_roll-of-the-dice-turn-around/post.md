@@ -2,7 +2,7 @@ It's time for another dip into the "[1968 Notebook](https://estreetshuffle.com/i
 
 "Turn Around" appears to be about a lothario who warns his dalliance not to fall for him, because he's not sticking around for long–not especially surprising songwriting territory for an 18-year-old aspiring rock star. Except it's not at all clear who's falling for whom.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/turnaround_lyrics.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/turnaround_lyrics.jpg.webp)
 
 Correcting the grammar and spelling a bit and making a couple of spot eye corrections (all credit to Springsteenlyrics for figuring most of this out), we're looking at:
 

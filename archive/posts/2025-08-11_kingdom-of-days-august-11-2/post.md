@@ -2,11 +2,11 @@
 
 **1972:** Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City that week.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/1972-08-11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1972-08-11.jpg.webp)
 
 **1974:** Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/1974-08-11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1974-08-11.jpg.webp)
 
 **1977:** Bruce holds a recording session for his upcoming album at Atlantic Studios in New York City.<br>
 
@@ -14,7 +14,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/j4p8FdMJ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1981-08-11.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1981-08-11.png.webp)
 
 **1984:** At Night Five (of ten) at the Brendan Byrne Arena in East Rutherford, John Entwistle guest-stars on the show-closing "Twist and Shout."<br>
 
@@ -24,9 +24,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/LBLlimMh)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1985-08-11a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-11a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1985-08-11b-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-11b-scaled.jpg.webp)
 
 **1989:** Bruce makes a surprise guest appearance at the Garden State Arts Center in Holmdel, joining Ringo Starr and His All Starr Band (including Nils and Clarence) for the encores of "[Get Back](https://estreetshuffle.com/index.php/2020/07/22/matr-ringo-starr-and-bruce-springsteen-get-back/)," "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)," "[Photograph](https://estreetshuffle.com/index.php/2018/04/29/matr-bruce-springsteen-and-ringo-starr-and-his-all-starr-band-photograph/)" and "[With a Little Help From My Friends](https://estreetshuffle.com/index.php/2018/06/03/matr-ringo-starrs-all-starr-band-bruce-springsteen-and-john-candy-with-a-little-help-from-my-friends/)."<br>
 
@@ -36,9 +36,9 @@
 
 [Watch on Youtube: Ringo Starr's All Starr Band and Bruce Springsteen - "With a Little Help From My Friends"](https://www.youtube.com/watch?v=vqMxTWqVoYM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1989-08-11a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1989-08-11a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1989-08-11b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1989-08-11b.png.webp)
 
 **1999:** It's the penultimate show of Bruce and the E Street Band's fifteen-night Reunion Tour stand at East Rutherford's Continental Airlines Arena, and the show rockets out of the gate with the first performance of "[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)" in 15 years. Later in the show: the first "New York City Serenade" in 24 years, and the show-closing tour premiere of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
 

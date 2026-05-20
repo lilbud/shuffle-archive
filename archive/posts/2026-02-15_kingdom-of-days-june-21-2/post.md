@@ -2,15 +2,15 @@
 
 **1970:** A scheduled Steel Mill date at the Clearwater Swim Club in Atlantic Highlands, New Jersey is postponed by a day due to bad weather.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1970-06-21.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1970-06-21.jpg.webp)
 
 **1974:** Bruce and the E Street Band play two shows on their first of three consecutive nights at Le Garage on Long Beach Island.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1974-0621.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1974-0621.jpg.webp)
 
 **1976:** Bruce drops by The Main Point in Bryn Mawr, Pennsylvania to catch Tone, a band that includes E Street alumni David Sancious and Boom Carter. (Photo credit: Phil Ceccola)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1976-0621.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1976-0621.jpg.webp)
 
 **1979:** Bruce and the E Street Band hold a recording session for *The River* at The Power Station in New York City.<br>
 
@@ -18,9 +18,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/2VRaI53f)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-06-21a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-06-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1984-06-21b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1984-06-21b.jpg.webp)
 
 Wondering how that show came to happen? Watch the interview below.
 
@@ -54,9 +54,9 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCgA3ja676YD_rnoFLX9Rh4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1988-06-21.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1988-06-21.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1988-0621.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1988-0621.jpg.webp)
 
 **1992:** At Night Two in Milan, "Badlands" makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide "Badlands" tradition forevermore. (*Of course*, that starts in Milan!) "Downbound Train," "Tougher than the Rest" and "Born to Run" make their tour debuts as well, and a soundcheck of "Club Soul City" is surreptitiously recorded.<br>
 
@@ -86,7 +86,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lr6bSgqsCec)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/2011-06-21.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2011-06-21.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops at the Stadium of Light in Sunderland, England.<br>
 
@@ -94,9 +94,9 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_sgMcFRmjIQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/2012-06-21-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2012-06-21-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/The_Daily_Telegraph_Fri__Jun_22__2012_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Daily_Telegraph_Fri__Jun_22__2012_-scaled.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

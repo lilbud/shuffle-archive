@@ -2,7 +2,7 @@
 
 **1977:** “Juicy Brucey” and the E Street Band bring the Lawsuit Tour to Providence College.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1977-0320.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-0320.jpg.webp)
 
 **1981:** A scheduled show in London is postponed due to Bruce’s exhaustion from the first two legs of the River Tour.<br>
 
@@ -22,13 +22,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Evening Magazine (Pittsburgh), April 22, 1988](https://www.youtube.com/watch?v=DzQHe4A1mkk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/1988-03-20a-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1988-03-20a-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/1988-03-20b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1988-03-20b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1988-03-20.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1988-03-20.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1988-0320.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1988-0320.jpg.webp)
 
 **1996:** Bruce brings his solo acoustic tour to the Point Theater in Dublin.<br>
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: American Land (Live at Conseco Fieldhouse, Indianapolis, IN - 3/20/2008)](https://www.youtube.com/watch?v=yK8BTJle8KI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/2008-03-20.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2008-03-20.jpg.webp)
 
 **2013:** Bruce marks the tenth anniversary of the Iraq War at Allphones Arena in Sydney, opening with an acoustic “Devils & Dust” and launching into a full-band “Last to Die.”<br>
 
@@ -72,4 +72,4 @@
 
 [Watch on Youtube: BADLANDS Bruce Springsteen & The E Street Band at TD Garden Boston MA 3/20/23](https://www.youtube.com/watch?v=Yl6GiZoDF3U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/The_Boston_Globe_Wed__Mar_22__2023_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/The_Boston_Globe_Wed__Mar_22__2023_.jpg.webp)

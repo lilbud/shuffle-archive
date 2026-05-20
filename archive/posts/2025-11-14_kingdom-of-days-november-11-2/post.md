@@ -2,17 +2,17 @@
 
 **1972:** Bruce and the as-yet-unnamed E Street band open for Crazy Horse at York College of Pennsylvania.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/1972-11-11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1972-11-11.jpg.webp)
 
 **1973:** Bruce and his still unnamed band play an opening set for Brian Auger's Oblivion Express at Trenton State College, after original headliner David Bromberg cancels after learning he'd be following Bruce.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/28925221943_ef21cb4204_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/28925221943_ef21cb4204_o.jpg.webp)
 
 **1975:** Bruce's second-ever show in Florida is under-attended when the Born to Run Tour makes a stop in Miami. The show starts late due to (reportedly) a piano issue, but a local gossip column suggests a different reason.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1975-11-11.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1975-11-11.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/11/The_Miami_Herald_1975_11_13_232.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/The_Miami_Herald_1975_11_13_232.jpg.webp)
 
 **1977:** At a recording session at the Record Plant in New York City, Bruce and the E Street Band record an early take of a song that has gone by both "[Don't Say No](https://estreetshuffle.com/index.php/2019/10/15/roll-of-the-dice-dont-say-no/)" and "[I Want to Be Wild](https://estreetshuffle.com/index.php/2021/03/07/roll-of-the-dice-i-want-to-be-wild/)" on bootlegs. It has yet to surface in a released form.<br>
 
@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/YDiXLTVu)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/11/The_Era_Leader_Wed__Nov_19__1980_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Era_Leader_Wed__Nov_19__1980_-scaled.jpg.webp)
 
 **1984:** Denver fans get a rare performance of "Stolen Car" when Bruce and the E Street Band bring the Born in the U.S.A. Tour to the McNichols Sports Arena.<br>
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Denver 11/11/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zDpfV1L6aqbHy5HEoKBRZsr)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/11/The_Sacramento_Bee_1984_11_14_2.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Sacramento_Bee_1984_11_14_2.jpg.webp)
 
 **1992:** MTV debuts a special *Rockumentary* devoted to Bruce's life and work.<br>
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: From Small Things (Big Things One Day Come) (Studio Outtake - 1979)](https://www.youtube.com/watch?v=ro5__9aIOVE?list=OLAK5uy_nXHmPSxYBhaRAjYRwkJF2eNL8XMt65PM8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2003-11-11.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2003-11-11.png.webp)
 
 **2005:** Bruce plays a special Veteran's Day setlist at his Devils & Dust solo acoustic show at Old Dominion University in Norfolk, opening the show with "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" and tour premiering "[The Wall](https://estreetshuffle.com/index.php/2024/09/04/roll-of-the-dice-the-wall/)" (in its first "regular" concert performance). To close the main set, Bruce broke with tour tradition, replacing "[Matamoras Banks](https://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/)" with "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)," on which he is joined by Bruce Hornsby.<br>
 
@@ -56,9 +56,9 @@
 
 [Watch on Youtube: Bruce Springsteen "Long Walk Home" London, UK Nov. 11, 2006](https://www.youtube.com/watch?v=NF346GjlhSo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/11/2006-11-11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2006-11-11.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/11/The_Independent_Sun__Nov_19__2006_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Independent_Sun__Nov_19__2006_-scaled.jpg.webp)
 
 **2007:** The Magic Tour stops in Washington DC for the first of two nights at the Verizon Center, where Bruce tour premieres "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," and Frank Bruno makes a guest appearance on the show-closing "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)."<br>
 
@@ -68,15 +68,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/hW14NbIi)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2007-11-11a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-11-11a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2007-11-11b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-11-11b.png.webp)
 
 **2010:** Bruce makes a guest appearance on "[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)" with Timepiece (Patti's brother's band) at Woody's Roadside Tavern in Farmingdale, New Jersey.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN WITH TIMEPIECE ~ "MUSTANG SALLY" ~ Video by Rose A Montana](https://www.youtube.com/watch?v=-Q0MZJ6jQk8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/11/Asbury_Park_Press_Sun__Nov_28__2010_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Asbury_Park_Press_Sun__Nov_28__2010_.jpg.webp)
 
 **2012:** The Wrecking Ball Tour arrives in St. Paul for a two-night stand at the Xcel Energy Center. At this first show, Bruce and the E Street Band debut "[Savin' Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)" and tour premiere a full-band arrangement of "Long Walk Home."<br>
 
@@ -84,9 +84,9 @@
 
 [Watch on Youtube: Long Walk Home Bruce Springsteen & The E Street Band Xcel Center St Paul Mn 11-11-12](https://www.youtube.com/watch?v=83x1bA9mdmY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2012-11-11a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2012-11-11a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2012-11-11b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2012-11-11b.png.webp)
 
 **2014:** Bruce performs at a special Veteran's Day concert at the National Mall in Washington, DC, playing three acoustic songs solo and joining Dave Grohl and the Zac Brown Band on "[Fortunate Son](https://estreetshuffle.com/index.php/2019/11/09/matr-john-fogerty-and-bruce-springsteen-fortunate-son/)."<br>
 

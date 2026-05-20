@@ -10,7 +10,7 @@ But that's just Bruce walking his talk.
 
 "Stand On It" was almost certainly inspired by the 1973 novel by the same name, the fictional autobiography of race car driver Stroker Ace (really co-authors William Neely and Robert K. Ottum), whose solution to any and all of life's challenges was… well, *stand on it*.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/standbook.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/standbook.jpg.webp)
 
 *Stand on it*. Put the pedal to the metal. Go fast, as fast as you can go–and then go faster still. That's the motto and the moral of the book, and it also carried over to the critically panned film, which premiered just a few weeks before Bruce wrote his song.
 

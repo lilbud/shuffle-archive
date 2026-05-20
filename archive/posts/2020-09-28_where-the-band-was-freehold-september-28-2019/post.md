@@ -10,7 +10,7 @@ And it was indeed a surprise: any secret hopes that attendees might have had wer
 
 But Bruce must have been determined to thank his hometown, because he made a brief appearance, sneaking in unceremoniously around 7pm to tour the exhibit and joining Joe Grushecky on stage for a blistering "[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)" before leaving by 8:30 to rejoin his family.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/newsSHH_Michael-Kravetsky-DSC07444-Press.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/newsSHH_Michael-Kravetsky-DSC07444-Press.jpg.webp)
 
 *Photograph by Michael Kravetsky for MCHA*
 
@@ -28,13 +28,13 @@ Besides the scorching opening set by Bobby Bandiera and his band and the Housero
 
 Remember Bruce's story from *Springsteen on Broadway* or *Born to Run* of learning to drive while crossing the country with Tinker West in Tinker's truck? Well, Tinker's truck was on the premises (along with Tinker himself), and for a $25 donation to the Monmouth County Historical Association, you could pose for a photo in it and imagine you and Bruce climbing over each other to switch seats, hoping the truck stayed on the road in the process. (Of course, I did just that.)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/newsSHHtruck.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/newsSHHtruck.jpg.webp)
 
 The "Born to Run" fire truck that Bruce donated to the local fire department in 1991? That was there, too.
 
 Under the big tent were the silent auction items, including signed, famed photos by Frank Stefanko and Danny Clinch (Danny's photo of Bruce is in his Broadway dressing room had reached $5,000 by the time I left around 10:30pm), Freehold getaway packages (including a private, after-hours museum tour), Bruce's mysterious "Nites of Rutgers" tee shirt (sadly, only a reproduction), and even a Big Man's Brew tap handle. All proceeds benefited the Historical Association, and well before the evening ended it was clear that the Association would have a lucrative evening.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/newsSHHscrapbook.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/newsSHHscrapbook.jpg.webp)
 > *Photograph by Lisa Iannucci*
 
 The exhibit itself held even greater treasures — whether you're interested in tour and album cover props, song lyrics, old newspaper clippings, or the Springsteen family tree, there's more to learn than one can reasonably take in during a single visit, especially for partygoers who were admitted through the evening in sequential 45-minute windows. I now know about the accomplishments and life events of Springsteens dating back to the American Revolution (which threatens to widen the scope of my ["Kingdom of Days" blog posts](https://estreetshuffle.com/index.php/category/kingdom-of-days/) to a frightening degree).

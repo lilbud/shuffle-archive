@@ -32,7 +32,7 @@ Today, we'll take a listen to one of my favorite original songs from this period
 
 And yet, despite wearing its influences on its sleeve, "Natural Magic" is sweet and charmingly earnest. Together with songs like "[You Mean So Much to Me](https://estreetshuffle.com/index.php/2020/01/13/roll-of-the-dice-you-mean-so-much-to-me/)" (played just two songs prior that night) and "[She's Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)," "Natural Magic" represents the beginning of a soulfully romantic vein that Bruce would mine for many years to come.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/naturalmagic_lyrics.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/naturalmagic_lyrics.jpg.webp)
 
 **Natural Magic**<br>
 **Never recorded**<br>

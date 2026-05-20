@@ -14,4 +14,4 @@ But for this last show, I was determined to be up front, so I spent the day maki
 
 While the High Hopes Tour would go on to soar to much greater heights than these opening shows, I’ll always remember these three among my favorites–from days spent hiking and exploring with fellow fans to standout performances and surprises each night, for me, this was a very special run of shows.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/20140129-CapeTown-Centermic-After.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/20140129-CapeTown-Centermic-After.jpg.webp)

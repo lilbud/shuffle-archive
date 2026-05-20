@@ -2,21 +2,21 @@
 
 **1973:** Bruce plays at Grendel's Lair Coffee House in Philadelphia.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1973-10-09.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1973-10-09.png.webp)
 
 **1976:** Bruce and the E Street Band play a Lawsuit Tour show at Miami University in Oxford, Ohio. Based on the student newspaper clipping below, it seems that Bruce's shows are not necessarily easy to book or facilitate due to Bruce's legal battle with Mike Appel. At one point, the school seemed unsure about whether this concert would happen.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1976-1010.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1976-1010.jpg.webp)
 
 **1980:** Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/OALtiJWP)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1980-10-10.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1980-10-10.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/09/1980-10-10.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1980-10-10.jpg.webp)
 
 **1983:** Bruce completes "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" during a mixing and overdub session at The Hit Factory in New York City.<br>
 
@@ -24,7 +24,7 @@
 
 **1985:** Bruce appears on the cover of *Rolling Stone*.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/rollingstone.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/rollingstone.jpg.webp)
 
 **2006:** Bruce's Italian tour comes to a close in Rome, where he and the Sessions Band tour premiere "[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29845/bruce-springsteen-palalottomatica-rome-it-10-10-2006.html).<br>
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen Meets Fans, Promotes Book In Cambridge](https://www.youtube.com/watch?v=rpT2MYElKzM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/2016-10-10.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2016-10-10.jpg.webp)
 
 **2017:** Previews continue for *Springsteen on Broadway* at the Walter Kerr Theater in New York City.<br>
 

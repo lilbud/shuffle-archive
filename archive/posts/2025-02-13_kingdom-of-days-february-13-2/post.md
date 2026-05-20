@@ -1,6 +1,6 @@
 **1970:** Steel Mill opens for Boz Scaggs for the second of three nights at The Matrix in San Francisco.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1972-02-14.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1972-02-14.jpg.webp)
 
 **1971:** Bruce jams at an open mic night at The Upstage in Asbury Park.<br>
 
@@ -10,10 +10,10 @@
 
 [Watch on Youtube: Bruce Springsteen - 2-13-77 Toronto Concert](https://www.youtube.com/watch?v=HG6s_r170oE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/02/The_Toronto_Star_1977_02_14_19-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Toronto_Star_1977_02_14_19-scaled.jpg.webp)
 
 **1981:** Bruce and the band play Mississippi State University along the River Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ClPPlc19)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/02/1981-02-13.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/02/1981-02-13.jpg.webp)

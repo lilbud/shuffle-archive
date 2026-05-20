@@ -1,4 +1,4 @@
-Bart Haynes was the first to fall.![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/11/Barton_E._Haynes.webp)
+Bart Haynes was the first to fall.![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/11/Barton_E._Haynes.webp)
 
 He was the band's original drummer until Halloween 1965, and his house in Freehold served as their rehearsal space.
 
@@ -8,7 +8,7 @@ Bart graduated high school the following spring, joined the Marines in October, 
 
 ---
 
-Paul Popkin was the next man down. ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/11/popkin.jpg.webp)
+Paul Popkin was the next man down. ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/11/popkin.jpg.webp)
 
 He was the band's tambourine player and backing vocalist from October 1965 until the band broke up in 1968. He passed away from hepatitis the following year.
 
@@ -24,7 +24,7 @@ Vinnie Manniello replaced Bart Haynes as the band's drummer and remained with th
 
 ---
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/11/Ehzg5ZnXgAEf-nH-3.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/11/Ehzg5ZnXgAEf-nH-3.jpg.webp)
 
 Frank Marziotti was one of the last surviving band members until he passed away in early 2017. He was also the oldest, a full decade older than his high school student bandmates.
 
@@ -44,7 +44,7 @@ They shared a birthday month, born days apart in September 1949. George Theiss f
 
 Bruce remembers George as "kind of a regular guy. He was a carpenter by trade, and I believe that that's how he made his living through most of his life, and played music on the side. But actually, as a teenager, he was quite charismatic: He was very good looking, attracted a lot of girls and had a great sort of tenor voice, and was really, initially, the frontman for The Castiles — I was simply the guitarist. And so he was a bit of our local star, you know, and he locally maintained that reputation for quite a big part of his life in Asbury Park." (NPR, October 22, 2020)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/11/Ehzg5ZnXgAEf-nH-4.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/11/Ehzg5ZnXgAEf-nH-4.jpg.webp)
 
 In their post-Castile years, George formed his own eponymous band after stints in various local groups; Bruce earned himself a recording contract with Columbia Records and won over audiences worldwide.
 

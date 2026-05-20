@@ -26,7 +26,7 @@ While the starstruck artists assembled and greeted each other (many had never me
 
 When recording finally began, the sessions lasted all through the night, with the artists waiting patiently for their turn in the spotlight. Bruce nursed a beer while he waited, and at one point he absent-mindedly left it on a riser next to Michael Jackson, who playfully posed with it for a photo which ended up leaking to the press.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/02/bossking.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/02/bossking.png.webp)
 
 While some artists recorded, others rehearsed. Bruce took his part seriously, rehearsing take after take, including lines that wouldn’t make it into the final version. Check out nine minutes of Bruce’s rehearsals below.
 

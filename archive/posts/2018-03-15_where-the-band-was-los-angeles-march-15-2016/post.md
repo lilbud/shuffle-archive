@@ -1,6 +1,6 @@
 It can be a bit hard to focus on a concert when Rocky Balboa is rocking out in front of you. But that's the risk when you catch a show in L.A., where the stars mix right in with the hoi polloi. (And yes, that's Stallone actually taking photos of the crowd (you can see my arm circled), who were chanting "Rocky! Rocky! Rocky!" before the show, to which Sly mugged and waved and generally ate it up. It was charming.)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/sly2.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/sly2.jpg.webp)
 
 Anyway: the show.
 

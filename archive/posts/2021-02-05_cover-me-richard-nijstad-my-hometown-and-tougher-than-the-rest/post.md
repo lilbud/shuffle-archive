@@ -2,7 +2,7 @@ Richard Nijstad has only been playing the guitar since 2010, but he's a lifelong
 
 As a young boy in The Netherlands in the 1980s, Richard grew up to Bruce's music on the radio. He spent the first money he ever earned on Bruce's albums, imitated Bruce's performances, and surrounded himself in Bruce's music his whole life.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/richard.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/richard.jpg.webp)
 
 Today, Richard fronts his own band, Different Faces, an eighties cover band with a repertoire that includes a lot of Bruce's songs.
 

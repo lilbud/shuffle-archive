@@ -1,10 +1,10 @@
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1968-04-26.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1968-04-26.jpg.webp)
 
 **1973:** The new issue of *Rolling Stone* features a profile of Bruce, their first of many to come. (Thanks to Andy Swanson for the scan!)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1973-04-26-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1973-04-26-scaled.jpg.webp)
 
 **1976:** Bruce and the E Street Band play at the Soldiers & Sailors Memorial Auditorium in Chattanooga, their first of three nights in Tennessee.<br>
 
@@ -26,13 +26,13 @@
 
 **1998:** Douglas Springsteen, Bruce’s father, passes away at the age of 73.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1998-04-26.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1998-04-26.jpg.webp)
 
 **1999:** Bruce and the E Street Band bring the Reunion Tour to Zurich.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/5QWqHj9x)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Richmond_Times_Dispatch_Wed__Apr_28__1999_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Richmond_Times_Dispatch_Wed__Apr_28__1999_.jpg.webp)
 
 **2000:** At Night Two at the Mellon Arena in Pittsburgh, Bruce and the E Street Band perform a rare “Back in Your Arms,” and Joe Grushecky guest-stars on “Hungry Heart.”<br>
 
@@ -42,11 +42,11 @@
 
 [Watch on Youtube: Devils & Dust](https://www.youtube.com/playlist?list=OLAK5uy_ljJkvfatynKRT3tSQqRz4KwELqrCKqlE8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2005-04-26a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2005-04-26a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2005-04-26b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-04-26b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2005-04-26c.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2005-04-26c.jpg.webp)
 
 **2006:** Bruce and the Sessions Band play their final rehearsal show at Asbury Park’s Convention Hall, opening and closing with debuts of “Long Black Veil” and “The Daring Young Man on the Flying Trapeze” respectively.<br>
 
@@ -66,7 +66,7 @@
 
 [Watch on Youtube: Bruce Springsteen Trapped Atlanta 4/26/09 LIVE (From Pit)](https://www.youtube.com/watch?v=rQvfZ3u6EQU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2009-04-26.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2009-04-26.jpg.webp)
 
 **2012:** Los Angeles gets a pair of Wrecking Ball shows at the Sports Arena. Night One sees the tour premieres of “Something in the Night,” “California Sun,” and the customary SoCal guest appearance by Tom Morello on “The Ghost of Tom Joad.”<br>
 
@@ -78,9 +78,9 @@
 
 [Watch on Youtube: Bruce Springsteen - "Land of Hope and Dreams", 2012-04-26, Los Angeles](https://www.youtube.com/watch?v=SGPqKkOu8-U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2012-04-26a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2012-04-26a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2012-04-26b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2012-04-26b.jpg.webp)
 
 **2014:** Bruce plays a River-heavy set at Aaron’s Amphitheater in Atlanta, featuring the tour premieres of “Independence Day” and “Drive All Night.”<br>
 
@@ -98,4 +98,4 @@
 
 [Watch on Youtube: 2025 Springsteen Archives American Music Honors Finale - Live | This Land Is Your Land - 4/26/25](https://www.youtube.com/watch?v=-remT_HdKOY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/510951899_18519144346043434_5881101176253891084_n.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/510951899_18519144346043434_5881101176253891084_n.jpg.webp)

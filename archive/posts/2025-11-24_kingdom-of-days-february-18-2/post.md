@@ -2,11 +2,11 @@
 
 **1974:** Bruce cancels a concert in Cleveland after firing drummer Vini Lopez the week before.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/02/The_Plain_Dealer_1974_02_08_84-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Plain_Dealer_1974_02_08_84-scaled.jpg.webp)
 
-***![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1972-02-18.jpg.webp)*1975:** Bruce and the E Street Band play a gig at John Carroll University in Cleveland. Tim Russert organized the concert; Tim will later go on to host *Meet the Press* for many years.<br>
+***![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1972-02-18.jpg.webp)*1975:** Bruce and the E Street Band play a gig at John Carroll University in Cleveland. Tim Russert organized the concert; Tim will later go on to host *Meet the Press* for many years.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/02/1975-02-18.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1975-02-18.jpg.webp)
 
 **1981:** The River Tour continues its Florida leg with a stop at the Jacksonville Veterans Memorial Coliseum. Eavesdrop on the soundcheck below.<br>
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VJVyZxoCk4Q)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1981-02-18.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-18.jpg.webp)
 
 **1984:** Bruce and Nils jam at Bruce’s house and listen to the just-completed *Born in the U.S.A.* album. At some point, they watch TV and see MTV announce Steve Van Zandt’s departure from the band. Nils puts in a good word for himself that will pay off not that far down the road.<br>
 

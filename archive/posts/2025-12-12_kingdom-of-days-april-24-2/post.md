@@ -8,7 +8,7 @@
 
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1971-0423.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1971-0423.jpg.webp)
 
 **1973:** At The Main Point in Bryn Mawr, Bruce plays his first live-in-concert radio broadcast on Philadelphia’s WMMR-FM (the first of two shows this night). Listen to the show below, featuring the earliest known recording of “Santa Ana” and the last known recording of “Wild Billy’s Circus Story” before its lyrics were finalized.<br>
 
@@ -16,13 +16,13 @@
 
 [Watch on Youtube: Bruce Springsteen Main Point New York 24/04/1973 Full Concert](https://www.youtube.com/watch?v=vYfjqklI16E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-1-scaled.jpg.webp) **1976:** At their show at Appalachian State University in Boone, North Carolina, Bruce and the E Street Band perform “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)” for the last time for 23 years.
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-1-scaled.jpg.webp) **1976:** At their show at Appalachian State University in Boone, North Carolina, Bruce and the E Street Band perform “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)” for the last time for 23 years.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/04/boonereview.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/boonereview.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1976-0424.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1976-0424.jpg.webp)
 
 **1980:** Bruce and his studio team complete the mix for “The River” at Clover Studios in Los Angeles.<br>
 
@@ -64,7 +64,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/Eis8SKkb)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2006-04-24.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2006-04-24.jpg.webp)
 
 **2009:** The Working on a Dream Tour moves on to the XL Center in Hartford, bringing with it the E Street Band premiere of “Wild Thing” and the tour premieres of “Jackson Cage” and “Rockin’ All Over the World.”<br>
 
@@ -78,7 +78,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/mRceKQyO)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2009-04-24-rotated.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2009-04-24-rotated.jpg.webp)
 
 **2010:** At the annual Kirsten Ann Car Fund gala in New York City, Bruce and Stevie join The Rascals on stage for “Good Lovin’.”<br>
 
@@ -90,17 +90,17 @@
 
 [Watch on Youtube: Thundercrack - Bruce Springsteen @ San Jose - 24th April 2012](https://www.youtube.com/watch?v=fdNM42qloIY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2012-04-24-1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2012-04-24-1.jpg.webp)
 
 **2014:** At the High Hopes Tour stop in Raleigh, the set list highlight is the tour premiere of “Pretty Flamingo.” Bruce’s daughter is in attendance with her local college friends, and Bruce plays to them several times during the show.<br>
 
 [Watch on Youtube: Pretty Flamingo - Bruce Springsteen Live (4/24/2014)](https://www.youtube.com/watch?v=L44FZ1_KB0k)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2014-04-24-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2014-04-24-scaled.jpg.webp)
 
 **2019:** For the third straight day, Bruce’s official Twitter account shares a mysterious western-themed image with no accompanying text. At this point, speculation runs rampant about a forthcoming announcement.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2019-04-24.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2019-04-24.jpg.webp)
 
 **2020:** Bruce makes an encore appearance as an E Street Radio DJ when he premieres a second installment of *From My Home to Yours.*<br>
 

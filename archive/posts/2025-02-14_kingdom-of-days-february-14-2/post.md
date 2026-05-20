@@ -1,6 +1,6 @@
 **1969:** Earth (one of Bruce's early bands) plays their final gig at the Italian-American Mens Association Clubhouse in Long Branch, New Jersey. Vini Lopez is in attendance and is impressed enough to recruit Bruce for a new band he's putting together. Over the next several weeks, that band will gel under the name of Child and include not just Bruce and Vini, but also Danny Federici. By the end of the year, Child will become Steel Mill, which will eventually give way to The Bruce Springsteen Band, all the while drawing the E Street musicians ever closer into Bruce's orbit. If the E Street Band has a secret origin, this is where it begins.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/02/1969-02-14.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1969-02-14.jpg.webp)
 
 **1970:** Steel Mill opens for Boz Scaggs on the last night of a three-night stand at The Matrix in San Francisco.<br>
 
@@ -10,9 +10,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/sCffbs7D)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/02/1973-02-14a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1973-02-14a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1973-02-14b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1973-02-14b.jpg.webp)
 
 **1984:** Bruce records "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" in the studio, his highest-charting hit and the last song to be recorded for *Born in the U.S.A.*<br>
 
@@ -44,4 +44,4 @@
 
 As another love letter to his fans, Bruce announces a second American leg of the tour earlier in the day. (Unfortunately, the vast majority of newly announced dates will end up postponed to the following year due to illness.)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/Valley_Morning_Star_Wed__Feb_15__2023_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/Valley_Morning_Star_Wed__Feb_15__2023_.jpg.webp)

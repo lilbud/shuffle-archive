@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Qd3W6T-AdII)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/07/Red_Deer_Advocate_1985_07_08_11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Red_Deer_Advocate_1985_07_08_11.jpg.webp)
 
 **1988:** The Tunnel of Love Tour arrives in Dublin for a show at RDS Arena.<br>
 

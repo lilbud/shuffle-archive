@@ -2,11 +2,11 @@
 
 **1967:** The Castiles play a show at Freehold Regional High School.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/1967-1124.gif)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1967-1124.gif)
 
 **1971:** The Bruce Springsteen Band spends Thanksgiving Eve in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/1971-11-23.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1971-11-23.jpg.webp)
 
 **1974:** Bruce takes the bus from Asbury Park down to Philadelphia to spend a couple of days with local DJ Ed Sciaky, starting with a visit to a local studio the next morning to meet David Bowie.<br>
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Growin' Up (Live at Hammersmith Odeon, London, UK - 11/24/1975)](https://www.youtube.com/watch?v=hnOHH3j_CB4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/11/Evening_Chronicle_1975_11_29_10-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/Evening_Chronicle_1975_11_29_10-scaled.jpg.webp)
 
 **1980:** Night Two at the Capital Center in Largo on the River Tour is filmed (not by Springsteen's crew, but by sneaky employees at the venue).<br>
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "If I Should Fall Behind" - Miami, 1992-11-24](https://www.youtube.com/watch?v=UHiEQxsz-is)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1992-11-24.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-24.png.webp)
 
 **1996:** Bruce kicks off Year Two(!) of the Ghost of Tom Joad Tour with a trio of shows at the Paramount Theater in Asbury Park. Each show is special–a homecoming of sorts, with guest stars and tour premieres galore. On this, Night One, Bruce is joined at various times throughout the night by Patti, Soozie, and Danny. Bruce tour premieres "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)," "[Wild Billy's Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)," "[When You're Alone](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/)," "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)," and (remarkably) a wild, acoustic, "Rosalita (Come Out Tonight)." Kicking off with three tracks from *Greetings* and wrapping up with a pair from *Wild & Innocent* (before the customary "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" finale), this certainly doesn't feel like the Ghost of Tom Joad Tour. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23319/Bruce-Springsteen-mp3-flac-download-11-24-1996-Paramount-Theatre-Asbury-Park-NJ.html).<br>
 
@@ -42,11 +42,11 @@
 
 [Watch on Youtube: Rosalita (Come Out Tonight) (Live at Paramount Theatre, Asbury Park, NJ - 11/24/1996)](https://www.youtube.com/watch?v=0IKnIsoDoKg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1996-11-24a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1996-11-24a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1996-11-24b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1996-11-24b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1996-11-24c.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1996-11-24c.png.webp)
 
 **2002:** Bruce and the E Street Band wrap up a week-long tour of Florida with a show at the Ice Palace in Tampa, where Bruce closes the show with a tour premiere of "Twist and Shout."<br>
 
@@ -62,6 +62,6 @@
 
 [Watch on Youtube: Tampa 24/11/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zD8Z212HMxPj4hjuRuQdikF)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2002-11-24.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2002-11-24.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>

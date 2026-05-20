@@ -1,18 +1,18 @@
 **1973:** Bruce plays his first ever show in Washington, D.C. at Childe Harold. David Sancious (not yet a member of the E Street Band) sits in.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1973-0524.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1973-0524.jpg.webp)
 
 **1974:** Bruce and the E Street Band headline a show at the War Memorial Theater in Trenton.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1974-05-24.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1974-05-24.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1974-0524.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1974-0524.jpg.webp)
 
 **1978:** Night Two of the Darkness Tour (at Albany’s Palace Theater) is similar to Night One, but “The Promise” is now performed solo on the piano, as it will be until the next full-band performance 32 years later.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Bennington_Banner_Fri__May_26__1978_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Bennington_Banner_Fri__May_26__1978_-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1978-0524.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1978-0524.jpg.webp)
 
 **1983:** Bruce and the E Street Band work on “King’s Highway” at The Hit Factory in New York City. It hasn’t surfaced in any form to this day.<br>
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 24/05/2005 Full Concert](https://www.youtube.com/watch?v=sD4KMfhF7hg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/The_Daily_Telegraph_Thu__May_26__2005_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Daily_Telegraph_Thu__May_26__2005_-scaled.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

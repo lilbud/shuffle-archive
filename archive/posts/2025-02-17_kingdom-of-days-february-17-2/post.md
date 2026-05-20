@@ -8,7 +8,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/KSeYskRd)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/1977-02-17.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1977-02-17.jpg.webp)
 
 **1996:** Bruce plays a solo acoustic show in Hamburg.<br>
 
@@ -28,4 +28,4 @@
 
 [Watch Video Highlight](https://videopress.com/embed/8Pdte2JL)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1997-02-17.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-17.png.webp)

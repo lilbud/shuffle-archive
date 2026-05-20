@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/8V1HMlo9)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1981-07-16.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-16.jpg.webp)
 
 **1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," "[Wooly Bully](https://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)," and "[Keep-a-Knockin](https://estreetshuffle.com/index.php/2018/11/09/matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/)'."<br>
 
@@ -30,27 +30,27 @@
 
 **1984:** On a night off in between Born in the U.S.A. shows in Chicago, Bruce is spotted playing pinball at a local bar.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1984-07-16.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-16.png.webp)
 
 **1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including "[I Played the Fool](https://estreetshuffle.com/index.php/2019/04/04/matr-i-played-the-fool/)," "[Funky Broadway,](https://estreetshuffle.com/index.php/2019/10/28/matr-bruce-springsteen-and-the-shots-funky-broadway/)" and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)."<br>
 
 [Watch on Youtube: I PLAYED THE FOOL (Bruce Springsteen and Southside Johnny and the Asbury Jukes)](https://www.youtube.com/watch?v=ytSVHBMmYqg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1994-07-16.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1994-07-16.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1994-0716.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1994-0716.jpg.webp)
 
 **1998:** At a Sony trade show in Miami, Bruce announces an upcoming box set of unreleased tracks.<br>
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/07/rehearsal.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/rehearsal.jpg.webp)
 
 **2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" for the occasion.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bYjdK3w0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/2005-07-16.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-16.jpg.webp)
 
 **2009:** Bruce and the band bring the Working on a Dream Tour to Carhaix, France. The show is partially broadcast on French radio–listen to excerpts below:<br>
 
@@ -86,4 +86,4 @@
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: John Mellencamp and Clark Gayton.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/07/mellen.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/mellen.jpg.webp)

@@ -2,9 +2,9 @@
 
 **1971:** The Bruce Springsteen Band plays a Halloween show at the National Guard Armory in Long Branch, New Jersey. The band will scale down following this show, losing members Delores Holmes, Francine Daniels and Bobby Feigenbaum.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/longbrancharmory-1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/longbrancharmory-1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1971-10-31.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1971-10-31.png.webp)
 
 **1973:** Bruce and the band headline two shows on their last of three nights at The Main Point, in Bryn Mawr, Pennsylvania.<br>
 
@@ -12,13 +12,13 @@
 
 [Watch on Youtube: The E Street Shuffle,Bruce Springsteen w/Albee Tellone,The Main Point,10-31-1973](https://www.youtube.com/watch?v=xF78hFYM1Ng)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/1973-10-31.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1973-10-31.jpg.webp)
 
 **1975:** Bruce and the boys play a marathon show (two and a half hours) at the Paramount Theater in Oakland on the Born to Run Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1975-10-31.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1975-10-31.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/33928903008_7b91ee25b6_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/33928903008_7b91ee25b6_o.jpg.webp)
 
 **1980:** A special Halloween show at the Los Angeles Memorial Sports Arena, with Bruce entering the stage in a coffin chased by ghosts and opening the show with a one-off of “[Haunted House](https://estreetshuffle.com/index.php/2021/10/30/cover-me-haunted-house/).” Special moments abound in this show: the live debut of “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)” (in an acoustic arrangement, no less), the premiere of “[Out of Limits](https://estreetshuffle.com/index.php/2021/10/14/cover-me-out-of-limits/)” and the tour premiere of “[Growin’ Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)”<br>
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Out of Limits - Bruce Springsteen (live at the Los Angeles Memorial Sports Arena 1981)](https://www.youtube.com/watch?v=72_lUSEeIJg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/47405496152_2e55f8097c_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47405496152_2e55f8097c_o.jpg.webp)
 
 **1984:** Back at the Los Angeles Sports Arena for another Halloween show, Bruce opens the show with the tour premiere of “[High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)” and plays a gorgeous, moving “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/).”<br>
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Bruce Springsteen - MY FATHER'S HOUSE 1984 (audio)](https://www.youtube.com/watch?v=SMIyXGmUR1w)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/10/Simi_Valley_Star_1984_11_02_21-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Simi_Valley_Star_1984_11_02_21-scaled.jpg.webp)
 
 **1987:** Forbes Magazine lists Bruce as the third highest-earning American entertainer at $56 million. That night, Bruce and the E Street Band (minus Nils and Clarence) play at McLoone’s Rum Runner in Sea Bright, where they play “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)” and an acoustic “Born to Run” for the very first time.<br>
 
@@ -48,15 +48,15 @@
 
 [Watch on Youtube: Bruce Springsteen - "Spirit in the Night" 1992-10-31, Minneapolis](https://www.youtube.com/watch?v=9qv1mKFw7T0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1992-10-31a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1992-10-31a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1992-10-31b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1992-10-31b.png.webp)
 
 **2008:** Bruce releases a new song on his website: “[A Night with the Jersey Devil](https://estreetshuffle.com/index.php/2019/05/14/roll-of-the-dice-a-night-with-the-jersey-devil/).”<br>
 
 [Watch on Youtube: Bruce Springsteen - A Night with the Jersey Devil (Official Video)](https://www.youtube.com/watch?v=l6leNRGhOqA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2008-10-31.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2008-10-31.png.webp)
 
 **2012:** Four years to the day after its release, Bruce performs “A Night With the Jersey Devil” for the very first time, opening his Wrecking Ball show with it in Rochester. Lucky fans get another live debut as well–a cover of “[Monster Mash](https://estreetshuffle.com/index.php/2019/10/29/cover-me-monster-mash/)” to observe the occasion.<br>
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Jersey Girl - Rochester, NY 10 31 12 with Intro (Rochester Roots)](https://www.youtube.com/watch?v=R8Y9CAwRURU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/2012-10-31.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2012-10-31.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

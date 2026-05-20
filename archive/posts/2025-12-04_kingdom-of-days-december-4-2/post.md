@@ -2,11 +2,11 @@
 
 **1948:** Bruce's good friend, frequent co-performer, and one-time bandmate Southside Johnny Lyon is born in Neptune, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/southside.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/southside.jpg.webp)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1971-12-04.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-12-04.png.webp)
 
 **1979:** Bruce holds a recording session for *The River* at The Power Station in New York City, where he and the band work on "Dedication" and "I'm a Rocker."<br>
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Buffalo 1980 Muchmusic footage](https://www.youtube.com/watch?v=PGnzoL3by14)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/40492702103_734e8a51f0_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/40492702103_734e8a51f0_o.jpg.webp)
 
 **1990:** Bruce records "[My Lover Man](https://estreetshuffle.com/index.php/2018/10/24/roll-of-the-dice-my-lover-man/)" at Soundworks West in Los Angeles.<br>
 
@@ -22,7 +22,7 @@
 
 **1999:** The Diasco family gets an unexpected Christmas bonus: in June, they'd bid on and won a private Bon Jovi performance at their home in an auction benefiting the Doug Flutie Autism Foundation; when the band shows up to honor their obligation, they bring along some friends: Bruce, Patti, and Southside Johnny. Bruce joins Bon Jovi for six songs.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1999-12-04.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1999-12-04.png.webp)
 
 **2001:** Bruce, The Max Weinberg 7 and a host of friends play their second of five holiday shows at Asbury Park's Convention Hall in support of local charities. All of last night's guests are present, plus The Miami Horns, who kick things off with "Deck the Halls," followed by "[Wild Billy's Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)" played by just Bruce and Garry (on tuba).<br>
 
@@ -34,7 +34,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/fMgCtazQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2002-12-04.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2002-12-04.png.webp)
 
 **2007:** The Magic Tour heads north to Scandinavia, starting with a show at the Oslo Spektrum.<br>
 
@@ -54,13 +54,13 @@
 
 [Watch on Youtube: Jungleland - Bruce Springsteen & E-Street Band - Anaheim, CA - 12/4/12](https://www.youtube.com/watch?v=NL4Sh6T0y1g)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2012-12-04a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2012-12-04a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2012-12-04b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2012-12-04b.png.webp)
 
 **2015:** Just in time for the holidays, Bruce releases *The Ties That Bind: The River Collection*, featuring a remastered version of his classic album, and bonus discs of outtakes and a never-before-released live concert video. Also on this date: Bruce announces a new tour to support the boxed set, kicking off in January.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/12/The-River-box-package-shot-2-700x467.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/The-River-box-package-shot-2-700x467.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

@@ -4,7 +4,7 @@ Springsteen scholars have spent decades documenting song fragments and recording
 
 For example: "The Informer," known to us only because its title appeared along with a snippet of lyrics in the documentary included with *The Ties That Bind: The River Collection* in 2015. Here's a screen cap:
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/04/Theinformer.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/Theinformer.jpg.webp)
 
 Are there more lyrics than these? Did Bruce ever record the song? Did it morph into something else? (The lyrics we can read hint at some shared DNA with "[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/).")
 

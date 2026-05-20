@@ -2,11 +2,11 @@
 
 **1963:** Thirteen-year-old Bruce Springsteen helps his little league team, the Braves, secure their spot in the Babe Ruth League playoffs.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1963-08-01.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1963-08-01.png.webp)
 
 **1973:** Bruce and the as yet unnamed E Street Band play two shows on their second of three nights at My Father's Place in Roslyn, New York.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1973-0801.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1973-0801.jpg.webp)
 
 **1974:** Bruce records an early version of "Jungleland" at 914 Sound Studios in Blauvelt, New York.<br>
 
@@ -14,9 +14,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/eMvYyWzB)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/08/Richmond_Times_Dispatch_1975_08_02_6-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Richmond_Times_Dispatch_1975_08_02_6-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1975-0801.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0801.jpg.webp)
 
 **1976:** A big night in Red Bank: unable to record due to Mike Appel's legal injunction, Bruce prepares for what will come to be known as "The Lawsuit Tour" with a week of shows (six days out of seven) at the Monmouth Arts Center. This show features the debut of The Miami Horns, borrowed for this tour from Southside Johnny. Because Bruce is unable to go into the studio, he works out new material on-stage as the tour progresses, starting with this show: "[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)" is played for the very first time, as is an early work-in-progress version of "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)." Bruce also covers "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)" for the first time, as well as a one-time-only "[She's Sure the Girl I Love](https://estreetshuffle.com/index.php/2020/08/27/cover-me-shes-sure-the-girl-i-love/)." Whew!<br>
 
@@ -28,27 +28,27 @@
 
 [Watch on Youtube: Bruce Springsteen Red Bank Concert - 8/1/76](https://www.youtube.com/watch?v=SH_QLtXMFy0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1976-08-01a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1976-08-01a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1976-08-01b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1976-08-01b.png.webp)
 
 **1977:** Bruce and the E Street Band work on "Racing in the Street" at Atlantic Studios in New York City.<br>
 
 **1978:** The Darkness Tour continues its southern leg with a show at Gaillard Municipal Auditorium in Charleston, South Carolina, where Bruce plays "[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)" for the first time on the tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1978-0801.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0801.jpg.webp)
 
 **1982:** Bruce makes a guest appearance with Cats on a Smooth Surface for six songs (including "[Come On Over to My Place](https://estreetshuffle.com/index.php/2018/04/12/matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/)," "[Come On, Let's Go,](https://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)" and "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)") at The Stone Pony in Asbury Park.<br>
 
 **1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former location of Big Man's West in Red Bank.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-08-01a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-01a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1985-08-01b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-01b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-08-01c.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-01c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1985-08-01d.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-01d.png.webp)
 
 **1996:** [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)is certified gold by the Recording Industry Association of America.<br>
 
@@ -74,9 +74,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/a0fJ1kW8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2003-08-01a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2003-08-01a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2003-08-01b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2003-08-01b.png.webp)
 
 **2005:** The remarkable run of tour debuts on the Devils and Dust Tour continues at this show at U.S. Bank Arena in Cincinnati. Bruce opens the show with "[Two For the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/)" (its first airing ever), and follows it later in the show with "[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)" and "[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)." Also getting rare outings: "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" and "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)," making for a wonderful set list.<br>
 
@@ -86,7 +86,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/KnsFTin1)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/2005-08-01.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2005-08-01.png.webp)
 
 **2009:** Bruce tour premieres "[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)" at the penultimate show of the European Working on a Dream Tour in Valladolid, Spain.<br>
 
@@ -100,4 +100,4 @@
 
 [Watch on Youtube: Timepiece & Bruce Springsteen - Brown Eyed Girl](https://www.youtube.com/watch?v=_F9getFn-to)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/08/The_Courier_News_2015_08_07_Page_E4-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/The_Courier_News_2015_08_07_Page_E4-scaled.jpg.webp)

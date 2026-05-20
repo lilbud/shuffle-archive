@@ -4,27 +4,27 @@
 
 **1974:** Bruce postpones a scheduled show at Camden County College to exactly a month later.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1974-1021.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1974-1021.jpg.webp)
 
 **1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at the Oakland Coliseum, with his parents in attendance.<br>
 
 [Watch on Youtube: October 21st, 1984 - Oakland, CA](https://www.youtube.com/playlist?list=PLsxNBNx2akeX6UL9GTRQMANd8cU9njFV4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1984-1021.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1984-1021.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1984-10-21a-1.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-21a-1.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1984-10-21b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-21b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1984-10-21c.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-21c.png.webp)
 
 **1992:** Bruce and his new touring band play their first of two nights at Mountain View's Shoreline Amphitheater.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gPmGIaLQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1992-10-21a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1992-10-21a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1992-10-21b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1992-10-21b.png.webp)
 
 **1994:** Bruce joins John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy on stage at The Playpen in Sayreville, New Jersey.<br>
 
@@ -46,19 +46,19 @@
 
 [Watch on Youtube: Bruce Springsteen & Nils Lofgren, "No Surrender" Tempe, 1996-10-21](https://www.youtube.com/watch?v=ZW2CbgB4iJQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1996-10-21.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-10-21.png.webp)
 
 **1999:** Bruce and the reunited E Street Band play their third of four nights at the brand-new Staples Center in Los Angeles.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Racing in the Street" - Los Angeles, 1999-10-21](https://www.youtube.com/watch?v=Le_A6tRUqRo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-10-21.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-21.png.webp)
 
 **2000:** Bruce, Patti, Max, and Jon Bon Jovi perform a cover set at a charity benefit/auction for Special People United to Ride of Monmouth County (a non-profit that supports horseback riding for disabled children) at Hedgerow Farm in Middleton, New Jersey. Bruce auctions off a guitar and a one-hour lesson, personally raising $80,000 for the event.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2000-10-21a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2000-10-21a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2000-10-21b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2000-10-21b.png.webp)
 
 **2005:** Bruce plays a solo acoustic show at the Dunkin' Donuts Center in Providence, where he plays "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" on acoustic guitar for the first time on the tour.<br>
 
@@ -76,9 +76,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/AnsrBEUd)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2007-10-21a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-21a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2007-10-21b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-21b.png.webp)
 
 **2012:** Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Ontario, where Bruce tour premieres "[Terry's Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)" in tribute to an 11-year-old girl who recently passed away.<br>
 
@@ -90,9 +90,9 @@
 
 [Watch on Youtube: Bruce Springsteen-I'M GOING DOWN (intro)-Wrecking Ball Tour-Hamilton,Canada. October 21, 2012](https://www.youtube.com/watch?v=IVaYh_xX-4o)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/10/The_Hamilton_Spectator_2012_10_25_1-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/10/The_Hamilton_Spectator_2012_10_25_1-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/10/The_Hamilton_Spectator_2012_10_25_2.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/10/The_Hamilton_Spectator_2012_10_25_2.jpg.webp)
 
 **2017:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

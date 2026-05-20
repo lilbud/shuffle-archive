@@ -1,4 +1,4 @@
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_.jpg.webp)
 
 **1964:** The Beatles make their second appearance on the Ed Sullivan show, and Bruce is watching.<br>
 
@@ -6,25 +6,25 @@
 
 **1973:** Bruce and the band play Monmouth College in West Long Branch, New Jersey. Tickets are only one dollar if you bring along a newspaper to recycle.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1973-02-16.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1973-02-16.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/02/1973-02-16.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1973-02-16.jpg.webp)
 
 **1975:** *The Philadelphia Inquirer* does its best to wake the world beyond Philly and Texas to Springsteen’s power and talent. It won’t take much longer.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_-1-scaled.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_-2-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_-1-scaled.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_-2-scaled.jpg.webp)
 
 **1977:** Bruce and the E Street Band play a gig at Veterans Memorial Auditorium in Columbus.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/02/1977-0216.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1977-0216.jpg.webp)
 
 **1981**: Bruce and the boys play their second of two nights at the Lakeland Civic Center on the River Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/dNaN6mOU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1981-02-16.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-16.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/1981-02-16.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1981-02-16.jpg.webp)
 
 **1983:** At The Hit Factory in New York City, Bruce records “Refrigerator Blues,” which to this date does not circulate.<br>
 
@@ -32,7 +32,7 @@
 
 **1991:** Bruce joins Bruce Willis, Stephen Stills, and John McEnroe(!) on “[C.C. Rider](https://estreetshuffle.com/index.php/2021/08/29/cover-me-c-c-rider/)” at the Tent on the Beach in Malibu.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1991-02-16.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1991-02-16.png.webp)
 
 **1997:** Bruce plays his second of three solo acoustic shows in Melbourne, Australia.<br>
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - "Rosalita" - Sunrise, FL - 2/16/16](https://www.youtube.com/watch?v=VZrQUcijXDw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2016-02-16.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2016-02-16.png.webp)
 
 **2017:** Night Two in Brisbane features the Australian premiere of “[Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/),” rare outings for “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/),” “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/),” and “Follow that Dream,” and a guest audience member for “[Growin’ Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” Also tour premiering tonight: “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” and “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/).”<br>
 

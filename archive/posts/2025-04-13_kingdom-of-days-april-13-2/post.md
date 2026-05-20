@@ -2,15 +2,15 @@
 
 **1951:** E Street Band drummer and late night telly-vision personality Max Weinberg is born in Newark, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/max-weinberg.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/max-weinberg.jpg.webp)
 
 **1969:** Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1969-0413.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1969-0413.jpg.webp)
 
 **1973:** Bruce cancels a scheduled show at Villanova University at the last minute, no doubt disappointing the local boys scheduled to open for him: Daryl Hall and John Oates.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1973-04-13.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1973-04-13.jpg.webp)
 
 **1974:** Bruce and his band open for Buzzy Linhart at The Joint in the Woods in Parsippany, New Jersey.<br>
 
@@ -20,25 +20,25 @@
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-13 Rec Hall, Penn State University, University Park, PA](https://www.youtube.com/watch?v=gneYR-8u7Vk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Centre_Daily_Times_Wed__Apr_14__1976_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Centre_Daily_Times_Wed__Apr_14__1976_-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1976-0413.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1976-0413.jpg.webp)
 
 **1979:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park. (Photo credit: Billy Smith)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1979-0413.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1979-0413.jpg.webp)
 
 **1984:** At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The Red Bank Rockers midway through their encore of "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" and stays for "Rockin' All Over the World." Listen to the moment the crowd realizes who's there.<br>
 
 [Watch on Youtube: Clarence Clemons and Bruce Springsteen - Philadelphia - 1984-04-13](https://www.youtube.com/watch?v=XlPAOjsEc9c)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1984-04-13.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1984-04-13.jpg.webp)
 
 **1985:** The third of five nights at Tokyo's Yoyogi National Gymnasium, where Bruce plays "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" for the last time on the tour. Other than the two Christic shows in 1990, the song won't be heard again for more than a decade.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jH8MQOe7)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg.webp)
 
 Also today: *American Top 40* guest host Chuck Britton introduces Bruce's current hit "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" with a story about his fascination with Elvis Presley.
 
@@ -60,7 +60,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 [Watch Video Highlight](https://videopress.com/embed/2gsmRPKN)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1999-04-13.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1999-04-13.jpg.webp)
 
 **2002:** Bruce, Patti, Soozie, Southside Johnny, Bobby Bandiera, and Lisa Lowell play a benefit show for the Rumson Country Day School at The Stone Pony. The set is primarily cover tunes, with a few Bruce originals at the end.<br>
 
@@ -68,7 +68,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 [Watch Video Highlight](https://videopress.com/embed/aylHqzwW)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2003-04-13.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2003-04-13.jpg.webp)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 
@@ -80,7 +80,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 [https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3](https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2008-04-13.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-13.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to "[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)" and plays "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" in honor of Max's birthday in the encores. Tour premiering tonight: "[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)," "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)," and "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)."<br>
 
@@ -90,7 +90,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 [Watch on Youtube: Ramrod April 13th Springsteen Compilation Edit](https://www.youtube.com/watch?v=mUNQYwJRANQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/The_Buffalo_News_2012_04_14_2.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/The_Buffalo_News_2012_04_14_2.jpg.webp)
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

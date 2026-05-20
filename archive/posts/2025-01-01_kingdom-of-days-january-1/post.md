@@ -1,9 +1,9 @@
 **1976:** Bruce, Steve, Roy, and David Sancious drop by The Stone Pony, where they join Southside Johnny<br>
 and The Asbury Jukes on stage for several numbers.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/01/1976-0101.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/1976-0101.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/12/48769956123_ee290e600f_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/48769956123_ee290e600f_o.jpg.webp)
 
 **1979:** The last night of the Darkness Tour in Richfield is also the longest. The 31-song setlist is<br>
 highlighted by fond farewells (for a time, at least): "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" and "[Meeting Across

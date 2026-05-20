@@ -1,10 +1,10 @@
 **1971:** The Sundance Blues Band plays two gigs–first at the Student Prince from 9:30pm to 1:00am, and then at the Upstage from 2am to 5am.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1971-0703.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1971-0703.jpg.webp)
 
 **1978:** The Darkness Tour skips Fresno at the last minute, when Bruce's scheduled appearance at Warnors Theater is cancelled due to low ticket sales.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/07/medium-5.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/medium-5.jpg.webp)
 
 **1981:** Night Two of six at the Brendan Byrne Arena's opening stand in East Rutherford features the tour premiere of "Summertime Blues" and a guest appearance by Gary U.S. Bonds on "Jole Blon" and "This Little Girl."<br>
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ghqJVDaasKM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1985-0703.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1985-0703.jpg.webp)
 
 **1988:** At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on radio stations around the world. Bruce plays "Downbound Train" and "Quarter to Three" for the first time on the tour, and he announces his participation in the upcoming Amnesty International Human Rights Tour. Bruce performs "Chimes of Freedom" immediately after the announcement, and that performance will be officially released as the title track of an EP later in the year. The entire show is now available as part of the official archive series and is well worth many repeated listens.<br>
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s-QE-kSidvg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1988-07-03.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1988-07-03.jpg.webp)
 
 **1992:** World Tour 1992 arrives in Barcelona for the first of two nights at Plaza Monumental. Local news coverage below.<br>
 

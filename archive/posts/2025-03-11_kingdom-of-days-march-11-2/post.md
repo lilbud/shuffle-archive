@@ -4,11 +4,11 @@
 
 [Watch on Youtube: Farmer John (Don Harris and Terry Dewey cover)](https://www.youtube.com/watch?v=FCJHKUBH7OI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/03/Pittsburgh_Post_Gazette_1977_03_07_Page_13.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/Pittsburgh_Post_Gazette_1977_03_07_Page_13.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band have their final private rehearsal for their upcoming tour before an audience of 25-30 lucky fans at Convention Hall in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1999-03-11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1999-03-11.jpg.webp)
 
 **2002:** Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner and auction at the Roseland Ballroom in New York City.<br>
 
@@ -20,12 +20,12 @@
 
 [Watch on Youtube: Bruce Springsteen - BACKSTREETS 2003 - live](https://www.youtube.com/watch?v=JEjcg56mMMY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2003-03-11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2003-03-11.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2003-03-11b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2003-03-11b.jpg.webp)
 
 **2005:** Bruce rehearses for his solo tour at the Paramount Theater in Asbury Park.<br>
 
 **2009:** Bruce and the E Street Band rehearse for the Working on a Dream Tour at the Paramount Theater in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2009-03-11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2009-03-11.jpg.webp)

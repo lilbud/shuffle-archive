@@ -4,7 +4,7 @@ Editor's Note
 
 After three years working at a recording studio in New York called Aura Recording, I got an offer to work at A&M Records in Los Angeles. In 1981, my wife and I packed up and moved to California. There were a lot of long nights and weekends, but I was still surprised to see all four studios and three mixing rooms blocked out for Quincy Jones on January 28 and 29. I didn't know what the project was, but I was told I would be working on it and wouldn't be making any overtime. A few days later, I saw a news report about an all-star recording session at an unnamed studio in Hollywood with Quincy Jones. I thought about it, then said to my wife, "I think I'm working on that."
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/watw1.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/watw1.png.webp)
 
 Eventually, we found out what we were working on. A&M was chosen for a few reasons. Studio A was one of the larger rooms in town. The other rooms could be used as dressing rooms and break rooms for the singers. A&M also had a large sound stage on the lot which could be used as a party spot for the guests of the artist, none of whom would be allowed in the studios. Finally, the piece that really sealed the deal was that A&M had their own enclosed parking lot!
 
@@ -26,7 +26,7 @@ I have to admit, one of the highlights of the night was going to the men's room 
 
 Another highlight was getting Bob Dylan to sign my sweatshirt. Everyone got "[We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)" sweatshirts before the session. People were going around getting autographs. I got my nerve up, walked up to Dylan as he was talking to Willie Nelson and asked him to sign my sweatshirt. He wrote his name across the entire back of my shirt, then drew lines coming out of the autograph.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/dylan-shirt.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/dylan-shirt.jpg.webp)
 
 When he finished, I turned and thanked him. Being a huge Dylan fan, I needed to say something. I thought of people saying they like his early stuff, they like the electric stuff, they like the later stuff. I've been fan through all stages so I looked at him and said, "Uh, I…. I really like everything." Brilliant comment, wasn't it?
 
@@ -36,7 +36,7 @@ Finally, the chorus part wrapped up around 2:00 AM. We set the mics up in a semi
 
 After we got the solos done, it was time for the vamping during the chorus. It was probably around 4:00 when Bob Dylan started his. He seemed very uncomfortable. He couldn't get it. He and Stevie Wonder went over to the piano and worked on his part. They kept doing it over and over. Each time they did, Dylan sounded better. Finally, he did it one time and I thought to myself, "Wow! That's Bob Dylan!"
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/clyde.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/clyde.jpg.webp)
 
 > *(That's Clyde in between Willie Nelson and Bob Dylan)*<br>
 

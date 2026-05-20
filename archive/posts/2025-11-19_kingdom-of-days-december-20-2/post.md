@@ -2,7 +2,7 @@
 
 **1968:** Earth plays two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1968-12-20.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1968-12-20.png.webp)
 
 **1973:** Bruce and his unnamed band play the Bristol Motor Inn in Bristol, Rhode Island.<br>
 
@@ -12,9 +12,9 @@
 
 **1975:** Bruce continues his first ever tour of Canada with a show at the National Arts Center in Ottawa.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1975-12-20.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1975-12-20.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1975-12-20b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1975-12-20b.png.webp)
 
 **1978:** Bruce completes his west coast Darkness swing with a show at the Seattle Center Arena, where he and the E Street Band play “[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)” for the first time since the Born to Run Tour. Well after the show ends, after most fans have filed out of the arena and the house lights are on, Bruce returns to the stage to perform two more songs–“[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)” and “Twist and Shout.”<br>
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen Seattle 20/12/1978 Full Concert](https://www.youtube.com/watch?v=TmV-b1mlUxM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1978-12-20.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1978-12-20.png.webp)
 
 **1994:** Bruce joins Tim McLoone’s Holiday Express on stage at Tradewinds in Sea Bright, New Jersey.<br>
 
@@ -32,7 +32,7 @@
 
 **2005:** Bruce and Patti take in *Dirty Rotten Scoundrels* on Broadway and are invited backstage to meet the cast.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/12/Daily_News_2005_12_23_129-1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/Daily_News_2005_12_23_129-1.jpg.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

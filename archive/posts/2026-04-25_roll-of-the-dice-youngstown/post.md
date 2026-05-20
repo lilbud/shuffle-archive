@@ -64,7 +64,7 @@ Although we're accustomed to glossing over female names in Springsteen's songsâ€
 
 Bruce lifted Jenny directly from *Journey to Nowhere*, but she's not Marshall's wife, girlfriend or daughter. In fact, she's not even a person at all.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2016/01/Jenny.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2016/01/Jenny.jpg.webp)
 
 Jeanette was the name of the $3,000,000 (in 1918 dollars) blast furnace at the Youngstown Sheet and Tube Company. Named after Mary Jeannette Thomas, daughter of Briar Hill Steel's president, the furnace was 90 feet tall and weighed 500 tons. Before it was decommissioned in 1977, it produced more than eleven million tons of steel. It provided and sustained the livelihood of thousands of workers, until it didn't.
 
@@ -128,7 +128,7 @@ When he dies, he tells us, let him go to hell. It can't be any hotter then his p
 
 Bruce met Maharidge and Williamson for the first time at Neil and Pegi Young's Bridge School Benefit concert in October 1995, shortly before the release of *The Ghost of Tom Joad.* Springsteen invited the two men to the show and asked them to meet him backstage afterward. Greeting them with a giant hug, Bruce invited them into his dressing room, where Bruce gushed effusively about *Journey to Nowhere.*
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/05/Capture.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/05/Capture.png.webp)
 
 "He told us he wanted to do what he could to get the book back in print," Maharidge told the *Bee.* He told Bruce that if he were so inclined to write an introduction for the new edition, they could put his name on the cover. That might prompt more people to pick up the book. Bruce agreed right away; days later, Marharidge secured a publisher for a second edition.
 

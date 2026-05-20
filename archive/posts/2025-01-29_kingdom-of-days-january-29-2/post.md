@@ -1,12 +1,12 @@
 **1966:** The Castiles play the Matawan-Keyport Roller Drome in Matawan, New Jersey. Can you believe you could once see Bruce play for $1.25?<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1966-0129.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1966-0129.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/castiles.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/castiles.jpg.webp)
 
 **1971:** Bruce sits in with Steve Van Zandt and The Big Bad Bobby Williams Band (which included Garry Tallent, Dave Sancious, and Southside Johnny) at The Upstage in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/01/bobbywilliams.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/bobbywilliams.jpg.webp)
 
 **1972:** The Bruce Springsteen Band continues a three-night gig at The Captain's Garter in Neptune, New Jersey.<br>
 
@@ -18,15 +18,15 @@
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Muther's Music Emporium, Nashville, TN 01-29-1974](https://www.youtube.com/watch?v=pYqE2gyiUSE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1974-01-29.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1974-01-29.png.webp)
 
 **1981:** Bruce and the E Street Band play Iowa State University on The River Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/UVgOmD6M)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/The_Des_Moines_Register_1981_01_30_Page_7.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Des_Moines_Register_1981_01_30_Page_7.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1981-01-29a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1981-01-29a.jpg.webp)
 
 **1991:** Bruce records "[Goin' Cali](https://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/)" at A&M Studios in Los Angeles. It will be released seven years later on *Tracks*.<br>
 
@@ -38,13 +38,13 @@
 
 **1998:** At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit concert for slain police office Patrick King.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/Asbury_Park_Press_1998_01_30_Page_2.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Asbury_Park_Press_1998_01_30_Page_2.jpg.webp)
 
 **2009:** Bruce and the E Street Band hold a press conference (Bruce's first in over twenty years) and a dress rehearsal for their upcoming Super Bowl performance.<br>
 
 [Watch on Youtube: Bruce Springsteen taking Viagra](https://www.youtube.com/watch?v=b5-nERmAwo8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/Pittsburgh_Post_Gazette_2009_01_30_Page_48.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Pittsburgh_Post_Gazette_2009_01_30_Page_48.jpg.webp)
 
 **2011:** Bruce plays a benefit for his kids' school at The Stone Pony in Asbury Park, joined by Bobby Bandiera, Max Weinberg, and Southside Johnny.<br>
 
@@ -54,7 +54,7 @@
 
 **2014:** The final night in Cape Town brings *sixteen* tour premieres, including the first-ever performance of "[This Is Your Sword.](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)" Mos Def guest-stars in the encore for "Sun City."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/20140129-CapeTown-Centermic-After.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/20140129-CapeTown-Centermic-After.jpg.webp)
 
 [Watch on Youtube: Bruce Springsteen - 2014-01-29 - Cape Town Bellville Velodrome - Sun City](https://www.youtube.com/watch?v=3JlUbRAxNCY)
 

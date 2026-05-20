@@ -2,13 +2,13 @@
 
 **1974:** Bruce and the band play their second of two nights at Armadillo World Headquarters in Austin.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/47802963802_7161fc584d_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/47802963802_7161fc584d_o.jpg.webp)
 
 **1988:** The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nights at the Rosemont Horizon.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/N9EzSYt4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-03-16.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-03-16.jpg.webp)
 
 **1996:** Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.<br>
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Bruce Springsteen ~ Xcel Center ~ St Paul 3-16-08 ~ Magic](https://www.youtube.com/watch?v=nNvJ_sZfNwQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/2008-03-16.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2008-03-16.jpg.webp)
 
 **2013:** Night Two in Brisbane opens with the live debut of “High Hopes.”<br>
 
@@ -52,4 +52,4 @@
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=gn8tNdOaWQY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg.webp)

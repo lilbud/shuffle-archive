@@ -6,13 +6,13 @@ As promised, the *Roll of the Dice, Cover Me, and Meeting Across the River* seri
 
 Last Sunday, I visited the *Bruce Springsteen Live!* exhibit at the Grammy Museum Experience in Newark. Curated, designed and presented by the Bruce Springsteen Archives and Center for American Music, the exhibit is a delight for any true Springsteen fan. Display cases are filled with artifacts familiar and new...
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/IMG_1783-rotated.jpeg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/IMG_1783-rotated.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/IMG_1784.jpeg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/IMG_1784.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/IMG_1785.jpeg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/IMG_1785.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/IMG_1786.jpeg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/IMG_1786.jpeg.webp)
 
 ...and the interactive stations are a treat, too. Visitors learn how Bruce constructs his encore sets and get to try their hand it at themselves. And in a series of brand new interviews, Bruce and the E Streeters discuss how they prepare for touring and reminisce about iconic shows. (I was particularly gratified to learn that Bruce shares my concern that his shows start right around what has become bedtime these past few years. I guess if he can train himself to stay up late when he hits the road, I can too.)
 
@@ -34,13 +34,13 @@ A few days later, I was in New York City for the annual Robin Hood benefit gala,
 
 The next day, on my way back from New York, I stopped by Monmouth University to visit the [Springsteen Archives](https://springsteenarchives.org/), located in an unimposing small house on campus. The house may be cozy, but each of its rooms are filled to the brim with artifacts, clippings, and other items of historic significance–over 35,000 holdings in all, with more arriving on a regular basis.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/IMG_1852.jpeg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/IMG_1852.jpeg.webp)
 
 The Archives aren't open for drop-ins, but you can make an appointment to visit. There's no entrance fee, but keep in mind that this is a working archival facility, not a museum. If you don't know what you're looking for, you're likely to be overwhelmed.
 
 The coolest thing I saw during my visit? This iconic hat. If you recognize it, you can imagine my reaction.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/IMG_1844.jpeg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/IMG_1844.jpeg.webp)
 
 I'm already planning to spend a couple more days in the Archives newspaper and periodicals room in the near future to help flesh out next year's Kingdom of Day's posts. If you're interested in checking it out too, read this [FAQ page](https://springsteenarchives.org/faq/) for instructions and expectations. My deep thanks to Eileen Chapman and Tim Cabrey for a wonderful introductory visit.
 

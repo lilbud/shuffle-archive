@@ -9,11 +9,11 @@ It also marks:
 
 Whether you've been with me from the beginning or just discovered this site for the first time today, I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/01/thank_you_PNG132.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/thank_you_PNG132.png.webp)
 
 I am deeply humbled by the ever-growing number of daily visitors to the Shuffle, which doubled this year from the previous one (which itself was twice the year prior). At this rate, my little blog will reach its one millionth view before the end of the month, which is something I can't even wrap my head around at the moment.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/blog-traffic.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/blog-traffic.png.webp)
 
 (And that doesn't even account for those of you who subscribe and are reading this in your inbox right now instead of your browser–you account for over a million e-mails this past year alone!)
 

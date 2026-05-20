@@ -12,7 +12,7 @@ Let's take a listen.
 
 When Bruce wrote "Over the Rise" he was a second-time newlywed, determined to not screw it up this time. His lyrics read more like a post-mortem for his first marriage than an omen for his second, because this is one very, very dark song.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/overtherise_lyrics-sheet.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/overtherise_lyrics-sheet.jpg.webp)
 
 Almost immediately, we meet a gypsy. Is this the same gypsy from "Brilliant Disguise?" Very possibly–we may even be hearing from the same narrator.
 

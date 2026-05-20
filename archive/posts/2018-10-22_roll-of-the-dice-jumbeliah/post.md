@@ -52,7 +52,7 @@ But before I do, there's one other lyrical coincidence I can't let slide:
 
 What do you know… it looks like Bruce had his eighties look in mind long before *Born in the U.S.A.*
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/bandana.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/bandana.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/aurpq2vn)
 

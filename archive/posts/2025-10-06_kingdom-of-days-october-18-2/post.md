@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the E Street Band play their fourth of five nights at Oliver's in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1973-1018.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1973-1018.jpg.webp)
 
 **1974:** Bruce is scheduled as the second opening act (after Dan Fogelberg) for John Sebastian's show at the Capitol Theater in Passaic, but after watching the band soundcheck, Sebastian wisely decides to let Bruce close the show instead. Bruce's set includes his first known cover of "[Spanish Harlem](https://estreetshuffle.com/index.php/2018/01/23/cover-me-spanish-harlem/)."<br>
 
@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Passaic, NJ 1974-10-18 (Joe Kivak Master)](https://www.youtube.com/watch?v=NTrlv0Xqyok)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/28355336098_52fd57c2ae_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/28355336098_52fd57c2ae_o.jpg.webp)
 
 **1975:** Bruce and the E Street Band play two shows at the Roxy Theater in West Hollywood. During the first show, "Thunder Road" is recorded by Springsteen's crew; it will surface over a decade later on *Live 1975-85*. This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,20734/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-10-18-1975-The-Roxy-West-Hollywood-CA.html).<br>
 
@@ -38,9 +38,9 @@
 
 [KNBQ - 1984 Springsteen Hotel Room Tape by jaydio](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F285456971&show_artwork=true&maxheight=1000&maxwidth=758)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1984-10-18.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-18.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1984-10-18b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1984-10-18b.png.webp)
 
 **1989:** Bruce decides its time for him to go it alone for a while. He calls up the members of the E Street Band, one by one, and breaks the news. In retrospect, it will seem like just a blip in a long, fraternal career, but at the time, and certainly at the beginning, it feels like forever.<br>
 
@@ -50,7 +50,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/Fa3wCkKQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1992-10-18.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1992-10-18.png.webp)
 
 That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his comedy show.
 
@@ -64,17 +64,17 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 [Watch Video Highlight](https://videopress.com/embed/WoQylHbz)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1995-10-18.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1995-10-18.png.webp)
 
 **1999:** Bruce and the reunited E Street Band play their second of two shows at the new Staples Center in Los Angeles.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Qp7woJbp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-10-18a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-10-18b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-18b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-10-18c.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-18c.png.webp)
 
 **2001:** Bruce joins a stellar line-up of talent (including Joan Jett, Joe Ely, Bon Jovi, Phoebe Snow, Max Weinberg, Patti Scialfa, Michelle Moore, and musical director Garry Tallent) for the first of two Alliance of Neighbors benefit concerts for the victims of the recent 9/11 attacks. The set features Bruce's first-ever performance of "[Tiger Rose](https://estreetshuffle.com/index.php/2019/01/26/rotd-matr-cm-tiger-rose/)," performed with Sonny Burgess and the Sun Rhythm Section.<br>
 
@@ -84,9 +84,9 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 [Watch on Youtube: Joan Jett & Bruce Springsteen Light Of Day live](https://www.youtube.com/watch?v=eClEbgyyn5M)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/2001-10-18a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2001-10-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/2001-10-18b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2001-10-18b.png.webp)
 
 **2002:** The Rising Tour moves on to Bologna, where Bruce and the band tour premiere a "[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)" one-off in the encores. My favorite highlight, however, is the final "Thunder Road." The Italian crowd won't let go of the coda, and Bruce eventually returns to the stage to accompany them on piano to bring the show to a close.<br>
 

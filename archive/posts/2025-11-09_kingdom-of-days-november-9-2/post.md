@@ -2,13 +2,13 @@
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the fourth of a five-night/ten-show stand.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/1973-1109.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1973-1109.jpg.webp)
 
-**1974:** Continuing a week of Texas shows, Bruce and the E Street Band play a show at Houston's Music Hall.![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/1974-1109.gif)<br>
+**1974:** Continuing a week of Texas shows, Bruce and the E Street Band play a show at Houston's Music Hall.![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1974-1109.gif)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/11/Corpus_Christi_Caller_Times_1974_11_07_70-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Corpus_Christi_Caller_Times_1974_11_07_70-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/1974-11-09.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1974-11-09.jpg.webp)
 
 **1975:** A scheduled show at Jai Alai Fronton in Tampa is rescheduled for the following day.<br>
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Bruce Springsteen - WALTZ ACROSS TEXAS 1980 (audio)](https://www.youtube.com/watch?v=ztmhczTvKDQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/47458526171_9a81e03089_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47458526171_9a81e03089_o.jpg.webp)
 
 **1985:** On *American Top 40*, host Casey Kasem introduces "[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)" with the story of how Bruce joined The Castiles.<br>
 
@@ -34,15 +34,15 @@
 
 [Watch on Youtube: Bruce Springsteen - "Light of Day" - Milwaukee, 1999-11-09](https://www.youtube.com/watch?v=WkqV0zVzpCo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-11-09a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-11-09a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-11-09b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-11-09b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/46550113892_3443ccaf9d_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46550113892_3443ccaf9d_o.jpg.webp)
 
 **2002:** A scheduled Rising Tour show in Columbus is postponed to December due to Clarence's detached retina.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2002-11-09.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2002-11-09.png.webp)
 
 **2005:** After the return of "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" after almost a quarter-century the night before, how can Philly Night Two match Night One? With "[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)," played for the first time in 32 years, and "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)" for the first time (other than holiday shows) in 31 years. Oh, and the tour premiere of "[Used Cars](https://estreetshuffle.com/index.php/2019/06/13/roll-of-the-dice-used-cars/)" and a rare "[Independence Day.](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" A pretty amazing two-night stand from the Devils & Dust Tour.<br>
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Birmingham 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=kdFhvzqPoRk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/11/The_Daily_Telegraph_Sat__Nov_11__2006_.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Daily_Telegraph_Sat__Nov_11__2006_.jpg.webp)
 
 **2007:** Bruce supports the Joe Torre Safe at Home benefit at Pier 60 in New York City, playing an eight-song set, including a new song for the occasion, "[Yankees Win](https://estreetshuffle.com/index.php/2019/06/23/roll-of-the-dice-yankees-win/)." Bruce's performance of "Glory Days" (together with Patti Scialfa and Bernie Williams) will eventually be released on Bernie William's *Moving Forward* album two years later.<br>
 
@@ -80,15 +80,15 @@
 
 [Watch on Youtube: Bruce Springsteen - Stand Up for Heroes - "Land of Hope and Dreams" - Beacon Theatre - 11-9-11](https://www.youtube.com/watch?v=oRyqrvuKzj8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2011-11-09.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2011-11-09.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/38330078051_edb8713025_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/38330078051_edb8713025_o.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: motivational speaker Tony Robbins.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/tony-robbins.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/tony-robbins.jpg.webp)
 
 **2022:** Bruce joins Questlove on his *Questlove Supreme* podcast to promote his new album, *Only the Strong Survive.*<br>
 

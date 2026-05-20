@@ -2,17 +2,17 @@
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg.webp)
 
 **1974:** Bruce and his band headline at Burlington County College in Pemberton, New Jersey.<br>
 
 **1976:** Kid Leo interviews Bruce on Cleveland's WMMS-FM radio.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/46906470044_f5c1c852ed_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/46906470044_f5c1c852ed_o.jpg.webp)
 
 **1985:** After finishing his first Australian tour the night before, Bruce takes a day off in Sydney to relax on a yacht with actress/model Joanna Forbes and her boyfriend.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/The_Sydney_Morning_Herald_Mon__Apr_8__1985_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Sydney_Morning_Herald_Mon__Apr_8__1985_-scaled.jpg.webp)
 
 **1990:** Bruce records "[Trouble River](https://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)" at Soundworks West in Los Angeles. It will remain in the vault for almost a decade.<br>
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1999-04-06-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1999-04-06-scaled.jpg.webp)
 
 **2006:** Bruce rehearses with the Sessions Band at Asbury Park's Paramount Theater, preparing for their upcoming tour. Meanwhile, Bruce is inducted into the Freehold High School Hall of Fame in absentia. Bruce's mom accepts the award on his behalf and reads a note from Bruce:<br>
 
@@ -48,6 +48,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring ["Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)." In attendance tonight: actress Gina Gershon.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/03/20180406_GinaGershon_01.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/20180406_GinaGershon_01.jpg.webp)
 
 **2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)."<br>

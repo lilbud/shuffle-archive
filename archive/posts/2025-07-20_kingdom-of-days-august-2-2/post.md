@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the E Street Band (although they aren’t known by that name yet) play two shows on their final night of a three-night stand at My Father’s Place in Roslyn, New York.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/07/1973-0802.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/1973-0802.jpg.webp)
 
 **1975:** Bruce and the boys play a show at Chrysler Hall in Norfolk. Listen to a gorgeous cover of “[Up on the Roof](https://estreetshuffle.com/index.php/2018/12/15/cover-me-up-on-the-roof/)” from this show, only ever played during this two-week stretch of the Born to Run Tour.<br>
 
@@ -12,33 +12,33 @@
 
 [Watch Video Highlight](https://videopress.com/embed/2Tw8kvl4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1976-08-02.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1976-08-02.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1976-0802-e1532210421224.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1976-0802-e1532210421224.jpg.webp)
 
 **1977:** Bruce and the E Street Band work on “Racing in the Street” at Atlantic Studios in New York City.<br>
 
 **1978:** Bruce opens his Darkness show in Charlotte with the tour premiere of “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1978-0802.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0802.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1978-08-03a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1978-08-03a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1978-08-02b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1978-08-02b.png.webp)
 
 **1983:** Bruce joins Jackson Browne on stage at Jackson’s Madison Square Garden gig, where they play “[Stay,](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)” “[Running on Empty,](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)” and “[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)” together. Jackson dedicates “For a Rocker” and “Lawyers in Love” to Bruce as well. (Photo credit: Dari)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yuChnbxK)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1983-08-02.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1983-08-02.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1983-0802.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1983-0802.jpg.webp)
 
 **1987:** Bruce and the E Street Band (minus Nils) play a rare bar set at The Stone Pony with members of Cats on a Smooth Surface. Bruce and the band open with only the second-ever performance of “[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/).”<br>
 
 [Watch on Youtube: Stone Pony (8/2/1987)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1BmZaAMHtsFXD8V2iKu4ZNp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1987-08-02.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1987-08-02.png.webp)
 
 **1988:** Bruce and the E Street Band play their penultimate Tunnel of Love show when the tour arrives in Madrid. Watch local news coverage below.<br>
 
@@ -66,7 +66,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/kOXzMnNN)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1999-08-02.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-08-02.png.webp)
 
 **2002:** Bruce and the E Street Band play a third rehearsal show at Asbury Park’s Convention Hall, featuring the first “[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” in over twenty years. That night, *The Late Show With David Letterman* airs an interview with Bruce and a full-band performance of “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” (recorded the day prior).<br>
 
@@ -76,7 +76,7 @@
 
 [Watch on Youtube: Bruce Springsteen Convention Hall Asbury Park 02/08/2002 Full Concert](https://www.youtube.com/watch?v=SmFobkkukLc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2002-08-02.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2002-08-02.png.webp)
 
 **2003:** Bruce and the E Street Band play their second of two nights at Gillette Stadium in Foxboro.<br>
 
@@ -92,7 +92,7 @@
 
 [Watch on Youtube: Foxborough 02/08/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zB2BnAQQ6qKH0PzoGGavgjU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2008-08-02.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-02.png.webp)
 
 **2009:** The European leg of the Working on a Dream Tour comes to an end with this last show in Santiago de Compostela, Spain. Highlights include back-to-back tour premieres of “[Burning Love](https://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)” and “[Born to Be Wild](https://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)” and an ultra-rare “This Life.”<br>
 

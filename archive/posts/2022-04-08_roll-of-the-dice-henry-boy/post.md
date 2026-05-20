@@ -2,7 +2,7 @@ Had "Henry Boy" made it onto *Greetings From Asbury Park, N.J.*, Rosie might nev
 
 In 1972, when Bruce Springsteen was furiously writing and recording candidates for his upcoming debut album, "Henry Boy" seemed like one of the more promising ones. Bruce certainly seemed to think so–he included the song in an early potential album sequence,
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/04/1972_handwrittensonglist2.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/04/1972_handwrittensonglist2.jpg.webp)
 
 He even recorded a demo for publishing purposes, to encourage other artists to record covers of it.
 

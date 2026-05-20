@@ -2,7 +2,7 @@
 
 **1965:** The Castiles play what is believed to be their first publicly advertised gig at the I.B. Club in Howell, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1965-1008.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1965-1008.jpg.webp)
 
 **1971:** The Bruce Springsteen Band headlines at The Ledge at Rutgers University.<br>
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1987-1008.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1987-1008.jpg.webp)
 
 That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in New York City, where they perform “[Native American](https://estreetshuffle.com/index.php/2019/10/25/matr-little-steven-and-bruce-springsteen-native-american/)” and “Sun City.”
 
@@ -30,13 +30,13 @@ That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in
 
 **1992:** A scheduled show at Mountain View’s Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1992-10-08.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1992-10-08.jpg.webp)
 
 **1998:** Bruce and Mike Appel testify in the Royal Courts of Justice in London to prevent the unauthorized publication of some of Bruce’s early recorded but unreleased songs.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1998-10-08a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1998-10-08a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1998-10-08b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1998-10-08b.jpg.webp)
 
 **2004:** The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on stage for “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” and Bruce guests with R.E.M. on “[Permanent Vacation](https://estreetshuffle.com/index.php/2018/04/20/meeting-across-the-river-rem-and-bruce-springsteen-permanent-vacation/).”<br>
 

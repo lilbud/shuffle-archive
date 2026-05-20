@@ -2,7 +2,7 @@
 
 **1967:** The Castiles play at a rally dance at West Freehold School.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1967-09-22.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1967-09-22.jpg.webp)
 
 **1973:** A scheduled gig in Miami opening for Richie Havens is cancelled to make room for mixing sessions for *The Wild, The Innocent & The E Street Shuffle* at 914 Sound Studio in Blauvelt, New York.<br>
 
@@ -44,11 +44,11 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 **1985:** A bad weather forecast prompts the postponement of a scheduled show at Denver’s Mile High Stadium. The evening ended up with clear skies, however, causing a bit of a backlash among fans and press.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1985-09-22a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-22a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/09/1985-09-22b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1985-09-22b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/09/1985-0922.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1985-0922.jpg.webp)
 
 **1989:** Bruce joins Jimmy Cliff on stage at The Stone Pony in Asbury Park, where the two play “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” in its original arrangement.<br>
 
@@ -64,7 +64,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 [Watch on Youtube: Long Lost Leap](https://www.youtube.com/watch?v=qfvu_H2Egf8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1992-09-22.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-09-22.jpg.webp)
 
 **2002:** The Rising Tour resumes at the Pepsi Center in Denver after a three-week break, and from this point forward the setlists will have more variety and spontaneity. This show features the tour premieres of “[The Ties That Bind,](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/),” “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/),” and a rare “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/).”<br>
 
@@ -94,7 +94,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 [Watch on Youtube: Cynthia (Live at MetLife Stadium, E. Rutherford, NJ - 9/22/2012)](https://www.youtube.com/watch?v=OmCnCMdfsVw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/2012-09-22.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2012-09-22.jpg.webp)
 
 **2015:** Bruce makes a guest appearance with Jackson Browne and Teresa Williams on a show-closing “[Take It Easy](https://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/)” and “[Our Lady of the Well](https://estreetshuffle.com/index.php/2019/04/14/matr-jackson-browne-and-bruce-springsteen-our-lady-of-the-well/)” at the Count Basie Theater in Red Bank.<br>
 
@@ -114,4 +114,4 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 **2017:** Bruce holds a second private rehearsal for *Springsteen on Broadway* at Monmouth University.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/2017-09-22-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2017-09-22-scaled.jpg.webp)

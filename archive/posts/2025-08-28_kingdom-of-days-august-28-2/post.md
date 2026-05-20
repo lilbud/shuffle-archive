@@ -2,21 +2,21 @@
 
 **1970:** Robbin Thompson makes his Steel Mill debut at the band's University of Richmond gig.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/1970-08-28.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1970-08-28.jpg.webp)
 
 **1978:** Bruce tour premieres "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" by request at his Darkness show in Pittsburgh. Elsewhere, Columbia Records produces new commercials to promote *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*, and *Rolling Stone* publishes their first of what will prove to be many cover features of Bruce.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/rs272.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/rs272.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/rs1b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/rs1b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/RS2B.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/RS2B.png.webp)
 
 [Watch on Youtube: Bruce Springsteen - Darkness on the Edge of Town TV commercials 1978-08-28](https://www.youtube.com/watch?v=2TlTowM3kkA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1978-08-28.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1978-08-28.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1978-0828.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1978-0828.jpg.webp)
 
 **1981:** At the final show of a six-night River Tour stand at the Los Angeles Sports Arena, Bruce and the E Street Band cover "Proud Mary" and "[Deportee (Plane Wreck at Los Gatos)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" for the first time, and Flo and Eddie make a guest appearance on "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" reprising their studio backing vocals.<br>
 
@@ -38,11 +38,11 @@
 
 [Watch on Youtube: Bruce Springsteen - News coverage, Philadelphia, 1992-08-28](https://www.youtube.com/watch?v=KXb1s92lNoY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1992-08-28a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-28a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1992-08-28b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-28b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1992-08-28c.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-28c.png.webp)
 
 **1997:** Bruce makes a guest appearance with Jimmy & the Gigolos at The Derby in Hollywood.<br>
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Radio Nowhere](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2007-08-28.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2007-08-28.png.webp)
 
 **2016:** Bruce's ten-show River Tour victory lap continues with a stop at the United Center in Chicago, where "New York City Serenade" and "[Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)" continue to get the string treatment (this time with local musicians), and "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)" gets a rare outing.<br>
 
@@ -68,9 +68,9 @@
 
 [Watch on Youtube: Bruce Springsteen, Waiting on a SunnyDay, 08/28/2016](https://www.youtube.com/watch?v=3cEW15zaeb4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2016-08-28a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2016-08-28a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2016-08-28b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2016-08-28b.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, with Sting in attendance.<br>
 
@@ -78,4 +78,4 @@
 
 **2023:** A scheduled show at Nationals Park in Washington, D.C. is postponed to late September. It will eventually be postponed again.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/08/2023-INT_Schedule_19_USA.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/2023-INT_Schedule_19_USA.jpg.webp)

@@ -2,7 +2,7 @@
 
 **1968:** Earth plays to their largest crowd yet at the Crystal Ballroom in New York City's Hotel Diplomat, but the show almost doesn't happen. One week out, not even 100 tickets had been sold for this fundraiser in an 1,800-seat ballroom, but the administration of Ocean County College contributed funds and transportation to help drive attendance and support their students who organized the event.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/12/1968-1228.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1968-1228.jpg.webp)
 
 **1973:** Bruce and the E Street Band play two shows on their second of four nights at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 1975-12-28 Tower Theater, Upper Darby, Philadelphia, PA](https://www.youtube.com/watch?v=Z9CHbbvogto)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/12/The_North_York_Mirror_1975_12_24_18-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_North_York_Mirror_1975_12_24_18-scaled.jpg.webp)
 
 **1978:** Bruce opens Night Two in Pittsburgh on the Darkness Tour with a world premiere: the as-yet-unreleased and still work-in-progress "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)."<br>
 
@@ -28,7 +28,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/roAY4OcD)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/12/1983-1228.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1983-1228.jpg.webp)
 
 **1998:** Bruce joins Mike Ness in the studio in Los Angeles, lending his vocals and guitar on "[Misery Loves Company](https://estreetshuffle.com/index.php/2020/01/22/matr-mike-ness-and-bruce-springsteen-misery-loves-company/)."<br>
 

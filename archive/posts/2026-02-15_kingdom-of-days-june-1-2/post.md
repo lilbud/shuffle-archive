@@ -1,18 +1,18 @@
 **1969:** Bruce performs in Virginia for the first time when Child plays a free outdoor concert at Monroe Park in Richmond. Noise complaints from local college students(!) force an early end to the show. The band drives back to New Jersey, where they headline that evening at Pandemonium in Wanamassa.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Richmond_Times_Dispatch_Mon__Jun_2__1969_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Richmond_Times_Dispatch_Mon__Jun_2__1969_-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1969-0601.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1969-0601.jpg.webp)
 
 **1973:** Bruce and the as yet unnamed E Street Band open for Chicago at the Hampton Roads Coliseum in Hampton, Virginia. Once again, Bruce and the boys outshine the headliners (as far as the press is concerned).<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/The_Virginia_Gazette_Fri__Jun_8__1973_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Virginia_Gazette_Fri__Jun_8__1973_-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1973-0601.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1973-0601.jpg.webp)
 
 **1974:** Bruce headlines a six-hour multi-act show at Kent State University.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1974-0601.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1974-0601.jpg.webp)
 
 **1977:** Finally free to record again after settling his legal dispute with Mike Appel, Bruce officially kicks off the recording sessions for *Darkness on the Edge of Town*. The sessions start with a bang, with at least ten tracks recorded on this first day, including the officially released version of "Something in the Night."<br>
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WJV0i_J1-hQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1977-06-01.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1977-06-01.jpg.webp)
 
 **1979:** Bruce and the E Street Band work on "Little White Lies" and "Mary Lou" at the Power Station in New York City.<br>
 
@@ -38,9 +38,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/P7I4JtrM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1984-06-01.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1984-06-01.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1984-06-01b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1984-06-01b.jpg.webp)
 
 **1985:** Bruce plays his first ever show in Ireland, kicking off the European leg of the Born in the U.S.A. Tour with a show at Slane Castle, before the largest crowd that Bruce has ever played to (over 90,000 people). This is also Bruce's return to the stage after getting married, and he marks the occasion with a one-time-only performance of "When I Grow Up (To Be a Man)" in the encores.<br>
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBjjejwxYCnsuOYNJVQL58J)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1985-06-01.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1985-06-01.jpg.webp)
 
 **1992:** With hiring complete, Bruce convenes the entire touring 1992-1993 band for the first time for a rehearsal at Hollywood Center Studios Soundstage.<br>
 
@@ -84,6 +84,6 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gh8HkDEKAHE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/2019-06-01.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2019-06-01.png.webp)
 
 **2024:** Bruce postpones his scheduled show at San Siro Stadium in Milan due to vocal challenges. As of this writing, the rescheduled show has not yet taken place.<br>

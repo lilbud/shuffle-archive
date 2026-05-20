@@ -86,7 +86,7 @@ But always, always, there's music.
 
 Most fans were introduced to "The E Street Shuffle," when they first placed Bruce's second album on their turntable, but Bruce had written the song several months earlier and had been performing work-in-progress versions since the spring of 1973.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/theestreetshuffle_early_lyrics.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/theestreetshuffle_early_lyrics.jpg.webp)
 
 The earliest live recording that broadly circulates is from Halloween night. By that time, *The Wild, The Innocent & The E Street Shuffle* was only days away from release, and the album's first track was regularly appearing in Bruce's set list, with roadie/saxophonist Albee Tellone reprising his studio part.
 

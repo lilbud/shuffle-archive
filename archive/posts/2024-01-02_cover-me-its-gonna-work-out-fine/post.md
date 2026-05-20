@@ -48,7 +48,7 @@ A decade later, Bruce would warm up to the idea of marriage, although it would t
 
 As for Bobby, he got married a few weeks after the release of *Greetings from Asbury Park, N.J.,* the album that could have changed his life had he accepted Bruce’s job offer, and had a son (the one Bruce saw him with in the pull-quote at the top of this article) shortly after the release of *Born to Run*. He became a fixture in the Jersey Shore music scene, performing with local bands as late as 1994. His final stint was with Vinnie Lopez’s Disco Rejects.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/discorejects.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/discorejects.png.webp)
 
 It would take Bobby another try to get marriage right, too. He married his second wife right around the time Bruce started to realize he might have found his, and he had a daughter a few years later.
 

@@ -1,4 +1,4 @@
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1981-02-01.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-01.png.webp)
 
 **1973:** Bruce and his band play their second of six nights (with two shows each night) at Max's Kansas City in New York, opening for Biff Rose.<br>
 
@@ -8,7 +8,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/dovVptok)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2009-02-01.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2009-02-01.png.webp)
 
 **1986:** "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)" tops the Billboard Adult Contemporary chart for one week. Bruce will never have another #1 hit on this chart.<br>
 
@@ -22,9 +22,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/RGrMy8uL)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/02/The_Journal_News_2023_02_05_C4.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Journal_News_2023_02_05_C4.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/02/The_Opelika_Auburn_News_2023_02_08_G4-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Opelika_Auburn_News_2023_02_08_G4-scaled.jpg.webp)
 
 **2014:** Bruce and the E Street Band finish their mini-South African tour at FNB Stadium in Johannesburg. Shortly after doors open, Bruce surprises the sparse crowd with a three-song acoustic pre-show. Two of the three songs ("[I'll Work for Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)" and "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)") are captured and posted on Bruce's official YouTube channel. Meanwhile, *High Hopes* becomes Bruce's 11th #1 album in the U.S., although it will only hold that spot for one week. "[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)," [Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)," "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)," and "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)" all make their tour premieres tonight.<br>
 
@@ -48,4 +48,4 @@
 
 [Watch on Youtube: Burnin' Train Bruce Springsteen & The E Street Band Amalie Arena Tampa, FL 2/1/2023](https://www.youtube.com/watch?v=L2BXucMeQww)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1981-0201.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1981-0201.jpg.webp)

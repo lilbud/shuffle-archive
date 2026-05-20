@@ -1,20 +1,20 @@
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1981-02-15a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-15a.png.webp)
 
 **1974:** After firing drummer Vini Lopez three days earlier, Bruce cancels a show at the University of Toledo so that the band has time to rehearse with new drummer Ernest "Boom" Carter.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/1974-02-15.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1974-02-15.jpg.webp)
 
 **1977:** Bruce and the E Street band return to the U.S. and continue the Lawsuit Tour at Detroit's Masonic Temple Theater, where "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" makes its tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen - DETROIT MEDLEY 1977 (audio)](https://www.youtube.com/watch?v=kiO9Y-V2z8Y)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/46881241794_6812cfd98f_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/46881241794_6812cfd98f_o.jpg.webp)
 
 **1981:** Bruce and band take the River Tour to the Civic Center in Lakeland, Florida.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/XYZd28NA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1981-02-15b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-15b.png.webp)
 
 **1983:** In the studio, Bruce records "[Seven Tears](https://estreetshuffle.com/index.php/2019/03/17/roll-of-the-dice-seven-tears/)" and "The Money We Didn't Make." The former circulates among collectors, the latter has not yet surfaced.<br>
 
@@ -24,13 +24,13 @@
 
 [Watch on Youtube: Bruce Springsteen - One Step Up (Official Video)](https://www.youtube.com/watch?v=MkFQHScyti0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1988-02-15.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1988-02-15.png.webp)
 
 **1995:** Bruce joins Melissa Etheridge for her MTV Unplugged performance in Brooklyn. They perform a gorgeous duet of "Thunder Road" together.<br>
 
 [Watch on Youtube: Bruce Springsteen and Melissa Etheridge - Thunder Road](https://www.youtube.com/watch?v=5cXzFhZVMnQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/02/1995-02-15.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/02/1995-02-15.jpg.webp)
 
 **1996:** Bruce plays his third solo acoustic show in Germany, this time in Munich.<br>
 
@@ -40,7 +40,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/qmr0Nwtj)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1997-02-15.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-15.png.webp)
 
 **2014:** The first of two nights in Melbourne features a surprise guest in the opening numbers: Eddie Vedder joins the E Street Band for "Highway to Hell" and "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)." Another surprise shortly follows: a full performance of the *Born in the U.S.A.* album. Also tour premiering tonight: "[Jole Blon,](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)" "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)," "[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)," and "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)."<br>
 

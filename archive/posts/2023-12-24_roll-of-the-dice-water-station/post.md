@@ -16,7 +16,7 @@ On Monday, September 11th, Bruce, Clarence, and Vini (along with pinch-hitter pi
 
 But that would happen on Monday. There was a local summer weekend to get through first.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/12/The_Daily_Register_Fri__Sep_1__1972_-1-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/The_Daily_Register_Fri__Sep_1__1972_-1-scaled.jpg.webp)
 
 On Saturday September 9th, the town of Highlands, New Jersey played host to the First Annual Highlands Music and Art Fair, a special end-of-summer outdoor concert, postponed from Labor Day weekend due to heavy rain.
 
@@ -30,7 +30,7 @@ With Bruce hopefully on his way to the big time, West turned his focus to his ot
 
 Based in nearby Matawan, Odin made several area headlining appearances during the summer of 1972, including a free concert in Long Branch that drew at least 1,500 people (according to West's contemporaneous estimation), making them a smart choice to headline Highlands' end-of-summer festival.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/12/Asbury_Park_Press_Thu__Jul_20__1972_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/Asbury_Park_Press_Thu__Jul_20__1972_-scaled.jpg.webp)
 
 Although Odin and Bruce had appeared on the same bill a few times, they had never shared a stage together. There was no reason to think the Highlands Music and Art Fair would be any different.
 
@@ -52,7 +52,7 @@ Unfortunately, after barely a minute, the power fails and the jam comes to a cra
 
 Fortunately, it only takes a minute to restore power, and the five minutes that follow feature a thrilling guitar duel between Springsteen and Cohen as they complete the song.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/12/Asbury_Park_Press_Sat__May_27__1972_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/Asbury_Park_Press_Sat__May_27__1972_-scaled.jpg.webp)
 
 Jam sessions often start with a cover or two–a familiar foundation gives the musicians a chance to find their footing and take each other's measure. After navigating their way through a pair of early rock classics (even with the unexpected power outage) Bruce and Odin had found their groove and confidence.
 
@@ -150,7 +150,7 @@ Amusingly, Bruce knows barely any of the words, so he substitutes with some song
 
 The band (and presumably some of the crowd), made their way to the bar after that, the First Annual Highlands Music and Art Fair now in the books. Although press coverage was, I suppose, positive (I think? The *Asbury Park Press* review was one of the strangest I've ever read), it doesn't appear that a second installment ever came to pass.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/12/Asbury_Park_Press_Sun__Sep_10__1972_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/Asbury_Park_Press_Sun__Sep_10__1972_-scaled.jpg.webp)
 
 On Monday, Bruce went to Blauvelt to lay down the final two tracks for his album with Vini and Clarence. By October 26, mixing and overdubs were complete, and *Greetings From Asbury Park, N.J.* was in the can.
 

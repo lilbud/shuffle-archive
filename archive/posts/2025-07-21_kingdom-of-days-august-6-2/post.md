@@ -2,9 +2,9 @@
 
 **1966:** The Castiles play a teen dance at the Harris Gardens Firehouse in Union Beach, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1966-0806.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1966-0806.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1966-08-06.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1966-08-06.png.webp)
 
 **1974:** Bruce records the final take of his signature song, "Born to Run."<br>
 
@@ -22,9 +22,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/xSF5lJF0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1982-08-06a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1982-08-06a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1982-08-06b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1982-08-06b.png.webp)
 
 **1984:** At Night Two of ten at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour, "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" makes its tour debut, and "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" is played in its third arrangement of the tour. This one will stick, and this specific performance (along with "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" from this show) will appear on the *Live 1975-85* box set. Additionally Bruce's performance of "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)" from this show will be released the following year on the *We Are the World* album, as well as on *The Essential Bruce Springsteen* in 2003. The entire show is available as part of Bruce's official archive series–get it here.<br>
 
@@ -54,7 +54,7 @@ Also on this day, Entertainment Tonight airs a segment on Bruce's new *Rolling S
 
 [Watch on Youtube: Bruce Springsteen - Entertainment Tonight, 1992-08-06](https://www.youtube.com/watch?v=Z_Yn_n6QRWI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/RS636.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/RS636.jpg.webp)
 
 **1995:** Bruce guest stars with Bobby Bandiera at Cheers in Long Branch, New Jersey.<br>
 
@@ -66,7 +66,7 @@ Also on this day, Entertainment Tonight airs a segment on Bruce's new *Rolling S
 
 [Watch Video Highlight](https://videopress.com/embed/kHydzsi1)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2003-08-06.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2003-08-06.png.webp)
 
 **2005:** At his solo acoustic show at the Fox Theater in St. Louis, Bruce plays "[County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)" for only the second (and final) time to date. Another surprise: the very first solo piano version of "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)."<br>
 
@@ -74,10 +74,10 @@ Also on this day, Entertainment Tonight airs a segment on Bruce's new *Rolling S
 
 [Watch on Youtube: Bruce Springsteen - Backstreets (Live 2005 solo piano)](https://www.youtube.com/watch?v=NLmxhx4Zo0o)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/2005-08-06.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2005-08-06.png.webp)
 
 **2015:** Bruce and the E Street Band make a special appearance on *The Daily Show* to give departing host Jon Stewart his final Moment of Zen.<br>
 
 [Bruce Springsteen & The ESB - The Daily Show August 6th, 2015.](https://player.vimeo.com/video/135677864?dnt=1&app_id=122963)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2015-08-06.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2015-08-06.png.webp)

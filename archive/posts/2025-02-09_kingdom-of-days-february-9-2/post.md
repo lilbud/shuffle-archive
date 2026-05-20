@@ -4,21 +4,21 @@
 
 **1973:** The *Asbury Park Press* reviews Bruce's debut album, [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1973-02-09.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1973-02-09.jpg.webp)
 
 **1974:** Bruce and his band play their last of three nights at Richards in Altanta, opening for NRBQ.<br>
 
 **1977:** Bruce and the E Street Band bring the "Lawsuit Tour" to Kleinhan's Music Hall in Buffalo.<br>
 
-> *![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1977-0209.jpg.webp)*<br>
+> *![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1977-0209.jpg.webp)*<br>
 
 **1981:** Hours before he is scheduled to perform, Bruce cancels his River Tour show in Indianapolis when he comes down with strep throat.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1981-02-09.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1981-02-09.jpg.webp)
 
 **1991:** Following a benefit concert for Sting's Rainforest Foundation, Sting invites Bruce, Joni Mitchell and other musician friends to a party at his house.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1991-0209.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1991-0209.jpg.webp)
 
 **2017:** Night Two in Sydney again features the Australian Urban Orchestra for "New York City Serenade" along with a River outtake pairing of "[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)" and "[Be True.](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" Also tour premiering tonight: "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)" and "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)."<br>
 

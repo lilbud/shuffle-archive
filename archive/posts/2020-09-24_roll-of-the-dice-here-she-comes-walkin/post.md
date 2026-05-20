@@ -4,7 +4,7 @@ We're so used to hearing it performed as a lead-in to "[I Wanna Mary You](https:
 
 In fact, not only is it a separate song, it actually pre-dates "I Wanna Marry You" by several years, appearing on at least two preliminary album sequences for what would become *Born to Run* as far back as the spring of 1974.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/note_album_btr-3-4.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/note_album_btr-3-4.jpg.webp)
 
 "Here She Comes Walkin'" certainly fits with Bruce's songwriting from that period; this is a bold, soaring, romantic doo-wop ode that wears its heart brazenly on its sleeve.
 

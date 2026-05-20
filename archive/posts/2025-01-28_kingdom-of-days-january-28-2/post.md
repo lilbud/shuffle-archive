@@ -1,6 +1,6 @@
 **1972:** The Bruce Springsteen Band plays The Captain's Garter in Neptune, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1972-0128.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1972-0128.jpg.webp)
 
 **1973:** Bruce and the band finish their five-night stint at The Quiet Knight in Chicago opening for the Persuasions.<br>
 
@@ -8,7 +8,7 @@
 
 [Watch on Youtube: St Louis 28/01/1981](https://www.youtube.com/playlist?list=PLJTyL9twk3zCCv4yFTmwQpQLJWfbGU-Y2)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1981-01-28.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1981-01-28.jpg.webp)
 
 **1985:** "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" wins the Best Single award at the American Music Awards ceremony in Los Angeles. He was also nominated (but did not win) for Favorite Pop/Rock Male Artist and Favorite Pop/Rock Male Video Artists. Later that night, Bruce records his vocals for "[We are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)" at A&M Studios in Hollywood. He finishes around 4am the next day. Guest blogger Clyde Kaplan was on the scene at the recording session; read his first-hand account [here.](https://estreetshuffle.com/index.php/2021/01/29/where-the-band-was-los-angeles-january-28-29-1985-clydes-story/)<br>
 
@@ -16,11 +16,11 @@
 
 [Watch on Youtube: The Greatest Night in Pop | Official Trailer | Netflix](https://www.youtube.com/watch?v=MD3oU1gowu4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1985-01-28.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1985-01-28.png.webp)
 
 Meanwhile in Freehold, New Jersey, controversy reigns at a town council meeting after a local college student requests that South Street be renamed as Bruce Springsteen Boulevard. The story will garner national attention over the coming weeks.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/12/roll-of-the-dice-valentines-day/)" which despite being rehearsed would not debut in concert for another 17 years.
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/12/roll-of-the-dice-valentines-day/)" which despite being rehearsed would not debut in concert for another 17 years.
 
 [Watch Video Highlight](https://videopress.com/embed/yc8XvjeY)
 
@@ -28,7 +28,7 @@ Meanwhile in Freehold, New Jersey, controversy reigns at a town council meeting 
 
 [Watch Video Highlight](https://videopress.com/embed/CUsgJdnd)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/The_Atlanta_Journal_1996_01_29_36.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Atlanta_Journal_1996_01_29_36.jpg.webp)
 
 **1998:** At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit concert for slain police office Patrick King.<br>
 

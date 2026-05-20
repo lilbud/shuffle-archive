@@ -2,11 +2,11 @@
 
 **1962:** Adele Springsteen takes Bruce and Ginny to their first-ever rock concert when Chubby Checker plays at Steel Pier in Atlantic City. She also takes them to see Anita Bryant that evening. Bruce enjoys the afternoon show a lot more than the evening show.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1962-0629.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1962-0629.jpg.webp)
 
 **1968:** The Castiles play a show at Hullabaloo in Freehold, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1968-06-29.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1968-06-29.jpg.webp)
 
 **1972:** Richard Davis records his upright bass overdubs for “The Angel” at 914 Sound Studios in New York City.<br>
 
@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/e0eKZI7h)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1978-0629.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1978-0629.jpg.webp)
 
 **1983:** Bruce and the E Street Band record “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” at The Hit Factory in New York City.<br>
 
@@ -42,11 +42,11 @@ In the setlist, a couple of notable moments: Bruce covers “[Street Fighting Ma
 
 [Watch on Youtube: Bruce Springsteen - No Surrender (Live 1984)](https://www.youtube.com/watch?v=_VQiGVKbLok)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-06-29a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-06-29a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-06-29b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-06-29b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-06-29.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-06-29.jpg.webp)
 
 **1985:** The Born in the U.S.A. Tour arrives in Paris for the first of two nights at Parc de la Courneuve. The show was captured in stunning (for the time) video and audio quality.<br>
 
@@ -58,7 +58,7 @@ In the setlist, a couple of notable moments: Bruce covers “[Street Fighting Ma
 
 [Watch on Youtube: Paris (6/29/1985)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CoG7ABoOG_ENRC4fVWaMDj)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/The_Herald_News_1985_07_01_10.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Herald_News_1985_07_01_10.jpg.webp)
 
 Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/),” Bruce’s latest single, climbs the charts and is profiled on *American Top 40*.
 
@@ -72,7 +72,7 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 **1989:** Bruce plays a 20-minute-long “Twist and Shout” with The Fabulous Greaseband at The Headliner in Neptune, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Asbury_Park_Press_1989_07_09_Page_135-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Asbury_Park_Press_1989_07_09_Page_135-scaled.jpg.webp)
 
 **1990:** Bruce records “[Seven Angels](https://estreetshuffle.com/index.php/2018/06/07/roll-of-the-dice-seven-angels/)” at Oceanway Studios in Los Angeles.<br>
 
@@ -82,11 +82,11 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 [Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/The_Jersey_Journal_1992_07_01_24-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Jersey_Journal_1992_07_01_24-scaled.jpg.webp)
 
 **1993:** Bruce and Patti publicly reveal that their third child is on the way.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1993-06-29.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1993-06-29.jpg.webp)
 
 **2000:** Bruce and the E Street Band play their penultimate Reunion show at Madison Square Garden, their ninth show of this final MSG stand. Several songs from this show are recorded, filmed, and eventually released on *Live in New York City.*<br>
 
@@ -98,9 +98,9 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 **2004:** Bruce discovers a painting of himself by local high school student Michael Antrim, who submitted it for (and won) an art contest held by the Freehold Library two years prior. Bruce heads over to Michael’s house in Red Bank to sign it. Learning that Michael plays guitar, he spends time playing with him–about 90 minutes in total spent at the boy’s house.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/2004-0629.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/2004-0629.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Asbury_Park_Press_2004_05_16_Page_47-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Asbury_Park_Press_2004_05_16_Page_47-scaled.jpg.webp)
 
 **2008:** The Magic Tour heads north for a Scandinavian leg, starting with a show at Parken Stadium in Copenhagen.<br>
 
@@ -126,7 +126,7 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 **2021:** It’s Night Two for the return engagement of *Springsteen on Broadway,* and Bob Seger is in attendance.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/06/2021-06-29.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/2021-06-29.jpg.webp)
 
 **2024:** Bruce and the E Street Band tour debut “[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)” on Night Two in Nijmegen in The Netherlands. Stream or buy this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-goffertpark-nijmegen-netherlands-06-29-2024-mp3-flac-or-online-music-streaming/35855.html).<br>
 

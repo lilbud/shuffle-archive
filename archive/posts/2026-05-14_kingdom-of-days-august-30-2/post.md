@@ -6,7 +6,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NuJ-g62ekzc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1978-08-30.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1978-08-30.png.webp)
 
 Later that night–so late that it's technically the following day, August 31–Bruce makes a surprise appearance at The Agora in Cleveland. Even though they've already turned in a full show, Bruce, Steve, Clarence, Roy, and Garry join Southside Johnny and the Asbury Jukes on-stage for absolutely fantastic performances of "The Fever," "I Don't Want to Go Home," "Having a Party," and "Stagger Lee." Must-watch pro-shot video below, featuring the definitive version of "The Fever" — it may never be topped.
 
@@ -18,19 +18,19 @@ Later that night–so late that it's technically the following day, August 31–
 
 **1985:** Bruce's scheduled return to Giants Stadium is postponed due to rain, meaning this show will unexpectedly become the closing night of a six-show stand.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-08-30.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-30.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/1985-08-30.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1985-08-30.jpg.webp)
 
 **1988:** Julianne Phillips files for divorce after newspaper tabloids published pictures of Bruce and Patti caught in intimate circumstances earlier in the summer.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1988-08-30.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1988-08-30.png.webp)
 
 **2002:** The Rising Tour moves on to the Savvis Center in St. Louis. The set list is slowly opening up as "Downbound Train" makes its tour premiere early in the show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/sA1EzJjX)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2002-08-30.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2002-08-30.png.webp)
 
 **2003:** An outstanding Night Nine (of ten) at Giants Stadium on the Rising Tour opens with the tour premiere of "Janey, Don't You Lose Heart." Later in the show, Emmylou Harris makes a guest appearance on "Across the Border," Dave and Serge Bielanko of Marah guest-star on the tour premiere of "Raise Your Hand," and "Pretty Flamingo" makes a rare appearance in the encore. Enjoy highlights from the show below.<br>
 
@@ -54,11 +54,11 @@ Later that night–so late that it's technically the following day, August 31–
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KFe9i8x4x6w)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2008-08-30.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-30.png.webp)
 
 **2009:** Bruce watches his daughter Jessica compete at the 34th annual Hampton Classic.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2009-08-30.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2009-08-30.png.webp)
 
 **2016:** Jaws drop and the Internet breaks: Bruce and the E Street Band break their U.S. record–again–for the longest show ever (this time breaking the four-hour mark), but it's the set list at this final East Rutherford show that blows minds: the show starts with the by now (amazingly) standard opener, "New York City Serenade" complete with strings, but what follows is a largely chronological trip through Bruce's catalog. Rickie Lee Jones guest stars on three songs, and Bruce plays the entire second side of *The Wild, The Innocent, and The E Street Shuffle* (including the tour premiere of "Kitty's Back"). Also making their tour premiere: "Pretty Flamingo," "Living Proof," and "Secret Garden." A fireworks-accompanied "Jersey Girl" closes a remarkable show.<br>
 
@@ -76,13 +76,13 @@ Later that night–so late that it's technically the following day, August 31–
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qoAPf-6_x_8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2016-08-30a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2016-08-30a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2016-08-30b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2016-08-30b.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: college basketball broadcaster Dick Vitale.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/vitale.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/vitale.jpg.webp)
 
 **2023:** "Sherry Darling" makes its tour premiere when Bruce and the E Street Band open their three-night stand at MetLife Stadium in East Rutherford.<br>
 
@@ -96,6 +96,6 @@ Later that night–so late that it's technically the following day, August 31–
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rIIxe2KojjA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/08/Asbury_Park_Press_2023_09_01_A1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Asbury_Park_Press_2023_09_01_A1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/08/Asbury_Park_Press_2023_09_01_A2.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Asbury_Park_Press_2023_09_01_A2.jpg.webp)

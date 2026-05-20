@@ -6,7 +6,7 @@
 
 **1977:** On an off-day following his show in Chicago, Bruce attends the taping of Melissa Manchester's appearance on *Soundstage.*<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1977-02-24.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1977-02-24.png.webp)
 
 **1982:** Although nominated for Best Rock Vocal Performance (Male) for "[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" Bruce loses the Grammy Award to Rick Springfield's "Jessie's Girl."<br>
 
@@ -20,9 +20,9 @@
 
 [Watch on Youtube: Bruce Springsteen Appears Before Judge For DWI Charges](https://www.youtube.com/watch?v=CqbtIdvRbKQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/02/2021-02-24a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/02/2021-02-24a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/02/2021-02-24b-1.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/02/2021-02-24b-1.jpg.webp)
 
 Also today, E Street Radio premieres Volume 18 of Bruce's *From My Home to Yours* radio show, entitled "New Born Soul."
 

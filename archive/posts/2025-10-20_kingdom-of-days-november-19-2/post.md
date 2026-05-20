@@ -2,21 +2,21 @@
 
 **1971**: The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1971-11-19.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-11-19.png.webp)
 
 **1984:** The Born in the U.S.A. Tour comes to Kemper Arena in Kansas City for a night.<br>
 
 [Watch on Youtube: Bruce Springsteen - 11/19/84 Born in the USA Live Concert](https://www.youtube.com/watch?v=XxX9V1TLmZo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1984-11-19a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1984-11-19a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1984-11-19b-1.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1984-11-19b-1.png.webp)
 
 **1995:** Bruce pays tribute to Frank Sinatra on the occasion of his 80th birthday at a televised tribute concert, performing an acoustic cover of “[Angel Eyes](https://estreetshuffle.com/index.php/2020/07/26/cover-me-angel-eyes/).”<br>
 
 [Watch on Youtube: Bruce Springsteen "Angel Eyes" 1995](https://www.youtube.com/watch?v=5QtjLEqK20M)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1995-11-19-1.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1995-11-19-1.png.webp)
 
 **1996:** Bruce releases a new EP, *Blood Brothers*, available with the new VHS version of the *Blood Brothers* documentary chronicling the temporary 1995 reunion of the E Street Band. That evening, Bruce visits Memphis on his Ghost of Tom Joad Tour and plays an encore performance (and tour premiere) of “[I’m Turning into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/).”<br>
 
@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "I'm Turning Into Elvis" - Memphis, 1996-11-19](https://www.youtube.com/watch?v=GU1AGM4slO8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1996-11-19.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1996-11-19.png.webp)
 
 **1998:** The promotional push for *Tracks* begins, as Bruce tapes a 20-minute interview with Bob Costas, which will be aired the following month on *Dateline*.<br>
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: Bruce Springsteen & Emmylou Harris, "My Hometown" - Birmingham, 2002-11-19](https://www.youtube.com/watch?v=mv0AXMl-vOg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/11/The_Tennessean_2002_11_23_Page_39-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/The_Tennessean_2002_11_23_Page_39-scaled.jpg.webp)
 
 **2003:** In his home studio, Bruce records backing vocals and guitar for Gary U.S. Bonds’ upcoming track, “[Can’t Teach and Old Dog New Tricks](https://estreetshuffle.com/index.php/2019/07/01/matr-gary-u-s-bonds-and-bruce-springsteen-cant-teach-an-old-dog-new-tricks/).”<br>
 
@@ -60,9 +60,9 @@
 
 [Watch on Youtube: Drive All Night Bruce Springsteen, Little Steven, and "BIG MAN" Clarence Clemons 11/19/2005 FL](https://www.youtube.com/watch?v=nj0W84Y624c)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2005-11-19a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2005-11-19a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2005-11-19b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2005-11-19b.png.webp)
 
 **2006:** Bruce and the Sessions Band play the last of a three-night stand at Dublin’s Point Theater, where “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” makes its tour premiere. The show is recorded and filmed, and seven songs will be released on the *Live in Dublin* CD and video release. “For You” and “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” from this show will be released in a special *Bruce Springsteen With The Sessions Band PBS Exclusive* EP for PBS pledge donors.<br>
 
@@ -98,7 +98,7 @@
 
 [Watch on Youtube: Bruce Springsteen: 2012-11-19 - Pepsi Center, Denver, CO](https://www.youtube.com/watch?v=iDijIjSzb5E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/11/Fort_Collins_Coloradoan_2012_11_23_Page_3-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Fort_Collins_Coloradoan_2012_11_23_Page_3-scaled.jpg.webp)
 
 **2019:** Bruce assembles the E Street Band at his home studio in Colts Neck for the second of a five-day recording session that will lead to [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/).<br>
 

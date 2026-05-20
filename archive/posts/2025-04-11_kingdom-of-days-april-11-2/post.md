@@ -2,25 +2,25 @@
 
 **1969:** Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1969-0404.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1969-0404.jpg.webp)
 
 **1970:** Steel Mill holds an invite-only rehearsal show for the local press.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/48062448203_aacecf6b79_o.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/48062448203_aacecf6b79_o.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1970-0411.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1970-0411.jpg.webp)
 
 **1971:** The Green Mermaid coffee house underneath The Upstage in Asbury Park plays host to the "Bruce Springsteen Acoustyc Jam."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1971-0410.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1971-0410.jpg.webp)
 
 **1973:** Bruce plays his first-ever show in Georgia, opening for The Beach Boys at the Omni Coliseum in Atlanta. Bruce has undoubtedly grown used to people misspelling his name by now, but this is probably a new variant:<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1973-0411.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1973-0411.jpg.webp)
 
 **1974:** Bruce plays two shows at Charlie's Place in Cambridge, Massachusetts–his third of four nights at that venue.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1974-0412.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1974-0412.jpg.webp)
 
 **1978:** At the last minute during a *Darkness* mixing and overdub session at the Record Plant, Bruce opts to overdub a Big Man sax solo onto "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)." The track will be pressed to acetate the next day.<br>
 
@@ -66,7 +66,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2003-04-11.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2003-04-11.jpg.webp)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 

@@ -6,7 +6,7 @@
 
 [Watch on Youtube: Bruce Springsteen and Cats on a Smooth Surface - Stone Pony - 1984-04-08](https://www.youtube.com/watch?v=E0nGuxZTSNo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1984-04-08.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1984-04-08.jpg.webp)
 
 **1993:** At the second of two shows in Zurich, Bruce plays “Dancing in the Dark” for the first and only time this year and tour debuts “Rockin’ All Over the World.”<br>
 
@@ -18,15 +18,15 @@
 
 **1999**: Bruce and the reunited E Street Band play their final rehearsal in Barcelona before the kick-off of the Reunion Tour the following day.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1999-04-08.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1999-04-08.jpg.webp)
 
 **2000:** The Reunion Tour returns to the American Midwest for a show at Kiel Center in St. Louis.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Yl8UjR7w)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2000-04-08a.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2000-04-08a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2000-04-08b.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2000-04-08b.jpg.webp)
 
 **2004:** *Live in Barcelona* is certified 4x multi-platinum by the Recording Industry Association of America.<br>
 
@@ -58,17 +58,17 @@
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down, Cincinnati 4/8/2014](https://www.youtube.com/watch?v=NVBqvBt7FjE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2014-04-08.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2014-04-08.jpg.webp)
 
 **2016:** With two days’ notice, Bruce cancels his upcoming show in Greensboro in protest of the state’s adoption of a law discriminating against transgender people. Bruce’s decision generates increased news coverage and national discussion around an already controversial law.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/2016-0408.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/2016-0408.jpg.webp)
 
 [Watch on Youtube: Bruce Springsteen Cancels Show Over 'Bathroom Bill'](https://www.youtube.com/watch?v=GHVIDGoEzsw)
 
 [Watch on Youtube: Springsteen cancels North Carolina concert over law limiting LGBT rights](https://www.youtube.com/watch?v=BhUNIDscQG4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/04/2016-04-08.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/04/2016-04-08.jpg.webp)
 
 **2020:** Bruce officially becomes a radio DJ when he premieres his new Sirius XM series, *From My Home to Yours*.<br>
 

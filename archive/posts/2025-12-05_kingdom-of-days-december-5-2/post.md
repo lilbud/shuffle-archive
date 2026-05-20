@@ -2,11 +2,11 @@
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1971-12-04.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-12-04.png.webp)
 
 **1972:** Bruce and his band kick off a six-night, two-shows-nightly stand at Kenny's Castaways in New York City. Bruce starts each show with a brief solo set before bringing out the band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/1972-12-05.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1972-12-05.jpg.webp)
 
 **1975:** Bruce and the E Street Band record a pair of Christmas greetings for WHFS in Bethesda. That evening they play a local show at nearby Georgetown University.<br>
 
@@ -16,7 +16,7 @@
 
 **1978:** The Darkness Tour travels south to Louisiana State University in Baton Rouge.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1978-12-05.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1978-12-05.png.webp)
 
 **1979:** At a recording session at The Power Station in New York City, Bruce and the E Street Band work on "Take 'em as They Come."<br>
 
@@ -28,27 +28,27 @@
 
 [Watch on Youtube: Bruce Springsteen "Red Headed Woman" - Indianapolis, 1992-12-05](https://www.youtube.com/watch?v=Ee6IDenhNXk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1992-12-05a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-05a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1992-12-05b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-05b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1992-12-05c.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-05c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1992-12-05d.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-05d.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1992-12-05e.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-05e.png.webp)
 
 **1995:** Bruce plays a solo acoustic show at Constitution Hall in Washington, DC–twenty years after he last played there.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8Dwup8kA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1995-12-05.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1995-12-05.png.webp)
 
 **1996:** Bruce plays a solo acoustic show at the Township Auditorium in Columbia, South Carolina.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Pilgrim in the Temple of Love" - Columbia - 1996-12-05](https://www.youtube.com/watch?v=n2SzHhtb9JM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1996-12-05.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1996-12-05.png.webp)
 
 **1998:** BBC produces and airs a documentary to coincide with the release of Tracks: *Bruce Springsteen: A Secret History.* It's very well done and highly recommended viewing–watch the full show below:<br>
 
@@ -62,19 +62,19 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/202-If-I-Should-Fall-Behind.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/202-If-I-Should-Fall-Behind.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2002-12-05a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2002-12-05a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2002-12-05b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2002-12-05b.png.webp)
 
 **2003:** After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury Park holiday show tradition, holding the first of three benefit concerts at Convention Hall in support of local charities. The Max Weinberg 7 once again serves as the house band, and this year guests include the Victorious Gospel Choir, Bobby Bandiera, Soozie Tyrell, Patti Scialfa, Jesse Malin, Garland Jeffreys, Steve Van Zandt, Southside Johnny, Sam Moore, the Alliance Singers, Lisa Lowell, and Nils Lofgren. Lots of gems in the setlist, including the world premiere of "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Xz5q8X5g)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2003-12-05a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2003-12-05a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2003-12-05b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2003-12-05b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2003-12-05c.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2003-12-05c.png.webp)
 
 **2009:** Bruce is honored by John F. Kennedy Center for the Performing Arts, first at a reception at the White House, later at the Kennedy Center in a televised tribute by Jon Stewart, Ron Kovic, John Mellencamp, Melissa Etheridge, Eddie Vedder, Jennifer Nettles, Ben Harper, and Sting.<br>
 
@@ -92,9 +92,9 @@
 
 [Watch on Youtube: Bruced Out December 22 2009 Early Show Kennedy Center Honors Bruce Springsteen Part 1](https://www.youtube.com/watch?v=lPQZsBSskHA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2009-12-05a.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2009-12-05a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2009-12-05b.png.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2009-12-05b.png.webp)
 
 **2017:** Bruce returns to the stage after more than a week off to continue his theatrical run at the Walter Kerr Theater in New York.<br>
 

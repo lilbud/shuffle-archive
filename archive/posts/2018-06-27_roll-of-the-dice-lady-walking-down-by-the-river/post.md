@@ -4,7 +4,7 @@ Here's another one from the wayback machine: "Lady Walking Down by the River" is
 
 Its origins go back even further, however. In April 1969, Bruce published his very first piece of writing– a poem in Ocean County Community College's literary magazine. The poem was titled "Seascape" (as was the journal itself), and check out the third verse below.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1969_seascape_seascape.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1969_seascape_seascape.jpg.webp)
 
 That third verse appears in "Lady Walking Down by the River" in altered form as its second verse:
 

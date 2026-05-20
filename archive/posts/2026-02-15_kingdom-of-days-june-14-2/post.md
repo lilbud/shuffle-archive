@@ -4,7 +4,7 @@
 
 **1973:** Bruce plays Madison Square Garden for the first time when he and his band open for Chicago.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1973-0614.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1973-0614.jpg.webp)
 
 **1974:** Under record label pressure to return to the recording studio and finish his next single, Bruce cancels a scheduled gig at the University of Texas at Arlington. It's a late cancellation, as his appearance was still advertised as of five days prior.<br>
 
@@ -14,7 +14,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/KoQxwEIi)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/06/Omaha_World_Herald_1978_06_15_35.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/06/Omaha_World_Herald_1978_06_15_35.jpg.webp)
 
 **1979:** Bruce and the E Street Band record for their upcoming album at the Power Station in New York City.<br>
 
@@ -22,13 +22,13 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jkNS8KLaXHw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1981-06-14.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1981-06-14.jpg.webp)
 
 **1989:** Bruce joins Neil Young in Jones Beach State Park on Long Island for a show-closing "Down by the River."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qcLfm6WCPys)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1989-06-14-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1989-06-14-scaled.jpg.webp)
 
 **2003:** The Rising Tour reaches Copenhagen, where Bruce tour premieres "Take ‘Em as They Come" and "Point Blank."<br>
 
@@ -52,7 +52,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 [Watch Video Highlight](https://videopress.com/embed/SnvCfI37)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/The_Buffalo_News_Sat__Jun_21__2008_-scaled.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Buffalo_News_Sat__Jun_21__2008_-scaled.jpg.webp)
 
 **2009:** The day after his set at Bonnaroo, Bruce checks out sets by MGMT, Band of Horses, and Okkervil River before joining Phish on stage at Bonnaroo for three epic jams: "Mustang Sally," "Bobby Jean," and "Glory Days."<br>
 
@@ -62,7 +62,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pk6ikRcpML4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/2009-06-14.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2009-06-14.jpg.webp)
 
 **2016:** The River Tour sequel resumes in The Hague, following Bruce and Patti's 25th wedding anniversary, with Bruce's 25th show in The Netherlands. To mark the occasion, Bruce tour premieres "From Small Things (Big Things One Day Come)," "Jersey Girl," and "Racing in the Street." An unusual note: this show features an opening act, The Stereophonics.<br>
 
@@ -84,7 +84,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_IXzAAKrsFE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/2019-06-14.jpg.webp)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2019-06-14.jpg.webp)
 
 **2024:** Bruce and the E Street band tour debut "The Power of Prayer" at Night Two in Madrid.<br>
 
