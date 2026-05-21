@@ -12,9 +12,9 @@ post_id: 56557
 
 **1974:** Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1974-04-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1974-04-19.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1974-0419.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1974-0419.jpg.webp)
 
 **1975:** Bruce works on “Thunder Road” in the studio at the Record Plant in New York City.<br>
 
@@ -26,7 +26,7 @@ post_id: 56557
 
 [Watch on Youtube: Bruce Springsteen - FOLLOW THAT DREAM 1981 (audio)](https://www.youtube.com/watch?v=isH0CoR8feg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1981-04-18-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1981-04-18-1.jpg.webp)
 
 **1985:** Bruce’s tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.<br>
 
@@ -78,13 +78,13 @@ post_id: 56557
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Out In The Street (Live in Montreal)](https://www.youtube.com/watch?v=1LRT003HCIc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2003-04-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2003-04-19.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2003-04-19b-rotated.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2003-04-19b-rotated.jpg.webp)
 
 **2008:** Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federici.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg.webp)
 
 **2014:** Record Store Day is a busy one: Bruce releases a new EP, [*American Beauty*](../2022-02-05_album-companion-american-beauty/post.md), performs [the title track](../2019-02-21_roll-of-the-dice-american-beauty/post.md) at soundcheck in Charlotte, and films it for release a few days later. That night, Bruce stuns the audience by opening with only the second-ever performance of “[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)” and a cover-filled set that included “[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md),” “[Mustang Sally,](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)” and “[Brown-Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md).” One of my favorite shows. For highlights, see my [*Where the Band Was* report](../2018-04-19_where-the-band-was-charlotte-april-19-2014/post.md) from this show.<br>
 
@@ -96,7 +96,7 @@ post_id: 56557
 
 [Watch on Youtube: Bruce Springsteen- "The Wall" (Charlotte, NC 04/19/14)](https://www.youtube.com/watch?v=j3m0BXVKPu0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2014-04-19-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2014-04-19-scaled.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

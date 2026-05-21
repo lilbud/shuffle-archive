@@ -12,7 +12,7 @@ post_id: 59549
 
 **1971:** On a blustery night in Asbury Park, The Bruce Springsteen Band plays their second night of their residency at the Student Prince, while at the nearby Wonder Bar, Norman Seldin and the Joyful Noyze is in session. During an intermission at the Wonder Bar, new Joyful Noyze member Clarence Clemons walks over to the Student Prince to check out the talent. According to legend, the door blows off its hinges when Clarence opens it, leading to a memorable first meeting between Bruce and Clarence. (Joyful Noyze photo credit: Billy Smith)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1971-0904.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1971-0904.jpg.webp)
 
 **1972:** Bruce performs an early solo set on open-mic night at Max's Kansas City in New York. Local musician David Blue catches Bruce's performance and invites Bruce to zip downtown with him to catch his set with Jackson Browne at The Bitter End. David introduces Bruce to Jackson, convincing Jackson to let Bruce do an intermission set that night. Bruce plays for about an hour, the start of a career-long friendship with Jackson.<br>
 
@@ -20,7 +20,7 @@ Also on or about this night, Bonnie Raitt plays across the street at the Gasligh
 
 **1975:** Bruce drops by Jackson Browne's show at The Main Point in Bryn Mawr, Pennsylvania, where Bruce had performed an already legendary show earlier that year. Jackson invites Bruce on stage to perform an acoustic version of "Born to Run" and perhaps other songs as well.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1975-0904.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1975-0904.jpg.webp)
 
 **1976:** Bruce and Steve make a guest appearance for "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)" and "[Having a Party](../2021-12-31_matr-bruce-springsteen-and-southside-johnny-having-a-party/post.md)" with Southside Johnny and the Asbury Jukes at The Stone Pony.<br>
 
@@ -28,7 +28,7 @@ Also on or about this night, Bonnie Raitt plays across the street at the Gasligh
 
 Bruce is keeping busy on stage, because he's unable to record. Billboard publishes an article today explaining Bruce's legal predicament.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1976-0904.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1976-0904.jpg.webp)
 
 **1977:** Bruce makes a guest appearance with The Shots, the new Stone Pony house band on "[Farther Up the Road](../2021-04-06_matr-bruce-springsteen-and-the-shots-farther-up-the-road/post.md)" and "[Funky Broadway](../2019-10-28_matr-bruce-springsteen-and-the-shots-funky-broadway/post.md)."<br>
 
@@ -52,19 +52,19 @@ Today is also the deadline for MTV's "On the Road with Bruce Springsteen" contes
 
 [Watch Video Highlight](https://videopress.com/embed/bXyEbWsI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/09/The_Republican_1984_09_05_20-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/09/The_Republican_1984_09_05_20-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1984-09-04a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1984-09-04a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1984-09-04b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1984-09-04b.jpg.webp)
 
 **1985:** The Born in the U.S.A. Tour enters its final month with a show at the Pontiac Silverdome.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/hH4Goe8j)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-04a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1985-09-04a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-04b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1985-09-04b.jpg.webp)
 
 **1988:** The Human Rights Now! Tour moves on to Paris for the first of two nights. Sting joins Bruce on "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" for the first time; he will continue to do so for the rest of the tour.<br>
 
@@ -74,21 +74,21 @@ Today is also the deadline for MTV's "On the Road with Bruce Springsteen" contes
 
 [Watch Video Highlight](https://videopress.com/embed/ERsioDJ7)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/The_Modesto_Bee_1988_09_05_2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/The_Modesto_Bee_1988_09_05_2.jpg.webp)
 
 **1997:** Bruce performs with The Wallflowers on the MTV Video Music Awards, playing the band's nominated "[One Headlight](https://wp.me/p9w3Lk-10U)" live on stage at Radio City Music Hall. Bruce is nominated himself, for Best Video from a Film, for "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)," but he loses to "Men in Black."<br>
 
 [Watch on Youtube: Wallflowers & Bruce Springsteen One Headlight](https://www.youtube.com/watch?v=xY3q69KWqb4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1997-09-04.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1997-09-04.jpg.webp)
 
 **2007:** Patti Scialfa releases her third CD, *Play It As It Lays.* Bruce appears as a backing musician on the album but does not contribute vocals.<br>
 
 [Watch on Youtube: Play It As It Lays](https://www.youtube.com/playlist?list=OLAK5uy_kY9GEfsEZ40gndh2NhD6zfrFoD9zOkxnA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-09-04a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2007-09-04a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2007-09-04b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2007-09-04b.jpg.webp)
 
 **2014:** Bruce guest stars on the finale of *Lilyhammer* on Netflix.<br>
 

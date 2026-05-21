@@ -10,7 +10,7 @@ post_id: 25626
 ---
 I didn't know the world needed a Springsteen-themed board game, but Søren Kitaj and Knud Jønsson did.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/IMG_4631-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/IMG_4631-scaled.jpg.webp)
 
 These two lifelong friends from Denmark envisioned, designed, developed, and published *[Becoming The Boss](https://becomingtheboss.dk/)*, an incredibly detailed–and **free** to all–board game experience sure to intrigue even casual Springsteen fans and absolutely delight hardcore ones.
 
@@ -22,15 +22,15 @@ But despite its name and inspiration, it would be a misrepresentation to classif
 
 All the major players are included…
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/playersteve.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/playersteve.png.webp)
 
 …and the supporting players, too.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/player-vini.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/player-vini.png.webp)
 
 Even the obscure but notable local legends are present, rewarding actual or spiritual habitues of the early Asbury music scene.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/player-margaret.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/player-margaret.png.webp)
 
 *Becoming The Boss* is incredibly rich in detail, accessible to uninitiated but chock full of detail, arcana, in-jokes, and lore sure to please the hardcore Springsteen fan.
 
@@ -50,7 +50,7 @@ Reminiscing on a late spring day about a year and half ago, Knud made an off-han
 
 They envisioned the basic structure of the game that same evening: the proximity of Asbury Park's famous locales to each other made for a natural, classic board game layout, and as far as gameplay went, Søren and Knud were inspired by the trailer parks, supermarket openings, and all the small venues the local artists played on their long upward climb. They planned an experience centered around earning a reputation via band battles and songwriting, and by the end of the evening what started as a lark had become a commitment.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/gigs.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/gigs.png.webp)
 
 They were also inspired by Bruce's internal struggles, sensitively incorporating his depression and dark days into the gameplay as well. And they knew Bruce's early sojourn in California and eventual arrival in New York City had to be included, too.
 
@@ -68,11 +68,11 @@ Plan to spend as much time playing the game as you would at an E Street Band con
 
 When asked if they'd ever considered abbreviating the game for, say, one-hour gameplay, Knud flatly answered, "No. That is not the game we are trying to make. It's not for people who think ‘Born in the U.S.A.' is Springsteen's best track. It's for people who think it's a lot of fun when you pull up that event card" and understand the reference.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/inspiration.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/inspiration.png.webp)
 
 Still, the guys admit to taking a few designers' prerogatives, particularly with the subjective ratings assigned to the songs and characters. I told them I noticed that and had a bone to pick: how could they give "New York City Serenade" only three stars out of five?
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/wildinnocent.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/wildinnocent.png.webp)
 
 "We'd like to give them *all* five stars, but we need a certain balance, that's part of the game!" defended Søren. "If we gave it three stars, we of course didn't think it was one of his best tracks, but it's subjective, our opinion."
 
@@ -88,4 +88,4 @@ Which only leaves one lingering question in my mind: anyone up for a game?
 
 **Download the full game for free [here.](https://becomingtheboss.dk/)**<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/Presentation-FB-JAN2021-Black.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/Presentation-FB-JAN2021-Black.png.webp)

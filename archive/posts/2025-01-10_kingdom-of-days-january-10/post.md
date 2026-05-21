@@ -24,7 +24,7 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 [Watch Video Highlight](https://videopress.com/embed/MzSZ6D7E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1985-01-10b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1985-01-10b.png.webp)
 
 **1987:** Bruce records “[When You Need Me](../2020-01-30_roll-of-the-dice-when-you-need-me/post.md)” at his home studio in Rumson.<br>
 
@@ -34,7 +34,7 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Detroit_Free_Press_1996_01_12_Page_56.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/Detroit_Free_Press_1996_01_12_Page_56.jpg.webp)
 
 **2014:** Days before the release of *High Hopes*, Bruce calls into E Street Radio for a lengthy interview. Listen to the entire conversation below.<br>
 
@@ -42,7 +42,7 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 **2017**: Bob Santelli interviews Bruce on stage at Monmouth University.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/santelli17.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/santelli17.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Jon Bon Jovi.<br>
 

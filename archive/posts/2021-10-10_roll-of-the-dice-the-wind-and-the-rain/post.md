@@ -18,15 +18,15 @@ As you can tell from the recording, "The Wind and The Rain" dates back a ways–
 
 Remember that [1968 Notebook](https://estreetshuffle.com/?s=1968+notebook) we've taken several dips into over the past four years? Well, tucked into the final pages of it were these early lyrics.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/thewindandtherain_lyrics1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/thewindandtherain_lyrics1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/thewindandtherain_lyrics2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/thewindandtherain_lyrics2.jpg.webp)
 
 There's another set of early lyrics in existence for "The Wind and The Rain," too:
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/thewindandtherain_handwritten2_page1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/thewindandtherain_handwritten2_page1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/thewindandtherain_handwritten2_page2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/thewindandtherain_handwritten2_page2.jpg.webp)
 
 A careful read of either version will reveal lyrics that never made it to the stage:
 

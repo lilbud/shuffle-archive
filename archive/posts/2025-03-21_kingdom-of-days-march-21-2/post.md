@@ -12,11 +12,11 @@ post_id: 56240
 
 **1974:** Bruce and his still unnamed band play their final of four nights at Gertie's in Dallas.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1974-0321.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1974-0321.jpg.webp)
 
 **1976:** Bruce and the band play a warm-up for their upcoming Chicken Scratch Tour at The Stone Pony in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0321.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1976-0321.jpg.webp)
 
 **1978:** Bruce works on mixing and overdubs for "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" at the Record Plant in New York City.<br>
 
@@ -32,7 +32,7 @@ post_id: 56240
 
 [Watch on Youtube: Bruce Springsteen fans - Down Under 1985 (RARE)](https://www.youtube.com/watch?v=17lftoPySfs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/The_Sydney_Morning_Herald_1985_03_23_Page_44.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/03/The_Sydney_Morning_Herald_1985_03_23_Page_44.jpg.webp)
 
 **1992:** "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)" is released as the first single from Bruce's upcoming *Lucky Town* album.<br>
 
@@ -42,7 +42,7 @@ post_id: 56240
 
 [Watch on Youtube: Bruce Springsteen Streets of Philadelphia Oscar 1994](https://www.youtube.com/watch?v=QeIOtaydCyo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1994-03-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1994-03-21.png.webp)
 
 **2001:** In advance of the broadcast debut of *Live in New York City*, Bob Costas interviews Bruce for... HBO Sports? Watch Bob and Bruce talk baseball below.<br>
 
@@ -52,13 +52,13 @@ post_id: 56240
 
 [Watch on Youtube: Bruce Springsteen, Jon Bon Jovi, Southside Johnny, and Al Gore watch football - 2004-03-21](https://www.youtube.com/watch?v=v01FDP8aiZo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2004-03-21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/2004-03-21.jpg.webp)
 
 **2006:** Bruce and the Sessions band rehearse at the Paramount Theater in Asbury Park.<br>
 
 **2009:** Bruce and the E Street Band rehearse for the upcoming Working on a Dream Tour at Asbury Park's Convention Hall. Afterward, Bruce joins the Panther Club Band on-stage at a Ranney School benefit concert in Long Branch.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/03/ranney.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/ranney.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

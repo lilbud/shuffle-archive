@@ -12,7 +12,7 @@ post_id: 61113
 
 **1972:** Bruce runs a classified ad in the Asbury Park Press seeking a "together and ready to travel" pianist and country violinist. Let's hope he finds at least one of them. Maybe David Sancious is still available?<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1972-10-14.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1972-10-14.png.webp)
 
 **1977:** At Atlantic Studios in New York City, Bruce records "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)," "[Hearts of Stone](../2022-09-07_roll-of-the-dice-hearts-of-stone/post.md)," "[City of Night](../2020-06-28_roll-of-the-dice-city-of-night/post.md)," and "[Wrong Side of the Street](../2019-11-06_roll-of-the-dice-wrong-side-of-the-street/post.md)"– all of which will go unreleased for decades–plus "[The Ballad](../2019-12-29_roll-of-the-dice-the-ballad/post.md)," which is still unreleased to this day.<br>
 
@@ -22,13 +22,13 @@ post_id: 61113
 
 [Watch on Youtube: Bruce Springsteen - "In the Midnight Hour" - Milwaukee, 1980-10-14](https://www.youtube.com/watch?v=BsPe6q9jYF0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1980-10-14.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1980-10-14.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/10/1980-10-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/1980-10-14.jpg.webp)
 
 **1988:** Bruce plays his first-ever show in Argentina (although half of those in attendance were from Chile) when the Human Rights Now! Tour stops in Mendoza.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1988-10-14.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1988-10-14.png.webp)
 
 **2000:** Bruce jams with The Gotham Playboys (and future Sessions Band bandmates), who are once again the entertainment at Bruce's belated birthday party at his house in Colts Neck.<br>
 
@@ -46,11 +46,11 @@ post_id: 61113
 
 [Watch on Youtube: Bruce Springsteen & Arcade Fire - State Trooper (Ottawa ´07) - Complete Video Mix](https://www.youtube.com/watch?v=IQBAuqCl9qg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-14a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2007-10-14a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-14b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2007-10-14b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-14c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2007-10-14c.png.webp)
 
 **2009:** Night Two of the final four shows at the Philadelphia Spectrum opens with a rare "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" and features the only performance to date of "[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)" along with a full album performance of *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*. This show is available to stream or purchase [here](https://www.nugs.net/live-download-of-bruce-springsteen-wachovia-spectrum-philadelphia-pa-10-14-2009-mp3-flac-or-online-music-streaming/35337.html).<br>
 
@@ -62,7 +62,7 @@ post_id: 61113
 
 **2017:** Bruce can't seem to decide on the order of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" during his Broadway show at the Walter Kerr Theater in New York City–the two songs switch places for the third time.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/2017-1003.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/2017-1003.jpg.webp)
 
 **2022:** Bruce releases "Nightshift," the second single from his upcoming album, *Only the Strong Survive.*<br>
 

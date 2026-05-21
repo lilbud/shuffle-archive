@@ -12,7 +12,7 @@ post_id: 57649
 
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/mainpoint.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/mainpoint.jpg.webp)
 
 **1977:** Bruce and the E Street Band work on "The Promise" and "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)" during recording sessions at Atlantic Studios in New York City.<br>
 
@@ -38,7 +38,7 @@ post_id: 57649
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Live @ Roundhays Park, Leeds, UK - July 7, 1985 (partial)](https://www.youtube.com/watch?v=Qd3W6T-AdII)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Red_Deer_Advocate_1985_07_08_11.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Red_Deer_Advocate_1985_07_08_11.jpg.webp)
 
 **1988:** The Tunnel of Love Tour arrives in Dublin for a show at RDS Arena.<br>
 

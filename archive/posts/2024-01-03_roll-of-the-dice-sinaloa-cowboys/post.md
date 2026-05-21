@@ -20,11 +20,11 @@ Arax and Gorman revealed a vast Mexican network of methamphetamine laboratories 
 
 "These ‘Sinaloa Cowboys'," wrote the reporters, "with their beaver hats, boots and ostrich-skin belts are armed and dangerous. ‘Stay out if you value your ass!' read the spray-painted message in Spanish and English on the side of a large shed in rural Firebaugh, west of Fresno."
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/01/Sinaloa1resize.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/Sinaloa1resize.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/01/Sinaloa2-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/Sinaloa2-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/01/Sinaloa3.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/Sinaloa3.jpg.webp)
 
 Cooked in California and smuggled to virtually every American state, the Sinaloa cartel ran a frighteningly efficient and lucrative operation–one that proved irresistibly tempting to field workers doing back-breaking labor for a fraction of the pay. "Workers who earn as little as $5,000 a year picking California's crops can make that much in half a dozen illicit cooking sessions," wrote Arax and Gorman.
 

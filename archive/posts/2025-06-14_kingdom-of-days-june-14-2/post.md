@@ -12,17 +12,17 @@ post_id: 57090
 
 **1969:** Child plays at The Auction Coffee House in Long Branch, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1969-06-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1969-06-13.jpg.webp)
 
 **1970:** Steel Mill plays an afternoon set at Freak Beach in East Long Branch, New Jersey.<br>
 
 **1973:** Bruce plays Madison Square Garden for the first time when he and his band open for Chicago.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1973-0614.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1973-0614.jpg.webp)
 
 **1974:** Under record label pressure to return to the recording studio and finish his next single, Bruce cancels a scheduled gig at the University of Texas at Arlington. It's a late cancellation, as his appearance was still advertised as of five days prior.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1974-06-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1974-06-14.jpg.webp)
 
 **1977:** Bruce and the E Street Band record for their upcoming album at Atlantic Studios in New York City.<br>
 
@@ -30,7 +30,7 @@ post_id: 57090
 
 [Watch Video Highlight](https://videopress.com/embed/KoQxwEIi)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/06/Omaha_World_Herald_1978_06_15_35.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/Omaha_World_Herald_1978_06_15_35.jpg.webp)
 
 **1979:** Bruce and the E Street Band record for their upcoming album at the Power Station in New York City.<br>
 
@@ -38,13 +38,13 @@ post_id: 57090
 
 [Watch on Youtube: ''Survival Sunday'' - Bruce Springsteen - June 14th, 1981 - Hollywood Bowl - Los Angeles, CA](https://www.youtube.com/watch?v=jkNS8KLaXHw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1981-06-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1981-06-14.jpg.webp)
 
 **1989:** Bruce joins Neil Young in Jones Beach State Park on Long Island for a show-closing "[Down by the River](../2018-08-06_meeting-across-the-river-bruce-springsteen-and-neil-young-down-by-the-river/post.md)."<br>
 
 [Watch on Youtube: Down By The River Bruce Springsteen and Neil Young 6/14/1989 NY](https://www.youtube.com/watch?v=qcLfm6WCPys)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1989-06-14-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1989-06-14-scaled.jpg.webp)
 
 **2003:** The Rising Tour reaches Copenhagen, where Bruce tour premieres "[Take 'Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)" and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)."<br>
 
@@ -68,7 +68,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 [Watch Video Highlight](https://videopress.com/embed/SnvCfI37)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Buffalo_News_Sat__Jun_21__2008_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/The_Buffalo_News_Sat__Jun_21__2008_-scaled.jpg.webp)
 
 **2009:** The day after his set at Bonnaroo, Bruce checks out sets by MGMT, Band of Horses, and Okkervil River before joining Phish on stage at Bonnaroo for three epic jams: "[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)," "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)," and "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
@@ -78,7 +78,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 [Watch on Youtube: Phish and Bruce Springsteen live at Bonnaroo 2009 - Glory Days](https://www.youtube.com/watch?v=pk6ikRcpML4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2009-06-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2009-06-14.jpg.webp)
 
 **2016:** The River Tour sequel resumes in The Hague, following Bruce and Patti's 25th wedding anniversary, with Bruce's 25th show in The Netherlands. To mark the occasion, Bruce tour premieres "From Small Things (Big Things One Day Come)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)." An unusual note: this show features an opening act, The Stereophonics. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14114/Bruce-Springsteen-mp3-flac-download-6-14-2016-Malieveld-The-Hague-NL.html).<br>
 
@@ -100,7 +100,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 [Watch on Youtube: Bruce Springsteen - Western Stars (Official Video)](https://www.youtube.com/watch?v=_IXzAAKrsFE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2019-06-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2019-06-14.jpg.webp)
 
 **2024:** Bruce and the E Street band tour debut "[The Power of Prayer](../2021-09-29_roll-of-the-dice-the-power-of-prayer/post.md)" at Night Two in Madrid.<br>
 

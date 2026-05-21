@@ -16,7 +16,7 @@ post_id: 55825
 
 **1981:** Arriving in St. Paul early in the morning, two days before their scheduled show, Bruce and the band enjoy a couple of days off in the Twin Cities (except for Roy, who has an ear infection). Bruce spends the evening playing pool and pinball at a bar called Zoogies, where he catches a local band called The Suburbs.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1981-01-30.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1981-01-30.png.webp)
 
 **1997:** Night Three (of four) in Tokyo on Bruce’s first solo acoustic tour.<br>
 
@@ -38,7 +38,7 @@ post_id: 55825
 
 [Watch on Youtube: Springsteen & Honeymooners](https://www.youtube.com/watch?v=eN1Y66j_go8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2017-01-30.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/2017-01-30.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

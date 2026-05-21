@@ -10,17 +10,17 @@ post_id: 56433
 ---
 **1954:** Carol Dennis, back-up singer for Bruce’s 1992-1993 World Tour, is born.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/carol.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/carol.jpg.webp)
 
 **1969:** Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.<br>
 
 **1974:** Bruce plays two shows at Charlie’s Place in Cambridge, Massachusetts–his final night of four at that venue.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1974-04-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1974-04-12.jpg.webp)
 
 **1976:** At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E Street Band play their final full-band “[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)” for 23 years. Promoters are getting Bruce’s name right these days, but they’re still struggling with the band’s.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1976-0412.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1976-0412.jpg.webp)
 
 **1980:** Bruce works on mixing and overdubs for several *The River* tracks at Clover Studios in Los Angeles, completing mixes for “Sherry Darling” and “Wreck on the Highway.”<br>
 
@@ -34,21 +34,21 @@ post_id: 56433
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZZGhltIYJPg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/04/1987-04-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/1987-04-12.jpg.webp)
 
 **1988:** The Tunnel of Love Express stops in Houston for the first of two shows at The Summit.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qpGF3ADJ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-04-12b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-04-12b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-04-12c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-04-12c.jpg.webp)
 
 **1993:** Bruce’s second live album is released: *In Concert/M**TV Plugged*. However, the album is only available in Europe, leading American fans to scour record stores for imported copies.<br>
 
 [Watch on Youtube: In Concert/MTV Plugged](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Jersey_Journal_Fri__Apr_30__1993_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/The_Jersey_Journal_Fri__Apr_30__1993_-scaled.jpg.webp)
 
 **1995:** Bruce joins Sting, James Taylor, Elton John, Billy Joel, Jon Bon Jovi, Paul Simon, and others at a benefit for the Rainforest Foundation at Carnegie Hall. The set list is fun and Elvis-inspired–besides covers of “Viva Las Vegas,” “Burning Love” and other classics, Bruce performs “I’m Turning Into Elvis” in full for the first time and duets with James Taylor on “The River.”<br>
 
@@ -60,13 +60,13 @@ post_id: 56433
 
 [Watch on Youtube: Bruce Springsteen, JBJ & Various - Live at Rock for the Rainforest | Duet In Audio | New York 1995](https://www.youtube.com/watch?v=PZxDezZpz4M)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1995-04-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1995-04-12.jpg.webp)
 
 **2000:** Bruce and the E Street Band play a Reunion Tour show for a low-energy crowd in Nashville. Bruce would still recall it seven years later to friend-of-the-blog Bryan Meng as the “worst crowd of the entire tour.” (Nashville would redeem itself on the Magic Tour.)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/B9bIX3FU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2000-04-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2000-04-12.jpg.webp)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 
@@ -76,7 +76,7 @@ post_id: 56433
 
 [Watch on Youtube: Bruce Springsteen - Incident on 57th Street LIVE in Auburn Hills, 4/12/2012](https://www.youtube.com/watch?v=9IiTzxRJ6yo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2012-04-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2012-04-12.jpg.webp)
 
 **2014:** A true seaside show, Bruce’s concert in Virginia Beach opens with a one-off cover of “[May I](../2019-10-01_cover-me-may-i/post.md),” and features rare performances of “Seaside Bar Song” and “Jersey Girl” along with the tour premieres of “The Wall” and “Talk to Me.”<br>
 

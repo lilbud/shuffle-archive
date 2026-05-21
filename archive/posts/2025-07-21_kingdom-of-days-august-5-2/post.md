@@ -12,7 +12,7 @@ post_id: 57910
 
 **1971:** Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slide guitar, Kevin Kavanaugh on piano, and Vini Lopez on pebble-filled soda cans) at an outdoor folk concert organized by Tinker West.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1971-08-05.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1971-08-05.png.webp)
 
 **1976:** Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts Center in Red Bank.<br>
 
@@ -26,7 +26,7 @@ post_id: 57910
 
 [Watch on Youtube: Bruce Springsteen Prove It All Night Live At Louisville 05 Aout 1978](https://www.youtube.com/watch?v=q8rw9izpMaY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1978-08-05.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1978-08-05.png.webp)
 
 After the show, Bruce sits down for an interview with Australian journalist David White. Listen to the interview below.
 
@@ -46,11 +46,11 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 [Watch on Youtube: Born to Run (Live at the Brendan Byrne Arena, East Rutherford, NJ - 08/05/84 - Official Audio)](https://www.youtube.com/watch?v=whX8b364K64)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-08-05a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-08-05a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-08-05b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-08-05b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-08-05c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-08-05c.png.webp)
 
 **1985:** Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of "[Man at the Top](../2019-05-10_roll-of-the-dice-man-at-the-top/post.md)," the first U.S. performance of "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)," and the first time Bruce closes a show with "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)."<br>
 
@@ -62,15 +62,15 @@ Because this show marks Bruce's return to the U.S. and the first time playing to
 
 [Watch on Youtube: Bruce Springsteen at RFK Stadium news coverage - 1985-08-04](https://www.youtube.com/watch?v=n54Xk96HALs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1985-08-05a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1985-08-05a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1985-08-05b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1985-08-05b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1985-08-05c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1985-08-05c.png.webp)
 
 **1992:** Jeff Porcaro of Toto, who played drums on most of the *Human Touch* album, passes away at the age of 38.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1992-08-05.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1992-08-05.png.webp)
 
 **2002:** The fourth rehearsal show for the Rising Tour is the first in an arena, an invitation-only show at the Continental Airlines Arena in East Rutherford.<br>
 
@@ -78,4 +78,4 @@ Because this show marks Bruce's return to the U.S. and the first time playing to
 
 **2006:** Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2006-0805.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/2006-0805.jpg.webp)

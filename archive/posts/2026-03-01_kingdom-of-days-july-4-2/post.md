@@ -12,7 +12,7 @@ post_id: 57605
 
 **1976:** A newly clean-shaven Bruce drops by Southside Johnny's Stone Pony concert; after Southside's set, Bruce and the E Street Band play a set themselves.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1976-0704.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1976-0704.jpg.webp)
 
 **1978:** Quite the Independence Day for Bruce in Los Angeles: the day starts off with a trip to KMET-FM, where local DJ Mary Turner interviews an infatuated, talkative Bruce. The interview is loose, rambling, and funny–well worth a listen–with some great stories, including one about the time Bruce played at a mental hospital, where a patient introduced him for twenty minutes, and another about his gig at Sing Sing prison, which has to be heard to be believed. (Bruce refers to both of these gigs during his Broadway show, but here's where you'll get the details.)<br>
 
@@ -20,7 +20,7 @@ post_id: 57605
 
 After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sweeten the offer with a song dedication. But in the meantime, a loose Bruce, Clarence and Garry hit the town and leave their mark–literally–on a Sunset Strip billboard:
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/040778-billboard-e1530310972459.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/040778-billboard-e1530310972459.jpg.webp)
 
 **1979:** Bruce and the E Street Band complete "The Man Who Got Away" at the Power Station in New York City. It will languish in the vault for 36 years.<br>
 
@@ -28,7 +28,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 **1983:** Bruce spends the holiday on the water: friend and fan Obie Dziedzic charters the 70-foot *Atlantis* for a three hour cruise for Bruce, the band, and members of Bruce's gym. After watching the fireworks over Asbury Park, Bruce and company head to The Stone Pony.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1983-07-04.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1983-07-04.jpg.webp)
 
 **1985:** At a rare July 4th concert, Bruce opens his second of three nights at London's Wembley Stadium with an acoustic "Independence Day," and Little Steven once again joins the band during the encore.<br>
 
@@ -38,9 +38,9 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Tw-KDhmlE5k)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1985-07-04.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1985-07-04.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/The_Courier_Journal_1985_07_03_Page_27-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/The_Courier_Journal_1985_07_03_Page_27-scaled.jpg.webp)
 
 **1992:** Bruce and his new touring band play their second night at Plaza Monumental in Barcelona.<br>
 

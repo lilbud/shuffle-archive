@@ -14,7 +14,7 @@ I consider myself to be pretty decent at interpreting Bruce's songs, but I have 
 
 Bruce's lyrics appear to be complete, along with chord notations, on a surviving hand-written lyrics sheet. (There only seems to be three short verses, but Bruce's Steel Mill material was often short on lyrics to make room for the band's epic-length mid-song jams.)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/fireengines.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/fireengines.jpg.webp)
 
 As for what's the song about, you tell me. Please.
 

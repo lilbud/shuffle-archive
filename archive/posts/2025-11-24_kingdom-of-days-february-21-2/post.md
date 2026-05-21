@@ -10,9 +10,9 @@ post_id: 55972
 ---
 **1975:** Bruce cancels a show at Moravian College to make room for *Born to Run* recording sessions.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1975-02-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1975-02-21.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1975-02-21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1975-02-21.jpg.webp)
 
 **1995:** After more than five years apart, Bruce reconvenes the E Street Band to promote his *Greatest Hits* album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for “[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md).” Many fan favorites also make their return on this night, including the first-ever full-band performance of “This Hard Land.”<br>
 
@@ -24,7 +24,7 @@ post_id: 55972
 
 [Watch on Youtube: Bruce Springsteen - Murder Incorporated](https://www.youtube.com/watch?v=Jj7hvKQ6Uhc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1995-02-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1995-02-21.png.webp)
 
 **1996:** Bruce brings his solo acoustic tour to Paris for the first of two shows at Le Zenith de Paris.<br>
 
@@ -42,9 +42,9 @@ post_id: 55972
 
 [Watch on Youtube: Bruce Springsteen - "Cadillac Ranch" Yum Center 2/21/16 (The Cat in the Hat by Dr. Bruce)](https://www.youtube.com/watch?v=gMCyJkD0VKA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2016-02-21a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2016-02-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2016-02-21b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2016-02-21b.jpg.webp)
 
 **2017:** Bruce plays his first show ever in Christchurch, New Zealand. The show features a poignant “My City of Ruins,” played for the city that suffered a devastating earthquake in 2011.<br>
 
@@ -62,4 +62,4 @@ post_id: 55972
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=2AqGRt4kw5U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/Tulsa_World_Thu__Feb_23__2023_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/Tulsa_World_Thu__Feb_23__2023_-scaled.jpg.webp)

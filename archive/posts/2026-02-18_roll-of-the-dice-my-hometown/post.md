@@ -12,7 +12,7 @@ It was '69 not '65, Monday night rather than Saturday night, and it wasn't his h
 
 But it *was* his home town, and when the high-running tensions boiled over into riots and violence, it made a lasting impression on nineteen-year-old Bruce Springsteen.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/1983/01/The_Daily_Register_1969_05_20_1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/1983/01/The_Daily_Register_1969_05_20_1.jpg.webp)
 
 On the evening of May 19, two black teens were shot by a fifteen-year old white boy from the passenger seat of a passing car.
 

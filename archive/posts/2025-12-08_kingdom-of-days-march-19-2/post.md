@@ -8,9 +8,9 @@ categories: kingdom-of-days
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/belfast96.jpg
 post_id: 56191
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2016-03-19a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2016-03-19a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2016-03-19b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2016-03-19b.jpg.webp)
 
 **1974:** Bruce and his band play two shows at their second night at Gertie’s in Dallas.<br>
 
@@ -20,13 +20,13 @@ post_id: 56191
 
 [Watch on Youtube: This bag once carried Springsteen's denim jacket](https://www.youtube.com/watch?v=fEOcwFaOlos)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg.webp)
 
 **1981:** A scheduled show in London is postponed due to Bruce’s exhaustion from the first two legs of the River Tour.<br>
 
 **1985:** Bruce arrives in Sydney two days before what will be his first-ever show in Australia.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1985-03-19.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1985-03-19.png.webp)
 
 **1996:** Bruce plays his first-ever show in Northern Ireland, at King’s Hall in Belfast. This show is available as part of Bruce’s official archive series.<br>
 
@@ -44,11 +44,11 @@ post_id: 56191
 
 [Watch Video Highlight](https://videopress.com/embed/yPtVKHzK)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1999-03-19a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1999-03-19a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1999-03-19b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1999-03-19b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1999-03-19c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1999-03-19c.jpg.webp)
 
 **2000:** Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.<br>
 

@@ -14,13 +14,13 @@ post_id: 55360
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1971-1218.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/1971-1218.jpg.webp)
 
 **1973:**<br>
 
 Bruce and his band with no name play their second of a three-night stand at the Student Prince in Asbury Park.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1973-12-18.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/1973-12-18.jpg.webp)
 
 **1978:**<br>
 
@@ -36,9 +36,9 @@ The River Tour comes home (or close to it, anyway) for the holidays, as Bruce an
 
 Bruce joins local musicians at the Stone Pony and plays "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" for local ill and disabled children.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1988-12-18a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1988-12-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1988-12-18b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1988-12-18b.png.webp)
 
 **2000:**<br>
 
@@ -46,9 +46,9 @@ Bruce holds his second of two inaugural Asbury Park holiday shows at Convention 
 
 [Watch Video Highlight](https://videopress.com/embed/8HQV6Lmm)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2000-12-18a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2000-12-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2000-12-18b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2000-12-18b.png.webp)
 
 **2016:**<br>
 

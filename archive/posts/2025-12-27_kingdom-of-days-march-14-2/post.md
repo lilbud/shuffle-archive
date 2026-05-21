@@ -22,7 +22,7 @@ post_id: 56174
 
 [Watch on Youtube: Bruce Springsteen - SOMETHING IN THE NIGHT 1977 - (audio)](https://www.youtube.com/watch?v=siJK0UsD03I)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1977-03-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/1977-03-14.jpg.webp)
 
 **1978:** Bruce work on “Factory” for his upcoming album at the Record Plant in New York City.<br>
 
@@ -32,15 +32,15 @@ post_id: 56174
 
 [Watch on Youtube: Bruce Springsteen and Robert Gordon - Asbury Park - 1979-03-14](https://www.youtube.com/watch?v=kDT1IIz7_Og)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1979-03-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1979-03-14.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1979-0314.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1979-0314.jpg.webp)
 
 **1988:** Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved to add a mid-song story to “Walk Like a Man.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0mmIy6i6)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-03-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1988-03-14.jpg.webp)
 
 **1996:** Bruce plays a solo acoustic show at the Spektrum in Oslo.<br>
 
@@ -52,7 +52,7 @@ post_id: 56174
 
 [Watch Video Highlight](https://videopress.com/embed/9SQOEqsQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2000-03-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2000-03-14.jpg.webp)
 
 **2005:** Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he later performs with them on “I Still Haven’t Found What I’m Looking For.”<br>
 
@@ -60,7 +60,7 @@ post_id: 56174
 
 [Watch on Youtube: U2 with Bruce Springsteen - "I Still Haven't Found What I'm Looking For" | 2005 Induction](https://www.youtube.com/watch?v=FlgYdxUdckQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2005-03-14.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2005-03-14.png.webp)
 
 **2008:** Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qwest Center. Conor Oberst makes a guest-appearance on “Thunder Road.” (It’s not exactly a highlight.)<br>
 
@@ -68,7 +68,7 @@ post_id: 56174
 
 [Watch on Youtube: Reason To Believe Springsteen](https://www.youtube.com/watch?v=8mk4DZWaXCQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2008-03-14a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2008-03-14a.jpg.webp)
 
 **2011:** Bruce and Curtis King join Darlene Love on stage at her induction ceremony into the Rock and Roll Hall of Fame. Their short set includes “[Zip a Dee Doo Dah](../2018-08-28_meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/post.md),” “[(Today I Met) The Boy I’m Going to Marry](https://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/),” and “[He’s a Rebel](../2021-10-02_matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/post.md).” Bette Midler joins for the final song.<br>
 
@@ -98,9 +98,9 @@ post_id: 56174
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, with a special invite-only show for Sirius XM radio listeners who entered and won a contest. Emmylou Harris, Katy Perry, Ricky Gervais, and Howard Stern are there tonight as well, but I suspect they procured their tickets through other means.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/03/39926163585_5b24155cf8_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/39926163585_5b24155cf8_o.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2018-03-14a.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2018-03-14b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/2018-03-14a.jpg) ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/2018-03-14b.jpg.webp)
 
 **2023:** Bruce cancels his third consecutive show due to an undisclosed illness. His show at MVP Arena in Albany will be rescheduled but ultimately postponed yet again for illness.<br>
 

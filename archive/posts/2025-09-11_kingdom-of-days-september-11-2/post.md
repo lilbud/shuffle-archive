@@ -14,27 +14,27 @@ post_id: 59634
 
 > *…we were doing [this show] to raise bail money for “Mad Dog” Lopez who was in jail in Richmond, Virginia, for having an altercation with police officers who we’d aggravated by playing too long. Danny allegedly knocked over our huge Marshall stacks on some of Middletown’s finest who had rushed the stage because we broke the law by…playing too long. As I stood there watching, several police officers crawled out from underneath the speaker cabinets and rushed away to seek medical attention. Another nice young officer stood in front of me onstage waving his nightstick, poking and calling me nasty names. I looked over to see Danny with a beefy police officer pulling on one arm while Flo Federici, his first wife, pulled on the other, assisting her man in resisting arrest. A kid leapt from the audience onto the stage, momentarily distracting the beefy officer with the insults of the day. Forever thereafter, “Phantom” Dan Federici slipped into the crowd and disappeared.*
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1970-09-11a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1970-09-11a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1970-09-11b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1970-09-11b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1970-09-11c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1970-09-11c.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1970-09-11d.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1970-09-11d.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1970-09-11g.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1970-09-11g.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1970-09-11f.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1970-09-11f.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1970-09-11h.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1970-09-11h.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1970-09-11i.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1970-09-11i.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/09/1970-09-11.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/1970-09-11.jpg.webp)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1971-09-11.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1971-09-11.jpg.webp)
 
 **1972:** At 914 Sound Studios in Blauvelt, New York, Bruce records “[Blinded by the Light”](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md) and “[Spirit in the Night,](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” the final tracks for his upcoming debut album.<br>
 
@@ -56,9 +56,9 @@ post_id: 59634
 
 [Watch on Youtube: Bruce Springsteen - Ed Schiaky Interview on Philly AM - 9/11/84](https://www.youtube.com/watch?v=P06wbEoJc-Y)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1984-09-11a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1984-09-11a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1984-09-11b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1984-09-11b.jpg.webp)
 
 **1985:** *Born in the U.S.A.* is certified 8x multi-platinum by the Recording Industry Association of America.<br>
 

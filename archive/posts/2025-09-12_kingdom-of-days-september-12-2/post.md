@@ -12,21 +12,21 @@ post_id: 59635
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1971-09-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1971-09-12.jpg.webp)
 
 **1975:** Bruce and the E Street Band kick off a week of Texas shows with a show at the Austin Municipal Auditorium.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Austin, TX 1975-09-12 (Soundboard)](https://www.youtube.com/watch?v=2LuhuZw1KDA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1975-09-12a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1975-09-12a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1975-09-12b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1975-09-12b.jpg.webp)
 
 **1977:** Bruce holds a recording session for his next album with the E Street Band at The Record Plant in New York City.<br>
 
 **1978:** The Darkness Tour returns to the east coast, starting with this show in Syracuse, where a couple of fans sneak back into the arena after the show and encounter Bruce in the shower.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1978-0912.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1978-0912.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/SLGR7g0C)
 
@@ -34,7 +34,7 @@ post_id: 59635
 
 [Watch Video Highlight](https://videopress.com/embed/cs34IgKs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1984-0912.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1984-0912.jpg.webp)
 
 **2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.<br>
 
@@ -48,9 +48,9 @@ post_id: 59635
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Racing In The Street - 12 09 09](https://www.youtube.com/watch?v=tuspkjm0vsM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2009-09-12a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2009-09-12a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-12b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2009-09-12b.jpg.webp)
 
 **2013:** The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in Santiago, Chile, Bruce's first performance in this country. The encores begin with a Spanish-language cover of "[Manifesto](../2021-01-31_cover-me-manifesto/post.md)" by activist Victor Jara, sung by Bruce in Spanish.<br>
 

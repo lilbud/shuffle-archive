@@ -12,7 +12,7 @@ post_id: 56114
 
 **1973:** Bruce's scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to low ticket sales.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1973-03-09.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1973-03-09.png.webp)
 
 **1974:** In the afternoon, Bruce stops by KLOL-FM for the second day in a row, this time with the band. They play an extended on-air set that includes "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)," a local radio favorite.<br>
 
@@ -24,7 +24,7 @@ That night, the boys play two shows at Liberty Hall.
 
 **1975:** Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1975-03-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1975-03-09.jpg.webp)
 
 **1985:** On this week's edition of *American Top 40*, host Casey Kasem regales listeners with tales of Bruce's Monopoly prowess while introducing his latest chart-climber, "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."<br>
 
@@ -38,7 +38,7 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch on Youtube: Bruce Springsteen - Human Touch (Official HD Video)](https://www.youtube.com/watch?v=85cNRQo1m3A)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1992-03-09.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1992-03-09.png.webp)
 
 **2000:** The Reunion Tour's Florida swing continues with a show at the National Car Rental Center in Sunrise.<br>
 
@@ -48,11 +48,11 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch Video Highlight](https://videopress.com/embed/OIp6vgk0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2000-03-09a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2000-03-09a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2000-03-09b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2000-03-09b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2000-03-09c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2000-03-09c.jpg.webp)
 
 **2003:** Bruce grants an interview to *60 Minutes Australia* at his home in New Jersey.<br>
 
@@ -76,9 +76,9 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch on Youtube: Bruce Springsteen plays intimate venue](https://www.youtube.com/watch?v=iyIfdt9O50g)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2012-03-09a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2012-03-09a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2012-03-09b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/2012-03-09b.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in place of "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" and "[Brilliant Disguise.](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)"<br>
 

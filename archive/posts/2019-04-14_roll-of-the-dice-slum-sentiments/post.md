@@ -14,7 +14,7 @@ It's time for another visit to the "[1968 Notebook](../2018-04-22_roll-of-the-di
 
 Today's entry, "Slum Sentiments," doesn't have any date stamp, and there is no evidence that Bruce ever performed it. As one of the later songs in the notebook, it was probably written (or at least transcribed) sometime after April 1968, possibly a few months later.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/slumsentiments_lyrics.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/slumsentiments_lyrics.jpg.webp)
 
 In "Slum Sentiments," Bruce paints a picture rather than tells a story. There's no message, and nothing happens; instead, he creates a stark portrait of a hopeless poverty:
 

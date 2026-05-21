@@ -14,7 +14,7 @@ post_id: 55627
 
 [Watch on Youtube: confessin' the blues](https://www.youtube.com/watch?v=yZt6dI2zZJ8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1972-01-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1972-01-21.png.webp)
 
 **1973**: Bruce and the band play their final of four nights at My Father’s Place on Long Island.<br>
 
@@ -30,7 +30,7 @@ post_id: 55627
 
 [Watch on Youtube: Rock and Roll Hall of Fame news coverage - 1987-01-21](https://www.youtube.com/watch?v=19zYmYmsunk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1987-01-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1987-01-21.png.webp)
 
 **1996:** The television news show *60 Minutes* profiles Bruce and his solo acoustic tour.<br>
 
@@ -50,4 +50,4 @@ post_id: 55627
 
 **2022:** Bruce drops by the Transparent Clinch Gallery in Asbury Park, where he poses for a photo with the gallery’s owner (and himself). (Photo credit: Maria Barba-Clinch/Transparent Gallery Instagram)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/01/2022-01-21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/01/2022-01-21.jpg.webp)

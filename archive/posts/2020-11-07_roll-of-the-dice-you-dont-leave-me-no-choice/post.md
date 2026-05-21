@@ -10,7 +10,7 @@ post_id: 22587
 ---
 In the early winter days of 1971, a classified ad in the *Asbury Park Press* caught the eye and interest of nineteen-year-old Barbara Dinkins.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/dinkinsad.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/dinkinsad.png.webp)
 
 Barbara thought she and her friend Dee might fit the bill, so she replied to the ad and arranged for the band's leader to meet them at the church where they sang gospel.
 
@@ -22,7 +22,7 @@ Barbara and Dee only lasted with The Bruce Springsteen Band for two brief months
 
 But oh, what a glorious summer that was! Surviving bootleg recordings from those shows reveal The Bruce Springsteen Band as an immensely talented combo, crossing rock, blues, soul, jazz, gospel, and even pop genres over the course of their shows. Bruce was at the height of his guitar prowess, David Sancious was already a wunderkind on the piano, and as for Barbara and Delores... well, they were much more than backing singers. (The photo below shows Holmes on the left, then Dinkins, then Bruce and Steve.)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/dinkins.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/dinkins.jpg.webp)
 
 Bruce was impressed enough by Barbara and Dee to give them star turns on lead vocals. For example, Dee sang lead on "[I'm in Love Again](../1972-01-04_roll-of-the-dice-im-in-love-again/post.md)." As for Barbara, not only did she sing lead on "You Don't Leave Me No Choice," she actually *wrote* the song along with Sancious (whose stamp is immediately obvious from the extended piano intro).
 

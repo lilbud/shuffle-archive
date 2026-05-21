@@ -18,15 +18,15 @@ post_id: 56191
 
 [Watch on Youtube: This bag once carried Springsteen's denim jacket](https://www.youtube.com/watch?v=fEOcwFaOlos)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg.webp)
 
 **1981:** A scheduled show in London is postponed due to Bruce's exhaustion from the first two legs of the River Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1981-0318.jpg.webp)
 
 **1985:** Bruce arrives in Sydney two days before what will be his first-ever show in Australia.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1985-03-19.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1985-03-19.png.webp)
 
 **1996:** Bruce plays his first-ever show in Northern Ireland, at King's Hall in Belfast. This show is available as part of Bruce's official archive series–[go get it](https://live.brucespringsteen.net/live-music/0,17589/Bruce-Springsteen-mp3-flac-download-3-19-1996-Kings-Hall-Belfast-UK.html).<br>
 
@@ -44,11 +44,11 @@ post_id: 56191
 
 [Watch Video Highlight](https://videopress.com/embed/yPtVKHzK)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1999-03-19a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1999-03-19a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1999-03-19b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1999-03-19b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1999-03-19c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1999-03-19c.jpg.webp)
 
 **2000:** Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.<br>
 
@@ -78,9 +78,9 @@ post_id: 56191
 
 [Watch on Youtube: "Thunder Road" (MULTI-CAM) - Bruce Springsteen LA 3/19/2016](https://www.youtube.com/watch?v=3zc2E7N2xPg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2016-03-19a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2016-03-19a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2016-03-19b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2016-03-19b.jpg.webp)
 
 **2024:** Bruce and the E Street Band resume their world tour at Footprint Center in Phoenix, where "[Don't Play That Song](../2023-02-12_cover-me-dont-play-that-song-you-lied/post.md)" makes a welcome return to the set and "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" is notably and sadly absent.<br>
 

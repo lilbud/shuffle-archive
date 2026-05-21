@@ -12,7 +12,7 @@ post_id: 57108
 
 **1972:** Bruce and Clarence play together for only the second time ever when Bruce makes a guest appearance with Clarence's band, Norman Seldin and the Joyful Noyze, at The Shipbottom Lounge in Point Pleasant Beach, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/joyful.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/joyful.jpg.webp)
 
 **1973:** A scheduled gig in Chester, West Virginia, is believed to have been cancelled.<br>
 
@@ -24,9 +24,9 @@ post_id: 57108
 
 **1978:** Bruce and the E Street Band play to a half-sold Kiel Auditorium in St. Louis on the Darkness Tour. In attendance is 18-year-old Michael Stipe, who will share a stage with Bruce decades later when he fronts the rock band R.E.M.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-06-17.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1978-06-17.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1978-0617.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1978-0617.jpg.webp)
 
 **1992:** At Night Two in Stockholm and for World Tour 1992 itself, Bruce plays "[All or Nothin' at All](../2018-01-30_roll-of-the-dice-all-or-nothing-at-all/post.md)" and "[Real Man](../2020-04-15_roll-of-the-dice-real-man/post.md)" for the first time.<br>
 
@@ -64,7 +64,7 @@ post_id: 57108
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down (Tour Version Video)](https://www.youtube.com/watch?v=BYF8IntUFZI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2006-06-17.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2006-06-17.jpg.webp)
 
 **2012:** Bruce brings the Wrecking Ball Tour to Madrid and plays "[Spanish Eyes](../2023-01-14_roll-of-the-dice-spanish-eyes/post.md)" for the very first time. Southside Johnny is in town and joins Bruce and the E Street Band for a hilarious "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" and "Twist and Shout."<br>
 

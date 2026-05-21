@@ -12,11 +12,11 @@ post_id: 61239
 
 **1949:** E Street Band bassist and tuba-ist Garry W. Tallent is born in Detroit.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1949-1027.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1949-1027.jpg.webp)
 
 **1974:** Bruce cancels a scheduled show at Millersville University when he wakes up that morning with laryngitis.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/10/Intelligencer_Journal_1974_10_26_page_7.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/10/Intelligencer_Journal_1974_10_26_page_7.jpg.webp)
 
 **1976:** Bruce's second ever show at the Philadelphia Spectrum features a unique "[Something in the Night,](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" with a new last verse that is never heard again.<br>
 
@@ -24,7 +24,7 @@ post_id: 61239
 
 [Watch on Youtube: Bruce Springsteen She Is The One (Live In Philadelphia 1976)](https://www.youtube.com/watch?v=Yj15urYT0gw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1976-10-27.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/1976-10-27.png.webp)
 
 **1977:** At The Record Plant in New York City, Bruce records "[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)" and "[Preacher's Daughter.](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)" The former will not be released for more than two decades; the latter remains in the vault to this day.<br>
 
@@ -34,9 +34,9 @@ post_id: 61239
 
 [Watch Video Highlight](https://videopress.com/embed/1uStosGT)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1980-10-27.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/1980-10-27.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46735344874_c8e2fd32b2_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/46735344874_c8e2fd32b2_o.jpg.webp)
 
 **1983:** At The Hit Factory in New York City, Bruce and the E Street Band record "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)."<br>
 
@@ -46,11 +46,11 @@ post_id: 61239
 
 [Watch on Youtube: Bruce Springsteen @ Anti-Prop 209 Rally, Los Angeles, 1996-10-27](https://www.youtube.com/watch?v=pU_d4hCiT_k)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-10-27a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1996-10-27a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-10-27b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1996-10-27b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-10-27c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1996-10-27c.png.webp)
 
 **1998:** Bruce grants an interview for BBC's *A Secret History* documentary and performs a couple of songs for the show at The Saint in Asbury Park. The documentary will air in December to promote the upcoming *Tracks* collection.<br>
 
@@ -66,7 +66,7 @@ post_id: 61239
 
 [Watch on Youtube: Bruce Springsteen 2002.10.27 London d2t06 The River](https://www.youtube.com/watch?v=InfuO0x8Jtk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2002-10-27.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2002-10-27.png.webp)
 
 **2012:** Bruce performs an acoustic set at a re-election rally for President Obama at Soldiers & Sailors Memorial Hall in Pittsburgh. Later that night, he tour premieres "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" followed by a rare "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" at his Wrecking Ball show at the Consol Arena. Joe and Johnny Grushecky guest-star during the encores.<br>
 
@@ -82,7 +82,7 @@ post_id: 61239
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (with Joe Grushecky) Consol Energy Ctr - Pittsburgh - 10-27-12](https://www.youtube.com/watch?v=445kGg84Xz0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2012-10-27.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2012-10-27.png.webp)
 
 **2016:** Bruce makes an appearance and meets fans at Indigo Bay & Bloor in Toronto.<br>
 

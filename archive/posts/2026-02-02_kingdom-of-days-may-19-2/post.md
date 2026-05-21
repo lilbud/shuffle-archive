@@ -10,7 +10,7 @@ post_id: 56783
 ---
 **1973:** Bruce cancels a scheduled performance at Detroit’s Masonic Temple Theater.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1973-05-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1973-05-19.jpg.webp)
 
 **1975:** Bruce and the E Street Band work on what will become *Born to Run* at the Record Plant in New York City, including a version of “Backstreets” with strings.<br>
 
@@ -18,7 +18,7 @@ post_id: 56783
 
 **1977:** Bruce drops by The Stone Pony and joins The Shakes for two numbers, “Jailhouse Rock” and “Sea Cruise.”<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1977-0519.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1977-0519.jpg.webp)
 
 **1978:** Bruce and the E Street Band rehearse for the upcoming Darkness Tour at the Paramount Theater in Asbury Park. Among the songs they rehearse but never play publicly: “Spanish Eyes,” “The Brokenhearted,” and “The Way.” Listen to them all below, especially “The Brokenhearted,” on which you can hear the original coda (Bruce obviously and jarringly recorded a new one for the version that’s on *The Promise*) and “The Way,” which to this day has never had a proper performance. The recording quality isn’t the best, but the performance is stunning.<br>
 
@@ -36,9 +36,9 @@ post_id: 56783
 
 **1984:** Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at The Stone Pony.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1984-0519.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1984-0519.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1984-05-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1984-05-19.jpg.webp)
 
 **1988**: At Night Three (of five) at Madison Square Garden, Bruce records the videos for “Vigilante Man” and “I Ain’t Got No Home.”<br>
 
@@ -48,13 +48,13 @@ post_id: 56783
 
 [Watch Video Highlight](https://videopress.com/embed/SsOq1hBx)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1993-05-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1993-05-19.jpg.webp)
 
 **1997:** Bruce plays a solo acoustic show in Toulon, France.<br>
 
 **1999:** Night Two of four at Earls Court in London for the Reunion Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Evening_Standard_Fri__May_21__1999_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Evening_Standard_Fri__May_21__1999_-scaled.jpg.webp)
 
 **2003:** Elliott Murphy guest-stars on “[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)” and “Born to Run” when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.<br>
 
@@ -72,7 +72,7 @@ post_id: 56783
 
 [Watch on Youtube: Bruce Springsteen Dream Baby Dream](https://www.youtube.com/watch?v=mJPloPHGbjc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2005-05-19.jpg.webp)
 
 **2009:** The first and only E Street Band performance of “Like a Rolling Stone” debuts at the Mellon Arena in Pittsburgh. Plus: a rare outing for “Jackson Cage;” Joe and Johnny Grushecky join the band for two final encores of “[Glory Day](../1984-01-12_roll-of-the-dice-glory-days/post.md)s” and “Mony Mony.”<br>
 
@@ -80,7 +80,7 @@ post_id: 56783
 
 [Watch on Youtube: Bruce Springsteen - Joe Grushecky "Glory Days" 05-19-09 Mellon Arena Pittsburgh PA](https://www.youtube.com/watch?v=LLRvqyV-a_M)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2009-05-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2009-05-19.jpg.webp)
 
 **2016:** Bruce makes a return appearance (his third) at the Rock in Rio Festival in Lisbon. *The River* gets thrown by the wayside, with only three songs from that album making a Greatest Hits setlist that includes the tour premieres of “Darkness on the Edge of Town,” “Downbound Train,” “I’m on Fire,” “Johnny 99,” and “Spirit in the Night.” Watch the full pro-shot set below.<br>
 

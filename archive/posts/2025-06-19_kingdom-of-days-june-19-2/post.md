@@ -12,11 +12,11 @@ post_id: 57110
 
 **1967:** Bruce Springsteen graduates from Freehold Borough High School. He does not attend, however, but instead picks up his diploma later.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1967-0619.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1967-0619.jpg.webp)
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1968-0619.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1968-0619.jpg.webp)
 
 **1970:** Steel Mill takes a trip down to Richmond, where they play the first of two nights at The String Factory. The set list includes a twenty-minute "[Garden State Parkway Blues](../2018-11-30_roll-of-the-dice-garden-state-parkway-blues/post.md)" and the only known performance of "[Where Was Jesus in Ohio](../2020-07-06_roll-of-the-dice-where-was-jesus-in-ohio/post.md)?"<br>
 
@@ -26,13 +26,13 @@ post_id: 57110
 
 **1971:** The Sundance Blues Band plays the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1971-06-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1971-06-19.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1971-0619.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1971-0619.jpg.webp)
 
 **1974:** Bruce cancels a scheduled date at the Cowtown Ballroom in Kansas City.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1974-06-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1974-06-19.jpg.webp)
 
 **1988:** Bruce and the E Street Band bring the Tunnel of Love Tour to Paris for a single show at the Hippodrome de Vincennes.<br>
 
@@ -76,7 +76,7 @@ post_id: 57110
 
 [Watch on Youtube: Bruce Springsteen & The Sessions Band, Buffalo Gals, Live](https://www.youtube.com/watch?v=-Pi4xwctX_o)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2006-06-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2006-06-19.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)."<br>
 
@@ -118,4 +118,4 @@ post_id: 57110
 
 Bruce then played "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in place of ["Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" to drive home his message. The set list change will stick. In attendance tonight: Christina Aguilera.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2018-06-19.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2018-06-19.png.webp)

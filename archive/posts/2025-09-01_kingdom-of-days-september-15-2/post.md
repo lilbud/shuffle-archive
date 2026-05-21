@@ -12,7 +12,7 @@ post_id: 59656
 
 **1973:** A scheduled gig at Syracuse University is cancelled to make room for production work on *The Wild, The Innocent, and the E Street Shuffle.*<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1973-09-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1973-09-14.jpg.webp)
 
 **1976:** In the ongoing legal battle between Bruce and Mike Appel, a judge rules that Bruce is banned from entering a recording studio until the lawsuit is resolved. The only thing Bruce can do in the meantime is tour.<br>
 
@@ -20,7 +20,7 @@ post_id: 59656
 
 [Watch on Youtube: The Little Things (My Baby Does)](https://www.youtube.com/watch?v=pCAHAsxFVOQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1977-09-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1977-09-15.jpg.webp)
 
 **1978:** Bruce and the E Street Band kick off a three-night stand at the Palladium in New York City, opening the show with "[Darkness on the Edge of Town,](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" dedicated to Muhammad Ali, whose title fight with Leon Spinks is that night. Also notable at this show: The last "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" until the Reunion Tour and the tour premiere of "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)."<br>
 
@@ -34,13 +34,13 @@ post_id: 59656
 
 **1987:** The night before Danny Federici's wedding, Bruce and the band celebrate Danny at the Taylor Farms Tea Room in Janesville, Wisconsin.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1987-09-16a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1987-09-16a.jpg.webp)
 
 **1988:** The Human Rights Now! Tour kicks off a week-long North American leg with a show at the Maple Leaf Gardens in Toronto, where k.d. lang makes a guest appearance and "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" makes its tour premiere.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JUExiFZ0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1988-09-15.jpg.webp)
 
 **1989:** Bruce records "[Viva Las Vegas](../2018-12-07_cover-me-viva-las-vegas/post.md)" at One on One Recording in Los Angeles.<br>
 
@@ -52,11 +52,11 @@ post_id: 59656
 
 **2004:** Patti plays a solo show at the Paramount Theater in Asbury Park, and Bruce backs her on guitar and vocals.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2004-09-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2004-09-15.jpg.webp)
 
 **2007:** Bruce takes his son Evan to see Dropkick Murphys at the Roseland Ballroom in New York City.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/09/The_Boston_Globe_2007_09_19_23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/09/The_Boston_Globe_2007_09_19_23.jpg.webp)
 
 **2017:** Bruce and Steve catch Paul McCartney's show at Madison Square Garden and join him on stage during the encore, reprising the song that got the power pulled on them at Hyde Park.<br>
 

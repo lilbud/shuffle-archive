@@ -12,15 +12,15 @@ post_id: 57606
 
 **1972:** The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant's Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce's first overtly political action as a musician, and even then his favored candidates were decidedly liberal.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1972-07-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1972-07-05a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1972-07-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1972-07-05b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1972-0705.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1972-0705.jpg.webp)
 
 **1973:** Bruce and the E Street Band begin a five-night stand at The Main Point in Bryn Mawr, Pennsylvania, playing two shows on this first night.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1973-0705.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1973-0705.jpg.webp)
 
 **1974:** Bruce cancels a scheduled gig opening for Frank Zappa in St. Louis, most likely to make room for *Born to Run* recording sessions.<br>
 
@@ -32,13 +32,13 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeXLxXErlUAz5L0HrcE8Ahab)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-05a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-07-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1978-07-05b.jpg.webp)
 
 **1981:** Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play "Trapped" for the first time in the U.S. (Photo credit: Dari)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1981-0705.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1981-0705.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/g1ylNep8)
 
@@ -46,9 +46,9 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch Video Highlight](https://videopress.com/embed/C92hW6tT)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-07-05a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1984-07-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1984-07-05b.jpg.webp)
 
 **2008:** Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band "Drive All Night"  in 27 years as the centerpiece (check out the sound check below), and a rare "Roulette" and "Janey, Don't You Lose Heart" in the set as well.<br>
 

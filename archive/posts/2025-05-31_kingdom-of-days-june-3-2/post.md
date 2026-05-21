@@ -22,15 +22,15 @@ post_id: 56995
 
 [Watch Video Highlight](https://videopress.com/embed/hOUDtFAd)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1978-0603.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1978-0603.jpg.webp)
 
 **1979:** Bruce attends the wedding of his lighting director and travel agent at the Whisky a Go Go in West Hollywood. Bruce performs a three hour wedding-themed set (including "Wedding March," "[Wear My Ring Around Your Neck](../2020-07-07-cover-me-wear-my-ring-around-your-neck/post.md/)," "Mother-in-Law" and "Hava Nagila") with the E Street Band, Rickie Lee Jones, and Boz Scaggs.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1979-0603.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1979-0603.jpg.webp)
 
 **1989:** Bruce serenades the attendees of Roy Bittan's wedding with a cover of Elvis' "Loving You."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1989-0603.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1989-0603.jpg.webp)
 
 **1999:** Reunion Night Two in Paris brings a setlist shake-up, featuring the first-ever performances of "[Lion's Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)" and "[Loose Ends,](../2022-06-23_roll-of-the-dice-loose-end/post.md)" plus the welcome return of "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)."<br>
 
@@ -46,7 +46,7 @@ post_id: 56995
 
 [Watch Video Highlight](https://videopress.com/embed/jyjJsCaU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2000-06-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2000-06-02.jpg.webp)
 
 **2006:** Nils guest-stars on "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my [*Where the Band Was* report](../2018-06-03_where-the-band-was-glendale-june-3-2006/post.md) from this show.<br>
 
@@ -56,7 +56,7 @@ post_id: 56995
 
 [Watch on Youtube: Bruce Springsteen - Ramrod (With The Seeger Sessions) (2006-06-03)](https://www.youtube.com/watch?v=rV8Coai6W0k)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/06/The_Arizona_Republic_2006_06_07_Page_458-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/The_Arizona_Republic_2006_06_07_Page_458-scaled.jpg.webp)
 
 **2012:** In Lisbon's Bela Vista Park, Bruce and the E Street Band headline Rock in Rio. (Technically this show is performed on June 4th, as Bruce starts the show after midnight.) Bruce closes the show with the tour premiere of "Twist and Shout."<br>
 
@@ -78,7 +78,7 @@ post_id: 56995
 
 [Watch on Youtube: Bruce Springsteen Sherry Darling Coventry 3rd June 2016](https://www.youtube.com/watch?v=qsosWEaYqwg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Penarth_Times_Thu__Jun_9__2016_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Penarth_Times_Thu__Jun_9__2016_-scaled.jpg.webp)
 
 **2020:** With no fanfare, Bruce premieres his own recording of "[Idiot's Delight](../2021-03-12_rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/post.md)," (originally released by Joe Grushecky but co-written by both artists) on the fifth installment of his *From My Home to Yours* radio show on Sirius XM.<br>
 

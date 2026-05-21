@@ -12,7 +12,7 @@ post_id: 59751
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1971-1001.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1971-1001.jpg.webp)
 
 **1975:** Bruce plays his first-ever show in the state of Wisconsin, at the Uptown Theater in Milwaukee. Partway through the first set, the show is halted due to a bomb threat, and the band and audience adjourn for three hours while security sweeps the place. The band takes up temporary residence at the Hotel Pfister bar, and by the time the show resumes at midnight (with the live debut of "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)," the band is, um, loose. The ensuing second set will become legend, known forever after as "The Bomb Scare Show," with a *very* buzzed Springsteen enjoying himself immensely and continually asking the audience, "Are you loose?"<br>
 
@@ -20,15 +20,15 @@ post_id: 59751
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Milwaukee, WI 1975-10-02 (Soundboard/Audience Merge)](https://www.youtube.com/watch?v=9y_9-KI5pH4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1975-10-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/1975-10-01.jpg.webp)
 
 **1976:** Bruce and the E Street Band bring their Lawsuit Tour to the Paramount Theater in Oakland.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ZHK0AYUU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1976-10-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1976-10-02.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1976-1002.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1976-1002.jpg.webp)
 
 **1985:** The marathon Born in the U.S.A. Tour finally comes to a close in Los Angeles, with Julianne and Jon Landau getting on-stage appearances. Watch some great highlights from the show below, along with extensive news coverage of the event.<br>
 
@@ -38,23 +38,23 @@ post_id: 59751
 
 [Watch on Youtube: Bruce Springsteen - News coverage from end of the BITUSA Tour 1985-10-02](https://www.youtube.com/watch?v=xS9YRqgZZ5E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-10-02a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1985-10-02a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-10-02b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1985-10-02b.jpg.webp)
 
 **1992:** World Tour 1992 moves on to the America West Arena in Phoenix for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Ba5xlxSS)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-10-02a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1992-10-02a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-10-02b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1992-10-02b.jpg.webp)
 
 **1996:** Bruce plays a solo acoustic show at the Riverside Theater in Milwaukee, 21 years to the day of the infamous Bomb Scare Show (see above). Following the show, Bruce zips over to the Bradley Center, where he joins Melissa Etheridge on stage for a duet on "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1La8VWX2)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1996-1002.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1996-1002.jpg.webp)
 
 **2004:** The Vote for Change Tour of swing states moves on to Cleveland's Gund Arena, where "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" replaces "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" and "[Bad Moon Rising](../2023-01-18_matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/post.md)" replaces "Proud Mary." Bruce joins R.E.M. for two songs this time: "[Man on the Moon](../2021-01-06_matr-r-e-m-and-bruce-springsteen-man-on-the-moon/post.md)" (as with last night in Philly) and "[Bad Day](../2021-05-05_meeting-across-the-river-r-e-m-and-bruce-springsteen-bad-day/post.md)." For more highlights from this show, see my [*Where the Band Was* report.](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)<br>
 
@@ -66,7 +66,7 @@ post_id: 59751
 
 [Watch Video Highlight](https://videopress.com/embed/ISTytCik)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/10/The_Plain_Dealer_2004_10_03_13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/10/The_Plain_Dealer_2004_10_03_13.jpg.webp)
 
 **2006:** Bruce's Italian tour with the Sessions Band moves on to Torino.<br>
 
@@ -86,7 +86,7 @@ post_id: 59751
 
 [Watch on Youtube: She's The One (Hartford 10-02-07)](https://www.youtube.com/watch?v=8F8tpuO6OKM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-10-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2007-10-02.jpg.webp)
 
 **2009:** On Night Two (of five) at Giants Stadium, Bruce plays the entire [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) album and still finds time to tour premiere "[Jailhouse Rock](../2019-10-12_matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/post.md)" and "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and give "[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" its second-ever appearance. Curt Ramm is present once again (as he will be for the remainder of the tour), and he, Ed Manion, Art Baron, and Larry Eagle form an almost-Sessions Band reunion during the "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" encore.<br>
 

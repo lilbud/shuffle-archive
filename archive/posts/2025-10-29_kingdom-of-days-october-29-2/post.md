@@ -14,7 +14,7 @@ post_id: 61241
 
 **1972:** Bruce and his new, unnamed band headline a Halloween show at the National Guard Armory in Long Branch for the second year in a row. Bruce performs "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" for the first known time at this second show on the Greetings From Asbury Park Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1972-10-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/1972-10-29.jpg.webp)
 
 **1973:** Bruce headlines two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
@@ -22,13 +22,13 @@ post_id: 61241
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - The Music Hall, Boston, MA 10-29-1974](https://www.youtube.com/watch?v=FxSh2S4iW4I)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1974-10-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1974-10-29.png.webp)
 
 **1975:** Bruce and the E Street Band play to a small crowd (only 1,400 people out of 4,400 seats) at the Sacramento Memorial Auditorium.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1975-10-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1975-10-29.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1975-10-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/1975-10-29.jpg.webp)
 
 **1976:** "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" continues to evolve as a work-in-progress at the second of six nights at the Palladium in New York City, where Gary U.S. Bonds makes his first-ever guest appearance during the encore for (what else?) "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)."<br>
 
@@ -36,7 +36,7 @@ post_id: 61241
 
 [Watch on Youtube: Bruce Springsteen and Gary U.S. Bonds - "Quarter to Three" New York City, 1976-10-29](https://www.youtube.com/watch?v=tjN8PnM6otU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/32690199977_6e909f7e65_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/32690199977_6e909f7e65_o.jpg.webp)
 
 **1984:** On Night Four of seven at the L.A. Sports Arena, "[Night](../2019-10-31_roll-of-the-dice-night/post.md)" makes its one and only appearance on the Born in the U.S.A. Tour.<br>
 
@@ -48,15 +48,15 @@ post_id: 61241
 
 [Watch Video Highlight](https://videopress.com/embed/Sbn9vscb)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-10-29a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1996-10-29a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-10-29b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1996-10-29b.png.webp)
 
 **2004:** Bruce performs at a rally for presidential candidate John Kerry at the Bayfront Park Amphitheater in Miami.<br>
 
 [Watch on Youtube: Bruce Springsteen - Rally for John Kerry - Miami, 2004-10-29](https://www.youtube.com/watch?v=t-QMTqC3tF4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2004-10-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2004-10-29.png.webp)
 
 **2006:** The Seeger Sessions Tour continues its Scandinavian swing with a stop at the Oslo Spektrum.<br>
 
@@ -72,9 +72,9 @@ post_id: 61241
 
 [Watch on Youtube: Bruce Springsteen—Living in the Future—Live in Los Angeles 2007-10-29](https://www.youtube.com/watch?v=VWX-312F1E0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2007-10-29a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/2007-10-29a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-10-29b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2007-10-29b.png.webp)
 
 **2009:** Bruce and the E Street Band headline the first night of the Rock and Roll Hall of Fame's 25th Anniversary Concerts in New York City. Guest-stars abound: Sam Moore, Tom Morello, John Fogerty, Darlene Love, Billy Joel, Jackson Browne, and Peter Wolf. The show is commercially available and essential viewing.<br>
 
@@ -86,7 +86,7 @@ post_id: 61241
 
 [Watch on Youtube: "Born to Run" | Bruce Springsteen and Billy Joel perform at the 25th Anniversary Concert](https://www.youtube.com/watch?v=l2BvmL2MMJ8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2009-10-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2009-10-29.png.webp)
 
 **2010:** Bruce turns up at the National Film Theater in London for the premiere of *The Promise.*<br>
 
@@ -94,7 +94,7 @@ post_id: 61241
 
 [Watch on Youtube: Bruce Springsteen introduces The Promise @ London BFI Friday 29th October 2010](https://www.youtube.com/watch?v=cvR_FMJALh0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/10/The_Independent_Sun__Oct_31__2010_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/10/The_Independent_Sun__Oct_31__2010_-scaled.jpg.webp)
 
 **2021:** Bruce appears with former President Barack Obama (in a pre-recorded interview) on *The Graham Norton Show*.<br>
 

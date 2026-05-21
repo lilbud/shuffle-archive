@@ -49,9 +49,9 @@ In the autumn of 1968, nineteen-year-old Bruce Springsteen put pen to paper and 
 
 Bruce never recorded his adaptation of *Adventures of Huckleberry Finn*, but he did include some margin notes (for example, "Instead of A minor use D") that at least tell us he envisioned "Mississippi" as a song rather than a poem.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/mississippi_lyrics1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/mississippi_lyrics1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/mississippi_lyrics2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/mississippi_lyrics2.jpg.webp)
 
 "Mississippi" is one of the many unrecorded, unreleased songs Bruce transcribed in his 1968 Notebook. Discover others in the series [here](https://estreetshuffle.com/index.php/tag/1968-notebook/).
 

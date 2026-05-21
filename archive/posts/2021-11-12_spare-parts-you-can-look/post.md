@@ -20,37 +20,37 @@ I left with a very nice cache of scanned and captured documents that I'll weave 
 
 First up: a few pages from a teenage Bruce Springsteen's school term paper on the New Jersey Judicial System. I don't know how old Bruce was when he wrote it, but I love seeing how his handwriting looked before he'd started signing autographs by the the thousands. I also get a kick out of the ever-widening margins, and the way his teacher catches on to him by the end. The kicker is his teacher's final remark: "Somewhat brief." That may be the only time someone has ever used those words to describe Bruce's work.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2068.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2068.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2069.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2069.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2070.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2070.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2071.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2071.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2072.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2072.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2073.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2073.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2083.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2083.jpeg.webp)
 
 Next up: a very nice thank-you note from Quincy Jones to Bruce after the recording session for "We Are the World."
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2088.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2088.jpeg.webp)
 
 I loved this adorable note from Bruce's Aunt Dora to his mom around the time of Bruce's year-ending stand at the Tower Theater in 1975.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2120.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2120.jpeg.webp)
 
 What do you suppose an "Oreo party" is like? Bruce must have been sorely tempted to go.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2089.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2089.jpeg.webp)
 
 And finally (for now), this touching letter from an aspiring musician to his idol. You might recognize who it's from.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2090.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2090.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/IMG_2091.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/IMG_2091.jpeg.webp)
 
 We'll see more fascinating artifacts from the Springsteen Archives in next year's *Kingdom of Days* series, but for now and once again: my thanks to Eileen and Connor and the entire staff for the important work they do and the gracious assistance they provide to researchers.
 

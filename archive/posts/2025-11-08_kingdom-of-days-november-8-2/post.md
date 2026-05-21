@@ -12,13 +12,13 @@ post_id: 61316
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the third of a five-night/ten-show stand.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1973-11-06.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/1973-11-06.jpg.webp)
 
 **1974:** Continuing a week of Texas shows, Bruce and the E Street Band play a show at the Ritz Music Hall in Corpus Christi.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Corpus_Christi_Caller_Thu__Nov_7__1974_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/11/The_Corpus_Christi_Caller_Thu__Nov_7__1974_-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/corpus.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/corpus.jpg.webp)
 
 **1977:** Bruce holds a recording session for *Darkness on the Edge of Town* at The Record Plant in New York City.<br>
 
@@ -28,21 +28,21 @@ post_id: 61316
 
 [Watch on Youtube: Bruce Springsteen, 1978, Montreal, singing with crowd, Rare Super 8 Home Movies](https://www.youtube.com/watch?v=APIol5ZleSU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1978-11-08.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1978-11-08.png.webp)
 
 **1980:** The River Tour visits Texas, starting with a show at the Reunion Arena in Dallas, where the band plays "The Yellow Rose of Texas" for the occasion.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Yellow Rose of Texas/Cadillac Ranch" - Dallas 1980-11-08](https://www.youtube.com/watch?v=DzDd5_voJkM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1980-11-08.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1980-11-08.png.webp)
 
 **1984:** Bruce and the band make a Born in the U.S.A. Tour stop at Arizona State University in Tempe.<br>
 
 [Watch on Youtube: Tempe 08/11/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zD5Fn5jxXB9E-xQlb2SMEGh)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-11-08a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1984-11-08a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-11-08b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1984-11-08b.png.webp)
 
 **1996:** Bruce plays a very special acoustic show at a very special venue: his old elementary school, St. Rose of Lima. This isn't his first time playing the school gym (that was back in his Castiles days), but it's his first time back since then. Although this show is technically part of the Ghost of Tom Joad Tour, in reality it's a very different performance. First of all, he isn't solo: Patti and Soozie join him on several numbers. Secondly, the setlist is *very* different, with *nine* tour premieres. Bruce opens with a gorgeous, Soozie-accompanied "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" and closes with a world debut: "[Freehold](../2018-12-03_roll-of-the-dice-freehold/post.md)," which Bruce wrote for the occasion. In between, there's gem after gem: "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" and "[When You're Alone](../1987-01-11_roll-of-the-dice-when-youre-alone/post.md)" with Soozie and Patti, "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)" and "[Used Cars](../2019-06-13_roll-of-the-dice-used-cars/post.md)" solo, an absolutely stunning "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" with Soozie, and more. Check out the clips below, and then buy the official archive series release [here](https://live.brucespringsteen.net/live-music/0,19468/Bruce-Springsteen-mp3-flac-download-11-8-1996-St-Rose-of-Lima-School-Freehold-NJ.html).<br>
 
@@ -58,17 +58,17 @@ post_id: 61316
 
 [Watch on Youtube: My Hometown (Live at St. Rose of Lima School, Freehold, NJ - 11/8/1996)](https://www.youtube.com/watch?v=8ciedX5Qkx4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-11-08a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1996-11-08a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-11-08b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1996-11-08b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1996-11-08c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1996-11-08c.png.webp)
 
 **2003:** Bruce makes a guest appearance at a Muscular Dystrophy Association benefit in Aberdeen, New Jersey, performing "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and other songs with the house band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2003-11-08.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/2003-11-08.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Asbury_Park_Press_2003_11_14_Page_109.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/11/Asbury_Park_Press_2003_11_14_Page_109.jpg.webp)
 
 **2005:** Bruce is in Philadelphia, and you know what that means: fans attending Bruce's solo acoustic show get their traditional surprise treat–this time the long-awaited return of "[Drive All Night,](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" played for the first time in 24 years. (Watch that moment and other highlights below.) That's not the only tour premiere: Bruce also opens the show with "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" — as a solo *harmonica* number. Not bad for a Night One!<br>
 
@@ -98,7 +98,7 @@ post_id: 61316
 
 [Watch Video Highlight](https://videopress.com/embed/fixgKvan)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/The_Record_2012_11_09_A2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/11/The_Record_2012_11_09_A2.jpg.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

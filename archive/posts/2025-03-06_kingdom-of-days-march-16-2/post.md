@@ -12,17 +12,17 @@ post_id: 56176
 
 **1973:** Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1973-0316.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1973-0316.jpg.webp)
 
 **1974:** Bruce and the band play their second of two nights at Armadillo World Headquarters in Austin.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/47802963802_7161fc584d_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/47802963802_7161fc584d_o.jpg.webp)
 
 **1988:** The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nights at the Rosemont Horizon.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/N9EzSYt4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-03-16.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1988-03-16.jpg.webp)
 
 **1996:** Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.<br>
 
@@ -42,7 +42,7 @@ post_id: 56176
 
 [Watch on Youtube: Bruce Springsteen ~ Xcel Center ~ St Paul 3-16-08 ~ Magic](https://www.youtube.com/watch?v=nNvJ_sZfNwQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2008-03-16.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/2008-03-16.jpg.webp)
 
 **2013:** Night Two in Brisbane opens with the live debut of "[High Hopes](../2021-08-25_cover-me-high-hopes/post.md)."<br>
 
@@ -66,4 +66,4 @@ post_id: 56176
 
 [Watch on Youtube: Bruce Springsteen Philadelphia 3/16/23 clips from behind the stage, great view of the crowd and pit](https://www.youtube.com/watch?v=vpM5M6nBrtk?start=1868)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg.webp)

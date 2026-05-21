@@ -16,7 +16,7 @@ Some of them have surfaced in old, yellowing notebooks over the years, often thr
 
 But here's one that Bruce seems to have abandoned almost as soon as he started. With nothing to go one–no title, no chords, no date, barely even a verse–it's a curiosity at best. I wouldn't even know if its existence had this photograph not found its way to [Brucebase](https://brucebase.wikidot.com/).
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/inkansas.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/inkansas.jpg.webp)
 
 Bruce seems to be teeing up some kind of environmental message, but that's pure speculation, since we have nothing else to go by.
 

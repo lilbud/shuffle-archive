@@ -12,17 +12,17 @@ post_id: 56369
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/19690402_Advert_02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/19690402_Advert_02.jpg.webp)
 
 **1974:** Bruce and the E Street Band headline a show at Widener College.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1974-0405.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1974-0405.jpg.webp)
 
 **1976:** The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-05 Ohio Theatre, Columbus, OH](https://www.youtube.com/watch?v=lGkeKgZblAo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0405.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1976-0405.jpg.webp)
 
 **1978:** "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" receives its final mix at the Record Plant in New York City.<br>
 
@@ -32,7 +32,7 @@ post_id: 56369
 
 [Watch Video Highlight](https://videopress.com/embed/v5RXcyFL)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1988-04-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1988-04-05.jpg.webp)
 
 **1995:** A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on *The Late Show with David Letterman*, where they premiere "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)."<br>
 
@@ -42,23 +42,23 @@ post_id: 56369
 
 [Watch Video Highlight](https://videopress.com/embed/VFJF5tXA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1995-04-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1995-04-05.jpg.webp)
 
 **2006:** Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2006-04-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2006-04-05.jpg.webp)
 
 **2007:** Bruce makes a surprise appearance at a Carnegie Hall benefit show, *Celebrating the Music of Bruce Springsteen: Music for Youth*, joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.<br>
 
 [Watch on Youtube: bruce & friends - rosalita](https://www.youtube.com/watch?v=jtjPO47XIbs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2007-04-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2007-04-05.jpg.webp)
 
 **2008:** Another radio station contest to pick a song for the set list–this time "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" is the winner for this Magic Tour stop at HP Pavilion in San Jose. "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" and "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" make their tour debut tonight as well.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4ds7LEvR)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-1-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-1-scaled.jpg.webp)
 
 **2009:** Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" and "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)."<br>
 
@@ -66,9 +66,9 @@ post_id: 56369
 
 [Watch on Youtube: BRUCE SPRINGSTEEN "Sherry Darling" 4-5-09 Austin](https://www.youtube.com/watch?v=T0lCBVUQguk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2009-04-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2009-04-05a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2009-04-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/2009-04-05b.jpg.webp)
 
 **2016:** At a River Tour stop in Dallas, things get a little out of hand during "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 

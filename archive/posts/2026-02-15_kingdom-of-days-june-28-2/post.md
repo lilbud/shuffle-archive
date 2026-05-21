@@ -18,7 +18,7 @@ post_id: 57514
 
 **1984:** At the Civic Center Arena in St. Paul, the day before the Born in the U.S.A. Tour begins, director Brian De Palma films footage for the video for "Dancing in the Dark." Bruce performs before an "audience" of three professional models (including future actress Courtney Cox), five lucky fans, and at least 200 extras behind the stage. To thank the intimate crowd, Bruce and the band perform a mini-concert concluding with "Detroit Medley" when the shoot is complete. Bruce fan (and E Street Shuffle guest blogger!) Sandi Pederson is one of the five lucky locals chosen to join the models and extras for the video shoot.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/bruceandsandi.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/bruceandsandi.jpg.webp)
 
 **1988:** The Tunnel of Love Tour arrives in Rotterdam for the first of two nights.<br>
 
@@ -28,9 +28,9 @@ post_id: 57514
 
 [Watch Video Highlight](https://videopress.com/embed/8wxTcxZg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1993-06-28a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1993-06-28a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1993-06-28b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1993-06-28b.jpg.webp)
 
 **2003:** Bruce and the E Street Band play their final European Rising show in Milan during an intense thunderstorm. Check out the video below to see how intense the rain was during the performance, and for the beautiful performance (and tour premiere) of "Follow That Dream."<br>
 
@@ -62,11 +62,11 @@ post_id: 57514
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=P5pNqBhz8uI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Evening_Standard_2009_06_29_A23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Evening_Standard_2009_06_29_A23.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Actress Cate Blanchett and Jon Bon Jovi are in attendance tonight.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/cate.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/cate.jpg.webp)
 
 **2023:** "Twist and Shout" makes its tour debut when Bruce and the E Street Band complete their three-night stand in Gothenburg, Sweden.<br>
 

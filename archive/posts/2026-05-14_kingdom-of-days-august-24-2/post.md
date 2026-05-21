@@ -14,7 +14,7 @@ post_id: 59420
 
 **1974:** A scheduled show is cancelled at the Cinematic Circus in Woodbourne, New York.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1974-08-24.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1974-08-24.jpg.webp)
 
 **1977:** Bruce and the E Street Band hold a recording session in New York City for their upcoming album.<br>
 
@@ -28,13 +28,13 @@ post_id: 59420
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EL0CFhgBhz8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Simi_Valley_Star_1981_08_26_34.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/Simi_Valley_Star_1981_08_26_34.jpg.webp)
 
 **1988:** Bruce makes a surprise appearance at Sting's show at Madison Square Garden, dueting on "The River" and "Message in a Bottle." The two will shortly kick off a tour together in support of Amnesty International.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NdZIIyTZ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1988-08-24.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1988-08-24.png.webp)
 
 **1999:** Bruce and the reunited E Street Band play their third of five shows at Boston's Fleet Center.<br>
 
@@ -48,9 +48,9 @@ post_id: 59420
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBZFKBVhmGttZWHy11qCyk9)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2002-08-24a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2002-08-24a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2002-08-24b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2002-08-24b.png.webp)
 
 **2008:** The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring *six* tour premieres (and two world debuts, including the first-ever "Ricky Wants a Man of Her Own"), Max on lead vocals on "Boys", a Soozie and Bruce duet on "It's All Over Now," and more.<br>
 
@@ -60,15 +60,15 @@ post_id: 59420
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=h7k2dlprYhU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2008-08-24a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2008-08-24a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2008-08-24b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2008-08-24b.jpg.webp)
 
 **2012:** The Wrecking Ball Tour heads north to Canada, starting with a show at the Rogers Center in Toronto, where an undisputed highlight is a rare solo piano "Incident on 57th Street."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mIiL3kvbi34)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/The_Toronto_Star_2012_08_25_3-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/The_Toronto_Star_2012_08_25_3-1.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

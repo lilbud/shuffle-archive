@@ -20,7 +20,7 @@ post_id: 57180
 
 [Watch on Youtube: Bruce Springsteen: I Fought The Law - Audio](https://www.youtube.com/watch?v=SH6H1GcvuPs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Daily_Herald_1978_06_28_43.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/The_Daily_Herald_1978_06_28_43.jpg.webp)
 
 **1984:** Bruce and the E Street Band rehearse one last time before kicking off the Born in the U.S.A. Tour. Following her successful audition the day before, Bruce invites Patti Scialfa to join the band effective immediately. She accepts on the spot.<br>
 
@@ -36,9 +36,9 @@ post_id: 57180
 
 [Watch on Youtube: Bruce Springsteen London 25/06/1988 Full Concert](https://www.youtube.com/watch?v=bvWITRQO8oY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1988-06-25.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1988-06-25.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1988-0625.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1988-0625.jpg.webp)
 
 **1992:** Bruce's World Tour 1992 arrives in Frankfurt for the first of two nights. Watch CNN coverage of the show below.<br>
 
@@ -50,7 +50,7 @@ post_id: 57180
 
 [Watch on Youtube: "Project X" on Letterman, June 25, 1993](https://www.youtube.com/watch?v=R9hqLDOPNg8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1993-06-25.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1993-06-25.jpg.webp)
 
 **2003:** The European leg of the Rising Tour hits the home stretch with this show in Vienna, featuring a full-band "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)."<br>
 
@@ -72,7 +72,7 @@ post_id: 57180
 
 [Watch on Youtube: Man on the flying trapeze](https://www.youtube.com/watch?v=voXHqkN2k9Q)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2006-06-25.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2006-06-25.jpg.webp)
 
 **2008:** When the Magic Tour comes to Milan, Bruce opens with "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," closes with the tour premiere of "Twist and Shout," and treats fans to the first European performance of "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)."<br>
 

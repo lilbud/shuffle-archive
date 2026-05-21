@@ -30,8 +30,8 @@ That afternoon, before the show, Bruce and the band rehearse “[Does This Bus S
 
 **1987:** A newly published telephone poll reveals that 27% of all American adults (+/- 3 points) consider themselves Springsteen fans, and 46% have a positive opinion about him.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/poll-Daily_World_Tue__Jan_6__1987_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/01/poll-Daily_World_Tue__Jan_6__1987_.jpg.webp)
 
 **1993**: Bruce sings “[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)” at the funeral of Kristen Ann Carr, his managers’ daughter. After Carr dies of cancer at the age of 21, her family establishes The Kristen Ann Carr Fund to raise money for the fight against cancer. Bruce will play several benefits for the organization over the years that follow.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/carr93.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/carr93.jpg.webp)

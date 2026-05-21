@@ -28,9 +28,9 @@ So begins a heartbreaking article by Sebastian Rotella in the Los Angeles Times 
 
 Bruce discreetly tried to contact Rotella about his article through Terry Magovern (who didn't identify who he was representing), but Rotella was in Mexico at the time and didn't return the call.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/balboa1-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/balboa1-1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/balboa2-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/balboa2-1.jpg.webp)
 
 Nevertheless, in 1995, Bruce adapted the article into a song, recorded it, and released it on *T[he Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md).* He named the song after the location both the song and article centered on: Balboa Park.
 

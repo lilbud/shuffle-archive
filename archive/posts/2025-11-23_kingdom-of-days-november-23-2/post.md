@@ -12,17 +12,17 @@ post_id: 62429
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park. Afterward, Bruce zips over to Linden to join Pat Karwin and the Psychotic Blues Band in a late-night jam session at the New Plaza Theater.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1971-11-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/1971-11-23.jpg.webp)
 
 **1973:** A scheduled appearance opening for Kenny Loggins and Jim Messina at the Richmond Coliseum is canceled.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Richmond_Times_Dispatch_Sun__Nov_4__1973_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/11/Richmond_Times_Dispatch_Sun__Nov_4__1973_-scaled.jpg.webp)
 
 **1974:** Bruce and the E Street Band headline at Salem State College in Massachusetts.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2019/11/Bruce-Springsteen-1974-11-23.mp3](https://estreetshuffle.com/wp-content/uploads/2019/11/Bruce-Springsteen-1974-11-23.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1974-1123.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/1974-1123.jpg.webp)
 
 **1975:** Bruce plays his first-ever show in the Netherlands, a Born to Run Tour stop at RAI Amsterdam.<br>
 
@@ -30,13 +30,13 @@ post_id: 62429
 
 [Watch Video Highlight](https://videopress.com/embed/kr7d6my0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Guardian_1975_12_05_10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/The_Guardian_1975_12_05_10.jpg.webp)
 
 **1980:** The River Tour arrives in Washington, DC for the first of a two-night stand at the Capital Center in Largo.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Born to Run" - Largo, 1980-11-23](https://www.youtube.com/watch?v=fbGNmCLiLsc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1980-11-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1980-11-23.png.webp)
 
 **1984:** MTV premieres Bruce's new video, "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.<br>
 
@@ -44,15 +44,15 @@ post_id: 62429
 
 [Watch on Youtube: Bruce Springsteen - "Mansion on the Hill" - Austin, 1984-11-23](https://www.youtube.com/watch?v=1QMgRACADUE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/1984-11-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/1984-11-23.png.webp)
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to the Orlando Arena.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The Big Muddy" - Orlando, 1992-11-23](https://www.youtube.com/watch?v=lC0b353qh4o)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-23a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1992-11-23a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-23b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1992-11-23b.png.webp)
 
 **2002:** Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: "[Out in the Street,](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" "Because the Night" (with Bono and Dave Stewart), "So Young and in Love," and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.<br>
 
@@ -62,7 +62,7 @@ post_id: 62429
 
 [Watch on Youtube: Bruce Springsteen & DIon, "If I Should Fall Behind" - Miami, 2002-11-23](https://www.youtube.com/watch?v=RIQoIWs6MSE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2002-11-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/2002-11-23.png.webp)
 
 **2019:** Bruce contributes a brief video salute for Steve Van Zandt's tribute at the Rock and Roll Forever Foundation's First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their *[Letter to You](../2017-01-01_album-companion-letter-to-you/post.md)*recording session that finished just the day before.<br>
 

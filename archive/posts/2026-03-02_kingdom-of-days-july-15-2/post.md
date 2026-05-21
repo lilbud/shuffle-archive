@@ -10,7 +10,7 @@ post_id: 57723
 ---
 **1969:** Child plays several sets at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1969-0715.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1969-0715.jpg.webp)
 
 **1975:** Bruce works on "Thunder Road" at a recording session at the Record Plant in New York City.<br>
 
@@ -24,7 +24,7 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 [Watch Video Highlight](https://videopress.com/embed/48WRw6pC)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/The_Lexington_Herald_1978_07_30_73-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/The_Lexington_Herald_1978_07_30_73-scaled.jpg.webp)
 
 **1981:** It's Night Two of a five-night River Tour stand at the Philadelphia Spectrum.<br>
 
@@ -34,11 +34,11 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s4tI02srR48)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-07-15.jpg.webp)
 
 **1989:** Bruce makes a guest appearance with X-Men at T-Birds Cafe in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1989-07-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1989-07-15.jpg.webp)
 
 **1999:** Bruce and the E Street Band kick off the U.S. leg of the Reunion Tour with the first of fifteen(!) shows at the Continental Airlines Arena in East Rutherford. The anticipation and build-up to this show is intense, and VH1 broadcasts the first couple of songs. Kicking off the encores, Bruce plays "Freehold" for only the second time in the U.S. This show is available to stream or purchase as part of Bruce's official archive series.<br>
 
@@ -48,11 +48,11 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-L6c3RKKVXk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1999-07-15a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1999-07-15a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1999-07-15b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1999-07-15b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1999-07-15c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1999-07-15c.jpg.webp)
 
 **2003:** Bruce and the E Street Band kick off the final leg of the Rising Tour with the first of a ten-night stand at Giants Stadium in East Rutherford. The sets will be relatively standard at first, legendary by the end. Similar to the kick-off of the U.S. Reunion Tour exactly four years prior to the day, public attention and news coverage is intense. Check out some of it below, including a special episode of *Tailgate Party* marking the occasion.<br>
 

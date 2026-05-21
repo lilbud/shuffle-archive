@@ -20,7 +20,7 @@ That evening, Bruce and the (still unnamed) E Street Band play two shows at Libe
 
 [Watch Video Highlight](https://videopress.com/embed/4B0zuMOh)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1975-0308.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1975-0308.jpg.webp)
 
 **1982:** In a Los Angeles recording studio, Bruce gives his song "[Protection](../2021-12-26_rotd-cover-me-donna-summer-protection/post.md)" to Donna Summer and provides backing vocals and guitar on the track, while Roy plays piano.<br>
 
@@ -30,9 +30,9 @@ That evening, Bruce and the (still unnamed) E Street Band play two shows at Libe
 
 [Watch Video Highlight](https://videopress.com/embed/kJVz376X)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1988-03-08a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1988-03-08a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1988-03-08b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1988-03-08b.jpg.webp)
 
 **1997:** Bruce plays with The Wallflowers at Tradewinds in Sea Bright, New Jersey. Fan footage of his arrival at sound check plus full show audio (including Bruce's only known cover of "[Brand New Cadillac](../2019-02-07_matr-bruce-springsteen-and-the-wallflowers-brand-new-cadillac/post.md)") below.<br>
 
@@ -40,15 +40,15 @@ That evening, Bruce and the (still unnamed) E Street Band play two shows at Libe
 
 [Watch on Youtube: Bruce Springsteen and the Wallflowers - Sea Bright - 1997-03-08](https://www.youtube.com/watch?v=l5K3p6FWeEY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1997-03-08.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1997-03-08.jpg.webp)
 
 **1999:** Bruce and the E Street Band rehearse for their upcoming Reunion Tour at Asbury Park's Convention Hall.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1999-03-08.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1999-03-08.jpg.webp)
 
 **2008:** Bruce drops by a benefit for the Ranney School at the Eagle Oaks Country Club in Farmingdale, New Jersey and plays "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" with Tim McLoone and the Shirleys. (photo credit: backstreets.com)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/2008-0308.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/2008-0308.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

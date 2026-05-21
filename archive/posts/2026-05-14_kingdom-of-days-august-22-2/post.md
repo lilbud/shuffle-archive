@@ -10,13 +10,13 @@ post_id: 59400
 ---
 **1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver's in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1973-08-22.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1973-08-22.png.webp)
 
 **1975:** Bruce and the boys play their second of three nights at Alex Cooley's Electric Ballroom in Atlanta.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0822.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1975-0822.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1975-08-22.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1975-08-22.png.webp)
 
 **1976:** The original Miami Horns (also known as the Asbury Jukes horn section) make their final appearance with Bruce and the E Street Band at their show at the Springfield Civic Center.<br>
 
@@ -48,13 +48,13 @@ post_id: 59400
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5heubw6GS9Y)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-22.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-22.png.webp)
 
 **1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm's All-Stars for "Up on Cripple Creek" and "L[ucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gxirqWhO)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Press_of_Atlantic_City_1987_08_28_64-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/Press_of_Atlantic_City_1987_08_28_64-scaled.jpg.webp)
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to the Richfield Coliseum for the second of two nights.<br>
 
@@ -66,11 +66,11 @@ post_id: 59400
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCEh2K-yqI1PAzBZnCXjDzJ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1999-08-22.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1999-08-22.png.webp)
 
 **2002:** Bruce appears on the cover of the new issue of *Rolling Stone*.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/RScover.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/RScover.jpg.webp)
 
 **2009:** Bruce brings the Working on a Dream Tour to Mansfield, Massachusetts, for the first of two shows. Jay Weinberg takes the drums for the encores.<br>
 
@@ -84,6 +84,6 @@ post_id: 59400
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uZmlxapGWww)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2009-08-22.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2009-08-22.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>

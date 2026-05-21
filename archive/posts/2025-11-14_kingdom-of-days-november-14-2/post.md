@@ -14,11 +14,11 @@ post_id: 61366
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1971-1001.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1971-1001.jpg.webp)
 
 **1973:** Bruce and the band that will someday be named E Street headline two shows at My Father's Place in Roslyn, New York.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1973-11-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/1973-11-15.jpg.webp)
 
 **1974:** A scheduled show at the Houston Music Hall on this date was cancelled and moved earlier to November 9th instead.<br>
 
@@ -28,15 +28,15 @@ post_id: 61366
 
 [Watch on Youtube: Bruce Springsteen, Live in Utica, "Rave On" - 1978-11-14](https://www.youtube.com/watch?v=qkYIw85mVCc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47544065821_b52b66e6f3_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/47544065821_b52b66e6f3_o.jpg.webp)
 
 **1980:** Bruce brings the River Tour to The Summit in Houston for the first of two nights.<br>
 
 [Watch on Youtube: Bruce Springsteen - "In the Midnight Hour" - Houston, 1980-11-14](https://www.youtube.com/watch?v=G2yx105ER6c)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Houston_Post_1980_11_16_75.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/The_Houston_Post_1980_11_16_75.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Houston_Chronicle_1980_11_15_39-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/The_Houston_Chronicle_1980_11_15_39-scaled.jpg.webp)
 
 **1987:** By way of introduction to Bruce's rising "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" single, *American Top 40* host Casey Kasem gives a dramatic re-enactment of a late night billboard defacement foray on the Darkness Tour.<br>
 
@@ -46,19 +46,19 @@ post_id: 61366
 
 [Watch on Youtube: Bruce Springsteen - Live in Lowell, MA - "The River" - 1996-11-14](https://www.youtube.com/watch?v=taSKipCPcUM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Hartford_Courant_1996_11_21_Page_75.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/11/Hartford_Courant_1996_11_21_Page_75.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band play their first of two shows at the Gund Arena in Cleveland.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Spirit in the Night" - Cleveland, 1999-11-14](https://www.youtube.com/watch?v=JBZ4lIPfAuU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-11-14.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-11-14.png.webp)
 
 **2002:** "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" makes a long-awaited return when the Rising Tour stops at Rupp Arena in Lexington. Until tonight, it hasn't been played for almost 24 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Streets of Fire" - Lexington, 2002-11-14](https://www.youtube.com/watch?v=8CInxo96uLs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Lexington_Herald_Leader_Fri__Nov_15__2002_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/11/Lexington_Herald_Leader_Fri__Nov_15__2002_-scaled.jpg.webp)
 
 **2006:** "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" sees its Seeger Sessions Tour premiere (as a duet with Frank Bruno) in fellow former steel town Sheffield, and "[Froggie Went A-Courtin'](../2006-01-14_roll-of-the-dice-cover-me-froggie-went-a-courtin/post.md)" makes a rare appearance to close the show.<br>
 
@@ -74,19 +74,19 @@ post_id: 61366
 
 [Watch on Youtube: Youngstown Pittsburgh Nov 14th Bruce Springsteen](https://www.youtube.com/watch?v=LUtEj3NuvJE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-11-14.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2007-11-14.png.webp)
 
 **2010:** Bruce attends Bob Dylan's concert at Monmouth University.<br>
 
 **2016:** Bruce attends a party at Maialino in New York City, held by his publishers to celebrate the performance of his new book.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/booktour.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/booktour.jpg.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: original E Street Band member Vini Lopez.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2018-11-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/2018-11-14.jpg.webp)
 
 **2020:** After consuming two shots of tequila with some friendly fans, Bruce is arrested at the Gateway National Recreation Area in Sandy Hook for driving while intoxicated–even though a breathalyzer test proves that Bruce's blood alcohol level is a mere fraction of the amount required to qualify as intoxicated. The incident will remain unpublicized until early the following year.<br>
 

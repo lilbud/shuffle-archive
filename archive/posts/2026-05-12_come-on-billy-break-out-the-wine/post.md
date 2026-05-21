@@ -68,7 +68,7 @@ Without the benefit of hindsight, we might dismiss "Come On Billy, Break Out the
 
 But it's also a fun and fascinating peek into how beloved songs sometimes start from humble beginnings.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2026/05/lyricsheet_nothingcanstopme_2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/05/lyricsheet_nothingcanstopme_2.jpg.webp)
 
 **Come On Billy, Break Out the Wine**<br>
 **Never recorded**<br>

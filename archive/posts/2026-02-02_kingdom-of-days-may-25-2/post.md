@@ -34,7 +34,7 @@ post_id: 56836
 
 [Watch on Youtube: Bruce Springsteen Dublin 25/5/1999 Full Concert](https://www.youtube.com/watch?v=Dm9g9tKWngA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1999-05-25.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1999-05-25.jpg.webp)
 
 **2006:** *We Shall Overcome: The Seeger Sessions* is certified gold by the Recording Industry Association of America.<br>
 

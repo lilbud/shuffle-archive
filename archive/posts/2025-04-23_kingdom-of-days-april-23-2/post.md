@@ -12,13 +12,13 @@ post_id: 56610
 
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1971-0423.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1971-0423.jpg.webp)
 
 **1973:** Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first show in Connecticut. Bruce opens the show with the earliest known performance of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1973-0423.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1973-0423.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg.webp)
 
 **1975:** Bruce works on "Jungleland" and "Thunder Road" at the Record Plant in New York City.<br>
 
@@ -44,9 +44,9 @@ post_id: 56610
 
 [Watch on Youtube: Two Faces (Live at LA Arena, Los Angeles, CA - 4/23/1988)](https://www.youtube.com/watch?v=UQVhs7LL2A4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-04-22-rotated.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-04-22-rotated.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-04-22b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-04-22b.jpg.webp)
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-climbing single "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" with a story about how music helped Bruce survive high school.
 
@@ -68,9 +68,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-
 
 [Watch on Youtube: VH1 Storytellers](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-04-23a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2005-04-23a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2005-04-23b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2005-04-23b.jpg.webp)
 
 **2008:** Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of "[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)." Roger McGuinn guests on "[Turn! Turn! Turn!](../2021-06-09_matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/post.md)" and "[Mr. Tambourine Man](../2019-12-28_matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/post.md)" in the encores, the former of which will appear on the *Magic Tour Highlights* EP later in the year. Also tour premiering at this show: "[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" This show is available as part of Bruce's official archive series–get it [here](https://www.nugs.net/04-11-2025-archive-release-bruce-springsteen-and-the-e-street-band-amway-arena-orlando-florida-april-23-2008.html).<br>
 
@@ -82,9 +82,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-
 
 [Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-23a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2008-04-23a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-23b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2008-04-23b.jpg.webp)
 
 **2016:** As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens the first of two closing shows at Brooklyn's Barclays Center with "[Purple Rain](../2021-03-03_cover-me-purple-rain/post.md)" in tribute to Prince, who passed away two days prior.<br>
 
@@ -100,8 +100,8 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-
 
 [Watch on Youtube: Patti Smith w/ Bruce Springsteen and Michael Stipe 4/23/18 Beacon](https://www.youtube.com/watch?v=5iOLJTm6YNA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2018-04-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2018-04-23.jpg.webp)
 
 **2019:** For the second day in a row, Bruce's twitter account offers a mysterious photo with no accompanying text. Rumors begin to fly: is a new album imminent?<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2019-04-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2019-04-23.jpg.webp)

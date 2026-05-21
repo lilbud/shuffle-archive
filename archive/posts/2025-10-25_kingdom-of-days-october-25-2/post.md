@@ -16,13 +16,13 @@ post_id: 61196
 
 **1974:** Bruce and the E Street band play two shows at Dartmouth College.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1974-1026.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1974-1026.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1974-10-25.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1974-10-25.png.webp)
 
 **1975:** Bruce plays his very first show in Oregon, to a small crowd at Portland's Paramount Theater.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/48716655231_77b34c6fe1_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/48716655231_77b34c6fe1_o.jpg.webp)
 
 **1976:** Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he plays his very first headlining show at the Philadelphia Spectrum. During the encores, the band debuts their cover of Darlene Love's "[A Fine Fine Boy](../2019-01-28_cover-me-a-fine-fine-boy/post.md)." Amazingly, some great footage exists from this show.<br>
 
@@ -32,7 +32,7 @@ post_id: 61196
 
 [Watch on Youtube: A Fine Fine Girl, Bruce Springsteen](https://www.youtube.com/watch?v=XHYFhgKzOpw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1976-10-25.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1976-10-25.png.webp)
 
 **1980:** The River Tour heads south down the west coast, stopping for a night at Portland's Memorial Coliseum, where Bruce and the band play "[On Top of Old Smoky](../2019-08-24_cover-me-on-top-of-old-smoky/post.md)" for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).<br>
 
@@ -44,7 +44,7 @@ post_id: 61196
 
 [Watch on Youtube: 10th avenue freeze out](https://www.youtube.com/watch?v=D8soOC-cuEk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Oregon_Journal_1980_10_27_10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/10/Oregon_Journal_1980_10_27_10.jpg.webp)
 
 **1983:** Bruce and the E Street Band start work on a new song, "No Surrender" at a recording session for *Born in the U.S.A.*<br>
 
@@ -52,13 +52,13 @@ post_id: 61196
 
 [Watch Video Highlight](https://videopress.com/embed/qBRQ024Q)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-25a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1984-10-25a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1984-10-25b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/1984-10-25b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-25c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1984-10-25c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47083179991_ddd2099192_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/47083179991_ddd2099192_o.jpg.webp)
 
 **1993:** At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two tracks for what will eventually become *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md)*, joining Joe on both of them: "[Chain Smokin'](../2021-05-25_matr-joe-grushecky-and-bruce-springsteen-chain-smokin/post.md)" and "[Never Be Enough Time](../2018-04-03_meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/post.md)."<br>
 
@@ -70,19 +70,19 @@ post_id: 61196
 
 [Watch on Youtube: Bruce Springsteen and Danny Federici - Santa Barbara - 1996-10-25](https://www.youtube.com/watch?v=YG6dpWqDjLg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/10/Ventura_County_Star_Wed__Oct_30__1996_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/10/Ventura_County_Star_Wed__Oct_30__1996_.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band open their three-night stand at the Oakland Arena.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Where the Bands Are" - Oakland, 1999-10-25](https://www.youtube.com/watch?v=RlmBmZimZ1E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1999-10-25a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/1999-10-25a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-25b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-10-25b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-25c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-10-25c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-25d.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-10-25d.png.webp)
 
 **2006:** At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour debuts "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)," performed as a duet with Frank Bruno.<br>
 
@@ -96,7 +96,7 @@ post_id: 61196
 
 [Watch on Youtube: Bruce Springsteen - "Your Own Worst Enemy" - Oakland, 2007-10-25](https://www.youtube.com/watch?v=5uNraGEh8fg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2007-10-25.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/2007-10-25.png.webp)
 
 **2009:** Bruce performs the entire *Born to Run* album, tour premieres "[Roll Over Beethoven](../2019-08-08_cover-me-roll-over-beethoven/post.md)," and plays a rare "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)" when the Working on a Dream Tour stops in St. Louis for a night.<br>
 
@@ -122,13 +122,13 @@ post_id: 61196
 
 **2015:** Bruce takes his mother to see Ringo Starr & His All-Starr Band perform at the New Jersey State Theater in New Brunswick.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Daily_Record_2015_10_30_Page_X11-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/10/Daily_Record_2015_10_30_Page_X11-scaled.jpg.webp)
 
 **2017:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: President Bill Clinton and Secretary Hillary Clinton.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2018-10-25.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/2018-10-25.jpg.webp)
 
 **2019:** *CBS This Morning* airs the second part of Gayle King's interview with Bruce Springsteen, and *Western Stars* is officially released to movie theaters.<br>
 
@@ -136,7 +136,7 @@ post_id: 61196
 
 [Watch on Youtube: "I've gotten to work with the people I love the most": Bruce Springsteen reflects on extraordinar...](https://www.youtube.com/watch?v=JSpkzjpoUvc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2019-10-25.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2019-10-25.png.webp)
 
 **2021:** Bruce makes a guest appearance on *Late Night With Stephen Colbert* in support of his new book with former President Barack Obama and his upcoming release, *The Legendary 1979 No Nukes Concerts*.<br>
 

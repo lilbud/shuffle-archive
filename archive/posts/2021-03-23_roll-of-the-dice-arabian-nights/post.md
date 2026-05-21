@@ -93,9 +93,9 @@ This recording doesn't have the exchange between the narrator and his father; in
 
 **Bonus #2:** These are Bruce's early handwritten lyrics for "Arabian Nights" — if you read carefully, you'll see several places where the lyrics differ from even that early version above.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/39291198220_af0a8f7ba4_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/39291198220_af0a8f7ba4_o.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/41100241581_a1f45c13c5_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/41100241581_a1f45c13c5_o.jpg.webp)
 
 **Arabian Nights**<br>
 **Recorded:** April-June 1972<br>

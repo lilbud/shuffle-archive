@@ -10,7 +10,7 @@ post_id: 6898
 ---
 Today marks the end of Year One for this blog, and whether you've been with me from [the beginning](../2018-01-05_is-there-anybody-alive-out-there/post.md) (which would be like five of you) or you just discovered this site for the first time [today](../2026-01-04_january-4/post.md/), I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/thank_you_PNG132.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/thank_you_PNG132.png.webp)
 
 Special thanks to those of you who have written to me with corrections, additional information, absolutely amazing "I was there" stories, personal anecdotes, and alternative interpretations. That's been my absolute favorite part of the last year, and as a result I definitely feel like I've learned at least as much as I've shared. I've also made a lot of great new friends through the social media channels I share my blog posts in, and you all have made this a labor of love in now multiples senses.
 

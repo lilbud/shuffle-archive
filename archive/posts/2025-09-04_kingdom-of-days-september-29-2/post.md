@@ -18,9 +18,9 @@ post_id: 59734
 
 [Watch on Youtube: Bruce Springsteen - 1976-09-29, Santa Monica Civic Auditorium, Santa Monica, CA](https://www.youtube.com/watch?v=4IL4uob4KjE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1976-09-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1976-09-29.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1976-09-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/1976-09-29.jpg.webp)
 
 **1977:** Bruce records "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)" and "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)" at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.<br>
 
@@ -32,9 +32,9 @@ post_id: 59734
 
 [Watch Video Highlight](https://videopress.com/embed/PNdFeC4l)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/Birmingham_Post_Herald_1978_09_30_19-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/Birmingham_Post_Herald_1978_09_30_19-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1978-0929.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1978-0929.jpg.webp)
 
 **1982:** Bruce plays two songs (although this is up for debate) with Billy Rancher & The Unreal Gods on stage at On Broadway in Westwood, New Jersey.<br>
 
@@ -42,7 +42,7 @@ post_id: 59734
 
 [Watch Video Highlight](https://videopress.com/embed/Tu2dlnHp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1985-09-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1985-09-29.jpg.webp)
 
 **1987:** Bruce rehearses with Roy Orbison at the Cocoanut Grove in Los Angeles for the filming of *Black & White Night* the following day.<br>
 
@@ -50,11 +50,11 @@ post_id: 59734
 
 [Watch on Youtube: The Time Bruce Springsteen Paid Off an Arizona Bartender's $160,000 in Medical Bills](https://www.youtube.com/watch?v=ordKJO1_Rxg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1989-0929.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1989-0929.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1989-09-29a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1989-09-29a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1989-09-29b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1989-09-29b.jpg.webp)
 
 **1992:** Bruce and his new band play the San Diego Sports Arena on World Tour 1992.<br>
 
@@ -72,7 +72,7 @@ post_id: 59734
 
 [Watch on Youtube: Bruce Springsteen - Hobo's Lullaby](https://www.youtube.com/watch?v=FbiiRUSdUyg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1996-09-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1996-09-29.jpg.webp)
 
 **2002:** Bruce tour premieres "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" when the Rising Tour stops at the Fargodome in North Dakota.<br>
 
@@ -84,19 +84,19 @@ post_id: 59734
 
 [Watch on Youtube: Life-Long Bruce Springsteen Fans Meet Their Idol At Philly Book Signing](https://www.youtube.com/watch?v=fUZnsrgbojQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/2016-0929.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/2016-0929.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2016-09-29b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2016-09-29b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2016-09-29a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2016-09-29a.jpg.webp)
 
 **2017:** Bruce holds his first and only dress rehearsal (invite-only) for Springsteen on Broadway at the Walter Kerr Theater in New York City.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2017-09-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2017-09-29.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" with Patti. In attendance tonight: Hozier.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2018-09-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2018-09-29.jpg.webp)
 
 **2022:** Bruce announces his twenty-first studio album, *Only the Strong Survive*, and releases a video for the album's lead single, "Do I Love You (Indeed I Do)."<br>
 

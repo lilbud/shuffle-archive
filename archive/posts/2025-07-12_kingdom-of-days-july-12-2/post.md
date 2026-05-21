@@ -12,7 +12,7 @@ post_id: 57667
 
 **1968:** The Castiles headline a gig at the Hullabaloo in Freehold.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1968-0712.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1968-0712.jpg.webp)
 
 **1972:** Bruce is at 914 Sound Studios in Blauvelt for a mixing session for his upcoming debut album.<br>
 
@@ -22,7 +22,7 @@ post_id: 57667
 
 [https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3](https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Newsday_Nassau_Edition__1974_07_15_87-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Newsday_Nassau_Edition__1974_07_15_87-scaled.jpg.webp)
 
 **1977:** Bruce and the E Street Band work on "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)" during a recording session at Atlantic Studios in New York City.<br>
 
@@ -30,7 +30,7 @@ post_id: 57667
 
 [Watch Video Highlight](https://videopress.com/embed/nfXyYNHm)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-07-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1978-07-12.jpg.webp)
 
 **1979:** Bruce and the E Street Band work on "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" during a recording session at the Power Station in New York City.<br>
 
@@ -42,9 +42,9 @@ post_id: 57667
 
 [Watch on Youtube: Cadillac ranch, from Crystal Cat "Alpine valley night", recorded in East Troy on 1984 july 15th](https://www.youtube.com/watch?v=2Qu3z3_7svw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1984-07-12a-rotated.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1984-07-12a-rotated.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-12b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-07-12b.jpg.webp)
 
 **1988:** The Tunnel of Love Tour continues its final leg, stopping in Frankfurt for one show.<br>
 
@@ -70,7 +70,7 @@ post_id: 57667
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Theater in Fort Monmouth, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/2002-07-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/2002-07-12.jpg.webp)
 
 **2009:** At Night Two in Dublin on the Working on a Dream Tour, Bruce and the band perform the tour premiere of "American Skin (41 Shots)."<br>
 
@@ -94,7 +94,7 @@ post_id: 57667
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Australian singer-songwriter Jimmy Barnes.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/2018-07-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/2018-07-12.jpg.webp)
 
 **2024:** Bruce and the E Street Band perform "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" for the first time (as a full-band arrangement) in a decade when World Tour '24 arrives in Helsinki.<br>
 

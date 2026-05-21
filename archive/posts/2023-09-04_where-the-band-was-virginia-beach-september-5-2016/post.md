@@ -8,7 +8,7 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/officiallivedownloads_2016-09-05.jpg
 post_id: 4188
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/vb.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/vb.jpg.webp)
 
 So yeah… I really did fly across the country into a hurricane on an ill-considered whim because I was able to get a ridiculously cheap pit ticket for a Bruce Springsteen concert.
 

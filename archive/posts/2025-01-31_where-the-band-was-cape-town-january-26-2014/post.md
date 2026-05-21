@@ -28,7 +28,7 @@ Check out the videos, and you’ll feel the mood that held for the whole evening
 
 I expected this stand to feature setlist surprises, guest-stars and memorable audience moments (and we got all of them). What I didn’t expect was to get a taste of three different tours on three separate nights.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/2014_01_28-cape-town.-sa.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/2014_01_28-cape-town.-sa.jpg.webp)
 
 Night 1 featured a High Hopes Tour setlist (although I had no idea at the time what that would look like, given that this was the opening stand), but Night 2 felt like a throwback to 2006 and the Seeger Session Tour.
 
@@ -46,7 +46,7 @@ But Bruce must have had Pete Seeger on his mind the whole night, because intersp
 
 Bruce was also much looser at this show than at the opener. On Night 1, there were no requests, and the audience interactions were awkward (it was, after all, the first show for most in the audience). By Night 2, the audience was figuring out their participation parts, and Bruce spotted and granted a few requests signs.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/bs140129_01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/bs140129_01.jpg.webp)
 
 Night 3 was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with “[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” and featuring standards from that tour like “[Jack of All Trades,](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)” “[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)” “[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md),” and “[Rocky Ground](../2023-03-20_roll-of-the-dice-rocky-ground/post.md).” It’s almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
 

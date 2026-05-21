@@ -18,13 +18,13 @@ post_id: 56856
 
 [Watch Video Highlight](https://videopress.com/embed/LvrfSAAA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-05-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1978-05-26.jpg.webp)
 
 **1979:** Bruce joins Robert Gordon on stage for "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" at the Paramount Theater in Asbury Park. Garry joins them for "[Heartbreak Hotel](../2021-04-11_matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/post.md)" as well.<br>
 
 [Watch on Youtube: Robert Gordon Bruce Springsteen duet-'79](https://www.youtube.com/watch?v=kdSQPILL2Nw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1979-05-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1979-05-27.jpg.webp)
 
 **1981:** At the Brighton Center on the River Tour, Bruce and the E Street Band perform "[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)" for the last time for 28 years.<br>
 
@@ -36,7 +36,7 @@ post_id: 56856
 
 [Watch on Youtube: Bruce Springsteen: Making of Glory Days video at Maxwell's, Hoboken, NJ 5-28-85](https://www.youtube.com/watch?v=NeJrkyzmyS0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1985-05-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1985-05-27.jpg.webp)
 
 **1999:** Bruce and the E Street Band make a Reunion Tour stop at the Flanders Expo in Ghent, where Elliott Murphy guest-stars on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "Born to Run."<br>
 
@@ -50,7 +50,7 @@ post_id: 56856
 
 [Watch on Youtube: Bruce Springsteen and Southside Johnny - The Stone Pony, May 27 2001](https://www.youtube.com/watch?v=VyrkKwtkNzg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2001-05-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2001-05-27.jpg.webp)
 
 **2003:** At Night Two at London's Crystal Palace on the Rising Tour, Bruce opens with a solo acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
 
@@ -60,7 +60,7 @@ post_id: 56856
 
 [Watch on Youtube: SPRINGSTEEN, SEVEN NIGHTS TO ROCK](https://www.youtube.com/watch?v=ZVMwjbbsE7M)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2003-05-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2003-05-27.jpg.webp)
 
 **2005:** Bruce brings his solo acoustic tour to London for the first of two nights at Royal Albert Hall.<br>
 
@@ -68,9 +68,9 @@ post_id: 56856
 
 [Watch on Youtube: Bruce Springsteen The Wish London 27/05/2005](https://www.youtube.com/watch?v=odXCc5sXc_A)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2005-05-27a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2005-05-27a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2005-05-27b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2005-05-27b.jpg.webp)
 
 **2006:** The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a "[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)" / "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)" medley.<br>
 
@@ -78,7 +78,7 @@ post_id: 56856
 
 [Watch Video Highlight](https://videopress.com/embed/T0A7mJ4O)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2006-05-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2006-05-27.jpg.webp)
 
 **2012:** "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)" makes its Wrecking Ball Tour premiere when Bruce and the band stop in Cologne, Germany. For the first time since *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*was released in 1978, no songs from that album are performed.<br>
 
@@ -104,7 +104,7 @@ post_id: 56856
 
 [Watch on Youtube: Bruce Springsteen Croke Park Dublin 27/05/2016 Full Concert Multicam](https://www.youtube.com/watch?v=e9dHBmVTk6c)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_National_Sat__May_28__2016_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/The_National_Sat__May_28__2016_-scaled.jpg.webp)
 
 **2017:** Bruce joins Little Steven and the Disciples of Soul on stage at the Count Basie Theater in Red Bank four a four-song encore performance.<br>
 
@@ -112,7 +112,7 @@ post_id: 56856
 
 **2021:** Bruce attends his niece's graduation ceremony at the Ranney School in Tinton Falls.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/05/2019-05-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/2019-05-27.jpg.webp)
 
 **2023:** Bruce takes a tumble during "[Ghosts](../2017-01-11_roll-of-the-dice-ghosts/post.md)" when he and the E Street Band play their second of two nights in Amsterdam on their 2023 World Tour.<br>
 

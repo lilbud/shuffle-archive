@@ -10,7 +10,7 @@ post_id: 57812
 ---
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1968-0724.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1968-0724.jpg.webp)
 
 **1973:** Bruce works on mixing and overdubs for "Seaside Bar Song" and "Kitty's Back" at 914 Sound Studios in Blauvelt, New York.<br>
 
@@ -18,7 +18,7 @@ post_id: 57812
 
 **1981:** Bruce takes ill and must postpone his scheduled Rosemont show to September.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1981-07-23.jpg.webp)
 
 **1984:** At Night Two in Toronto on the Born in the U.S.A. Tour, Bruce tour premieres "Trapped."<br>
 
@@ -32,7 +32,7 @@ post_id: 57812
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W5A6P8r3emk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2002-07-24.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2002-07-24.png.webp)
 
 **2003:** Night Four of the ten-night Giants Stadium stand on the Rising Tour features a rare "Streets of Fire" in the opening pack.<br>
 
@@ -44,7 +44,7 @@ post_id: 57812
 
 [Watch Video Highlight](https://videopress.com/embed/1YABZAFn)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-07-24.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2005-07-24.png.webp)
 
 **2012:** Bruce opens Night Two in Bergen with an acoustic "Long Walk Home" (a Wrecking Ball tour premiere). The show features four additional tour premieres, including the live debut of "You've Got It," the first full-band "This Depression," and rare outings for "My Lucky Day" and "Red Headed Woman."<br>
 
@@ -70,4 +70,4 @@ post_id: 57812
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Beck is in attendance tonight.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/beck.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/beck.jpg.webp)

@@ -12,9 +12,9 @@ post_id: 56286
 
 **1973:** Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce's recently released debut album. Keep an eye on him, the reviewer advises.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1973-03-24.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/1973-03-24.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1973-0324.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1973-0324.jpg.webp)
 
 **1974:** Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoenix. After the show, Bruce grants a fascinating interview to The Phoenix New Times and Arizona State University. You can listen to it below–it's well worth it.<br>
 
@@ -30,7 +30,7 @@ post_id: 56286
 
 **1981:** Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1981-0318.jpg.webp)
 
 **1983:** In his home studio in Los Angeles, Bruce records "[County Fair](../1983-01-11_roll-of-the-dice-county-fair/post.md)." It will remain unreleased for two decades.<br>
 
@@ -42,7 +42,7 @@ post_id: 56286
 
 **1995:** Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers. (Photo credit: J. Coke)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1995-0324.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1995-0324.jpg.webp)
 
 **2008:** Bruce plays "[You'll Be Comin' Down](../2018-09-03_roll-of-the-dice-youll-be-comin-down/post.md)" for the first and only time when the Magic Tour stops at the Value City Arena in Columbus, Ohio. The set list also features the tour premieres of "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" and "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)."<br>
 
@@ -50,13 +50,13 @@ post_id: 56286
 
 [Watch on Youtube: Bruce Springsteen - You'll Be Comin' Down (Live 24-3-2008)](https://www.youtube.com/watch?v=ZhcOV4f3xho)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2008-03-24.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2008-03-24.jpg.webp)
 
 **2009:** The second and final rehearsal show for the Working on a Dream Tour features the live premiere of "[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)" at Asbury Park's Convention Hall.<br>
 
 [Watch on Youtube: Kingdom Of Days - Asbury Park 2009](https://www.youtube.com/watch?v=aHGw8t9zoGM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2009-03-24.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/2009-03-24.jpg.webp)
 
 **2013:** The Australian leg of the Wrecking Ball Tour moves on to Melbourne for the first of three nights at the Rod Laver Arena.<br>
 

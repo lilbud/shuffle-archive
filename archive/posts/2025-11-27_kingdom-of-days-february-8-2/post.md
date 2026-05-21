@@ -16,15 +16,15 @@ post_id: 55883
 
 [Watch on Youtube: Action In The Streets (Live at Auditorium Theatre, Rochester, NY - 2/8/1977)](https://www.youtube.com/watch?v=1uDiQrXhij4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1977-02-07a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1977-02-07a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1977-02-07b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1977-02-07b.jpg.webp)
 
 **1997:** Bruce plays his second of five solo acoustic shows in Sydney.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-08.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1997-02-08.png.webp)
 
 **2004:** Bruce and the late Warren Zevon win the Grammy Award for Best Rock Vocal Performance by a Duo or Group with Vocal for “[Disorder in the House.](../2020-06-08_matr-warren-zevon-and-bruce-springsteen-disorder-in-the-house/post.md)”<br>
 

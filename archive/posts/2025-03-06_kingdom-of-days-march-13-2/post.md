@@ -16,17 +16,17 @@ post_id: 56173
 
 **1973:** Night Two of seven at Oliver's in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1973-0316.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1973-0316.jpg.webp)
 
 **1975:** Extended studio sessions for *Born to Run* prompt the postponement of a scheduled show in Atlanta.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1975-03-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1975-03-13.jpg.webp)
 
 **1977:** Bruce and the E Street Band play Towson State University on the Lawsuit Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/SsdSEZB7)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-0313.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1977-0313.jpg.webp)
 
 **1988:** The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.<br>
 
@@ -34,9 +34,9 @@ post_id: 56173
 
 [Watch on Youtube: Bruce Springsteen Love Me Tender Live In Cleveland March 1988](https://www.youtube.com/watch?v=4QcKYlVoBTc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-03-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1988-03-13.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1988-0313.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1988-0313.jpg.webp)
 
 **1996:** Bruce begins a mini-tour of Scandinavia with a solo acoustic show in Stockholm.<br>
 
@@ -48,7 +48,7 @@ post_id: 56173
 
 [Watch Video Highlight](https://videopress.com/embed/JiijcG3N)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2000-03-13-rotated.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/2000-03-13-rotated.jpg.webp)
 
 **2006:** Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park's Paramount Theater.<br>
 
@@ -60,4 +60,4 @@ post_id: 56173
 
 [Watch on Youtube: Bruce Springsteen Oakland Born to Run and surrounding snippets 3-13-2016](https://www.youtube.com/watch?v=SEUJFzNe69U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2016-03-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2016-03-13.jpg.webp)

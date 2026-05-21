@@ -16,27 +16,27 @@ post_id: 56096
 
 [Watch Video Highlight](https://videopress.com/embed/4joZ40eY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1977-03-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1977-03-05b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1977-03-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1977-03-05.jpg.webp)
 
 **1981:** At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play "[Fade Away](../2018-04-28_roll-of-the-dice-fade-away/post.md)" for the last time until 2005.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DteacuKH)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1981-03-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1981-03-05a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1981-03-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1981-03-05b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1981-03-05c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1981-03-05c.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1981-03-05d.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1981-03-05d.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1981-0305.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1981-0305.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band rehearse for their upcoming Reunion Tour at Convention Hall in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1999-03-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1999-03-05a.jpg.webp)
 
 **2001:** "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" are both certified gold by the Recording Industry Association of America.<br>
 
@@ -56,4 +56,4 @@ post_id: 56096
 
 [Watch on Youtube: Bruce Springsteen "Badlands" Saint Paul,Mn 3/5/23](https://www.youtube.com/watch?v=_1zgH3SsaT0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg.webp)

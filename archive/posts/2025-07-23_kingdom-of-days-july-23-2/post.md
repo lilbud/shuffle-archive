@@ -30,17 +30,17 @@ post_id: 57811
 
 [Watch on Youtube: Bruce Springsteen Supper Bowel Journal - the "vault" edit](https://www.youtube.com/watch?v=xF67WPchhzY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1975-07-23a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1975-07-23a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1975-07-23b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1975-07-23b.png.webp)
 
 **1978:** Bruce's scheduled Darkness Tour stop in Atlanta is postponed to September due to illness.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/The_Atlanta_Constitution_1978_07_24_18-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/The_Atlanta_Constitution_1978_07_24_18-scaled.jpg.webp)
 
 **1981:** Exhausted from his grueling tour schedule, Bruce postpones his scheduled show at the Rosemont Horizon show to September.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1981-07-23.jpg.webp)
 
 **1982:** Bruce goes to the Monmouth County Fair in Freehold, where Sonny Kenn and The Wild Ideas perform. Bruce joins Kenn on stage for five songs. Later that evening, Bruce stops by The Fast Lane in Asbury Park, where he joins Stray Cats on-stage for "[Twenty Flight Rock](../2020-04-13_matr-stray-cats-and-bruce-springsteen-twenty-flight-rock/post.md)," "[Be-Bop-a-Lula](../2018-07-07_meeting-across-the-river-bruce-springsteen-and-stray-cats-be-bop-a-lula/post.md)," and "[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md)."<br>
 
@@ -50,15 +50,15 @@ post_id: 57811
 
 [Watch on Youtube: STRAY CATS feat. BRUCE SPRINGSTEEN - Long Tall Sally (23.7.82 Asbury Park)](https://www.youtube.com/watch?v=vDwwcIlCEVw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1982-07-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1982-07-23.png.webp)
 
 **1984:** Bruce and the E Street Band kick off a three-night stand in Toronto. (Thanks to friend of the blog Jeff Kowalsky for the second review scan!)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yR4BSPzL)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-23.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1984-07-23-toronto.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/1984-07-23-toronto.jpg.webp)
 
 **1988:** Another installment of *Legends of Springsteen* — Bruce encounters John Magnusson, a Danish street musician, playing on the streets of Copenhagen and stops to play a few songs with him. A crowd quickly gathers, one of whom has the presence of mind to film the impromptu mini-concert.<br>
 
@@ -72,11 +72,11 @@ post_id: 57811
 
 [Watch on Youtube: Bruce Springsteen - World Tour 1992 news coverage - 7/23/1992](https://www.youtube.com/watch?v=n8uLTP8MFiw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1992-07-23a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1992-07-23a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1992-07-23b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1992-07-23b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1992-07-23c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1992-07-23c.png.webp)
 
 Meanwhile, Mike Appel's and Marc Eliot's new tell-all *Down Thunder Road* garners controversy through its presentation of Mike Appel's side of the Bruce Springsteen story. Entertainment Tonight devotes a few minutes to interview the authors and discuss the book.
 
@@ -126,9 +126,9 @@ Meanwhile, Mike Appel's and Marc Eliot's new tell-all *Down Thunder Road* garner
 
 [Watch on Youtube: Bruce Springsteen - SAD EYES 2005](https://www.youtube.com/watch?v=7jxFax6wy-Q)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-23a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2005-07-23a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-23b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2005-07-23b.png.webp)
 
 **2009:** At Bruce's Working on a Dream show in Udine, Italy, sign requests bring out back-to-back-to-back tour premieres of "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)," and the first-time-ever-in-Europe "[Streets of Fire.](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" Bruce starts the party by opening with "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)." Check out the videos below–"Be True" is a particular treat, with the crowd singing not just every word, but also every note, much to Bruce's delight.<br>
 

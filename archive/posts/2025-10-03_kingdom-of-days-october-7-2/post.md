@@ -12,7 +12,7 @@ post_id: 61074
 
 **1967:** The Castiles take part in a battle of the bands at the Middletown Community Center.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1967-1007.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1967-1007.jpg.webp)
 
 **1980:** At Night Two in Richfield on the River Tour, Bruce and the E Street Band play "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" for the very first time.<br>
 
@@ -28,19 +28,19 @@ post_id: 61074
 
 [Watch on Youtube: Bruce Springsteen Human Rights Now! (Amnesty Tour) TV News Report (Australia) 1988](https://www.youtube.com/watch?v=PSonVspGunA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-10-07.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1988-10-07.jpg.webp)
 
 **2002:** Bruce and the E Street Band close out the first leg of the Rising Tour at HSBC Arena in Buffalo, tour premiering "You Can Look (But You Better Not Touch)," "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)," and "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Tougher than the rest - Buffalo 2002](https://www.youtube.com/watch?v=lTcTDFeyL78)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2002-10-07.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/2002-10-07.jpg.webp)
 
 **2005:** Bruce plays a stellar acoustic set at the Hartford Civic Center, opening with "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" and "[Wreck on the Highway](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)" and tour premiering "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" and "You Can Look (But You Better Not Touch)."<br>
 
 [Watch on Youtube: Bruce Springsteen - SOMETHING IN THE NIGHT 2005 (live)](https://www.youtube.com/watch?v=hpPVKSv2m7M)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2005-10-07.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2005-10-07.jpg.webp)
 
 **2006:** Bruce's tour of Italy continues as the Sessions Band arrives in Perugia and tour premieres "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" at Arena Santa Giuliana.<br>
 

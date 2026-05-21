@@ -12,7 +12,7 @@ post_id: 57812
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1968-0724.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1968-0724.jpg.webp)
 
 **1973:** Bruce works on mixing and overdubs for "[Seaside Bar Song](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)" and "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" at 914 Sound Studios in Blauvelt, New York.<br>
 
@@ -20,7 +20,7 @@ post_id: 57812
 
 **1981:** Bruce takes ill and must postpone his scheduled Rosemont show to September.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1981-07-23.jpg.webp)
 
 **1984:** At Night Two in Toronto on the Born in the U.S.A. Tour, Bruce tour premieres "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)."<br>
 
@@ -34,7 +34,7 @@ post_id: 57812
 
 [Watch on Youtube: Bruce Springsteen Besuch in Asbury Park](https://www.youtube.com/watch?v=W5A6P8r3emk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2002-07-24.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2002-07-24.png.webp)
 
 **2003:** Night Four of the ten-night Giants Stadium stand on the Rising Tour features a rare "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" in the opening pack.<br>
 
@@ -46,7 +46,7 @@ post_id: 57812
 
 [Watch Video Highlight](https://videopress.com/embed/1YABZAFn)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-07-24.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2005-07-24.png.webp)
 
 **2012:** Bruce opens Night Two in Bergen with an acoustic "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" (a Wrecking Ball tour premiere). The show features four additional tour premieres, including the live debut of "[You've Got It](../2020-07-30_roll-of-the-dice-youve-got-it/post.md/)," the first full-band "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)," and rare outings for "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)" and "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)."<br>
 
@@ -72,4 +72,4 @@ post_id: 57812
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Beck is in attendance tonight.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/beck.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/beck.jpg.webp)

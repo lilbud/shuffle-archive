@@ -16,7 +16,7 @@ post_id: 56997
 
 [Watch Video Highlight](https://videopress.com/embed/Di00F0cx)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1978-0605.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1978-0605.jpg.webp)
 
 **1981:** At the final night of a six-night stand at London's Wembley Arena on the River Tour, Bruce plays "Jole Blon" for the very first time. This show is available for purchase as part of Bruce's official archive series.<br>
 
@@ -36,7 +36,7 @@ post_id: 56997
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lGtG8qLH2B4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1981-06-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1981-06-05.jpg.webp)
 
 **1985:** Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of "Darlington County" and "Shut Out the Light."<br>
 
@@ -44,7 +44,7 @@ post_id: 56997
 
 [Watch Video Highlight](https://videopress.com/embed/VJSoqIAb)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1985-06-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1985-06-05.jpg.webp)
 
 **1992:** Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four days after they first began rehearsing together–broadcast live from Hollywood Center Studios Soundstage.<br>
 
@@ -54,7 +54,7 @@ post_id: 56997
 
 **1993:** Bruce attends Mariah Carey's wedding to Tommy Mottola, president of Sony Music in Manhattan.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1993-06-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1993-06-05.jpg.webp)
 
 **1999:** The Reunion Tour moves on to Spain, with a single show at Estadio la Romareda in Zaragoza. Watch local coverage of the bands arrival below.<br>
 
@@ -70,9 +70,9 @@ post_id: 56997
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nkwEVEMDqlM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2006-06-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2006-06-05a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2006-06-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2006-06-05b.jpg.webp)
 
 **2007:** Bruce releases his *Live in Dublin* album.<br>
 

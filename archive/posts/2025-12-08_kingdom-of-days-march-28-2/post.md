@@ -10,13 +10,13 @@ post_id: 56305
 ---
 **1970:** Steel Mill plays a second night at the Hullabaloo in Richmond.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1970-0328.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1970-0328.jpg.webp)
 
 **1976:** Bruce and the E Street Band play a gig at Duke University, where “Raise Your Hand” makes its proper live debut.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-03-28 Cameron Indoor Stadium, Durham, NC](https://www.youtube.com/watch?v=5oWCb3rgJHA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1976-03-28.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1976-03-28.jpg.webp)
 
 **1979:** Three Mile Island nuclear power plant partially melts down in Pennsylvania. The incident inspires Bruce to write “Roulette.”<br>
 
@@ -40,11 +40,11 @@ post_id: 56305
 
 [Watch on Youtube: Bruce Springsteen: Inside Tunnel of Love on VH1 1988](https://www.youtube.com/watch?v=Ms1q_1m69ng)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1988-03-28b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1988-03-28b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1988-03-28c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1988-03-28c.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/1988-03-28a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/1988-03-28a.jpg.webp)
 
 **2003:** Bruce and the E Street Band play their first-ever show in New Zealand at the Western Springs Stadium in Auckland, where he tour premieres “Who’ll Stop the Rain.”<br>
 
@@ -54,7 +54,7 @@ post_id: 56305
 
 [Watch on Youtube: Bruce Springsteen - For You - Portland - March 28, 2008](https://www.youtube.com/watch?v=l9TWdEzs04g)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg) ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg.webp)
 
 **2012:** At the first of two nights at the Wells Fargo Center in Philadelphia, “Seaside Bar Song” makes a very rare appearance.<br>
 
@@ -64,7 +64,7 @@ post_id: 56305
 
 [Watch on Youtube: Bruce Springsteen - Seaside Bar Song (2012-03-28, Philadelphia)](https://www.youtube.com/watch?v=Pi-92tTOCUM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2012-03-28-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/2012-03-28-scaled.jpg.webp)
 
 **2016:** At Madison Square Garden in NYC, Bruce breaks out the tour premiere of “Meeting Across the River” with its classic segue into “Jungleland” in the post-album set.<br>
 
@@ -76,7 +76,7 @@ post_id: 56305
 
 **2018:** *Springsteen on Broadway* reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr Theater in New York City. Michael Bloomberg is in attendance tonight.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/03/bloomberg.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/03/bloomberg.jpg.webp)
 
 **2024:** Bruce and the E Street Band return to San Francisco after more than two decades away, opening the show with “Something in the Night” for the first time in 47 years.<br>
 

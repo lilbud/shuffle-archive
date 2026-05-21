@@ -10,9 +10,9 @@ post_id: 57666
 ---
 **1971:** The Bruce Springsteen Band opens for Humble Pie at Asbury Park's Sunshine In. Peter Frampton is impressed enough by Bruce and the band to offer them a gig opening for Humble Pie around the country, as well as an introduction to their record label. Mystifyingly, Tinker West (Bruce's manager at the time) declines the offers.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/1971-07-11.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/1971-07-11.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1971-07-11.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1971-07-11.jpg.webp)
 
 **1973:** Bruce records overdubs for "Kitty's Back" and "Evacuation of the West" at 914 Sound Studios in Blauvelt, New York.<br>
 
@@ -24,11 +24,11 @@ post_id: 57666
 
 [Watch Video Highlight](https://videopress.com/embed/MByTu4nD)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/1981-07-11-rotated-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/1981-07-11-rotated-1.jpg.webp)
 
 **2002:** Bruce kicks off rehearsals for the Rising Tour with the E Street Band at the Expo Theater in Fort Monmouth, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/2002-07-11.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/2002-07-11.jpg.webp)
 
 **2008:** It's Christmas in July when Bruce honors one last sign request when the Magic Tour stops in Helsinki: "Santa Claus is Comin' to Town" is the second to last song of the night.<br>
 

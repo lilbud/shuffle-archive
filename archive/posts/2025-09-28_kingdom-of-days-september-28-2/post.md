@@ -12,25 +12,25 @@ post_id: 59733
 
 **1968:** Bruce headlines at the Off Broad Street Coffee House in Red Bank, performing two acoustic solo set.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1968-0928.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1968-0928.jpg.webp)
 
 **1973:** The Wild & Innocent Tour kicks off at Virginia's Hampden-Sydney College, where "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" makes its debut, featuring the band's first-ever guest artist: Albee Tellone on baritone sax.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1973-0928.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1973-0928.jpg.webp)
 
 **1974:** Bruce's scheduled show at Drew University in Madison, New Jersey (this blogger's alma mater), is canceled less than 48 hours before showtime–because Bruce was booked at five other colleges for that same date. Rather than breach four contracts by choosing one, Bruce cancels on all five.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1974-09-28a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1974-09-28a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1974-09-28b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1974-09-28b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1974-09-28c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1974-09-28c.jpg.webp)
 
 **1975:** Bruce plays in Kansas for the first time when the Born to Run Tour stops at Memorial Hall in Kansas City.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1975-09-28 Memorial Hall, Kansas City, KS](https://www.youtube.com/watch?v=JcRLB5zG-dI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1975-0928.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1975-0928.jpg.webp)
 
 **1977:** Bruce holds a recording session at The Record Plant in New York City, where he and the band work on "The Promise."<br>
 
@@ -44,7 +44,7 @@ post_id: 59733
 
 [Watch on Youtube: Bruce Springsteen attends a play for 3M Workers - 1986-09-26](https://www.youtube.com/watch?v=QHUFaCmnesU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1986-09-28a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1986-09-28a.jpg.webp)
 
 **1992:** At the final night (of three) in Los Angeles on World Tour 1992, Danny Federici joins Bruce's new touring band for the encore set.<br>
 
@@ -60,13 +60,13 @@ post_id: 59733
 
 **2004:** Bruce and the E Street Band rehearse at Asbury Park's Convention Hall for their upcoming Vote for Change Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2004-09-28.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2004-09-28.jpg.webp)
 
 **2007:** Promoting their new *Magic* album and upcoming tour, Bruce and the E Street Band perform a live morning concert on NBC's *Today*.<br>
 
 [Watch on Youtube: Bruce Springsteen 9-28-07 Today Concert Series](https://www.youtube.com/watch?v=Hs8ihdlkNsc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-09-28.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2007-09-28.jpg.webp)
 
 That evening, Bruce and the band play a benefit rehearsal show, where they debut a new rock arrangement for "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)."
 
@@ -94,6 +94,6 @@ That evening, Bruce and the band play a benefit rehearsal show, where they debut
 
 [Watch on Youtube: Bruce Springsteen/ Joe Gruschecky Light Of Day 9/29/19](https://www.youtube.com/watch?v=hMD9P2soxIY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2019-09-28a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2019-09-28a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2019-09-28b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2019-09-28b.jpg.webp)

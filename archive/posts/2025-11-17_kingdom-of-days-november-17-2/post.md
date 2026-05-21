@@ -16,27 +16,27 @@ post_id: 62386
 
 [Watch on Youtube: Bruce Springsteen - THE E STREET SHUFFLE 1973 (audio)](https://www.youtube.com/watch?v=JJxu85L1v2o)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Philadelphia_Inquirer_1973_11_17_Page_4-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/The_Philadelphia_Inquirer_1973_11_17_Page_4-scaled.jpg.webp)
 
 **1974:** Joe Walsh is in the audience when Bruce and the boys play a gig at the University of Virginia in Charlottesville.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Daily_Progress_Sun__Nov_17__1974_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/11/The_Daily_Progress_Sun__Nov_17__1974_.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/Richmond_Times_Dispatch_1974_11_15_26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/Richmond_Times_Dispatch_1974_11_15_26.jpg.webp)
 
 **1978:** Bruce and the boys play a Darkness show at the Munn Ice Arena at Michigan State University in East Lansing, and at least one reviewer is not impressed. Watch rare video from this show below, but note that the footage was recorded silently–the dubbed audio is from a different show.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band @ MSU Munn Arena, 1978](https://www.youtube.com/watch?v=KO8HMeGkox0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46628674615_93f909254e_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/46628674615_93f909254e_o.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1978-11-17-1.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1978-11-17-1.png.webp)
 
 **1987:** Bruce and director Meiert Avis film the video for "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" in and around Asbury Park. You've seen the final result, no doubt, but have you seen this original rough cut? It features a lot more footage of Bruce.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/laIqiHGm)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1987-11-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1987-11-17.png.webp)
 
 **1990:** Bruce plays the second of his remarkable pair of acoustic shows to benefit the Christic Institute. Tonight sees the world debuts of "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)," and "[Soul Driver.](../2023-01-22_roll-of-the-dice-soul-driver/post.md)" The arrangement of "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)" played these two nights is far superior (IMO) to the version that will be released two years down the road, and when Bruce resurrects the song in 2005, he will return to this arrangement.<br>
 
@@ -50,15 +50,15 @@ post_id: 62386
 
 [Watch on Youtube: Soul Driver (Live at The Shrine, Los Angeles, CA - 11/16/90 - Official Audio)](https://www.youtube.com/watch?v=Igvu_8v0agw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1990-11-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1990-11-17.png.webp)
 
 **1992:** Just like in the old days, several minutes after Bruce leaves the stage following his World Tour 1992 show in Chapel Hill, he stuns remaining fans (and the band and crew) by returning to the stage to play an extra encore of "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)," muttering "All I was gonna do is sit in the hotel room anyway..."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Working on the Highway" - Chapel Hill, 1992-11-17](https://www.youtube.com/watch?v=cH8ta8hMUwI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-17a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1992-11-17a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-17b-1.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1992-11-17b-1.png.webp)
 
 **1994:** *Born to Run* is certified quadruple platinum by the Recording Industry Association of America.<br>
 
@@ -70,7 +70,7 @@ post_id: 62386
 
 [Watch on Youtube: Columbus 17/11/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zAL6AFDb27ZUgd7TmAByK-F)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1999-11-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1999-11-17.png.webp)
 
 **2005:** Bruce tour premieres two notables at Night Two in East Rutherford on the Devils & Dust Tour: "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" and (finally) "Born to Run" make their return to the setlist.<br>
 
@@ -112,7 +112,7 @@ post_id: 62386
 
 [Watch on Youtube: Bruce Springsteen- Thunder Road Acoustic- Carnegie Hall- 11/17/09](https://www.youtube.com/watch?v=1-c_ObI6cw4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Daily_News_Thu__Nov_19__2009_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/11/Daily_News_Thu__Nov_19__2009_-scaled.jpg.webp)
 
 **2011:** Bruce and Jessica take in Taylor Swift's concert in Raleigh. Backstage, he borrows Taylor's guitar, plays "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," and signs the guitar for her. Watch Taylor tell the story and show a clip of Bruce's impromptu performance below (and check out her own cover of "Dancing in the Dark" [here).](https://estreetshuffle.com/index.php/2018/11/14/cover-me-taylor-swift-dancing-in-the-dark/)<br>
 
@@ -128,9 +128,9 @@ post_id: 62386
 
 [Watch on Youtube: Bruce Springsteen, Kansas City, 11-17-12, Santa Claus is Coming to Town](https://www.youtube.com/watch?v=nZZ0Yzs9Shc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2012-11-17a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/2012-11-17a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2012-11-17b-1.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/2012-11-17b-1.png.webp)
 
 **2014:** Bruce releases *The Album Collection Vol. 1 1973-1984*, collecting remastered editions of Bruce's early work.<br>
 
@@ -140,4 +140,4 @@ post_id: 62386
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: James Burrows.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/2018-11-17.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/2018-11-17.jpg.webp)

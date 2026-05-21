@@ -14,11 +14,11 @@ post_id: 57091
 
 **1974:** Under record label pressure to release a new single, Bruce and the E Street Band cancel a show at Armadillo World Headquarters in Austin.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1974-06-15a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1974-06-15a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1974-06-15b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1974-06-15b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1974-0615.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1974-0615.jpg.webp)
 
 **1979:** Bruce and the E Street Band work on "[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md)" at The Power Station in New York City.<br>
 
@@ -26,9 +26,9 @@ post_id: 57091
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1981-06-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1981-06-15.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1981-0615.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1981-0615.jpg.webp)
 
 **1983:** At The Hit Factory in New York City, Bruce records "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" and "[Don't Back Down.](../2022-01-06_roll-of-the-dice-dont-back-down/post.md)" The former won't be released for another fifteen years; the latter is unreleased to this day.<br>
 
@@ -38,9 +38,9 @@ post_id: 57091
 
 [Watch on Youtube: Bruce Springsteen Frankfurt 15/6/1985 Full Concert](https://www.youtube.com/watch?v=TK3GxeQpP1w)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/frankfurt.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/frankfurt.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1985-0615.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1985-0615.jpg.webp)
 
 **1988:** "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.<br>
 
@@ -50,7 +50,7 @@ post_id: 57091
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Rome, Italy - June 15, 1988 [audio]](https://www.youtube.com/watch?v=mrTntXBu9sQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/7ab1b174cfb3545ff0ea7a43b1923906-tunnel-of-love-bruce-springsteen.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/7ab1b174cfb3545ff0ea7a43b1923906-tunnel-of-love-bruce-springsteen.jpg.webp)
 
 **1992:** World Tour 1992 kicks off with the first of two shows at the Globe Arena in Stockholm. A few songs are captured in professional quality video, and you can watch them below.<br>
 
@@ -62,7 +62,7 @@ post_id: 57091
 
 [Watch Video Highlight](https://videopress.com/embed/UmQMQHKN)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1992-06-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1992-06-15.jpg.webp)
 
 **1999:** "[Take 'em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)" makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.<br>
 
@@ -86,9 +86,9 @@ post_id: 57091
 
 [Watch Video Highlight](https://videopress.com/embed/PPu63YUC)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2004-06-15a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2004-06-15a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2004-06-15b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2004-06-15b.jpg.webp)
 
 **2005:** The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres "[Countin' on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md)."<br>
 
@@ -104,6 +104,6 @@ post_id: 57091
 
 [Watch on Youtube: Bruce Springsteen Streets Of Fire Wembley Stadium 15-06-13](https://www.youtube.com/watch?v=WNFI4xrZ5e0?list=PL2610E08CB7A7333E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2013-06-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2013-06-15.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>

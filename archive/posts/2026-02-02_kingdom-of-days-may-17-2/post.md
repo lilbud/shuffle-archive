@@ -30,19 +30,19 @@ post_id: 56781
 
 [Watch on Youtube: Bruce Springsteen "Wreck on the Highway" 5/17/2005](https://www.youtube.com/watch?v=JG02_-3cltM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-17b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2005-05-17b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2005-05-17c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2005-05-17c.jpg.webp)
 
 **2006:** Wolfgang Niedecken joins Bruce and the Sessions Band for “Buffalo Gals” in Frankfurt.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Columbian_Sat__May_20__2006_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/The_Columbian_Sat__May_20__2006_-scaled.jpg.webp)
 
 **2008:** Bruce joins Mike Ness on stage at The Stone Pony.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2008-05-17.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2008-05-17.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/2008-0517.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/2008-0517.jpg.webp)
 
 **2012:** An amazing Wrecking Ball show in Barcelona, where the tour premieres (“Hungry Heart” and “You Can Look (But You Better Not Touch)” are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to “Prove It All Night” from the Darkness Tour finally returned–by request–after being absent for 32 years.<br>
 
@@ -62,11 +62,11 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 [Watch on Youtube: If I Should Fall Behind (Live at Mohegan Sun Arena, Uncasville, CT - 05/17/14 - Official Audio)](https://www.youtube.com/watch?v=Kn3DiuNlCc4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2014-05-17.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2014-05-17.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Daily_News_Mon__May_19__2014_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Daily_News_Mon__May_19__2014_-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Day_Mon__May_19__2014_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/The_Day_Mon__May_19__2014_-scaled.jpg.webp)
 
 **2016:** *The River* tracks still dominate the set list as the European leg gathers steam, but there’s still plenty of room for tour premieres: “Fire,” “Murder Incorporated,” “Waitin’ on a Sunny Day” and a solo acoustic “This Hard Land” all make their debut in San Sebastian.<br>
 
@@ -78,10 +78,10 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Actress/singer Connie Britton is in attendance tonight.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/05/conniebritto.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/conniebritto.jpg.webp)
 
 **2025:** Night Two in Manchester on the Land of Hope and Dreams Tour features the return of “Out in the Street” to the setlist, absent since 2023.<br>
 
 [Watch on Youtube: Bruce Springsteen - Out In The Street - Live at Co-op Live Arena Manchester 17/05/25](https://www.youtube.com/watch?v=Z0uePUDT1UI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/2014_05_17-uncasville-ct.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/2014_05_17-uncasville-ct.jpg.webp)

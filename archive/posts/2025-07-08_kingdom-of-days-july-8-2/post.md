@@ -12,7 +12,7 @@ post_id: 57650
 
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/mainpoint.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/mainpoint.jpg.webp)
 
 **1975:** Bruce completes "[Linda Let Me Be The One](../2021-03-27_roll-of-the-dice-linda-let-me-be-the-one/post.md)" at the Record Plant in New York City. It will remain in the vault for 23 years.<br>
 
@@ -34,7 +34,7 @@ post_id: 57650
 
 [Watch on Youtube: Raise your hand - July 8th 1978 Memorial Coliseum, Phoenix](https://www.youtube.com/watch?v=qWChNHrQ-SQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-07-08.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1978-07-08.jpg.webp)
 
 **1981:** Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne Arena in East Rutherford, as the River Tour continues. Two songs–"[Two Heart](../2018-05-28_roll-of-the-dice-two-hearts/post.md)s" and "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)"–will be released on *Live 1975-85*. Before the show, Bruce soundchecks his original song "[All I Need,](../2019-12-03_roll-of-the-dice-cover-me-all-i-need/post.md)" which he would eventually donate to Gary U.S. Bonds for his *On the Line* album.<br>
 
@@ -48,9 +48,9 @@ post_id: 57650
 
 [Watch Video Highlight](https://videopress.com/embed/CKvko768)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-09a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-07-09a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-09b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-07-09b.jpg.webp)
 
 **1985:** Barely a year after its release, *Born in the U.S.A.* is certified 7x multi-platinum by the Recording Industry Association of America.<br>
 

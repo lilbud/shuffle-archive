@@ -84,7 +84,7 @@ But then again, the kid was only twenty years old, and sometimes a cigar is just
 
 Until and unless Bruce decides to talk about this lost early song (an unlikely prospect), we'll just have to settle for speculation.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/allmangunslyrics.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/allmangunslyrics.png.webp)
 
 **We'll All Man the Guns**<br>
 **Never recorded**<br>

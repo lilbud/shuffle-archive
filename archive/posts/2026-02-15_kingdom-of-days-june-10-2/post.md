@@ -10,7 +10,7 @@ post_id: 57047
 ---
 **1973:** Bruce and his band open for Chicago at the Civic Center in Springfield.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/06/The_Republican_1973_06_11_11-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/The_Republican_1973_06_11_11-scaled.jpg.webp)
 
 **1977:** Bruce and the E Street Band hold recording sessions for what will become *Darkness on the Edge of Town* at Atlantic Studios in New York City.<br>
 
@@ -20,9 +20,9 @@ post_id: 57047
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LH4de0n_t9U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-06-10a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1978-06-10a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-06-10b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1978-06-10b.jpg.webp)
 
 **1983:** Bruce and the E Street Band record "Richfield Whistle" at The Hit Factory in New York City. It won't be released for more than forty years.<br>
 
@@ -52,7 +52,7 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 [Watch Video Highlight](https://videopress.com/embed/opayhzP9)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2006-06-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2006-06-10.jpg.webp)
 
 **2009:** At Night Two in Bergen on the Working on a Dream Tour, Bruce treats Norwegian fans to the tour premieres of "Boom Boom" and "Two Hearts."<br>
 

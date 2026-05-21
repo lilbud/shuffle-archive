@@ -12,15 +12,15 @@ post_id: 59633
 
 **1971:** The Bruce Springsteen Band continues their residency at The Student Prince.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1971-0910.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1971-0910.jpg.webp)
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" makes its tour premiere. If you can't make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1978-09-10a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1978-09-10a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1978-09-10b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1978-09-10b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1978-0910.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1978-0910.jpg.webp)
 
 **1979:** Bruce records "Mr. Outside" on a cassette recorder at home in Holmdel. He will release it 36 years later on *The Ties That Bind: The River Collection*.<br>
 
@@ -30,21 +30,21 @@ post_id: 59633
 
 [Watch on Youtube: Bruce Springsteen - MONA SHE'S THE ONE 1981 (audio)](https://www.youtube.com/watch?v=zHxCBO7yzCI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1981-09-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1981-09-10.jpg.webp)
 
 **1984:** On a free day in between shows, Clarence appears as a guest on *Late Night with David Letterman*, and he performs a familiar song with the Red Bank Rockers.<br>
 
 [Watch on Youtube: Late Night with David Letterman - 9/10/1984](https://www.youtube.com/watch?v=-kpB6TJCrhs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1984-09-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1984-09-10.jpg.webp)
 
 **1985:** Bruce shakes up the set list for Night Two in Miami on the Born in the U.S.A. Tour–no tour premieres, but several songs make their return after a month of unchanging sets.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Yx72G4DQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1985-09-10.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1985-0909.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1985-0909.jpg.webp)
 
 **1988:** The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)."<br>
 
@@ -58,7 +58,7 @@ post_id: 59633
 
 [Watch on Youtube: Barcelona 10/09/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zDHF8gWirLZ_wHaA6ouaR3F)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1988-09-10.jpg.webp)
 
 **1993:** Gene Siskel and Roger Ebert appear on the new *Late Show with David Letterman.* Dave shows a clip of Gene and Bruce chatting backstage after a previous show, and Gene reveals what they discussed in their movie-focused conversation. Check out the clip below:<br>
 
@@ -72,7 +72,7 @@ post_id: 59633
 
 **2007:** Bruce and the E Street Band begin rehearsing for their upcoming Magic Tour at Convention Hall in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-09-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2007-09-10.jpg.webp)
 
 **2013:** Bruce and the band rehearse for the South American leg of the Wrecking Ball Tour at Movistar Arena in Santiago.<br>
 

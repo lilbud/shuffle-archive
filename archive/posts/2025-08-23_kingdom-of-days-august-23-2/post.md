@@ -12,11 +12,11 @@ post_id: 59419
 
 **1969:** Bruce, along with the other members of Child, attend Janis Joplin's gig at Asbury Park Convention Hall as backstage guests of The James Cotton Band (Joplin's opening act).<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Asbury_Park_Press_2014_09_07_Page_A8.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/Asbury_Park_Press_2014_09_07_Page_A8.jpg.webp)
 
 **1973:** Bruce and the E Street Band play their fourth night of a week-long residency at Oliver's in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1973-0821.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1973-0821.jpg.webp)
 
 **1974:** Bruce hires Roy Bittan and Max Weinberg as new members of the E Street Band. Max and Roy responded to [Bruce's ad in the Village Voice](../2025-08-08_kingdom-of-days-august-8-2/post.md/) and tried out during audition sessions in mid-August. The band immediately kicks off intense rehearsal days (up to ten hours a day) lasting for two weeks.<br>
 
@@ -32,9 +32,9 @@ post_id: 59419
 
 [Watch on Youtube: New York 8/23/78](https://www.youtube.com/playlist?list=PLgBjbWHUxw7O2p30BtjkAesd1VCYcsu5O)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1978-08-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1978-08-23.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0823.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1978-0823.jpg.webp)
 
 **1979:** Bruce and the band work on "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" during a recording session at the Power Station in New York City.<br>
 
@@ -50,7 +50,7 @@ post_id: 59419
 
 **1999:** On an off-day during their five-show Reunion stand in Boston, the Springsteen family takes a side trip to Pioneer Village in Salem.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1999-08-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1999-08-23.jpg.webp)
 
 **2008:** Bruce and the E Street Band play what is widely (and personally) considered to be one of his best shows ever, certainly of the Reunion era, in St. Louis. Four tour premieres at this penultimate Magic Tour show, including two ("Then She Kissed Me" and "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)") not played for 33 years (to the very day for one of them), along with performances of three epics ("[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)," "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)," and "Jungleland") all in one show. The show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,16077/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-23-2008-Scottrade-Center-St-Louis-MO.html). For more highlights from this stunner of a show, see my [*Where the Band Was* report.](../2018-08-23_where-the-band-was-st-louis-august-23-2008/post.md)<br>
 
@@ -60,7 +60,7 @@ post_id: 59419
 
 [Watch on Youtube: Then She Kissed Me (Live at the Scottrade Center, St. Louis, MO - 08/23/08 - Official ...](https://www.youtube.com/watch?v=OZeRLiXWA0w)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2008-08-23.png.webp)
 
 **2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)" followed by an instrumental "[(Love is Like a) Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "[American Land.](../2016-01-22_roll-of-the-dice-american-land/post.md)"<br>
 
@@ -86,9 +86,9 @@ post_id: 59419
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Jersey Girl (live at Metlife, NJ 2016)](https://www.youtube.com/watch?v=qL1aFFlXn6I)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2016-08-23a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2016-08-23a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2016-08-23b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2016-08-23b.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

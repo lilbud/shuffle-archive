@@ -14,11 +14,11 @@ post_id: 57559
 
 **1967:** The "Fabulous" Castiles play a gig at the See ‘n' Surf Club (not a typo–same club, new name) to mark its first anniversary.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1967-0702.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1967-0702.jpg.webp)
 
 **1971:** The Sundance Blues Band plays the Upstage in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1971-07-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1971-07-02.jpg.webp)
 
 **1976:** Mike Appel sends Bruce a letter informing him that he is prohibited from recording new music due to their ongoing legal dispute. Bruce will spend 1976 and much of 1977 touring instead of recording as a result.<br>
 
@@ -34,7 +34,7 @@ post_id: 57559
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5eKi-BMbfRY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1981-07-02.jpg.webp)
 
 **1984:** The last of three nights in St. Paul (and the opening stand of the Born in the U.S.A. Tour) features the live debuts of "Downbound Train" and "Cover Me," along with the last full-band arrangement of "No Surrender" for fifteen years.<br>
 

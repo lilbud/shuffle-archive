@@ -12,15 +12,15 @@ post_id: 56345
 
 **1973:** Bruce and his "strange but adept" band headline a show at Rutgers University.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1973-0401.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1973-0401.jpg.webp)
 
 **1976:** Bruce and the band cancel a scheduled show at Butler University when the school is unable to front the band's appearance fee. Instead, they play a Chicken Scratch gig at Ohio University in Athens, where the venue takes some heavy damage as a result.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/04/1976-04-01a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/04/1976-04-01a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/04/1976-04-02b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/04/1976-04-02b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/04/1976-04-01c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/04/1976-04-01c.jpg.webp)
 
 **1980:** Bruce and his studio team work on mixing and overdubs for *The River* at the Power Station in New York City.<br>
 
@@ -30,7 +30,7 @@ post_id: 56345
 
 [Watch Video Highlight](https://videopress.com/embed/jX12LT4N)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-04-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1988-04-01.jpg.webp)
 
 **2009:** The *Working on a Dream* Tour kicks off at HP Pavilion in San Jose. "[Good Eye](../2022-02-15_roll-of-the-dice-good-eye/post.md)" is performed for the only time on the tour and the last time to date.<br>
 
@@ -40,9 +40,9 @@ post_id: 56345
 
 [Watch on Youtube: Bruce Springsteen Good Eye San Jose 01/04/2009](https://www.youtube.com/watch?v=BVLXCMvRB5E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Oakland_Tribune_2009_04_04_17-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/Oakland_Tribune_2009_04_04_17-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Oakland_Tribune_2009_04_04_22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/Oakland_Tribune_2009_04_04_22.jpg.webp)
 
 **2011:** On opening night of the Major League Baseball season in Miami, Clarence plays the national anthem.<br>
 
@@ -60,7 +60,7 @@ Meanwhile, Bruce joins Little Steven at the Underground Garage for [part one](ht
 
 [Watch on Youtube: Bruce Springsteen Live Washington DC, April 1, 2012 Thunder Road and Born to Run](https://www.youtube.com/watch?v=UybZAbmLMcY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/44696138581_620944df80_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/44696138581_620944df80_o.jpg.webp)
 
 **2023:** Bruce tour debuts "Jungleland" at Madison Square Garden when the reprise of the River Tour makes a stop in New York City. Paul McCartney is in attendance tonight.<br>
 
@@ -70,4 +70,4 @@ Meanwhile, Bruce joins Little Steven at the Underground Garage for [part one](ht
 
 [Watch on Youtube: Thunder Road / Born to Run - Bruce Springsteen - Madison Square Garden - New York City - 4/1/2023](https://www.youtube.com/watch?v=9mqNMGFafbI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Asbury_Park_Press_Tue__Apr_4__2023_-1-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/Asbury_Park_Press_Tue__Apr_4__2023_-1-scaled.jpg.webp)

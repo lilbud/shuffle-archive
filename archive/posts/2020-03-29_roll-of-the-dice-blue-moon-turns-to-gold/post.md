@@ -14,13 +14,13 @@ In Bruce's book of song lyrics entitled (appropriately) *Songs*, there's a two-p
 
 But–Bruce apparently likes to write in notebooks that have thin paper, because in the photo we can easily see the writing from the opposite side of the page seeping through.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/bluemoonturnstogold_lyrics.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/bluemoonturnstogold_lyrics.jpg.webp)
 
 So of course upon noticing this, we have to immediately hold the page up to a mirror, right? Lo and behold: a song we've never heard to this day, called "Blue Moon Turns to Gold."
 
 And while most of the first half of the song is obscured by the last lines of "Gloria's Eyes" (darn it), the second half is clear enough to make out much of it.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/bluemoonturnstogold_lyrics-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/bluemoonturnstogold_lyrics-1.jpg.webp)
 
 The song title is almost certainly a hat tip to the 1941 Wiley Walker/Gene Sullivan recording (covered by Elvis Presley, Jerry Lee Lewis, Emmylou Harris, and more) "When My Blue Moon Turns to Gold Again."
 

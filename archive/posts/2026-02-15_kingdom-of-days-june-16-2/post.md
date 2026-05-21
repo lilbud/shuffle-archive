@@ -10,7 +10,7 @@ post_id: 57092
 ---
 **1949:** Steel Mill member Robbin Thompson is born.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/robbin.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/robbin.jpg.webp)
 
 **1974:** Under record label pressure to release a new single, Bruce cancels a scheduled performance at Houston's Music Hall.<br>
 
@@ -22,7 +22,7 @@ post_id: 57092
 
 [Watch Video Highlight](https://videopress.com/embed/MGKx3kdr)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-06-16.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1978-06-16.jpg.webp)
 
 **1983:** At The Hit Factory in New York City, Bruce records both "Stand On It" and "Janey Don't You Lose Heart."<br>
 
@@ -70,7 +70,7 @@ post_id: 57092
 
 [Watch Video Highlight](https://videopress.com/embed/BuKjUSBn)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2006-06-16.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2006-06-16.jpg.webp)
 
 **2008:** The Magic Tour stops at LTU Arena in Dusseldorf, where power outages interrupt the show twice during the opening songs.<br>
 

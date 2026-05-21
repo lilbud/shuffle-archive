@@ -16,7 +16,7 @@ post_id: 62971
 
 **1973:** Bruce and the E Street Band play three sets at Childe Harold in Washington DC–their second of three nights.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1973-12-07.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/1973-12-07.jpg.webp)
 
 **1974:** Bruce and the band headline at the Geneva Theater in Geneva, New York. Listen to the incredible "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" (it includes a rap similar to the outtake version and the infamous "police siren" effect during the final instrumental), the 24-minute(!) "New York City Serenade," and the work-in-progress "Jungleland."<br>
 
@@ -28,11 +28,11 @@ post_id: 62971
 
 [Watch on Youtube: Bruce Springsteen - 1974-12-07 Geneva Theatre, Geneva, NY](https://www.youtube.com/watch?v=bV6KNjGFr3c)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/32914525327_41de270487_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/32914525327_41de270487_o.jpg.webp)
 
 **1975:** Bruce and the E Street Band play their third and final night at Georgetown University.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/The_Tennessean_Tue__Dec_9__1975_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/12/The_Tennessean_Tue__Dec_9__1975_.jpg.webp)
 
 **1978:** The Darkness Tour descends on the University of Texas at Austin, where Bruce debuts "[Preacher's Daughter](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)" as part of the introduction to "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" (and screws up the lyrics to "Thunder Road").<br>
 
@@ -40,9 +40,9 @@ post_id: 62971
 
 [Watch on Youtube: Bruce Springsteen - "She's the One" - Austin, 1978-12-07](https://www.youtube.com/watch?v=SBsEGe0_LCg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1978-12-07b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1978-12-07b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1978-12-07.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1978-12-07.png.webp)
 
 **1979:** At The Power Station in New York City, Bruce records "Living on the Edge of the World." It will remain in the vault for almost two decades before Bruce finally releases it on *Tracks*.<br>
 
@@ -52,15 +52,15 @@ post_id: 62971
 
 [Watch Video Highlight](https://videopress.com/embed/fA98MpTq)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1984-12-07.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1984-12-07.png.webp)
 
 **1987:** Bruce pays tribute to Harry Chapin at Carnegie Hall when Chapin is posthumously awarded the Special Congressional Gold Medal. Bruce performs "[Remember When the Music](../2021-03-14_cover-me-remember-when-the-music/post.md)" for the occasion.<br>
 
 [Watch on Youtube: Bruce Springsteen 1987 Harry Chapin Tribute: Remember When the Music](https://www.youtube.com/watch?v=BMSaVEbHt-U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1987-12-07a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1987-12-07a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1987-12-07b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1987-12-07b.png.webp)
 
 **1990:** Bruce records "[Over the Rise](../2020-07-12_roll-of-the-dice-over-the-rise/post.md)" with Roy Bittan at Soundworks West in Los Angeles. It will remain unreleased for almost eight years.<br>
 
@@ -70,17 +70,17 @@ post_id: 62971
 
 [Watch on Youtube: Bruce Springsteen - "Human Touch" - Philadelphia, 1992-12-07](https://www.youtube.com/watch?v=Me7NJnY_w6Y)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/Courier_Post_Wed__Dec_9__1992_-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/12/Courier_Post_Wed__Dec_9__1992_-1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-07a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1992-12-07a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-07b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1992-12-07b.png.webp)
 
 **1997:** Bruce salutes Bob Dylan at the annual Kennedy Center Honors, performing "[The Times They Are A-Changin'](../2021-08-02_cover-me-the-times-they-are-a-changin/post.md)."<br>
 
 [Watch on Youtube: The Times They Are A-Changin' (Bob Dylan Tribute) - Bruce Springsteen - 1997 Kennedy Center Honors](https://www.youtube.com/watch?v=Wa0fOE-x84k)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1997-12-07.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1997-12-07.png.webp)
 
 **1998:** Bruce flies to Potsdam to be interviewed and perform on German radio, where for the first time Bruce drops a tantalizing hint that catches the attention of fans worldwide.<br>
 
@@ -92,7 +92,7 @@ post_id: 62971
 
 [Watch on Youtube: Bruce Hornsby and Bruce Springsteen : Spider Fingers](https://www.youtube.com/watch?v=-m1UJNPz5FA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2001-12-07.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2001-12-07.png.webp)
 
 **2003:** Bruce, the Max Weinberg 7, and a host of friends hold their second of a three-pack of holiday shows at Asbury Park's Convention Hall to benefit local charities. The stage is once again filled with a host of stellar musicians including Jesse Malin, Sam Moore, Willie Nile, and much of the E Street Band, plus Jon Bon Jovi .<br>
 
@@ -118,13 +118,13 @@ post_id: 62971
 
 [Watch on Youtube: Bruce Springsteen - Live At The Carousel, Asbury Park, NJ 2010](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pb-2YBn1AsqUys3Tk4Jtiyk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2010-12-07.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2010-12-07.png.webp)
 
 **2014:** Five years after Sting saluted Bruce at the Kennedy Center Honors, Bruce reciprocates by performing his cover of Sting's "[I Hung My Head](../2020-03-02_cover-me-i-hung-my-head/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - I Hung My Head - Sting - Kennedy Center Honors 2014](https://www.youtube.com/watch?v=BwyIUWtGyh0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2014-12-07.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2014-12-07.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Jackson Browne.<br>
 

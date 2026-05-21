@@ -26,7 +26,7 @@ post_id: 59371
 
 [Watch on Youtube: "Atlantic City" - Bruce Springsteen and the E Street Band 8/19/1984](https://www.youtube.com/watch?v=FevxkHIymKc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1984-08-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1984-08-19.jpg.webp)
 
 **1985:** Bruce and the E Street Band play their second of a four-night stand at Giants Stadium (they will return later that summer). The show is notable for its performances of "[Johnny 99,](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" "[Working on the Highway,](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" "[I'm on Fire,](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" and "Born to Run," all of which are recorded and will be released on the *Live 1975-85* box set. Their "Born to Run" performance will become the audio for the official video for the song.<br>
 
@@ -42,7 +42,7 @@ post_id: 59371
 
 [Watch on Youtube: Bruce Springsteen - Giants Stadium, August 18-19, 1985 news coverage](https://www.youtube.com/watch?v=Yl845kNMzmA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-19.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-19.png.webp)
 
 **2008:** The Magic Tour's victory lap includes a show at Hersheypark Stadium, where Bruce brings back two Tunnel of Love tour staples, both played for the first time in 20 years: "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[Part Man, Part Monkey](../2022-02-19_roll-of-the-dice-part-man-part-monkey/post.md)." The show closes with another tour premiere: "[Gloria](../2018-03-16_cover-me-gloria/post.md)," featuring Joe and Johnny Grushecky (although somehow, the local paper misidentifies Joe for Tommy James).<br>
 
@@ -52,13 +52,13 @@ post_id: 59371
 
 [Watch on Youtube: Bruce Springsteen Part Man Part Monkey Hershey 19/08/2008](https://www.youtube.com/watch?v=GklDiFt151Q)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2008-08-19a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2008-08-19a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2008-08-19b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2008-08-19b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-19c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2008-08-19c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-19d.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2008-08-19d.png.webp)
 
 **2009:** Bruce and the E Street Band kick off the final leg of the Working on a Dream Tour at the Comcast Theater in Hartford, where Bruce plays the first "[Sha La La](../2018-02-21-cover-me-sha-la-la/post.md/)" in 34 years.<br>
 
@@ -66,6 +66,6 @@ post_id: 59371
 
 [Watch on Youtube: Bruce Springsteen Hartford "Be True" 8/19/09](https://www.youtube.com/watch?v=DLNbE1fRHdU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2009-08-19.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2009-08-19.png.webp)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.<br>

@@ -26,9 +26,9 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 [Watch on Youtube: Bruce Springsteen Video Anthology 1978-88](https://www.youtube.com/watch?v=pWQsmTe_DuU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1989-01-31a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1989-01-31a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1989-01-31b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1989-01-31b.png.webp)
 
 **1991:** Bruce records “[Loose Change](../2019-11-24_roll-of-the-dice-loose-change/post.md)” at The Record Plant in Los Angeles.<br>
 
@@ -46,7 +46,7 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 [Watch on Youtube: Bon Jovi, Springsteen & Friends Come Together - Red Bank 1998 (FULL SHOW)](https://www.youtube.com/watch?v=LYFmmshcwWc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1998-01-31.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1998-01-31.jpg.webp)
 
 **2006:** E Street Radio’s limited-run engagement comes to an end on Sirius Satellite Radio, but it will return more than a year-and-a-half later.<br>
 
@@ -62,9 +62,9 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 [Watch on Youtube: Bruce Springsteen - Wrecking Ball (Newark 1/31/16)](https://www.youtube.com/watch?v=Mhu4nDpcFfA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2016-01-31a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/2016-01-31a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2016-01-31b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/2016-01-31b.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

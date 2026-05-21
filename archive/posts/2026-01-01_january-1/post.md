@@ -12,9 +12,9 @@ post_id: 63727
 
 **1976:** Bruce, Steve, Roy, and David Sancious drop by The Stone Pony, where they join Southside Johnny and The Asbury Jukes on stage for several numbers.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/1976-0101.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/1976-0101.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/48769956123_ee290e600f_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/48769956123_ee290e600f_o.jpg.webp)
 
 **1979:** The last night of the Darkness Tour in Richfield is also the longest. The 31-song setlist is highlighted by fond farewells (for a time, at least): "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" and "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" won't appear again for two decades, and "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" will be absent for 24 years.<br>
 

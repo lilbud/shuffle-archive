@@ -24,7 +24,7 @@ Let's take a listen.
 
 If the song's melody sounds familiar, that's probably because it's very similar to "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" — and since both songs were recorded the same week (possibly even the same day), that may be a big reason why one of them had to be left off the album. (Interestingly, at one point they were slated to be back-to-back on the album.)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/04/1972_handwrittensonglist2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/1972_handwrittensonglist2.jpg.webp)
 
 As for the lyrics, on the surface they are very much in keeping with Bruce's *Greetings*-era writing, full of internal rhymes, surreal imagery, and inventive metaphor.
 

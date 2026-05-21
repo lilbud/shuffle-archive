@@ -18,7 +18,7 @@ post_id: 61249
 
 [Watch on Youtube: BRUCE SPRINGSTEEN & THE STEEL MILL BAND 1971](https://www.youtube.com/watch?v=s_qjKVhl8xo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/poster_1971-10-30.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/poster_1971-10-30.jpg.webp)
 
 **1973:** Bruce and the boys headline two shows at The Main Point in Bryn Mawr, Pennsylvania–their second of a three-night stand. Richard Blackwell makes a guest appearance on congas.<br>
 
@@ -26,17 +26,17 @@ post_id: 61249
 
 [Watch on Youtube: Bruce Springsteen (w/ Patti Smith) - ROSALITA - LAND OF A 1000 DANCES (1976)](https://www.youtube.com/watch?v=NcAdOEJeZfo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Philadelphia_Daily_News_1976_11_17_Page_31-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/10/Philadelphia_Daily_News_1976_11_17_Page_31-scaled.jpg.webp)
 
 **1980:** Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sports Arena, where Flo and Eddie contribute guest backing vocals to "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen (feat. Flo & Eddie), "Hungry Heart" Los Angeles, 1980-10-30](https://www.youtube.com/watch?v=mARXAqjapMc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1980-10-30a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1980-10-30a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1980-10-30b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/1980-10-30b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/33582182768_17f5871a49_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/33582182768_17f5871a49_o.jpg.webp)
 
 **1984:** Bruce releases the latest single, the [title track](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md) from his mega-hit *Born in the U.S.A.* album.<br>
 
@@ -50,17 +50,17 @@ post_id: 61249
 
 Also today, Bruce donates a complete signed collection of his albums to The Rainbow Foundation to raise money via auction for local children in need.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1987-10-30a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1987-10-30a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1987-10-30b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1987-10-30b.png.webp)
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to Iowa State University in Ames.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9XFkbcPs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/10/1992-10-30a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/10/1992-10-30a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1992-10-30b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/1992-10-30b.png.webp)
 
 **2005:** Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but will remain unreleased with one exception: a video for "[Matamoros Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)" that Bruce will release fourteen years later in support of Project Adelante. In the encores, Bruce tour premieres "[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)" as a Boston special. In attendance tonight: Senator John Kerry.<br>
 
@@ -68,7 +68,7 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 [Watch on Youtube: Bruce Springsteen Boston M.A. 10-30-05](https://www.youtube.com/watch?v=mCdwUtuwaJo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2005-10-30.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2005-10-30.png.webp)
 
 **2006:** Bruce and the Sessions Band complete their Scandinavian leg with a show at the Globe Arena in Stockholm, where Bruce tour premieres "[Jesus Was an Only Son](../2018-04-25_roll-of-the-dice-jesus-was-an-only-son/post.md)."<br>
 
@@ -88,28 +88,28 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 [Watch on Youtube: U2 & Bruce Springsteen - "I Still Haven't Found What I'm Looking For"](https://www.youtube.com/watch?v=1eWIYhdk-Eg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2009-10-30.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2009-10-30.png.webp)
 
 **2012:** A scheduled Wrecking Ball show in Rochester is postponed to the following day due to Hurricane Sandy.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/2012-1030.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/2012-1030.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2012-10-30.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2012-10-30.png.webp)
 
 **2014:** Bruce is interviewed for the [*New York Times* book section](https://www.nytimes.com/2014/11/02/books/review/bruce-springsteen-by-the-book.html), where he provides his reading recommendations.<br>
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Jimmy Fallon and former (and soon-to-be) Speaker of the House Nancy Pelosi.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2018-10-30b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/2018-10-30b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/2018-10-30a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/2018-10-30a.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/PAyeM8Lt)
 
 **2019:** Fifth-grader Camryn Sherer interviews Bruce for her school newspaper and scores a genuine scoop when she asks him to share something no one knows about him.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2019-10-30a_LI.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/2019-10-30a_LI.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2019-10-30b-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/2019-10-30b-1.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/PT93WuXK)

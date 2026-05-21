@@ -8,7 +8,7 @@ categories: kingdom-of-days
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/02/bruce-springsteen-superbowl-90ee8cc829324babb4dc1ab17ef7b8aa.webp
 post_id: 55844
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-01.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1981-02-01.png.webp)
 
 **1973:** Bruce and his band play their second of six nights (with two shows each night) at Max’s Kansas City in New York, opening for Biff Rose.<br>
 
@@ -18,7 +18,7 @@ post_id: 55844
 
 [Watch Video Highlight](https://videopress.com/embed/dovVptok)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2009-02-01.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2009-02-01.png.webp)
 
 **1986:** “[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)” tops the Billboard Adult Contemporary chart for one week. Bruce will never have another #1 hit on this chart.<br>
 
@@ -32,9 +32,9 @@ post_id: 55844
 
 [Watch Video Highlight](https://videopress.com/embed/RGrMy8uL)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Journal_News_2023_02_05_C4.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/02/The_Journal_News_2023_02_05_C4.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Opelika_Auburn_News_2023_02_08_G4-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/02/The_Opelika_Auburn_News_2023_02_08_G4-scaled.jpg.webp)
 
 **2014:** Bruce and the E Street Band finish their mini-South African tour at FNB Stadium in Johannesburg. Shortly after doors open, Bruce surprises the sparse crowd with a three-song acoustic pre-show. Two of the three songs (“[I’ll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)” and “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)“) are captured and posted on Bruce’s official YouTube channel. Meanwhile, *High Hopes* becomes Bruce’s 11th #1 album in the U.S., although it will only hold that spot for one week. “[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md),” [Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md),” “[I’m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md),” and “[Who’ll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)” all make their tour premieres tonight.<br>
 
@@ -58,4 +58,4 @@ post_id: 55844
 
 [Watch on Youtube: Burnin' Train Bruce Springsteen & The E Street Band Amalie Arena Tampa, FL 2/1/2023](https://www.youtube.com/watch?v=L2BXucMeQww)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1981-0201.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/1981-0201.jpg.webp)

@@ -10,7 +10,7 @@ post_id: 57651
 ---
 **1973:** Bruce and the E Street Band headline at The Main Point in Bryn Mawr, Pennsylvania. Bruce is no stranger to having his name misspelled by now, but this is a new one.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/mainpoint-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/mainpoint-1.jpg.webp)
 
 **1978:** Bruce sits down for an interview with WNEW-FM DJ Dave Herman in San Diego. (The interview will air in September on the King Biscuit Flower Hour.) As with Mary Turner a few days earlier, Bruce is loose, talkative, and funny. This interview is definitely worth a listen.<br>
 
@@ -20,7 +20,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 [Watch Video Highlight](https://videopress.com/embed/9D8CJQei)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-09.jpg.webp)
 
 **1981:** Bruce and the E Street Band close out their opening stand at the Brendan Byrne Arena in the Meadowlands, and Gary U.S. Bonds joins them on stage for "Jole Blon" and "This Little Girl." Bruce's performance of "Jersey Girl" will be released in 1984 as the B-side to "Cover Me" as well as on the *Live 1975-85* box set. This concert is available for purchase as part of Bruce's official archive series.<br>
 
@@ -32,7 +32,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WCcS5hVcVgs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1981-07-09.jpg.webp)
 
 **1984:** At Night Two in Richfield, Ohio on the Born in the U.S.A. Tour, Bruce plays "No Surrender" acoustically for the first time ever, along with the tour premiere of "Darkness on the Edge of Town."<br>
 
@@ -46,7 +46,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jAgD8cwvcxk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Manchester_Evening_News_1988_07_11_6-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Manchester_Evening_News_1988_07_11_6-scaled.jpg.webp)
 
 **1989:** Bruce joins Cats on a Smooth Surface at The Stone Pony for "Travelin' Band."<br>
 
@@ -68,9 +68,9 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 **1999:** Bruce guest-stars at Joe Grushecky's acoustic show at Hooligans in Long Branch, New Jersey on three songs: "Never Be Enough Time," "Pumping Iron," and "Brown Eyed Girl."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1999-0709.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1999-0709.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-07-09.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops in Zurich for a night, where Bruce opens the show with the tour premiere of "Don't Look Back." Other tour premieres include "Working on a Dream" and "If I Should Fall Behind."<br>
 
@@ -90,7 +90,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_HVuTCfixwA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2014-07-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2014-07-09.jpg.webp)
 
 **2016:** Bruce and the E Street Band play the TW Classic Festival in Werchter, Belgium, where "Mansion on the Hill" and "If I Should Fall Behind" make their tour premieres.<br>
 

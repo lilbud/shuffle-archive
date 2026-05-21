@@ -14,7 +14,7 @@ post_id: 59370
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dKSxtbFRC6A)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1978-08-18.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1978-08-18.png.webp)
 
 **1985:** Bruce and the band kick off a four-night stand at Giants Stadium (they will return for two more later in the summer). This is Bruce's first stadium concert in his home state, and the media coverage is intense. Check out the news footage and the PBS featurette below.<br>
 
@@ -26,21 +26,21 @@ post_id: 59370
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=P5hwmtfpgEM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-18a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1985-08-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-18b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-18b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-18c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-18c.png.webp)
 
 **1992:** Bruce and his new touring band play their second night at The Palace of Auburn Hills on World Tour 1992, tour premiering a cover of "Ramblin' Gamblin' Man," a one-off for the tour. David Weiss of Was (Not Was) is at the show tonight, but he doesn't perform.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BFFi5wbLcTg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-18a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-08-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-18b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-08-18b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-18c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-08-18c.png.webp)
 
 **2001:** Bruce makes a surprise afternoon appearance at the annual Clearwater Festival in Asbury Park, playing six songs (including the first ever acoustic performance of "Land of Hope and Dreams"). The video footage below is unintentionally hilarious at times: first, a local news reporter tries multiple times to do a "guess who that is over there" intro, but an oblivious Bruce fails to cooperate; later, a group performance of "Blinded by the Light" is, let's say, ragtag. And that poor ASL interpreter–how hard must it be to sign *that* song?<br>
 
@@ -48,17 +48,17 @@ post_id: 59370
 
 Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on stage for four songs, including "If I Should Fall Behind" and "Boom Boom.."
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2001-0818a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/2001-0818a.jpg.webp)
 
 …and because that *still* wasn't enough for one day, he stuck around to join John Eddie on stage for "Suspicious Minds."
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2001-0818b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/2001-0818b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2001-08-18a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2001-08-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2001-08-18b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2001-08-18b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2001-08-18c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2001-08-18c.png.webp)
 
 **2002:** After four identical shows, Bruce finally changes up the Rising Tour setlist (barely) at his stop at the Thomas & Mack Center in Las Vegas, adding a tour one-off of "Viva Las Vegas" to the encores. In attendance tonight: Leonardo DiCaprio, Robert Downey Jr., Juliette Lewis, Christina Applegate, Lara Flynn Boyle, Cindy Crawford, Chris Kattan, Rose McGowan, Fred Durst, and more.<br>
 
@@ -66,7 +66,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCBQ5Ubc2UseuhTWCpTHdra)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/The_Province_2002_08_21_27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/The_Province_2002_08_21_27.jpg.webp)
 
 **2008:** Bruce and the E Street Band take the Magic Tour into its final week with a show at the Coliseum in Richmond. Bruce opens the encores with the long lost "Crush on You" (played for the first time in 28 years), followed by the tour premiere of "Quarter to Three."<br>
 
@@ -74,7 +74,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3NNS7DrhHv0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg.webp)
 
 **2012:** Bruce wraps up a three-night Boston stadium stand with a show at Gillette Stadium in Foxborough. Bruce tour debuts "Open All Night" (played in the Seeger Sessions swing arrangement) as well as the first performance of "Drift Away" in 28 years.<br>
 

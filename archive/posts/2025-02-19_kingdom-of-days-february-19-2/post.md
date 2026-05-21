@@ -14,7 +14,7 @@ post_id: 55962
 
 **1975:** Bruce and the E Street Band headline at Penn State University, their first-ever appearance there.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1975-0219.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/1975-0219.jpg.webp)
 
 **1977:** Bruce brings the Lawsuit Tour to St. Paul, where a fan films parts of the performance on 8mm film.<br>
 
@@ -24,7 +24,7 @@ post_id: 55962
 
 [Watch on Youtube: Bruce Springsteen - THUNDER ROAD 1977 live](https://www.youtube.com/watch?v=JjW0TpZ5VAY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1977-02-19.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1977-02-19.png.webp)
 
 Also on this date in 1977: Manfred Mann’s Earth Band gifts Bruce with his only number one single. Their cover of “[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)” tops the charts in the U.S. and Canada today.
 
@@ -42,7 +42,7 @@ Also on this date in 1977: Manfred Mann’s Earth Band gifts Bruce with his only
 
 [Watch on Youtube: Bruce Springsteen - Somerville Q&A 2003-02-19](https://www.youtube.com/watch?v=5xAno406gPk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2003-02-19.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2003-02-19.png.webp)
 
 **2014:** Bruce and the E Street Band play the Allphones Arena in Sydney, Australia, where they open with a cover of “[Friday on My Mind](../2019-06-07_cover-me-friday-on-my-mind/post.md)” by The Easybeats. Another surprise cover kicks off the encores: “[Don’t Change](../2021-03-26_cover-me-dont-change/post.md)” by INXS, followed by a blazingly fast “Born to Run.” Also tour premiering tonight: “[Racing in the Street,](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” “[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md),” and “[Dream Baby Dream](../2020-04-02_cover-me-dream-baby-dream/post.md).”<br>
 

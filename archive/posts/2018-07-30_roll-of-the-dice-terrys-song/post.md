@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/Bruce-Terry.jpg
 post_id: 3399
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/terryssong_rememberingterrymagovern1-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/terryssong_rememberingterrymagovern1-1.jpg.webp)
 
 From the Asbury Park Press, August 1, 2007:
 

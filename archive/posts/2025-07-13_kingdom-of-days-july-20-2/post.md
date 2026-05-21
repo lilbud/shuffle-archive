@@ -14,7 +14,7 @@ post_id: 57793
 
 **1973:** Bruce and the E Street band play their third of six consecutive two-shows-nightly gigs at Max's Kansas City in New York, with the Wailers as the opening act.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1973-0720.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1973-0720.jpg.webp)
 
 **1975:** A red-letter (and red-eyed) day for Bruce and the E Street Band: after a marathon nineteen-hour rehearsal that ends at 3am, and after recording work on "Jungleland" that continued until 10am, the band races to the Palace Theater in Providence, Rhode Island, for the opening night of the Born to Run Tour and Steven Van Zandt's debut as a member of the E Street Band.<br>
 
@@ -22,13 +22,13 @@ post_id: 57793
 
 [Watch on Youtube: Bruce Springsteen - 1975-07-20 Palace Concert Theater, Providence, RI](https://www.youtube.com/watch?v=8Hoz79azVDI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1975-07-20.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1975-07-20.png.webp)
 
 **1999:** The opening stand of the Reunion Tour's U.S. leg continues with Night Three at the Continental Airlines Arena in East Rutherford.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DhJGQnGP)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-20.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-07-20.png.webp)
 
 **2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres "[All That Heaven Will Allow](../1987-01-03_roll-of-the-dice-all-that-heaven-will-allow/post.md)" and "[Nothing Man,](../2020-08-29_roll-of-the-dice-nothing-man/post.md)" both on electric piano.<br>
 
@@ -36,7 +36,7 @@ post_id: 57793
 
 [Watch on Youtube: Nothing Man, Solo Piano Version - Bruce Springsteen](https://www.youtube.com/watch?v=L9XCvwdwCVk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-20.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2005-07-20.png.webp)
 
 **2008:** Bruce and the E Street Band play their last European Magic show, at Camp Nou in Barcelona, tour premiering "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" (the first time that song has ever been played in Europe).<br>
 

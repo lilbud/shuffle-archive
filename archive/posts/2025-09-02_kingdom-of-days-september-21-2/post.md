@@ -12,21 +12,21 @@ post_id: 59694
 
 **1974:** Bruce and the E Street Band play a gig at the State University of New York in Oneonta. Even the school's yearbook can't spell his name correctly.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1974-0921.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1974-0921.jpg.webp)
 
 **1975:** Bruce plays his first-ever show in Minnesota at Minneapolis' Guthrie Theater.<br>
 
 [Watch on Youtube: Springsteen Thunder Road Guthrie Theater 1975](https://www.youtube.com/watch?v=OzLQs4dVJXk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1975-09-21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1975-09-21.jpg.webp)
 
 **1978:** Bruce and the E Street Band wrap up their spectacular three-night Darkness Tour homecoming stand at Passaic's Capitol Theater. There won't be a birthday show this year, so the band and crew take the opportunity to present Bruce with an early on-stage "birthday cake."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1978-0921.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1978-0921.jpg.webp)
 
 [Watch on Youtube: Passaic Night 3 21/09/1978](https://www.youtube.com/playlist?list=PLJTyL9twk3zA-IYfcmZ3HQHQuNXadOiof)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1978-09-21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1978-09-21.jpg.webp)
 
 **1979:** Bruce headlines the first of two famous "No Nukes" concerts at Madison Square Garden under the aegis of Musicians United for Safe Energy (MUSE), performing an abbreviated but well-documented set that features the very first performance of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)." That debut performance will become the song's official video, and audio recordings of "[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)" and "[Stay](../2018-07-22_meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/post.md)" (with Jackson Browne and Rosemary Butler) will be released on the official companion album released toward the end of the year. This show is available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,20918/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-21-1979-Madison-Square-Garden-New-York-NY.html)), and selections are available on video in the concert film, *The Legendary 1979 No Nukes Concerts*.<br>
 
@@ -56,11 +56,11 @@ post_id: 59694
 
 [Watch Video Highlight](https://videopress.com/embed/4C0NYp0F)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1984-09-21c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1984-09-21c.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1984-09-21a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1984-09-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1984-09-21b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1984-09-21b.jpg.webp)
 
 **1988:** The Human Rights Now! Tour hits the American west coast with a show at the Los Angeles Memorial Coliseum. Joan Baez makes a guest appearance, Bruce plays "Jungleland" for the last time until the Reunion Tour, and Bono joins the company for an encore of "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)."<br>
 
@@ -70,9 +70,9 @@ post_id: 59694
 
 [Watch on Youtube: Bruce Springsteen - Los Angeles Coliseum, September 21, 1988](https://www.youtube.com/watch?v=K-3l-YEOBs0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-21a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1988-09-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-21b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1988-09-21b.jpg.webp)
 
 **1999:** Night Four (of six) in Philadelphia on the Reunion Tour starts with a surprise: the tour premiere and one-off performance of "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)" not seen at a proper concert since 1975. Rocketing from there into "[Take 'em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)," the show is off to a searing start.<br>
 
@@ -82,9 +82,9 @@ post_id: 59694
 
 [Watch on Youtube: Bruce Springsteen - My City of Ruins (from "America: A Tribute to Heroes")](https://www.youtube.com/watch?v=UpUv6ptY8xw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2001-09-21a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2001-09-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2001-09-21b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2001-09-21b.jpg.webp)
 
 **2003:** Two more "missing years" songs makes their tour (and E Street Band) debuts in the home stretch of the Rising Tour, when "[Local Hero](../1992-02-04_roll-of-the-dice-local-hero/post.md)" and "[My Beautiful Reward](../1992-02-11_roll-of-the-dice-my-beautiful-reward/post.md)" come out to play at Comerica Park in Detroit–but the best highlight is saved for the encores, when Martha Reeves joins Bruce and the band to play her 1963 hit "[Heat Wave](../2020-02-18_matr-bruce-springsteen-and-martha-reeves-heat-wave/post.md)."<br>
 
@@ -94,7 +94,7 @@ post_id: 59694
 
 [Watch on Youtube: Detroit 21/09/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zClqCz-WnKG-OwnxCjyOydh)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2003-09-21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2003-09-21.jpg.webp)
 
 Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards in the Outstanding Variety, Music, or Comedy Special category and in the Outstanding Directing for a Variety, Music or Comedy Program category (for director Chris Hilson). Both prizes go to other nominees, the former to *Cher: The Farewell Tour*, and the latter for the *56th Annual Tony Awards.*
 
@@ -110,9 +110,9 @@ Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards
 
 [Watch on Youtube: Bruce Springsteen The Wanderer Des Moines 9/21/09](https://www.youtube.com/watch?v=kg2AOVXpqU4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-21a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2009-09-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-21b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2009-09-21b.jpg.webp)
 
 **2012:** Bruce and the E Street Band play their second of three Wrecking Ball shows at MetLife Stadium in East Rutherford, and what a show: Bruce stuns the crowd by opening with the live debut of "[Living on the Edge of the World](../2018-10-18_roll-of-the-dice-living-on-the-edge-of-the-world/post.md)," tour premiering "From Small Things (Big Things One Day Come)" and "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)," rare outings for "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" and "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)," and inviting Gary U.S. Bonds to join the band for four songs, including the tour premieres of "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)."<br>
 

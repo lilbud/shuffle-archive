@@ -8,15 +8,15 @@ categories: kingdom-of-days
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/2017-0112.jpg
 post_id: 55578
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2017-01-12.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/2017-01-12.png.webp)
 
 **1973:** Bruce and the not-yet E Street Band continue their Boston residency with two shows at Paul’s Mall.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Montgomery_Advertiser_1996_01_14_2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/The_Montgomery_Advertiser_1996_01_14_2.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Courier_News_1982_01_13_Page_2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/The_Courier_News_1982_01_13_Page_2.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/1973-01-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/1973-01-10.jpg.webp)
 
 **1974:** Bruce and the band play The Joint in the Woods in Parsippany, New Jersey–notable for ultra-rare covers of “[Ring of Fire](../2019-07-19_cover-me-ring-of-fire/post.md)” and “[634-5789](../2018-08-14_cover-me-634-5789-soulsville-u-s-a/post.md).” (The latter will become a staple of the Wrecking Ball tour, however.)<br>
 
@@ -24,7 +24,7 @@ post_id: 55578
 
 [Watch on Youtube: Kitty's Back (Live at The Joint in the Woods, Parsippany, NJ - 1/12/1974)](https://www.youtube.com/watch?v=Zosn7YiboBs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1974-01-12.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1974-01-12.png.webp)
 
 **1975**: Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunner to Southside Johnny and the Asbury Jukes.<br>
 
@@ -32,7 +32,7 @@ post_id: 55578
 
 [Watch Video Highlight](https://videopress.com/embed/VjV3L0Je)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1982-01-12a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1982-01-12a.png.webp)
 
 **1984:** At The Hit Factory in New York City, Bruce and the E Street Band record “[Man at the Top](../2019-05-10_roll-of-the-dice-man-at-the-top/post.md)” and “[Rockaway the Days](../2021-03-15_roll-of-the-dice-rockaway-the-days/post.md).” Both songs will remain in the vault until 1998.<br>
 
@@ -48,7 +48,7 @@ post_id: 55578
 
 [Watch on Youtube: John Fogerty with Bruce Springsteen & Robbie Robertson - "Born On The Bayou" | 1993 Inductions](https://www.youtube.com/watch?v=pfn4G2IJUxA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1993-01-12.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1993-01-12.png.webp)
 
 **1995:** Bruce records “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)” at The Hit Factory in New York City.<br>
 
@@ -68,10 +68,10 @@ post_id: 55578
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: George Lopez and Rita Wilson.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/39666761111_1fb51ff37b_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/39666761111_1fb51ff37b_o.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/2018-01-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/2018-01-12.jpg.webp)
 
 **2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First hand reports from fans listening at the stage door (including this blogger) confirm the addition of “Nightshift” and the return of “[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)” as the show opener (a position it will hold throughout most of the tour) as the setlist begins to take shape.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/2023-01-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/01/2023-01-12.jpg.webp)

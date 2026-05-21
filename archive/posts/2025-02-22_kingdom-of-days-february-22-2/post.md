@@ -10,7 +10,7 @@ post_id: 55973
 ---
 **1948:** Douglas Springsteen and Adele Zerilli marry at the St. Rose of Lima Church in Freehold, New Jersey. Later the following year, they’ll become the proud parents of a baby boy destined to become one of the world’s most famous, respected, and beloved rock stars, but tonight they enjoy their wedding reception at the Blue Moon Inn in Farmingdale. Long, long after, their son will write one of his finest songs about the indelibility of young love. Is “[Moonlight Motel](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)” a loving nod to his parents’ wedding? Only Bruce knows.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/Asbury_Park_Press_1948_02_27_Page_12-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/02/Asbury_Park_Press_1948_02_27_Page_12-scaled.jpg.webp)
 
 **1970:** Steel Mill records three Springsteen original songs (“[He’s Guilty (The Judge Song)](https://estreetshuffle.com/index.php/2020/07/10/roll-of-the-dice-hes-guilty-the-judge-song/),” “[Goin’ Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md),” and “[The Train Song](../2021-10-06_roll-of-the-dice-the-train-song/post.md)“) at Pacific Recording Studio in San Mateo, California. This is only Bruce’s second time in a recording studio. Two of the three songs will remain in the vault, but “He’s Guilty (The Judge Song)” will finally see the light of day in 2017’s *Chapter and Verse*.<br>
 
@@ -18,7 +18,7 @@ post_id: 55973
 
 **1973:** Bruce’s gig at the Santa Clara County Fairgrounds in San Jose is cancelled.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1973-02-22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1973-02-22.jpg.webp)
 
 **1977:** Bruce and the E Street Band play the Milwaukee Auditorium, where an especially powerful “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)” features Bruce’s show-stopping “wishing that God would send some angels and blow this whole town right into the sea” for the first time.<br>
 
@@ -30,7 +30,7 @@ post_id: 55973
 
 [Watch Video Highlight](https://videopress.com/embed/SL4ZQMbz)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1981-02-22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1981-02-22.jpg.webp)
 
 **1985:** *Friday Night Videos* airs part one of a “private reel” segment on Bruce. Watch the entire segment below:<br>
 

@@ -10,7 +10,7 @@ post_id: 59419
 ---
 **1969:** Bruce, along with the other members of Child, attend Janis Joplin's gig at Asbury Park Convention Hall as backstage guests of The James Cotton Band (Joplin's opening act).<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Asbury_Park_Press_2014_09_07_Page_A8.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/Asbury_Park_Press_2014_09_07_Page_A8.jpg.webp)
 
 **1973:** Bruce and the E Street Band play their fourth night of a week-long residency at Oliver's in Boston.<br>
 
@@ -28,9 +28,9 @@ post_id: 59419
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLgBjbWHUxw7O2p30BtjkAesd1VCYcsu5O)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1978-08-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1978-08-23.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0823.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1978-0823.jpg.webp)
 
 **1979:** Bruce and the band work on "Point Blank" during a recording session at the Power Station in New York City.<br>
 
@@ -46,7 +46,7 @@ post_id: 59419
 
 **1999:** On an off-day during their five-show Reunion stand in Boston, the Springsteen family takes a side trip to Pioneer Village in Salem.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1999-08-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1999-08-23.jpg.webp)
 
 **2008:** Bruce and the E Street Band play what is widely (and personally) considered to be one of his best shows ever, certainly of the Reunion era, in St. Louis. Four tour premieres at this penultimate Magic Tour show, including two ("Then She Kissed Me" and "Mountain of Love") not played for 33 years (to the very day for one of them), along with performances of three epics ("Backstreets," "Drive All Night," and "Jungleland") all in one show. The show is available for purchase as part of Bruce's official archive series.<br>
 
@@ -60,7 +60,7 @@ post_id: 59419
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sk79Bgl_7Ms)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-23.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2008-08-23.png.webp)
 
 **2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "Independence Day," followed by an instrumental "(Love is Like a) Heat Wave" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "American Land."<br>
 
@@ -86,9 +86,9 @@ post_id: 59419
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qL1aFFlXn6I)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2016-08-23a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2016-08-23a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2016-08-23b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2016-08-23b.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

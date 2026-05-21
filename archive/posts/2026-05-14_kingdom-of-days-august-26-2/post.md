@@ -18,7 +18,7 @@ post_id: 59422
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EaEA0CTQTjI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1978-08-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1978-08-26.jpg.webp)
 
 **1979:** Bruce and the E Street Band record "The River" at the Power Station in New York City.<br>
 
@@ -34,15 +34,15 @@ post_id: 59422
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=P9Zzw3qz7Dk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-26a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-26a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-26b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1985-08-26b.png.webp)
 
 **1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "My Hometown," "Jersey Girl," and "Born in the U.S.A." Afterwards, he zips over to The Columns in Avon, where he performs "[L](../1976-01-07_cover-me-lucille/post.md/)u[cille](../1976-01-07_cover-me-lucille/post.md/)" and "Stand By Me" with The Cherubs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2cGZrAWC)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1987-08-26.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1987-08-26.png.webp)
 
 **1992:** Bruce and his new touring band play their second of two shows at the Capital Center in Largo, MD.<br>
 

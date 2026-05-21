@@ -10,7 +10,7 @@ post_id: 57513
 ---
 **1971:** The Sundance Blues Band plays a gig at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1971-0627.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1971-0627.jpg.webp)
 
 **1972:** It's a big day in the studio for Bruce: he records "For You," "Growin' Up," "Lost in the Flood," "Does This Bus Stop at 82nd Street," "Visitation at Fort Horn," "Lady and the Doctor," and "Arabian Nights," the last three of which remain unreleased to this day.<br>
 
@@ -42,7 +42,7 @@ post_id: 57513
 
 **1994:** Bruce gets on stage at the West Hollywood House of Blues and performs six songs with Sacred Hearts, Danny Federici's post-E Street band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1994-06-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1994-06-27.jpg.webp)
 
 **1999:** Bruce and the E Street Band wrap up the European leg of their Reunion Tour at Valle Hovin Stadion in Oslo.<br>
 
@@ -82,7 +82,7 @@ Bruce opens his own set with his first and only performance of "Coma Girl," in t
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uavOZjhM3bs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Independent_2009_06_29_10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/The_Independent_2009_06_29_10.jpg.webp)
 
 **2016:** Night Two (of three) at Gothenburg's Ullevi opens with the tour premiere of "Mary's Place" and features two additional tour premieres ("Jole Blon" and "Lucky Town") in the set as well.<br>
 

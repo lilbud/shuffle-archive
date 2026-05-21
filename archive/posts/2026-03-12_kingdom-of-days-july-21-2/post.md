@@ -14,17 +14,17 @@ post_id: 57794
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VRKoRUCKFH8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-21.png.webp)
 
 **1984:** The Born in the U.S.A. Tour starts its Canadian leg with a show at the Montreal Forum.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mQ0tWBPe)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-21c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-21c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-21a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-21a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-21b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-21b.png.webp)
 
 **2003:** Night Three of ten at the Rising Tour's Giants Stadium stand features a special guest star: original E Street Band drummer Vini Lopez takes the drums on "Spirit in the Night."<br>
 

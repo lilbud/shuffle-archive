@@ -12,25 +12,25 @@ post_id: 56858
 
 **1969:** Child plays a gig at Pandemonium in Wanamassa, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1969-0529.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1969-0529.jpg.webp)
 
 **1971:** The Sundance Blues Band plays The Student Prince in Asbury Park.<br>
 
 **1974:** Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Philadelphia_Inquirer_Mon__Jun_3__1974_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/The_Philadelphia_Inquirer_Mon__Jun_3__1974_-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1974-0529.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1974-0529.jpg.webp)
 
 **1978:** The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" into "Thunder Road," which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/XXl8vEEQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-05-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1978-05-29.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-05-29b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1978-05-29b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1978-05-29c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1978-05-29c.jpg.webp)
 
 **1979:** Bruce and the E Street Band work on "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)" at the Power Station in New York City.<br>
 
@@ -40,23 +40,23 @@ post_id: 56858
 
 [Watch on Youtube: Bruce Springsteen - live debut of "Trapped" - 1981-05-29](https://www.youtube.com/watch?v=RpGVwh0NkY4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1981-05-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1981-05-29.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1981-0529.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1981-0529.jpg.webp)
 
 **1982:** Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red Bank.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/oqbaupOb)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1982-05-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1982-05-29.jpg.webp)
 
 **1986:** The town of Freehold cancels the permit for a planned Jersey Artists for Mankind outdoor benefit show when a rumor spread that Bruce would appear. The small park can't hold the expected throngs, so the town cancels the event.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1986-05-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1986-05-29.jpg.webp)
 
 **1991:** *Newsday* reports that Bruce and Patti will marry on June 9th, according to a mysterious source "close to the bride-to-be." After Bruce's publicist coyly refuses to confirm or deny ("I can't confirm that date..."), the worldwide press runs rampant with the story and anticipation builds for the big day. It's highly likely that Bruce and Patti planted the story (or authorized the leak) themselves in order to throw the press off the scent, as their actual wedding ceremony will take place a day earlier, on June 8th–a lesson learned from Bruce's experience the last time around.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1991-05-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1991-05-29.jpg.webp)
 
 **1992:** Bruce hires Gia Ciambotti, Carol Dennis, Cleo Kennedy, and Angel Rogers as backup singers for his upcoming World Tour.<br>
 
@@ -66,7 +66,7 @@ post_id: 56858
 
 [Watch on Youtube: Bruce Springsteen](https://www.youtube.com/watch?v=8tifOAGe0Is)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1994-05-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1994-05-29.jpg.webp)
 
 **1999:** Bruce and the E Street Band deliver a typical Night One show at the first of two Reunion shows in Berlin.<br>
 
@@ -76,9 +76,9 @@ post_id: 56858
 
 [Watch Video Highlight](https://videopress.com/embed/7evt8l2F)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2000-05-29a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2000-05-29a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2000-05-29b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2000-05-29b.jpg.webp)
 
 **2003:** Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
 
@@ -106,4 +106,4 @@ post_id: 56858
 
 [Watch on Youtube: Dropkick Murphys & Bruce Springsteen live streaming at Fenway Park, 29-5-2020 - American Land](https://www.youtube.com/watch?v=0I4SBPyGD9g)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2020-05-29-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2020-05-29-scaled.jpg.webp)

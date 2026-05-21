@@ -10,13 +10,13 @@ post_id: 56834
 ---
 **1969:** Child plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1969-0523.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1969-0523.jpg.webp)
 
 **1970:** Steel Mill headlines a show at Virginia Commonwealth University in Richmond. When the show runs past the school’s curfew, the school kills the power. Vini Lopez refuses to stop drumming and is arrested for disorderly conduct.<br>
 
 [Watch on Youtube: Steel Mill : for what it's worth ( Buffalo Springfield cover )](https://www.youtube.com/watch?v=yTJtPogqgCc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1970-0523.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1970-0523.jpg.webp)
 
 **1975:** Bruce and the E Street Band work on “Backstreets” at the Record Plant in New York City.<br>
 
@@ -24,9 +24,9 @@ post_id: 56834
 
 [Watch on Youtube: Bruce Springsteen Live Concert - Buffalo Darkness Starts Here 5/23/78](https://www.youtube.com/watch?v=uK3_QRYf9FU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1978-05-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1978-05-23.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1978-0523.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1978-0523.jpg.webp)
 
 **1982:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony.<br>
 
@@ -48,7 +48,7 @@ post_id: 56834
 
 [Watch on Youtube: Born to Run (Live at Madison Square Garden, New York City, NY - 05/23/88 - Official Audio)](https://www.youtube.com/watch?v=3U1FlASDnaY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1988-05-23-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1988-05-23-scaled.jpg.webp)
 
 **1992:** Bruce hires the multi-talented Crystal Taliefero for his upcoming tour, while rehearsals with the new band continue.<br>
 

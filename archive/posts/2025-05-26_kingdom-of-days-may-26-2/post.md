@@ -12,7 +12,7 @@ post_id: 56837
 
 **1957:** Seven-year-old Bruce Springsteen receives his first Communion at St. Rose of Lima Church.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1957-05-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1957-05-26.jpg.webp)
 
 **1973:** Bruce and the E Street Band headline the third of three shows at Childe Harold in Washington, DC.<br>
 
@@ -22,7 +22,7 @@ post_id: 56837
 
 [Watch on Youtube: Bruce Springsteen Live Concert - Spectrum Philly 5/26/78](https://www.youtube.com/watch?v=EgCVHSpz_a0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/Courier_Post_1978_05_27_Page_39.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/Courier_Post_1978_05_27_Page_39.jpg.webp)
 
 **1981:** Bruce plays the first of two shows in Brighton, England.<br>
 
@@ -34,7 +34,7 @@ post_id: 56837
 
 **1988:** Bruce joins John Mellencamp on stage for "[Like a Rolling Stone](../2019-06-09_cover-me-like-a-rolling-stone/post.md)" at the Irvine Meadows Amphitheater in Irvine, California.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1988-05-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1988-05-26.jpg.webp)
 
 **1997:** Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris. Elliot Murphy makes a guest appearance, joining Bruce for "[Blowin' Down This Road](../2020-05-27_matr-bruce-springsteen-and-friends-blowin-down-this-road/post.md)," and "[Diamonds by the Yard](../2022-03-29_matr-elliott-murphy-and-bruce-springsteen-diamonds-by-the-yard/post.md)" (the only known performance of this song).<br>
 
@@ -54,9 +54,9 @@ post_id: 56837
 
 [Watch Video Highlight](https://videopress.com/embed/I7tpxG4Z)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Independent_Tue__May_27__2003_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/The_Independent_Tue__May_27__2003_.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/2003-0526.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/2003-0526.jpg.webp)
 
 **2013:** At the first of three shows in Germany–this one in Munich–Bruce opens with a solo acoustic "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" and plays a rare "[Seaside Bar Song](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)" along with *Born in the U.S.A.* in full.<br>
 

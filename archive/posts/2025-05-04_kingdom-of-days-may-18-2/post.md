@@ -34,17 +34,17 @@ post_id: 56782
 
 [Watch Video Highlight](https://videopress.com/embed/wgaIRIkq)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Evening_Standard_Wed__May_19__1999_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Evening_Standard_Wed__May_19__1999_.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Fulham_and_Hammersmith_Chronicle_Thu__May_20__1999_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Fulham_and_Hammersmith_Chronicle_Thu__May_20__1999_.jpg.webp)
 
 **2002:** Bruce attends the opening dedication ceremony for Freehold's Vinyard Park to honor his early patron and supporter, "Tex" Vinyard.<br>
 
 [Watch on Youtube: Vinyard Park](https://www.youtube.com/watch?v=NewO6pq-crY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2002-05-18a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2002-05-18a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2002-05-18b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2002-05-18b.jpg.webp)
 
 **2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," "Hava Nagila"(!) and "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
 
@@ -78,7 +78,7 @@ post_id: 56782
 
 [Watch on Youtube: Uncasville 18/05/2014](https://www.youtube.com/playlist?list=PLJTyL9twk3zDcaFCLVTGt5NOWzCCd0YRQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2014-05-18.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2014-05-18.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

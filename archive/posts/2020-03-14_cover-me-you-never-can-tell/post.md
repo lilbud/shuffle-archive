@@ -22,7 +22,7 @@ Longtime fans weren't surprised, of course–we'd seen them do this countless ti
 
 The clip above went viral–to date it's had more than 40 million views. (By comparison, the official video for "Born to Run" is just a notch higher at 42 million.) The story was picked up by newspapers and web sites worldwide.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/nevercan.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/nevercan.jpg.webp)
 
 All over the world, it seemed, on-line audiences couldn't help but be impressed and amazed by how quickly and deftly Bruce Springsteen and the E Street Band picked up a song they hadn't played since they were, I don't know, sixteen. Or maybe ever.
 

@@ -12,23 +12,23 @@ post_id: 59399
 
 **1966:** The Castiles co-headline with The Rogues at the Surf 'n' See Club in Sea Bright, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1966-0821.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1966-0821.jpg.webp)
 
 **1973:** Bruce and the E Street Band play their second night of a week-long residency at Oliver's in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1973-0821.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1973-0821.jpg.webp)
 
 **1975:** Bruce opens a three-night stand at Alex Cooley's Electric Ballroom in Atlanta.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0821.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1975-0821.jpg.webp)
 
 **1976:** Bruce, the E Street Band, and the Miami Horns bring the Lawsuit Tour to the Palace Theater in Waterbury, Connecticut.<br>
 
 [Watch on Youtube: Waterbury 21/08/1976](https://www.youtube.com/playlist?list=PLJTyL9twk3zAjgbMwpEkMyYVEXwh-zM2O)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1976-08-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1976-08-21.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1976-0821.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1976-0821.jpg.webp)
 
 **1978:** Bruce and the boys kick off a three-night Darkness Tour stand at Madison Square Garden. Before the show, Bruce sits down for an interview with Joel Siegel (it will air the following night).<br>
 
@@ -36,7 +36,7 @@ post_id: 59399
 
 [Watch on Youtube: Madison Square Garden (8/21/1978)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1BMGlg5htzeREH7csgj0guB)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1978-08-21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1978-08-21.jpg.webp)
 
 **1979:** Bruce records "[Dollhouse](../2020-08-15_roll-of-the-dice-dollhouse/post.md)" with the E Street Band at The Power Station in New York City. It will remain in the vault for almost two decades.<br>
 
@@ -60,9 +60,9 @@ post_id: 59399
 
 [Watch Video Highlight](https://videopress.com/embed/38uvJMi5)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1988-08-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1988-08-21.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1988-0821.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1988-0821.jpg.webp)
 
 **1990:** *The River* is certified double platinum by the Recording Industry Association of America.<br>
 
@@ -72,9 +72,9 @@ post_id: 59399
 
 [Watch Video Highlight](https://videopress.com/embed/aiv7ziZl)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-21a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-08-21a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-21b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-08-21b.png.webp)
 
 **1999:** Bruce and the reunited E Street Band kick off a five-night Boston stand at the Fleet Center.<br>
 
@@ -82,9 +82,9 @@ post_id: 59399
 
 [Watch Video Highlight](https://videopress.com/embed/tmIPLdJI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1999-0821.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1999-0821.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1999-08-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1999-08-21.png.webp)
 
 **2002:** Bruce debuts the modern-day rock arrangement of "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" at his Rising Tour show in Tacoma. It will be an E Street Band tour staple ever after. Also tour premiering at this show: "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)." For more highlights from this show, see my [*Where the Band Was*](../2018-08-21_where-the-band-was-tacoma-august-21-2002/post.md)[report.](../2018-08-21_where-the-band-was-tacoma-august-21-2002/post.md)<br>
 
@@ -94,9 +94,9 @@ post_id: 59399
 
 [Watch on Youtube: Bruce Springsteen Live in Tacoma 21-08-2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2002-08-21a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2002-08-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2002-08-21b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2002-08-21b.jpg.webp)
 
 **2008:** Bruce takes a Magic Tour victory lap this week, with each show bringing its own share of surprises and rarities. Tonight's show in Nashville features the first "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)" in 28 years, a rare "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)" and "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)," and a tour premiere cover of "[I Fought the Law.](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)" Marah's Dave Bielanko joins the band when Rosie comes out in the encores. This show is available as part of Bruce's official archive series–buy or stream it [here](https://www.youtube.com/playlist?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS).<br>
 
@@ -106,11 +106,11 @@ post_id: 59399
 
 [Watch on Youtube: "Good Rockin' Tonight" Bruce Springsteen and the E Street Band, August 21, 2008](https://www.youtube.com/watch?v=tvDBEz9WmPM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/2008-08-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2008-08-21.png.webp)
 
 **2018:** Bruce and his daughter Jessica appear together on the cover of Harper's Bazaar.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2018-0821.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/2018-0821.jpg.webp)
 
 **2020:** Bruce sends a pre-recorded birthday video for a Save Our Stages benefit in honor of Joe Strummer.<br>
 

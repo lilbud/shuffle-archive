@@ -10,11 +10,11 @@ post_id: 57049
 ---
 **1973:** Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce's opening act performance along with it.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Buffalo_Evening_News_Tue__Jun_12__1973_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Buffalo_Evening_News_Tue__Jun_12__1973_-scaled.jpg.webp)
 
 **1978:** Another abrupt cancellation: Bruce's scheduled Darkness Tour stop in La Crosse, Wisconsin is advertised right up until the day before the show before cancelling without public explanation.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg.webp)
 
 **1979:** Bruce works on "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" during a recording session at The Power Station in New York City.<br>
 
@@ -28,7 +28,7 @@ post_id: 57049
 
 [https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1982-06-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1982-06-12.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/oVFluiql)
 
@@ -52,7 +52,7 @@ post_id: 57049
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gpMgYVidHJ4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2000-06-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2000-06-12.jpg.webp)
 
 **2003:** Wolfgang Niedecken guest-stars on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" at Bruce's Rising show in Hamburg.<br>
 
@@ -68,7 +68,7 @@ post_id: 57049
 
 **2011:** Clarence Clemons suffers a severe stroke, and his friends and family rush to his side.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2011-06-12.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2011-06-12.jpg.webp)
 
 **2024:** World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering "Frankie Fell in Love" and "Rockin' All Over the World."<br>
 

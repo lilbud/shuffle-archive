@@ -14,15 +14,15 @@ post_id: 58369
 
 **1972:** Bruce plays his fourth of six two-shows-a-night solo gigs at Max's Kansas City that week.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1972-08-11.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1972-08-11.jpg.webp)
 
 **1974:** Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1974-08-11.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1974-08-11.jpg.webp)
 
 **1975:** Columbia Records begins distributing a limited run of advanced promo copies of *Born to Run.*<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1975-0812.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1975-0812.jpg.webp)
 
 **1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record "[Gotta Get That Feeling.](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)" It will be released 38 years later.<br>
 
@@ -30,7 +30,7 @@ post_id: 58369
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to Augusta, Maine, for one show at the Civic Center.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1978-0812.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1978-0812.jpg.webp)
 
 **1981:** Bruce and the E Street Band play their second of two nights at Detroit's Joe Louis Arena on the original River Tour. Mitch Ryder makes a guest appearance during the encores on (what else?) "[Detroit Medley.](../1976-01-02_cover-me-detroit-medley/post.md/)"<br>
 
@@ -48,9 +48,9 @@ post_id: 58369
 
 [Watch on Youtube: Bruce Springsteen catches a Yankees game - August 12, 1998](https://www.youtube.com/watch?v=59rOfptTacI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1998-08-11a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1998-08-11a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1998-08-11b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1998-08-11b.png.webp)
 
 **1999:** Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand at the Meadowlands with two long-awaited and inevitable bookends: the show-opening tour premiere of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and the show-closing one-off performance of "Rosalita (Come Out Tonight)." During the encores, Jon Bon Jovi, Richie Sambora, and Melissa Etheridge join Bruce and the band for "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
@@ -60,7 +60,7 @@ post_id: 58369
 
 [Watch Video Highlight](https://videopress.com/embed/kGzGDIv0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-08-12.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-08-12.png.webp)
 
 **2002:** Bruce and the E Street Band bring the Rising Tour to Madison Square Garden, where they play the second of four identical set lists in one week. When the show ends, a new video of an acoustic arrangement of "[Countin' on a Miracle](../2019-02-05_roll-of-the-dice-countin-on-a-miracle/post.md)" (directed by Danny Clinch) debuts.<br>
 
@@ -70,4 +70,4 @@ post_id: 58369
 
 [Bruce Springsteen - Countin' on a miracle](https://geo.dailymotion.com/player.html?video=x2netx&)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/08/Newsday_2002_08_15_78.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/Newsday_2002_08_15_78.jpg.webp)

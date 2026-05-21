@@ -12,7 +12,7 @@ post_id: 59529
 
 **1969:** Child plays a Labor Day gig at Freak Beach in East Long Branch, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1969-0901.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1969-0901.jpg.webp)
 
 **1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of "[It's Time to Go Home,](../1972-01-17_roll-of-the-dice-its-time-to-go-home/post.md)" covers of "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)," "[(Get Your Kicks On) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/)" and "[The Night They Drove Old Dixie Down](../2020-06-13_cover-me-the-night-they-drove-old-dixie-down/post.md)," the fun "[Dance Dance Dance](../1972-01-05_roll-of-the-dice-dance-dance-dance/post.md)" and more.<br>
 
@@ -20,7 +20,7 @@ post_id: 59529
 
 [Watch on Youtube: The Bruce Springsteen Band - The Night They Drove Old Dixie Down (Live) 1971](https://www.youtube.com/watch?v=SsY7TiOjVfM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1971-09-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1971-09-01.jpg.webp)
 
 **1973:** Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.<br>
 
@@ -36,7 +36,7 @@ post_id: 59529
 
 **1984:** Bruce takes in the Jacksons' Victory Tour at JFK Stadium in Philadelphia. Had he let the tour organizers know a bit earlier in the day, the audience might have been treated to a Springsteen guest appearance.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1984-09-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1984-09-01.jpg.webp)
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit single "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" with the story behind Springsteen's new and improved physique.
 
@@ -48,7 +48,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 [Watch Video Highlight](https://videopress.com/embed/vQFwNj9F)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-09-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-09-01.jpg.webp)
 
 **1988:** Bruce and the E Street Band hold their last rehearsal before the kick-off of the Amnesty International – Human Rights Now Tourat Wembley Stadium in London. Of particular note: the band starts their warm-up by covering Sting's "King of Pain," which Bruce has never performed live.<br>
 
@@ -68,9 +68,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 [Watch on Youtube: Bruce Springsteen in Boston Public Gardens](https://www.youtube.com/watch?v=CwmHLXh-Gow)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2011-09-01a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2011-09-01a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2011-09-01b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2011-09-01b.jpg.webp)
 
 **2016:** Bruce sends a message at Washington DC's Nationals Park: that last show in East Rutherford was no one-off. The River Tour is now the Autobiography Tour, as Bruce turns in another mostly-chronological set, once again opening with a string-laden "New York City Serenade" and featuring generous helpings of pre-*Born to Run* material. "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)" makes its tour debut representing the 1992-1993 years, and "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)" makes another appearance in the encores. In attendance tonight: Olympic gold medalist Katie Ledecky.<br>
 
@@ -82,7 +82,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 [Watch on Youtube: 6/7 Bruce Springsteen - Jungleland @ Nationals Park, Washington, DC 9/01/16](https://www.youtube.com/watch?v=RkelC62hx3U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2016-09-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2016-09-01.jpg.webp)
 
 **2021:** Bruce releases Episode 27 ("Going to the Chapel") of *From My Home to Yours* on E Street Radio.<br>
 

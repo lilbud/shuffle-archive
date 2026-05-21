@@ -14,9 +14,9 @@ post_id: 55810
 
 [Watch Video Highlight](https://videopress.com/embed/oIAPRV7U)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Ithaca_Journal_1985_01_28_Page_1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/The_Ithaca_Journal_1985_01_28_Page_1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1985-01-27b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1985-01-27b.png.webp)
 
 **1986:** Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for *Born in the U.S.A.*), and Favorite Pop/Rock Male Video Artist. He’s not in attendance though, so his awards are accepted on his behalf by…<br>
 
@@ -26,13 +26,13 @@ post_id: 55810
 
 [Watch on Youtube: Bruce Springsteen wins Favorite Pop/Rock Male- AMA 1986](https://www.youtube.com/watch?v=_DSPk3PM1w8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1986-01-27.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1986-01-27.png.webp)
 
 **1994:** Bruce debuts “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)” at the *Commitment to Life* AIDS benefit in Los Angeles.<br>
 
 [Watch on Youtube: Bruce Springsteen - Los Angeles - 1994-01-27 news coverage](https://www.youtube.com/watch?v=lhL-btWA-o4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1994-01-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1994-01-27.jpg.webp)
 
 **1997:** Bruce takes his solo tour to Tokyo, playing the first of four shows at the International Forum. Before the show, he appears on local news for a somewhat awkward (due to the need for asynchronous translation) interview.<br>
 
@@ -48,9 +48,9 @@ post_id: 55810
 
 [Watch on Youtube: Working On A Dream](https://www.youtube.com/playlist?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2009-01-27a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/2009-01-27a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2009-01-27b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/2009-01-27b.png.webp)
 
 **2016:** The River Tour (2016 Edition) moves on to Madison Square Garden, where “[Candy’s Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)” makes its tour premiere.<br>
 
@@ -60,7 +60,7 @@ post_id: 55810
 
 [Watch on Youtube: Bruce Springsteen "Thunder Road" MSG NYC 1/27/16](https://www.youtube.com/watch?v=GvpWKA6oIaY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg.webp)
 
 **2017:** Night 3 in Perth features the first and only performance of “[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)” in Australia to date.<br>
 
@@ -72,8 +72,8 @@ post_id: 55810
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. David Crosby is in attendance tonight.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/patticrosby.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/patticrosby.jpg.webp)
 
 **2023:** Bruce takes a break from rehearsing for his upcoming world tour and stops by the Springsteen Archives and Center for American Music at Monmouth University. (photo from Springsteen Archives Instagram)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Screenshot-2025-11-12-101723.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/Screenshot-2025-11-12-101723.jpg.webp)

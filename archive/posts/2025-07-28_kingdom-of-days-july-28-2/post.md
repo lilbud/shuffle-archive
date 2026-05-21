@@ -12,17 +12,17 @@ post_id: 57868
 
 **1944:** Bobby King, backing vocalist on "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)" and "[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)" and throughout World Tour 1992 and World Tour 1993, is born in Lake Charles, Louisiana.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/bobby.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/bobby.jpg.webp)
 
 **1966:** The Castiles participate in Asbury Park's first annual Rock'n'Roll Contest, where first prize is awarded to The Shadows, featuring Steven Van Zandt.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Asbury_Park_Press_1966_08_05_Page_21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Asbury_Park_Press_1966_08_05_Page_21.jpg.webp)
 
 **1974:** Bruce and the E Street Band play a show at the Tucson Community Center.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Tucson_Citizen_1974_07_26_19-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Tucson_Citizen_1974_07_26_19-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1974-0728.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/1974-0728.jpg.webp)
 
 **1975:** A rainy night plagues Bruce's performance at the Carter Barron Amphitheater in Washington DC's Rock Creek Park. Heavy rain delays the start of the show by two hours, and lingering moisture disrupts Bruce's guitar throughout the show, causing additional mid-show delays. Still, the performance is great, and the crowd is hot. Listen to the rare instrumental "[Funk Song](../1972-01-22_roll-of-the-dice-funk-song/post.md)" below.<br>
 
@@ -34,13 +34,13 @@ post_id: 57868
 
 [Watch Video Highlight](https://videopress.com/embed/9mruPo23)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-28b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-28b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-28a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-28a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1978-0728a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1978-0728a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1978-0728b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1978-0728b.jpg.webp)
 
 **1983:** Bruce and the E Street Band record "Bobby Jean" at The Hit Factory in New York City.<br>
 
@@ -56,7 +56,7 @@ post_id: 57868
 
 [Watch Video Highlight](https://videopress.com/embed/m5anLWg5)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-07-28.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2005-07-28.png.webp)
 
 **2008:** At the second of three nights at Giants Stadium on the Magic Tour, Bruce and the band perform "Held Up Without a Gun" for only the third time ever, Jay Weinberg makes his E Street Band debut on "Born to Run," and Jesse Malin and Dave Bielanko guest star on "Twist and Shout."<br>
 

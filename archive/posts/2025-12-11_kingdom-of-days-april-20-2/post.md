@@ -12,13 +12,13 @@ post_id: 56571
 
 **1974:** Bruce and the still-unnamed E Street Band perform a truncated show (for fire safety reasons) at Ursinus College in Collegeville, Pennsylvania.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1974-0420.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1974-0420.jpg.webp)
 
 **1976:** Bruce and the band play a sparsely attended show at the Freedom Hall Civic Center in Johnson City, Tennessee.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1976-04-20.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1976-04-20.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1976-04-20b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1976-04-20b.jpg.webp)
 
 **1980:** Bruce works on mixes for his upcoming album *The River* at Clover Studios in Los Angeles.<br>
 
@@ -32,7 +32,7 @@ post_id: 56571
 
 [Watch Video Highlight](https://videopress.com/embed/29cLHNnJ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1988-04-20.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1988-04-20.jpg.webp)
 
 **1993:** The second of two nights in Rotterdam for Bruce’s World Tour 1993.<br>
 
@@ -66,9 +66,9 @@ post_id: 56571
 
 [Watch Video Highlight](https://videopress.com/embed/NW38i8Um)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2006-04-20a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2006-04-20a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2006-04-20b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2006-04-20b.jpg.webp)
 
 **2013:** Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.<br>
 
@@ -84,4 +84,4 @@ post_id: 56571
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Eddie Vedder, Steven Tyler and actress Connie Britton are in attendance tonight for the last show before a two-week break.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/connie-britton.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/connie-britton.jpg.webp)

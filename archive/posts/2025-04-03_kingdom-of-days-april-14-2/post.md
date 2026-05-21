@@ -12,7 +12,7 @@ post_id: 56453
 
 **1981:** The River Tour returns to Germany for a show at Festhalle in Frankfurt. What a deal you were offered if you lived in the U.K. at the time! Guest blogger Dan French made the journey for the show–read his adventure in [today's *Where the Band Was* report](../2021-04-14_where-the-band-was-frankfurt-april-141981-dans-story/post.md).<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1981-0414.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1981-0414.jpg.webp)
 
 This show features the first-ever performance of "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" in Europe.
 
@@ -20,7 +20,7 @@ This show features the first-ever performance of "[Point Blank](../2020-12-19_ro
 
 **1990:** Bruce performs with Tom Waits, Jimmie Wood, Karla Bonoff, Patti Scialfa, and Andrew Gold at Chuck Plotkin's wedding reception.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1990-04-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1990-04-14.jpg.webp)
 
 **1992:** Bruce assembles his new band in person for the first time at Roy Bittan's recording studio in Hollywood.<br>
 
@@ -30,7 +30,7 @@ This show features the first-ever performance of "[Point Blank](../2020-12-19_ro
 
 [Watch Video Highlight](https://videopress.com/embed/TsxlJIFq)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2003-04-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2003-04-14.jpg.webp)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 
@@ -40,7 +40,7 @@ This show features the first-ever performance of "[Point Blank](../2020-12-19_ro
 
 [Watch on Youtube: Bruce Springsteen - Terry's Song - Houston 4/14](https://www.youtube.com/watch?v=xawDRsEJVF0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2008-04-14.jpg.webp)
 
 **2016:** Bob Seger guest-starred in the very first River Tour in 1980, so it's only fitting for him to make an encore performance when the 2016 version of the River Tour returns to Michigan.<br>
 

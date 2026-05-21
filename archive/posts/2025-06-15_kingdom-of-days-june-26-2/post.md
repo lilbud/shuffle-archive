@@ -20,11 +20,11 @@ post_id: 57181
 
 **1978:** Bruce plays his first ever concert in British Columbia when he and the E Street Band bring the Darkness Tour to Vancouver's Queen Elizabeth Theater.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-06-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1978-06-26.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1978-06-26b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1978-06-26b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1978-0626.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1978-0626.jpg.webp)
 
 **1982:** Bruce joins Billy Chinnock on stage at Big Man's West for "[Lucille](../1976-01-07_cover-me-lucille/post.md/)."<br>
 
@@ -52,7 +52,7 @@ post_id: 57181
 
 [Watch on Youtube: Bruce Springsteen Madison Square Garden 26/06/1993 Full Concert (Channel Update in Description)](https://www.youtube.com/watch?v=kkzF5eA2uXM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1993-06-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1993-06-26.jpg.webp)
 
 **1999:** "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)" makes its tour debut to open a Reunion show on a rainy night at Copenhagen's outdoor Parken Stadium. "Because the Night" tour debuts later in the set as well.<br>
 
@@ -70,7 +70,7 @@ post_id: 57181
 
 [Watch on Youtube: Racing In The Street Bruce Springsteen 6/26/2000 MSG](https://www.youtube.com/watch?v=jHJqt_FiG5o)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2000-06-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2000-06-26.jpg.webp)
 
 **2013:** Bruce and the E Street Band play a stellar Wrecking Ball show in Gijon, Spain, featuring the tour premiere of "Travelin' Band" and a rare performance of "[Ain't Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)." For more highlights from this show, see my [*Where the Band Was* report](../2018-06-26_where-the-band-was-gijon-june-26-2013/post.md) for this show.<br>
 
@@ -84,7 +84,7 @@ post_id: 57181
 
 **2021:** *Springsteen on Broadway* returns for a limited engagement at the St. James Theater in New York, reopening Broadway after more than a year of closure during the Great Pandemic. New stories and songs have been added, including "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," "American Skin (41 Shots)," and "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)." In attendance tonight: Steven Van Zandt, Jon Landau, Governor Phil Murphy, Secretary Pete Buttigieg, Ridley Scott, Brian Williams, David Fricke, George Travis, and this blogger. See how many you can spot in this photo I took just before the house lights went down.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/IMG_1273.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/IMG_1273.jpg.webp)
 
 **2023:** "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" makes its tour premiere at Night Two of three at Ullevi in Gothenburg, Sweden.<br>
 

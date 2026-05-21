@@ -12,7 +12,7 @@ It's time for another dip into the "[1968 Notebook,](https://estreetshuffle.com/
 
 Today's entry is the thirteenth song in the notebook's table of contents: "New York Morning Love."
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
 
 Like all of the songs in Bruce's notebook, we have no record of Bruce ever performing "New York Morning Love" live, and there's no known recording–so we don't know what the song would have sounded like.
 
@@ -22,7 +22,7 @@ Perhaps it's for the best that "New York Morning Love" never made it to the stag
 
 "New York Morning Love" is high on melodrama. Keep in mind that Bruce was only eighteen at the time and still living in a New Jersey small town… and then read his imagining of New York city affair, one that bears eyebrow-raising consequences.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/40451594614_1023aeb631_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/40451594614_1023aeb631_o.jpg.webp)
 
 Let's take a close look at those lyrics:
 

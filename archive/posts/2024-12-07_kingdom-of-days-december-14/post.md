@@ -12,7 +12,7 @@ post_id: 55341
 
 **1973:** Bruce and his band-with-no-name headline an intimate show (less than 200 were in attendance) at the Pinecrest Country Club in Shelton, Connecticut.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1973-12-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/1973-12-14.jpg.webp)
 
 **1974:** Bruce attends his second Billy Joel concert in three weeks, this time at Rutgers University, where Billy dedicates "The Entertainer" to Bruce. During the encores, Bruce joins Billy on stage for "Twist and Shout." After the show, Bruce walks over to the Rutgers Student Center, where he jams with the band Heavy Trucking into the wee hours of the morning.<br>
 
@@ -26,11 +26,11 @@ post_id: 55341
 
 [Watch on Youtube: Bruce Springsteen Boston MA 12-14-1992](https://www.youtube.com/watch?v=1jEiPrnmFxk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-12-14a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1992-12-14a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-12-14b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1992-12-14b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-14c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1992-12-14c.png.webp)
 
 **1995:** Bruce performs "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" on *Late Show with David Letterman* in New York City.<br>
 
@@ -40,11 +40,11 @@ post_id: 55341
 
 [Watch on Youtube: Bruce Springsteen - "The Promised Land" - Charlotte, 1996-12-14](https://www.youtube.com/watch?v=sheKN1qqDis)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1996-12-14a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1996-12-14a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1996-12-14b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1996-12-14b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1996-12-14c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1996-12-14c.png.webp)
 
 **1998:** Bruce is interviewed and performs "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "This Hard Land" on Spanish television show *Musica Si* in Madrid.<br>
 
@@ -58,7 +58,7 @@ post_id: 55341
 
 [Watch on Youtube: Bruce Springsteen, "Merry Christmas Baby", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=bhsJUCB5Gc8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2016-12-14.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2016-12-14.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -66,6 +66,6 @@ post_id: 55341
 
 [Watch on Youtube: Growin' Up (Introduction) (Live at the Walter Kerr Theatre, New York, NY - July 2018)](https://www.youtube.com/watch?v=JyTytz0G38I?list=OLAK5uy_nzSdXDtjjfquP68oBjbVMPkmHb1AeCjHQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/2018-12-14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/2018-12-14.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/2018-12-14b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/2018-12-14b.jpg.webp)

@@ -12,7 +12,7 @@ post_id: 57513
 
 **1971:** The Sundance Blues Band plays a gig at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1971-0627.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1971-0627.jpg.webp)
 
 **1972:** It's a big day in the studio for Bruce: he records "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)," "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)," "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)," "Visitation at Fort Horn," "[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/)," and "[Arabian Nights](../2011-01-11_roll-of-the-dice-arabian-nights/post.md)," the last three of which remain unreleased to this day.<br>
 
@@ -44,7 +44,7 @@ post_id: 57513
 
 **1994:** Bruce gets on stage at the West Hollywood House of Blues and performs six songs with Sacred Hearts, Danny Federici's post-E Street band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1994-06-27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1994-06-27.jpg.webp)
 
 **1999:** Bruce and the E Street Band wrap up the European leg of their Reunion Tour at Valle Hovin Stadion in Oslo.<br>
 
@@ -84,7 +84,7 @@ Bruce opens his own set with his first and only performance of "[Coma Girl,](../
 
 [Watch on Youtube: Waitin' on a Sunny Day - Bruce Springsteen (live at Glastonbury Festival, 2009)](https://www.youtube.com/watch?v=uavOZjhM3bs?list=PLICA5nlm9kbLgpvIe6K4a8o6JJIfyCsqQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Independent_2009_06_29_10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/The_Independent_2009_06_29_10.jpg.webp)
 
 **2016:** Night Two (of three) at Gothenburg's Ullevi opens with the tour premiere of "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)" and features two additional tour premieres ("[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)") in the set as well. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14119/Bruce-Springsteen-mp3-flac-download-6-27-2016-Ullevi-Stadium-Goteborg-SE.html).<br>
 

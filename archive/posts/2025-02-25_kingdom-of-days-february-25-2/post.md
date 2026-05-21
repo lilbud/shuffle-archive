@@ -16,19 +16,19 @@ post_id: 56002
 
 **1974:** Sick with the flu, Bruce somehow manages to perform at The Main Point in Bryn Mawr, Pennsylvania, but he is forced to sit for the entire performance. Even though he’s sick, a photo from this evening will become the cover of *Tracks* 24 years later. (photo credits: Phil Ceccola)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1974-02-25.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1974-02-25.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/tracks.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/tracks.jpg.webp)
 
 **1977:** Bruce and the E Street Band play a gig at Purdue University. (photo credit: Scott Sovereen)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1977-0225.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/1977-0225.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1977-02-25.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1977-02-25.png.webp)
 
 **1981:** The River Tour makes a stop at the Mid-South Coliseum in Memphis. Meanwhile, Bruce loses the Best Rock Vocal Performance (Male) Grammy Award to Billy Joel’s *Glass Houses*. (Bruce was nominated for “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/).”)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/The_Memphis_Press_Scimitar_Thu__Feb_26__1981_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/The_Memphis_Press_Scimitar_Thu__Feb_26__1981_-scaled.jpg.webp)
 
 **1986:** Grammy-nominated “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” loses the Record of the Year award to “[We Are the World](../2022-01-30_matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/post.md)” (which at least features Bruce’s vocals).<br>
 
@@ -54,13 +54,13 @@ Listen in on the soundcheck…
 
 [Watch on Youtube: Bruce Springsteen - SPARE PARTS 1988 (audio)](https://www.youtube.com/watch?v=l3sXrRs6Xm4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1988-02-25a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1988-02-25a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1988-02-25b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1988-02-25b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1988-02-25c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1988-02-25c.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1988-0225.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/1988-0225.jpg.webp)
 
 **1996:** Bruce plays a solo acoustic show in Rotterdam.<br>
 
@@ -96,7 +96,7 @@ Listen in on the soundcheck…
 
 [Watch on Youtube: Bruce Springsteen Boccigalupe & The Badboys 10th Avenue Freezeout](https://www.youtube.com/watch?v=aqme4-5OBw4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2012-02-25.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/2012-02-25.jpg.webp)
 
 **2016:** The River Tour (2016 Edition) moves on to the First Niagara Center in Buffalo, where “[It’s Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)” makes its tour debut.<br>
 
@@ -104,7 +104,7 @@ Listen in on the soundcheck…
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - It's Hard to be a Saint in the City - Buffalo Feb, 2016](https://www.youtube.com/watch?v=O9O50k59vrA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/The_Buffalo_News_2016_02_26_14.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/02/The_Buffalo_News_2016_02_26_14.jpg.webp)
 
 **2017:** The Summer 2017 Tour ends in Auckland with a solo performance of “Thunder Road.” It will be six years before the band plays together in concert again.<br>
 

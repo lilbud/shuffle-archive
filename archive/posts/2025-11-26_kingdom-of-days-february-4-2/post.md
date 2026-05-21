@@ -8,9 +8,9 @@ categories: kingdom-of-days
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/boston2016.jpg
 post_id: 55857
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/2016-02-04.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/2016-02-04.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1973-02-04.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1973-02-04.jpg.webp)
 
 **1972:** The Bruce Springsteen Band opens a nine-show stand at The Back Door in Richmond, where the band will play for much of the month. Listen to their set below.<br>
 
@@ -20,13 +20,13 @@ post_id: 55857
 
 **1981:** Bruce and the band play Southern Illinois University in Carbondale along the original River Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1981-02-04.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1981-02-04.jpg.webp)
 
 **1991:** Bruce and Patti attend the opening night of Sting’s stand at the Wiltern Theater in Los Angeles. Entertainment Tonight catches a brief glimpse of the pair (not yet married) during their segment covering the show.<br>
 
 [Watch on Youtube: Entertainment Tonight - 1991-02-05 - Sting profile with Bruce and Patti cameo](https://www.youtube.com/watch?v=wGnu-V5Yeeo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1991-02-04.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1991-02-04.png.webp)
 
 **1997:** Bruce plays his first ever Australian solo acoustic show at the QPAC Concert Hall in Brisbane.<br>
 
@@ -34,7 +34,7 @@ post_id: 55857
 
 **2009:** *Working on a Dream* debuts at #1 on the Billboard album chart, bumping defending champion Taylor Swift.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/02/Star_Phoenix_2009_02_05_22-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/02/Star_Phoenix_2009_02_05_22-scaled.jpg.webp)
 
 **2016:** The River Tour (2016 version) stops at TD Garden in Boston, where “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)” makes its tour debut and Peter Wolf joins for the closing “[Shout](../2019-09-12_cover-me-shout/post.md).”<br>
 

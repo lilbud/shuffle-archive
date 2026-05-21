@@ -12,7 +12,7 @@ post_id: 57651
 
 **1973:** Bruce and the E Street Band headline at The Main Point in Bryn Mawr, Pennsylvania. Bruce is no stranger to having his name misspelled by now, but this is a new one.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/mainpoint-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/mainpoint-1.jpg.webp)
 
 **1978:** Bruce sits down for an interview with WNEW-FM DJ Dave Herman in San Diego. (The interview will air in September on the King Biscuit Flower Hour.) As with Mary Turner a few days earlier, Bruce is loose, talkative, and funny. This interview is definitely worth a listen.<br>
 
@@ -22,7 +22,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 [Watch Video Highlight](https://videopress.com/embed/9D8CJQei)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-09.jpg.webp)
 
 **1981:** Bruce and the E Street Band close out their opening stand at the Brendan Byrne Arena in the Meadowlands, and Gary U.S. Bonds joins them on stage for "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)." Bruce's performance of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" will be released in 1984 as the B-side to "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" as well as on the *Live 1975-85* box set. This concert is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24818/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-9-1981-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
 
@@ -34,7 +34,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 [Watch on Youtube: Born to Run (Live at Brendan Byrne Arena, E. Rutherford, NJ - 7/9/1981)](https://www.youtube.com/watch?v=WCcS5hVcVgs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1981-07-09.jpg.webp)
 
 **1984:** At Night Two in Richfield, Ohio on the Born in the U.S.A. Tour, Bruce plays "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" acoustically for the first time ever, along with the tour premiere of "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)."<br>
 
@@ -48,7 +48,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 [Watch on Youtube: Bruce Springsteen Sheffield 1988 Trailer](https://www.youtube.com/watch?v=jAgD8cwvcxk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/Manchester_Evening_News_1988_07_11_6-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Manchester_Evening_News_1988_07_11_6-scaled.jpg.webp)
 
 **1989:** Bruce joins Cats on a Smooth Surface at The Stone Pony for "Travelin' Band."<br>
 
@@ -70,9 +70,9 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 **1999:** Bruce guest-stars at Joe Grushecky's acoustic show at Hooligans in Long Branch, New Jersey on three songs: "[Never Be Enough Time,](../2018-04-03_meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/post.md)" "[Pumping Iron](../2018-11-03_meeting-across-the-river-bruce-springsteen-and-joe-grushecky-pumping-iron/post.md)," and "[Brown Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1999-0709.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1999-0709.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-07-09.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops in Zurich for a night, where Bruce opens the show with the tour premiere of "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)." Other tour premieres include "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)" and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
 
@@ -92,7 +92,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 [Watch on Youtube: Bruce Springsteen - "Hunter Of Invisible Game"](https://www.youtube.com/watch?v=_HVuTCfixwA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2014-07-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2014-07-09.jpg.webp)
 
 **2016:** Bruce and the E Street Band play the TW Classic Festival in Werchter, Belgium, where "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" make their tour premieres. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14123/Bruce-Springsteen-mp3-flac-download-7-9-2016-Festivalpark-Werchter-BE.html).<br>
 

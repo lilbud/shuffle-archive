@@ -12,15 +12,15 @@ post_id: 56404
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/19690402_Advert_02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/19690402_Advert_02.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Asbury_Park_Press_Fri__Apr_11__1969_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/Asbury_Park_Press_Fri__Apr_11__1969_-scaled.jpg.webp)
 
 **1974:** Bruce and most of the E Street Band (Boom Carter is not in attendance) drop by WBCN-FM in Boston before playing two shows at Charlie’s Place in Cambridge. The radio broadcast is well worth a listen–check out the acoustic arrangement of “Rosalita (Come Out Tonight)” and the first documented performance of the alternative third verse for “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/u6HITmag)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/33978719418_90457a3bf7_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/33978719418_90457a3bf7_o.jpg.webp)
 
 **1976:** The Chicken Scratch Tour moves on to Colgate University for a surprise concert arranged at only a week’s notice. Listen to the story below.<br>
 
@@ -36,7 +36,7 @@ post_id: 56404
 
 [Watch Video Highlight](https://videopress.com/embed/6J9ty986)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0409.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1981-0409.jpg.webp)
 
 **1982:** Bruce joins Beaver Brown for “Twist and Shout” at Big Man’s West in Red Bank.<br>
 
@@ -62,23 +62,23 @@ post_id: 56404
 
 [Watch on Youtube: Bruce Springsteen Barcelona 09/04/1999 Full Concert](https://www.youtube.com/watch?v=b1JIBl1zI60)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/44767315550_2391743b54_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/44767315550_2391743b54_o.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/44767315690_66ce7d7276_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/44767315690_66ce7d7276_o.jpg.webp)
 
 **2000:** Kansas City gets an outstanding set list for their Reunion show: Bruce opens with “[Take ‘Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)” and plays “[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)” and “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” later in the set.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/TwY6egiH)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2000-04-10-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2000-04-10-scaled.jpg.webp)
 
 **2003:** The Rising Tour returns to North America as Bruce and the band play Arco Arena in Sacramento. During the soundcheck, Bruce plays a new song for the first time: “[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ZiX2cHWZ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/04/2003-04-09a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/2003-04-09a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2003-04-09b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2003-04-09b.jpg.webp)
 
 **2012:** Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” and “[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md),” and the show breaks the three-hour mark.<br>
 
@@ -88,7 +88,7 @@ post_id: 56404
 
 **2018:** The Hear the World Foundation announces that Bruce will serve as an ambassador to raise awareness for the non-profit organization’s campaign to prevent hearing loss.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/Bruce_Springsteen_joins_Hear-the-world-as-ambassador.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/Bruce_Springsteen_joins_Hear-the-world-as-ambassador.jpg.webp)
 
 **2023:** Bruce and the E Street Band play their first of two nights at UBS Arena in Elmont, New York, where “[Mary’s Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)” makes its tour debut.<br>
 

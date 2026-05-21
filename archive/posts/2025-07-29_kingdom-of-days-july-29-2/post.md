@@ -12,15 +12,15 @@ post_id: 57873
 
 **1953:** Singer/songwriter and First Lady of E Street Vivienne Patricia Scialfa is born on this day in Deal, New Jersey. Happy birthday, Patti!<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/patti.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/patti.jpg.webp)
 
 **1966:** The Castiles headline at the Loew's 35 Shore Drive-in Theater's 10th anniversary party in Hazlet, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1966-07-29a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1966-07-29a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1966-07-29b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1966-07-29b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1966-0729.gif)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1966-0729.gif)
 
 **1971:** The Bruce Springsteen Band plays two shows at D'Scene in South Amboy, New Jersey. The setlist includes "[Natural Magic,](../1972-01-03_roll-of-the-dice-natural-magic/post.md)" "[Goin' Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)," "[Dance Dance Dance](../1972-01-05_roll-of-the-dice-dance-dance-dance/post.md)," and more.<br>
 
@@ -36,25 +36,25 @@ post_id: 57873
 
 [Watch on Youtube: Bruce Springsteen - AROUND AND AROUND 1978 (audio)](https://www.youtube.com/watch?v=LOhgVbjnd84)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-29.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1978-07-29b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1978-07-29b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1978-07-29c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1978-07-29c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-0729.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-0729.jpg.webp)
 
 **1981:** Southside Johnny guest-stars on "[I Don't Want to Go Home](../2018-03-30_meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/post.md)" when Bruce and the E Street Band bring the River Tour to Richfield for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NOq3rVa8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1981-0729.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1981-0729.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1981-07-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1981-07-29.png.webp)
 
 **1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1987-07-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1987-07-29.png.webp)
 
 **1999:** At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in the Meadowlands, Bruce opens with the first "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" in 18 years and tour debuts (officially) a corny and charming "[Give the Girl a Kiss](../2020-06-17_roll-of-the-dice-give-the-girl-a-kiss/post.md)" for Patti's birthday. Bobby Bandiera makes an encore guest appearance on "[Hungry Heart.](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)"<br>
 
@@ -62,7 +62,7 @@ post_id: 57873
 
 [Watch on Youtube: East Rutherford 29/07/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zBj_Sk6Ezsy7cxeo2jnkjqY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-07-29.png.webp)
 
 **2020:** On the occasion of Patti Scialfa's 67th birthday, her husband debuts Volume 9 of his ongoing radio show, *From My Home to Yours*. This episode is entitled (appropriately) "Rumble Doll."<br>
 

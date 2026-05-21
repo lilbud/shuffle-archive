@@ -36,7 +36,7 @@ It was a strange and wonderful moment: the rocker who idolized Holly (in an inte
 
 Gary reprised his Buddy Holly role one more time the following night, this time mid-set, and while that would prove to be the last time Bruce and Gary would perform together, Bruce would continue to perform "Rave On" throughout the remainder of the Darkness Tour and in one-off performances for a few years thereafter.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/garyandbruce.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/garyandbruce.jpg.webp)
 
 "Rave On" is closely associated with Buddy Holly, of course, but it was actually first recorded by Sonny West, who also wrote the song. West's version swings more than it rocks:
 

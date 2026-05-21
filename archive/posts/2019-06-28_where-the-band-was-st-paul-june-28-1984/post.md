@@ -34,7 +34,7 @@ The models may have be uppity, but we fans are grateful to be there. Bruce recog
 
 And I have the photo to prove it. See? That's me on the left, and Bruce is wearing the same shirt he wears in the video.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/bruceandsandi.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/bruceandsandi.jpg.webp)
 
 ---
 
@@ -56,7 +56,7 @@ You'll see the final video, of course. Everyone will! It will become Bruce's gre
 
 You have to look close because the camera focused on the models, but you can see me as clear as day at the 3:16 mark!
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/sandi.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/sandi.jpg.webp)
 
 ---
 
@@ -80,7 +80,7 @@ And he holds out his hand, looks at me, and says those magic words:
 
 And then I'm on stage. I have no idea how I got here, but here I am, dancing with Bruce!
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/06/7-2-84.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/7-2-84.jpg.webp)
 
 As the song ends, he leans in and says, "Okay, here we go!"
 

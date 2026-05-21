@@ -12,13 +12,13 @@ It's time for another dip into the "[1968 Notebook,](https://estreetshuffle.com/
 
 Somehow, the notebook survived through the years until it was auctioned by one of Bruce's former roadies in the late 1980s, fetching $57,706.61. Because it was auctioned publicly, fans and collectors were able to get a peek at it. Here's the table of contents:
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
 
 Although we're not aware of either studio or live recordings of any of these songs, we do have reason to believe that Bruce performed some of not most of them during his solo acoustic gigs that year.
 
 One of those songs is the focus of today's essay: "A Winter's Revelation (In 9 Illusions)." It is, arguably, the most poetic song of this collection, and the most daring in its construction and ambition.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/41055111142_a09540350e_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/41055111142_a09540350e_o.jpg.webp)
 
 Unfortunately, though, it seems at the tender age of eighteen, Bruce's reach on this song exceeded his grasp. To be fair, we're forced to judge based solely on the lyrics–we do not know what style of accompaniment Bruce intended for these songs–and there are certainly many timeless songs that sound pretentious if recited as poetry rather than sung.
 

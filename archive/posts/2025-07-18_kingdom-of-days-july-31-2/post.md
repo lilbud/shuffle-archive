@@ -18,9 +18,9 @@ post_id: 57851
 
 **1978:** The Darkness Tour continues its southern swing, arriving in Columbia, South Carolina, for a show at the Township Auditorium.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/07/The_Columbia_Record_1978_08_01_30-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/The_Columbia_Record_1978_08_01_30-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1978-0731.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1978-0731.jpg.webp)
 
 **1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man's West in Red Bank.<br>
 
@@ -34,15 +34,15 @@ That evening, Bruce tour premieres "[Growin' Up](../2011-01-03_roll-of-the-dice-
 
 [Watch Video Highlight](https://videopress.com/embed/1IZ822FI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-31.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-31.png.webp)
 
 **1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)," "La Bamba," and "Twist and Shout."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/91vNP1rr)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1987-07-31a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1987-07-31a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1987-07-31b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1987-07-31b.png.webp)
 
 **1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)", and the live debuts of "[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md)" and "[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md)."<br>
 
@@ -94,7 +94,7 @@ That evening, Bruce tour premieres "[Growin' Up](../2011-01-03_roll-of-the-dice-
 
 [Watch on Youtube: U2 & Bruce Springsteen - (HD) I Still Haven't Found What I'm Looking For - July 31, 2015](https://www.youtube.com/watch?v=IR2y_Hjzmy8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2015-07-31.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2015-07-31.png.webp)
 
 **2016:** Bruce wraps the European River Tour with a final show in Zurich, where he tour debuts "[None But the Brave](../2018-09-24_roll-of-the-dice-none-but-the-brave/post.md)" and "[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md)" and plays a rare "[Jole Blon.](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)"<br>
 
@@ -106,9 +106,9 @@ That evening, Bruce tour premieres "[Growin' Up](../2011-01-03_roll-of-the-dice-
 
 **2022:** Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Park to acknowledge the storied venue's 20th anniversary. Before he leaves, he graciously poses for a photo with this blogger and Jersey Shore rock and roll tour guide Stan Goldstein.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/07/IMG_5216.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/IMG_5216.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/07/e4aac969-2276-4cd0-a652-cd3fbd55f91b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/e4aac969-2276-4cd0-a652-cd3fbd55f91b.jpg.webp)
 > Bruce Springsteen stops by the Wonder Bar in Asbury Park today to thank manager Debbie DeLisa on its 20th anniversary. [pic.twitter.com/hJDHOk6tRL](https://t.co/hJDHOk6tRL)
 >
 > — Stan Goldstein (@Stan_Goldstein) [July 31, 2022](https://twitter.com/Stan_Goldstein/status/1553806532663558147?ref_src=twsrc%5Etfw)

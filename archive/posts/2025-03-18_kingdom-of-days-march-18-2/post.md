@@ -12,19 +12,19 @@ post_id: 56190
 
 **1967:** The Castiles play The Cage in Middletown, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1967-0318.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1967-0318.jpg.webp)
 
 **1971:** Bruce Springsteen meets his future wife when high school student Patti Scialfa attends his gig at the local YWHA in Deal, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1971-0318.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1971-0318.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1971-03-18.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1971-03-18.jpg.webp)
 
 **1972:** The Bruce Springsteen Band plays a gig at Hampden-Sydney College in Virginia.<br>
 
 **1973:** Bruce and his band finish their weeklong stint at Oliver's in Boston with a rare Sunday matinee performance. Following the show, the band drives to the University of Rhode Island for an evening show opening for Sha Na Na. (Photo credit: Bob Savage)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1973-0318.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1973-0318.jpg.webp)
 
 **1974:** Bruce and his unnamed band play their first two shows (of eight total) at Gertie's in Dallas. Bruce is not yet popular in Dallas, and the shows are poorly attended.<br>
 
@@ -34,7 +34,7 @@ post_id: 56190
 
 [Watch Video Highlight](https://videopress.com/embed/gcTFjzCM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-03-18.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1977-03-18.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band play their first public show at Convention Hall in Asbury Park. The show is a warm-up for the upcoming tour and a benefit for local Asbury Park community organizations. "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)" and "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" both make their debuts tonight; "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" makes its E Street Band debut; "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" is played for the first time in 15 years; and "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" and "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" get new arrangements.<br>
 
@@ -46,9 +46,9 @@ News coverage from the day:
 
 [Watch on Youtube: Prove It All Night Bruce Springsteen March 18 1999, THE REUNION OF THE E STREET BAND](https://www.youtube.com/watch?v=yx-6qyVaUJA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1999-03-18a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1999-03-18a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1999-03-18b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1999-03-18b.jpg.webp)
 
 **2000:** The Reunion Tour moves on to Memphis and the Pyramid Arena, where "Follow That Dream" makes its tour debut and only appearance.<br>
 
@@ -56,7 +56,7 @@ News coverage from the day:
 
 [Watch on Youtube: Bruce Springsteen: Land of hope and dreams (dedicated to Elvis and Martin Luther King)](https://www.youtube.com/watch?v=NeANijU5eh0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/The_Commercial_Appeal_Sun__Mar_19__2000_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/The_Commercial_Appeal_Sun__Mar_19__2000_.jpg.webp)
 
 **2009:** Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Convention Hall. Eavesdrop below to hear them work out several songs, including Jimmy Cliff's "[Sufferin' in the Land,](../2020-09-14_cover-me-sufferin-in-the-land/post.md)" which won't make it to the final setlist.<br>
 
@@ -70,7 +70,7 @@ News coverage from the day:
 
 [Watch on Youtube: I'm Shipping Up To Boston - Dropkick Murphys and The Boss (HiRes)](https://www.youtube.com/watch?v=a7QsVPYWQFE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2011-03-18.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/2011-03-18.jpg.webp)
 
 **2012:** The Wrecking Ball Tour kicks off at Philips Arena in Atlanta, featuring the live debut of "[Easy Money](../2021-06-10_roll-of-the-dice-easy-money/post.md)." For more highlights from this show, see my [Where the Band Was report](../2018-03-18_where-the-band-was-atlanta-march-18-2012/post.md).<br>
 
@@ -100,6 +100,6 @@ News coverage from the day:
 
 [Watch on Youtube: 10th Ave Freeze Out - Springsteen - Penn State PA - 3/18/23](https://www.youtube.com/watch?v=bzpVJE1_dGk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-1-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-1-scaled.jpg.webp)
 
 **2024:** Bruce and the E Street Band rehearse at the Footprint Center in Phoenix.<br>

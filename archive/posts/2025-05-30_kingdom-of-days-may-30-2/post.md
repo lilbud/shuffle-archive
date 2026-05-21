@@ -12,15 +12,15 @@ post_id: 56901
 
 **1964:** Honorary E Streeter Tom Morello is born in New York City.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/Tom-Morello.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/Tom-Morello.jpg.webp)
 
 **1969:** Child plays a gig at Pandemonium in Wanamassa, New Jersey.<br>
 
 **1973:** Bruce plays his first North Carolina show, opening for Chicago at the Cumberland County Memorial Arena in Fayetteville. This is the start of a thirteen-show tour with Chicago, which will not go well–Bruce's music and style are not a good fit for Chicago fans.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1973-0530.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1973-0530.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1973-05-30.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1973-05-30.jpg.webp)
 
 **1976:** Southside Johnny's debut album release party at The Stone Pony is broadcast live on WNEW-FM and other stations. Bruce, Stevie, Max, Clarence, Ronnie Spector, and other notables are in attendance and join Southside for the encore performance of "[Having a Party](../2021-12-31_matr-bruce-springsteen-and-southside-johnny-having-a-party/post.md)."<br>
 
@@ -28,9 +28,9 @@ post_id: 56901
 
 [https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3](https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1976-05-30a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1976-05-30a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1976-05-30b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1976-05-30b.jpg.webp)
 
 **1978:** At Night Two of three at Boston's Music Hall, Bruce tour premieres "Because the Night" as an encore.<br>
 
@@ -44,7 +44,7 @@ post_id: 56901
 
 [Watch Video Highlight](https://videopress.com/embed/2fTYb9QT)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1981-0530.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1981-0530.jpg.webp)
 
 **1993:** Bruce's World Tour 1993 stops for a night in the town of Gentofte, Denmark.<br>
 
@@ -78,7 +78,7 @@ post_id: 56901
 
 [Watch on Youtube: Bruce Springsteen - Working On The Highway- London 30 May 2008](https://www.youtube.com/watch?v=u7HfoSgA1bw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2008-05-30.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2008-05-30.jpg.webp)
 
 **2009:** Bruce and the E Street Band kick off the European leg of the Working on a Dream Tour by headlining Pinkpop in The Netherlands, where "From Small Things (Big Things One Day Come)" makes its tour debut and Brandon Flowers guest-stars on "Thunder Road."<br>
 
@@ -96,7 +96,7 @@ post_id: 56901
 
 **2015:** Bruce and Patti perform some classic covers with Bobby Bandiera's band at the wedding of Patti's personal assistant in Oakland, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/2015-0530.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/2015-0530.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

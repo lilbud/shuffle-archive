@@ -10,7 +10,7 @@ post_id: 55535
 ---
 **1970:** Steel Mill starts out the year in California, where they play a gig at the Esalen Institute in Big Sur.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/1970-0102.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/1970-0102.jpg.webp)
 
 **1978:** Bruce holds a recording session for his next album at The Record Plant in New York City.<br>
 
@@ -18,6 +18,6 @@ post_id: 55535
 
 [Watch on Youtube: WTF with Marc Maron - Bruce Springsteen interview](https://www.youtube.com/watch?v=peVxzWLKmiI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2017-01-02b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/2017-01-02b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/2017-01-02.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/2017-01-02.png.webp)

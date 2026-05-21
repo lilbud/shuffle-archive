@@ -16,13 +16,13 @@ post_id: 55359
 
 **1973:** Bruce and his band kick off a three-night stand at the Student Prince in Asbury Park, Bruce's first official gig in that club in almost exactly two years.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1973-1217.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/1973-1217.jpg.webp)
 
 **1975:** The Born to Run Tour barrels into the holiday stretch with no signs of slowing down. Tonight, Bruce and the band play at Kleinhans Music Hall in Buffalo.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1975-12-17 Kleinhans Music Hall, Buffalo, NY](https://www.youtube.com/watch?v=shuMnHcAwwA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Buffalo_News_1975_12_18_59-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/12/The_Buffalo_News_1975_12_18_59-scaled.jpg.webp)
 
 **1984:** Bruce and the E Street Band (plus Little Steven for the encore set for the third consecutive show) close out 1984 at The Omni in Atlanta.<br>
 
@@ -30,7 +30,7 @@ post_id: 55359
 
 **1989:** Bruce joins Clarence Clemons and The Red Bank Rockers on stage at the Ventura Theater in Ventura, California, playing "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)," "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)," and "[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1989-12-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1989-12-17.png.webp)
 
 **1992:** World Tour 1992 wraps up at Rupp Arena in Lexington, where Garry Tallent makes a guest appearance on "Glory Days" and "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)." Bruce and the band will be back on the road in 1993, but "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" won't be heard again for a decade, "[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md)" disappears for 11 years, and "[The Big Muddy](../1992-02-07_roll-of-the-dice-the-big-muddy/post.md)" will never be heard from again.<br>
 
@@ -38,7 +38,7 @@ post_id: 55359
 
 [Watch on Youtube: Bruce Springsteen - "Glory Days" - Lexington, 1992-12-17](https://www.youtube.com/watch?v=xfr1lVuMpM8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-12-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1992-12-17.png.webp)
 
 **1995:** After a brief side trip to Boston, Bruce closes out his solo acoustic stand at the Beacon Theater in New York City, where he plays "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)" for the first time since he debuted it at the Christic shows five years earlier.<br>
 
@@ -54,17 +54,17 @@ post_id: 55359
 
 [Watch on Youtube: Convention Hall Asbury Park 17/12/2000](https://www.youtube.com/playlist?list=PLJTyL9twk3zAgXgMPt8pLk3AGYjvF0wE_)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2000-12-17a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/2000-12-17a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2000-12-17b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/2000-12-17b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2000-12-17c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/2000-12-17c.png.webp)
 
 **2002:** Bruce closes out the 2002 leg of the Rising Tour at the Conseco Fieldhouse in Indianapolis, where he tour premieres a rare "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Loose Ends" - Indianapolis, 2002-12-17](https://www.youtube.com/watch?v=kUC8z6emz-4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2002-12-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/2002-12-17.png.webp)
 
 **2007:** Elliott Murphy guest stars on "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" when the Magic Tour stops for a night in Paris.<br>
 

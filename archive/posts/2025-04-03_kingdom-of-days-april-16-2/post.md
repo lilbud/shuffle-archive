@@ -12,13 +12,13 @@ post_id: 56455
 
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1971-04-16.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1971-04-16.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1971-0416.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1971-0416.jpg.webp)
 
 **1976:** Bruce and the E Street Band play Allegheny College in Meadville, Pennsylvania. The school paper pans the concert *twice* by two different reviewers.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1976-0416.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1976-0416.jpg.webp)
 
 **1981:** The River Tour continues its European leg with a show in Munich, where "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure [here](../2021-04-16_where-the-band-was-munich-april-16-1981-dans-story/post.md).<br>
 
@@ -42,13 +42,13 @@ post_id: 56455
 
 [Watch Video Highlight](https://videopress.com/embed/xlOP1Ixx)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1996-04-16a-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1996-04-16a-1.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1996-04-16b-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1996-04-16b-1.jpg.webp)
 
 **2008:** Bruce endorses Senator Barack Obama for president of the United States in an endorsement on his web site. Later, at Sloan-Kettering Hospital in New York City, Bruce and the E Street Band gather at the bedside of ailing bandmate Danny Federici to say their final goodbyes and sing together one last time.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-16.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2008-04-16.jpg.webp)
 
 **2009:** At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "[Bad Luck](../2020-06-25_matr-bruce-springsteen-and-mike-ness-bad-luck/post.md)" and "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)." Making their tour debuts: "[Candy's Room,](../2022-05-02_roll-of-the-dice-candys-room/post.md)" "[Adam Raised a Cain,](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" "Proud Mary," "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
 
@@ -64,8 +64,8 @@ post_id: 56455
 
 [Watch Video Highlight](https://videopress.com/embed/c0DmZePn)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3.jpg.webp)
 
 **2013:** Bruce, Patti, and Little Steven attend opening night of *The Rascals: Once Upon a Dream* on Broadway.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/medium-4.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/medium-4.jpg.webp)

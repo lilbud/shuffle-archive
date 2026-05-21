@@ -45,11 +45,11 @@ Each volume is 8.5 x 11 inches in full color on high-quality paper, with a matte
 
 Here's a sneak peek of what I mean, from the first volume of *Roll of the Dice:*
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/Screenshot-2025-11-05-105251.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/Screenshot-2025-11-05-105251.jpg.webp)
 
 ...and here's an example of a daily entry from Volume 1 of *Kingdom of Days.* (Not final copy or layout yet.)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/Screenshot-2025-11-05-105859.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/Screenshot-2025-11-05-105859.jpg.webp)
 
 The *Roll of the Dice* series in particular is everything I ever hoped it would be. Each volume will feature an Album Guide, the original ROTD essays for each track, the ROTD essays for that album's outtakes, and "bonus" pages featuring notable covers by other artists.
 

@@ -34,7 +34,7 @@ About 6:00 pm on August 20th, I arrive at Marz. Joe comes over and says, "I got 
 
 So, we were expecting Joe Grushecky songs and some traditional covers. Instead, for the ten of us in the house: the rehearsal included "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)," "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," "Glory Days" and "[Born on the Bayou](../2021-04-19_matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/post.md)" (a Creedence cover). We were pretty amazed.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/Bruce-Marz-8-20-94-Living-Proofwm-2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/Bruce-Marz-8-20-94-Living-Proofwm-2.jpg.webp)
 
 When they finished, Bob and I walked Bruce out to his motorcycle. Several Italian fans had gathered. "Bruce! Bruce! One photo!!!" Photo after photo ensued. Finally, "Alright, now, Viva L'Italia, I gotta GO!" Bruce kick starts the bike and literally rides off into the sunset. I'll never forgive myself for not having my camera in hand but I do see the moment, clearly.
 
@@ -42,7 +42,7 @@ John's drummer, Frank Funaro, was in the Dictators and the Del-Lords. Scott Kemp
 
 The venue fit about 450. We actually probably only had 380, which worked, because Bruce had expressed to me pre-soundcheck that he was always concerned about letting a place get over-crowded, for the safety of the crowd.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/Bruce-8-20-94-Marz-1-Urbish.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/Bruce-8-20-94-Marz-1-Urbish.jpg.webp)
 
 There was a moment backstage when Joe was on that I was alone with Bruce. My friend, Dan Feuerstein, was getting married the next day and was a big fan. (Side note: Dan is cousins with his look-alike, film and TV actor Mark Feuerstein.) Anyway, Bruce was kind enough to sign a "Congrats" note to Dan and his bride which I presented the next day in upstate New York.
 
@@ -50,15 +50,15 @@ Bruce ultimately was far more than a finale guest. He joined Joe and the Housero
 
 [Watch Video Highlight](https://videopress.com/embed/u8yCOevT?hd=1&cover=1)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/Bruce-8-20-94-Marz.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/Bruce-8-20-94-Marz.jpg.webp)
 
 It was about as epic an experience as one could hope for. And my own photo with Bruce, which he signed a year later, is still a proud possession. (Photo credit: Bob Benjamin)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/terry-and-bruce.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/terry-and-bruce.jpg.webp)
 
 While Joe and Bruce had a friendship and history, after this night, Bruce really dove in to produce Joe's landmark record, [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md). And from there? Well, Bob was diagnosed with Parkinson's after the Marz series wrapped. He had become Joe's manager, and he and Tony Pallagrosi founded the Light of Day Foundation for Parkinson's Disease research and awareness. Joe and Bruce became a fairly steady centerpiece of the annual Light of Day series in Asbury Park over the next twenty years.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/Bruce-8-20-94-Marz-2-Urbish.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/Bruce-8-20-94-Marz-2-Urbish.jpg.webp)
 
 (Postscript: John Eddie has always been extremely creative and has been involved in creating and producing many television projects beyond his accomplished career in music. Last week, on the August 16th anniversary of Elvis Presley's death, *Variety* announced that John and his co-producer, Priscilla Presley, have executive produced and created, *Agent King*, an animated action-comedy series featuring Elvis Presley, and Netflix has ordered the series. Sony entities are also partners.)
 

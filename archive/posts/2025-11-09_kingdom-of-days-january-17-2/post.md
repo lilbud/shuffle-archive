@@ -10,11 +10,11 @@ post_id: 55605
 ---
 **1969:** For a short time, Bruce led a band called Earth. On this date, the band plays a two-hour show at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1969-0117.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/1969-0117.jpg.webp)
 
 **1985:** On a “rest” day during the Born in the U.S.A. Tour, Bruce and Nils stop by the Rhinoceros Club in Greensboro to catch the Del Fuegos. Bruce compliments the band on their album, and the band invites him to join them on stage–which of course he does, playing “[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md)” and “[Stand by Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md).”<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/Richmond_Times_Dispatch_Thu__Jan_24__1985_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/01/Richmond_Times_Dispatch_Thu__Jan_24__1985_.jpg.webp)
 
 **1990**: At the Rock and Roll Hall of Fame induction ceremony at New York’s Waldorf-Astoria Hotel, Bruce joins the all-star jam, trading lead vocals with John Fogerty on “[Long Tall Sally](../2019-04-19_cover-me-long-tall-sally/post.md).”<br>
 
@@ -22,7 +22,7 @@ post_id: 55605
 
 [Watch on Youtube: The Who perform at Rock and Roll Hall of Fame and Museum inductions 1990](https://www.youtube.com/watch?v=rSb63bh1WVU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1990-01-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1990-01-17.png.webp)
 
 **1996:** Bruce plays the second of two acoustic shows at the Cleveland Music Hall.<br>
 
@@ -48,9 +48,9 @@ post_id: 55605
 
 [Watch Video Highlight](https://videopress.com/embed/aiLMllsi)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Herald_News_2015_01_19_B1-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/The_Herald_News_2015_01_19_B1-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2015-01-17b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2015-01-17b.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

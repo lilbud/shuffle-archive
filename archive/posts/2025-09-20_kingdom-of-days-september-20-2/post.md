@@ -12,7 +12,7 @@ post_id: 59693
 
 **1968:** Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey. (Note: Brucebase places this show on this date, but local press advertisements suggest it did not take place, at least not tonight. Consider this one suspect.)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1968-0920.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1968-0920.jpg.webp)
 
 **1969:** Child plays their second of two nights at the Free University in Richmond. Listen to this show–the earliest known Child recording–below.<br>
 
@@ -20,13 +20,13 @@ post_id: 59693
 
 **1974:** Bruce and the new E Street Band play a sold-out show at Philadelphia's Tower Theater.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1974-0920.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1974-0920.jpg.webp)
 
 **1975:** Bruce and the E Street Band play at Grinnell College in Iowa, their first-ever show in that state.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1975-0920.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1975-0920.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1975-09-20.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1975-09-20.jpg.webp)
 
 **1978:** Another stellar show from the Darkness Tour's homecoming stand at the Capitol Theater in Passaic, available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18679/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-20-1978-Capitol-Theatre-Passaic-NJ.html)). Not only do we have yet another fully pro-shot video of this show, we also have a recording of the soundcheck, which has some fascinating covers and the earliest known version of a prototypical "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)." The show itself features the tour premiere of "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" and a continually evolving "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," played here with its instrumental introduction for the first time.<br>
 
@@ -42,9 +42,9 @@ post_id: 59693
 
 [Watch on Youtube: Nebraska](https://www.youtube.com/playlist?list=OLAK5uy_mP8T22kYL-tavvs0Mrd9UeFWZK2kUH1_Y)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1982-09-20.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1982-09-20.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/Lexington_Herald_Leader_1982_09_26_45-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/Lexington_Herald_Leader_1982_09_26_45-scaled.jpg.webp)
 
 **1984:** In town a day early for his Born in the U.S.A. Tour stop, Bruce makes his second guest appearance with the Iron City Houserockers (fronted by Joe Grushecky in one of the band's final performances) at the Pennsylvania Decade in Pittsburgh.<br>
 
@@ -54,7 +54,7 @@ post_id: 59693
 
 **1994:** Bruce and Paul Rodgers join John Fogerty on stage at the House of Blues in West Hollywood for "[In the Midnight Hour.](../2020-12-31_matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/post.md)"<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1994-09-20.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1994-09-20.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band play their third of six nights in Philadelphia on the Reunion Tour, where Bruce improvises a new verse for "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)."<br>
 
@@ -76,7 +76,7 @@ post_id: 59693
 
 **2006:** Bruce rehearses with the Sessions Band for their upcoming European tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2006-09-20.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2006-09-20.jpg.webp)
 
 **2009:** Bruce premieres a new concept, playing a full album start-to-finish in select shows. Kicking off at the United Center in Chicago, Bruce and the band play *Born to Run* in full, with Richard Davis and Curt Ramm as guest musicians. The encores are pretty great too, featuring tour premieres of "[Da Doo Ron Ron](../2019-01-02_matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/post.md)" and "[Rockin' Robin](../2021-08-10_cover-me-rockin-robin/post.md)," and a rare "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)." In the soundcheck, Bruce works on a new song to be debuted later in the month at Giants Stadium.<br>
 
@@ -86,14 +86,14 @@ post_id: 59693
 
 [Watch on Youtube: Rockin' Robin - Bruce Springsteen United Center, Chicago - 9/20/09](https://www.youtube.com/watch?v=YkFBFFEUPQo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2009-09-20a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2009-09-20a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-20b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2009-09-20b.jpg.webp)
 
 **2010:** Legends of Springsteen! Bruce spots a couple posing for engagement photos at the beach in Manasquan, New Jersey, and he decides to join them.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/2016-0920.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/2016-0920.jpg.webp)
 
 **2020:** Bruce appears on the cover of the latest issue of *Rolling Stone.*<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/rs2020.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/rs2020.jpg.webp)

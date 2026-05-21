@@ -12,7 +12,7 @@ What to say about "We've Got to Do It Now…"
 
 Well, for starters: it's one of the few early, early unreleased Springsteen songs for which we have both a high-quality live recording *and* hand-written song lyrics (which fetched $1,195 in a 2008 auction). So that's pretty cool.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/39371925220_e76786cfec_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/39371925220_e76786cfec_o.jpg.webp)
 
 Also, "We've Got to Do It Now" is unusual in its shared lead vocals. You can hear Bruce trade off with Robbin Thompson in their 1970 performance as Steel Mill below.
 

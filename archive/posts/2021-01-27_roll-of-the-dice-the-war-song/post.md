@@ -16,7 +16,7 @@ One of the earliest entries in the notebook is simply entitled "The War Song," a
 
 Bruce's solo gigs at the Coffee House started just days later in May and continued through October. Given the events of that tumultuous year and the surging social activism among Bruce's generation, it's indeed likely that Bruce performed "The War Song" at least once during those engagements.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/thewarsong_lyrics.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/thewarsong_lyrics.jpg.webp)
 
 "The War Song" doesn't feature Bruce's strongest or subtlest lyrics, but I always feel compelled to point out when we spotlight these notebook entries: the kid–and I mean that literally–was only nineteen years old.
 

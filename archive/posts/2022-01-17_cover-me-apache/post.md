@@ -8,7 +8,7 @@ categories: cover-me cover-you
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/apache-1.jpg
 post_id: 32109
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/01/bruce-springsteen-letter-p1-large.gif)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/bruce-springsteen-letter-p1-large.gif)
 
 That was the letter Bruce Springsteen sent when he declined an interview with the *Los Angeles Times* on the occasion of the 50th anniversary of the Fender Stratocaster. There were sides, you see, and Bruce had long ago declared his allegiance to the other camp.
 

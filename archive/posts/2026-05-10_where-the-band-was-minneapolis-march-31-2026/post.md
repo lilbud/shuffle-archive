@@ -17,7 +17,7 @@ Springsteen was in the news because he had done something that shocked the natio
 
 And by endorsed I mean a full-throated endorsement of presidential candidate Senator John Kerry in the form of a personally written editorial, published in the *New York Times* and syndicated nationally.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2016/01/Calgary_Herald_2004_08_07_13-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2016/01/Calgary_Herald_2004_08_07_13-scaled.jpg.webp)
 
 And if that wasn't enough, in the same editorial he announced an all-star tour called *Vote for Change* with an avowed mission to oust the Bush administration and usher in a new direction for the country.
 
@@ -77,7 +77,7 @@ Both times, though, he was brief enough and sly enough that his remarks went mos
 
 This time was different. On stage during the Vote for Change Tour that fall, Bruce abandoned all pretense at subtlety, opening his sows with the "Star-Spangled Banner" and using "Mary's Place" as a nightly set piece to galvanize his audience into action.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2016/01/Asbury_Park_Press_2004_08_10_Page_13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2016/01/Asbury_Park_Press_2004_08_10_Page_13.jpg.webp)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WD8hha4H-lY)
 
@@ -89,7 +89,7 @@ President Bush won re-election, but Bruce continued to speak out against him, es
 
 When the next U.S. presidential campaign came around, Bruce didn't wait until the fourth quarter to get in the game. On April 15th, 2008, he endorsed a candidate in the heat of primary season, and this time he bet on the winning horse.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2016/01/The_Courier_2008_04_17_2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2016/01/The_Courier_2008_04_17_2.jpg.webp)
 
 Bruce's backed up his early endorsement of Senator Barack Obama with frequent road, rally, and fundraising appearances with the candidate, kick-starting a friendship that only grew stronger over the years and endures to this day.
 

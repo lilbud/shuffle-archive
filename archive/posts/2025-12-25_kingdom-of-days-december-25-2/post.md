@@ -12,7 +12,7 @@ post_id: 63424
 
 **1964:** Adele Springsteen delights her fifteen -year-old son Bruce on Christmas morning, presenting him with a brand-new Japanese electric guitar and amplifier. Decades later, Bruce will retell the tale in "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1stguitar.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1stguitar.jpg.webp)
 
 [Watch on Youtube: The Wish (Studio Outtake - 1987)](https://www.youtube.com/watch?v=KgkOPd5nHJk)
 

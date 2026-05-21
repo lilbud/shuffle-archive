@@ -12,15 +12,15 @@ post_id: 56135
 
 **1967:** The Castiles play the Hullabaloo in Middletown, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1967-0310.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/1967-0310.jpg.webp)
 
 **1968:** The destined-for-legend Upstage club prepares to open for business in Asbury Park, and the local paper publishes a profile.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1968-03-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1968-03-10.jpg.webp)
 
 **1972:** The Bruce Springsteen Band performs at St. Joseph High School mixer in Metuchen, New Jersey. (The school mangles his name a bit, though.)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/medium-2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/03/medium-2.jpg.webp)
 
 **1974:** Bruce and the still unnamed E Street Band play two shows at Houston's Liberty Hall. The late show features the concert debut of "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)," "[Gimme That Wine](../2019-03-22_cover-me-gimme-that-wine/post.md)" and "[Angel's Blues](../2019-10-05_roll-of-the-dice-angels-blues/post.md)."<br>
 
@@ -36,7 +36,7 @@ post_id: 56135
 
 [Watch Video Highlight](https://videopress.com/embed/ofg8Vn4K)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-0310.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1977-0310.jpg.webp)
 
 **1978:** Bruce and the band complete their recording of "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" at the Record Plant in New York City.<br>
 
@@ -62,11 +62,11 @@ post_id: 56135
 
 [Watch Video Highlight](https://videopress.com/embed/CH2ys76b)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/The_Boston_Globe_Fri__Mar_14__2003_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/The_Boston_Globe_Fri__Mar_14__2003_-scaled.jpg.webp)
 
 **2005:** Bruce rehearses for his upcoming solo tour at the Paramount Theater in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2005-03-10.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/2005-03-10.png.webp)
 
 **2008:** A rare "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" highlights the Magic Tour's stop at the Nassau Coliseum in Uniondale.<br>
 
@@ -74,7 +74,7 @@ post_id: 56135
 
 [Watch on Youtube: Bruce Springsteen - Incident on 57th Street - Nassau - March 10, 2008](https://www.youtube.com/watch?v=XyVsqp2ty4c)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Newsday__Suffolk_Edition__Thu__Mar_13__2008_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/Newsday__Suffolk_Edition__Thu__Mar_13__2008_-scaled.jpg.webp)
 
 **2016:** The 2016 version of the River Tour moves on to the Talking Stick Resort Arena in Phoenix, where "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" makes its tour debut.<br>
 
@@ -88,7 +88,7 @@ post_id: 56135
 
 **2018:** *Springsteen on Broadway* continues its run at the Walter Kerr Theater in New York City. In attendance tonight: Nathaniel Rateliff and The Night Sweats.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/2018-Springsteen-Broadway_celeb_NathanielRateliff.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/03/2018-Springsteen-Broadway_celeb_NathanielRateliff.jpg.webp)
 
 **2021:** Bruce's *From My Home to Yours* radio show continues with Episode 19, "Fans and Bands," on E Street Radio.<br>
 

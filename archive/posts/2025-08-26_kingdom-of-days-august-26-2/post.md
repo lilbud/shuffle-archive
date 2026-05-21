@@ -14,7 +14,7 @@ post_id: 59422
 
 **1973:** Bruce and the E Street Band wrap a week-long residency at Oliver's in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1973-0826.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1973-0826.jpg.webp)
 
 **1977:** Bruce and the band work on "[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)" during a recording session in New York City.<br>
 
@@ -22,7 +22,7 @@ post_id: 59422
 
 [Watch on Youtube: Bruce Springsteen - SUMMERTIME BLUES 1978 (audio)](https://www.youtube.com/watch?v=EaEA0CTQTjI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1978-08-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1978-08-26.jpg.webp)
 
 **1979:** Bruce and the E Street Band record "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" at the Power Station in New York City.<br>
 
@@ -38,15 +38,15 @@ post_id: 59422
 
 [Watch on Youtube: Bruce Springsteen 1985](https://www.youtube.com/watch?v=P9Zzw3qz7Dk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-08-26a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-26a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-26b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1985-08-26b.png.webp)
 
 **1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Afterwards, he zips over to The Columns in Avon, where he performs "[Lucille](../1976-01-07_cover-me-lucille/post.md/)" and "[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)" with The Cherubs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2cGZrAWC)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1987-08-26.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1987-08-26.png.webp)
 
 **1992:** Bruce and his new touring band play their second of two shows at the Capital Center in Largo, MD.<br>
 

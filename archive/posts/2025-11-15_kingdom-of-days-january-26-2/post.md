@@ -10,35 +10,35 @@ post_id: 55809
 ---
 **1968:** The Castiles (Bruce’s first band) play a gig at The Left Foot in Bruce’s hometown of Freehold.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1968-0126.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/1968-0126.jpg.webp)
 
 **1973:** Bruce and the band continue their five-night stint at The Quiet Knight in Chicago, opening for The Persuasions.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/01/ad27.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/ad27.jpg.webp)
 
 **1974:** Bruce and the band play a sold-out show at Chrysler Hall in Norfolk, Virginia.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1974-0126.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/1974-0126.jpg.webp)
 
 **1981:** On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: “[Double Shot (of My Baby’s Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)” (after teaching the lyrics to the band during intermission) and “[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1N1myPz6)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1981-01-26.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1981-01-26.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1981-01-26b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1981-01-26b.png.webp)
 
 **1985:** During intermission at the Carrier Dome in Syracuse, the United Steelworkers of America recognize and honor Bruce’s contributions to food banks along the *Born in the U.S.A.* Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/85FTtPOe)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/1985-01-26a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/1985-01-26a.jpg.webp)
 
 **1996:** Bruce plays solo at the Bronco Bowl in Dallas, debuting “[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)” for the first time on the Ghost of Tom Joad Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NFPZTvFe)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1996-01-26.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1996-01-26.png.webp)
 
 **2009:** Bruce makes a guest DJ appearance on E Street Radio, spinning some of his favorite songs.<br>
 
@@ -56,7 +56,7 @@ post_id: 55809
 
 [Watch on Youtube: Bruce Springsteen + Tom Morello - 2014-01-26 Cape Town Bellville Velodrome - Ghost of Old Tom Joad](https://www.youtube.com/watch?v=W0Qg9Lu3Mxg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Chicago_Tribune_2014_01_27_Page_4_2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/Chicago_Tribune_2014_01_27_Page_4_2.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

@@ -12,7 +12,7 @@ post_id: 56241
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1968-0322.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1968-0322.jpg.webp)
 
 **1977:** The final stand of the Lawsuit Tour begins with the first of four nights at Boston's Music Hall.<br>
 
@@ -20,7 +20,7 @@ post_id: 56241
 
 [Watch on Youtube: Bruce Springsteen The Promise (1977 03 22) Audio](https://www.youtube.com/watch?v=n69ISmlft4I)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-0322.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1977-0322.jpg.webp)
 
 **1978:** Bruce works on mixing and overdubs for "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" at the Record Plant in New York City.<br>
 
@@ -30,7 +30,7 @@ post_id: 56241
 
 [Watch on Youtube: Neil Young and Bruce Springsteen - "Down by the River" - Sydney, 1985-03-22](https://www.youtube.com/watch?v=1Y3URvR1u78)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1985-03-22.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/1985-03-22.png.webp)
 
 **1988:** The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at The Omni.<br>
 
@@ -38,15 +38,15 @@ post_id: 56241
 
 [Watch Video Highlight](https://videopress.com/embed/ZErDKCJC)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-03-22a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1988-03-22a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-03-22b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/1988-03-22b.jpg.webp)
 
 **2003:** Night One in Sydney on the Rising Tour is plagued by power failures–four times in the first hour of the show. But the show goes on, and to thank fans for their patience, Bruce plays "Rosalita (Come Out Tonight)" — its first E Street stage appearance since mid-1999.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lGOMYAlV)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/2003-03-22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/2003-03-22.jpg.webp)
 
 **2008:** "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)" and "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" makes their tour premieres at Bruce's Magic show at the U.S. Bank Arena in Cincinnati.<br>
 
@@ -54,7 +54,7 @@ post_id: 56241
 
 [Watch on Youtube: bruce springsteen cincinnati 3/22/2008](https://www.youtube.com/watch?v=P1Htomf1zu8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2008-03-22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/2008-03-22.jpg.webp)
 
 **2013:** The third and final night at Sydney's Allphones arena on the Wrecking Ball Tour brings Australia's first-ever performance of "[Night](../2019-10-31_roll-of-the-dice-night/post.md)" and "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md) ('78)."<br>
 

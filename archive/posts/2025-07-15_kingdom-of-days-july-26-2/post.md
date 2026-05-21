@@ -20,7 +20,7 @@ post_id: 57814
 
 **1981:** Bruce is sick, causing his scheduled River Tour show in Cincinnati to be postponed.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1981-07-26.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1981-07-26.png.webp)
 
 **1984:** Bruce's third and final night in Toronto on the Born in the U.S.A. Tour is a great one, featuring the live debut of "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)," the tour premiere of "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)," and a rare (on this tour, at least) "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)." The entire second half of the show plus encores is professionally filmed.<br>
 
@@ -58,7 +58,7 @@ post_id: 57814
 
 [Watch Video Highlight](https://videopress.com/embed/9mLG5EG4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2002-07-26.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2002-07-26.png.webp)
 
 **2003:** Night Six of ten at Giants Stadium on the Rising Tour opens with the tour premiere of "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)."<br>
 
@@ -70,7 +70,7 @@ post_id: 57814
 
 [Watch on Youtube: Bruce Springsteen - Leah (Live-Greensboro 2005)](https://www.youtube.com/watch?v=xtxymKvlhsQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/News_and_Record_2005_07_28_46.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/News_and_Record_2005_07_28_46.jpg.webp)
 
 **2009:** Bruce and the E Street Band take the Working on a Dream Tour into its European home stretch, winding up the leg with a five-show mini-tour of Spain, starting with this first show in Bilbao. "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" and "[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)" both get the tour premiere treatment.<br>
 

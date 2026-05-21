@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/camilla.jpg
 post_id: 35373
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/clip_103307049.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/clip_103307049.jpg.webp)
 
 In 1926, a 23-year-old German ingenue was catapulted from obscurity to stardom when she was cast in the role of Gretchen in the German production of *Faust*, a role originally intended for famous actress Lillian Gish.
 
@@ -16,7 +16,7 @@ In 1926, a 23-year-old German ingenue was catapulted from obscurity to stardom w
 
 Horn received rave reviews for her breakthrough performance. She went on to star in several Hollywood silent films, appearing opposite John Barrymore and befriending Charlie Chaplin, before returning to Germany, where she continued to earn acclaim until her outspoken criticism of the Nazi regime put a premature end to her career in 1939.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/clip_103307208.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/clip_103307208.jpg.webp)
 
 Unable to act, Horn became a farmer, an interpreter, and a nightclub singer finally returning to acting in the late 1940s. She never regained the career height she once held. but she remained a beloved favorite of German cinephiles until her death in 1996.
 

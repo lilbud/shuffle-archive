@@ -116,7 +116,7 @@ Every balloon busts sooner or later, and every torch goes out.
 
 Mask up, everybody.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/obit.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/obit.png.webp)
 
 **Randolph Street**<br>
 **Recorded** April 1972<br>

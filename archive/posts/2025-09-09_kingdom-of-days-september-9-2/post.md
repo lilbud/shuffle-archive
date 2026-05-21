@@ -28,21 +28,21 @@ post_id: 59600
 
 [Watch on Youtube: September 9th, 1978 - South Bend, IN](https://www.youtube.com/playlist?list=PLsxNBNx2akeU-CBriNeY0gCYICDijG95i)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1978-09-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1978-09-09.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1978-09-09.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1978-09-09.jpg.webp)
 
 **1985:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami's Orange Bowl Stadium for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/f3uQhVqy)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-09-09a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-09-09a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-09-09b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-09-09b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-09-09c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-09-09c.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1985-0908.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1985-0908.jpg.webp)
 
 **1992:** "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" is nominated for Best Male Video at the MTV Video Music Awards but loses to Eric Clapton's "Tears in Heaven."<br>
 
@@ -54,11 +54,11 @@ post_id: 59600
 
 **2005:** *Glory Days: A Bruce Springsteen Symposium* kicks off at New Jersey's Monmouth University, drawing scholars and fans to discuss the life and work of Springsteen. More than 150 papers are presented, and special guests and musical events celebrate the occasion.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2005-09-09a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2005-09-09a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2005-09-09b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2005-09-09b.jpg.webp)
 
-**2016:** Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from [*Greetings from Asbury Park, N.J.*](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1973-0105-album.jpg.webp)
+**2016:** Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from [*Greetings from Asbury Park, N.J.*](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/1973-0105-album.jpg.webp)
 
 [Watch on Youtube: Out in the Street - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=A98iOTcGFGA)
 

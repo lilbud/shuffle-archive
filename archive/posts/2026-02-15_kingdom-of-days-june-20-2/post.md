@@ -22,7 +22,7 @@ post_id: 57120
 
 **1982:** Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of "Come On, Let's Go," "Little Latin Lupe Lu," "Sweet Little Sixteen," "Lucille," and more.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1982-0620.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1982-0620.jpg.webp)
 
 **1989:** Bruce makes a guest appearance with Bobby Bandiera at Martell's Sea Breeze in Point Pleasant Beach, New Jersey.<br>
 
@@ -44,7 +44,7 @@ post_id: 57120
 
 [Watch Video Highlight](https://videopress.com/embed/w2CqZvlc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Daily_News_Thu__Jun_22__2000_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Daily_News_Thu__Jun_22__2000_-scaled.jpg.webp)
 
 **2004:** CBS *Sunday Morning* airs a terrific profile of and interview with Patti Scialfa as part of her promotional tour for *23rd Street Lullaby*.<br>
 
@@ -66,7 +66,7 @@ post_id: 57120
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1E8KvYPH8RU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2006-06-20.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2006-06-20.jpg.webp)
 
 **2011:** Fans gather at The Stone Pony to remember Clarence Clemons, who passed away two days prior.<br>
 
@@ -82,7 +82,7 @@ post_id: 57120
 
 **2019:** Bruce and Patti attend a celebration of life at The Stone Pony for the late Kerry Layton, Patti's life-long friend.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/brucepattipony.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/brucepattipony.jpeg.webp)
 
 **2024:** World Tour 2024 arrives in Barcelona for the first of two nights. This night features the tour premiere of "Radio Nowhere."<br>
 

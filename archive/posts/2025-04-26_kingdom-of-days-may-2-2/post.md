@@ -12,7 +12,7 @@ post_id: 56668
 
 **1969:** Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1969-0502.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1969-0502.jpg.webp)
 
 **1970:** Steel Mill attempts to crash a three-day music festival at the University of North Carolina in Chapel Hill–not to attend, but to play! Bruce and the band sneak past security and set up their gear. They are caught and ejected just before they are about to start playing. All is not lost, however, since they have a scheduled gig at the Hullaballoo in Richmond that evening, just a few hours drive away.<br>
 
@@ -24,11 +24,11 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 **1974:** The *Camden Courier-Post* publishes a long, revealing profile of and interview with Bruce.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1974-05-02a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1974-05-02a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1974-05-02b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1974-05-02b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1974-05-02c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1974-05-02c.jpg.webp)
 
 **1977:** *The Wild, The Innocent, & The E Street Shuffle* is certified gold by the Recording Industry Association of America.<br>
 
@@ -44,7 +44,7 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 **1982:** The first of a series of "secret" shows in which Bruce joined Cats on a Smooth Surface for late-night gigs at The Stone Pony in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/catspony.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/catspony.jpg.webp)
 
 **1988:** Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for the first of two nights at the Shoreline Amphitheater. Local news coverage and a pro-shot "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" below.<br>
 
@@ -56,11 +56,11 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 [Watch on Youtube: Bruce Springsteen - Walk Like A Man (Live 1988)](https://www.youtube.com/watch?v=BC_ExSDf_ow)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-05-02a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-05-02a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-05-02b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-05-02b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-05-02c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-05-02c.jpg.webp)
 
 **1996:** Bruce's solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs "[Red Headed Woman](../2021-09-15_roll-of-the-dice-red-headed-woman/post.md)" with extra yodeling.<br>
 
@@ -92,7 +92,7 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 [Watch Video Highlight](https://videopress.com/embed/K0obKMqu)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Sun_Herald_Thu__May_5__2005_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Sun_Herald_Thu__May_5__2005_.jpg.webp)
 
 **2006:** Bruce, Southside Johnny, and Bobby Bandiera perform at the fifth annual Rumson Country Day School benefit concert at The Stone Pony in Asbury Park.<br>
 
@@ -100,7 +100,7 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 [Watch Video Highlight](https://videopress.com/embed/zNJ22b8k)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2008-05-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2008-05-02.jpg.webp)
 
 **2009:** Bruce plays one of the best shows of the Working on a Dream Tour at the Greensboro Coliseum in North Carolina, featuring tour premiere by-request covers of "[Seventh Son](../2020-08-04_cover-me-seventh-son/post.md)" and "[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md)," and the tour premiere of "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)." For more highlights, see my [*Where the Band Was*](../2018-05-02_where-the-band-was-greensboro-may-2-2009/post.md)report from this date.<br>
 
@@ -114,13 +114,13 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 [Watch on Youtube: Bruce Springsteen - The Human Touch, Greensboro NC, May 2 2009](https://www.youtube.com/watch?v=M8Sf9vQuFTU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/News_and_Record_2009_05_04_3.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/News_and_Record_2009_05_04_3.jpg.webp)
 
 **2010:** Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Danny DeVito perform "Glory Days" at the 2010 New Jersey Hall of Fame.](https://www.youtube.com/watch?v=wGdNnhyqq94)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2010-05-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2010-05-02.jpg.webp)
 
 **2012:** Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first "[Bishop Danced](../2021-05-18_roll-of-the-dice-bishop-danced/post.md)" in 39 years, the tour premiere of "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)," and a cover of "[The Weight](../2019-03-26_cover-me-the-weight/post.md)" in memory of Levon Helm.<br>
 
@@ -128,8 +128,8 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 [Watch on Youtube: Bruce Springsteen - The Weight (Prudential Center, Newark, NJ, 2012-05-02) - Multicam, dubbed.](https://www.youtube.com/watch?v=OY2DO_QLRIA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2012-05-02-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2012-05-02-scaled.jpg.webp)
 
 **2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater after a two-week break. Bruce and team celebrate his Tony award (announced the day prior) with a special cake.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/05/bruce-springsteen.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/bruce-springsteen.jpg.webp)

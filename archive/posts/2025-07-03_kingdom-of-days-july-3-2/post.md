@@ -12,11 +12,11 @@ post_id: 57560
 
 **1971:** The Sundance Blues Band plays two gigs–first at the Student Prince from 9:30pm to 1:00am, and then at the Upstage from 2am to 5am.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1971-0703.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1971-0703.jpg.webp)
 
 **1978:** The Darkness Tour skips Fresno at the last minute, when Bruce's scheduled appearance at Warnors Theater is cancelled due to low ticket sales.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/medium-5.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/medium-5.jpg.webp)
 
 **1981:** Night Two of six at the Brendan Byrne Arena's opening stand in East Rutherford features the tour premiere of "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)" and a guest appearance by Gary U.S. Bonds on "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)."<br>
 
@@ -30,7 +30,7 @@ post_id: 57560
 
 [Watch on Youtube: Bruce Springsteen London 3/7/1985 Full Concert](https://www.youtube.com/watch?v=ghqJVDaasKM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1985-0703.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1985-0703.jpg.webp)
 
 **1988:** At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on radio stations around the world. Bruce plays "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" and "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)" for the first time on the tour, and he announces his participation in the upcoming Amnesty International Human Rights Tour. Bruce performs "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" immediately after the announcement, and that performance will be officially released as the title track of an EP later in the year. The entire show is now available as part of the official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18398/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-3-1988-Stockholms-Stadion-Stockholm-SE.html), and listen to the original radio pre- and post-shows below) and is well worth many repeated listens.<br>
 
@@ -48,7 +48,7 @@ post_id: 57560
 
 [Watch on Youtube: Tougher Than the Rest (Live at Stockholms Stadion, Stockholm, SE - 07/03/88 - Official Audio)](https://www.youtube.com/watch?v=s-QE-kSidvg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1988-07-03.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1988-07-03.jpg.webp)
 
 **1992:** World Tour 1992 arrives in Barcelona for the first of two nights at Plaza Monumental. Local news coverage below.<br>
 

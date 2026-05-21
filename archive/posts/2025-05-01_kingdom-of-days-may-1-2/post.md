@@ -12,11 +12,11 @@ post_id: 56667
 
 **1970:** Steel Mill returns to the Hullabaloo in Richmond, Virginia.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1970-0501.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1970-0501.jpg.webp)
 
 **1971:** Bruce joins the Sundance Blues Band (featuring Southside Johnny, Steve Van Zandt, Vini Lopez, Garry Tallent, and Joe Hagstrom) during their encore at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1971-05-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1971-05-01.jpg.webp)
 
 **1973:** Bruce plays a set at the Ahmanson Theater in Los Angeles, part of a promotional event for CBS Records. The performance is filmed, and three songs will be released as bonus tracks on the *Wings for Wheels* DVD in 2005.<br>
 
@@ -26,7 +26,7 @@ post_id: 56667
 
 [Watch on Youtube: Bruce Springsteen - Thundercrack (Live at the Ahmanson Theater, Los Angeles, 1973)](https://www.youtube.com/watch?v=CWd5ugerSHI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1973-05-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1973-05-01.jpg.webp)
 
 **1981:** Bruce plays in Denmark for the first time–as a guest (his first time guesting in Europe) with local band Malurt on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)."<br>
 
@@ -38,7 +38,7 @@ post_id: 56667
 
 [Watch Video Highlight](https://videopress.com/embed/vZr2rUPX)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Journal_and_Courier_Mon__May_3__1993_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Journal_and_Courier_Mon__May_3__1993_-scaled.jpg.webp)
 
 **1996:** Bruce brings his solo acoustic tour to the Palais des Beaux-Arts in Brussels.<br>
 
@@ -48,15 +48,15 @@ post_id: 56667
 
 [Watch on Youtube: Bruce Springsteen Manchester 01/05/1999 Full Concert](https://www.youtube.com/watch?v=QjudCSZ7TC4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1999-05-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1999-05-01.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/46586788561_fd35492733_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/46586788561_fd35492733_o.jpg.webp)
 
 **2005:** Bruce's newly released *Devils & Dust* album debuts in the top spot on both the U.S. and U.K. charts.<br>
 
 **2010:** Bruce joins Tim McCloone on stage for two songs at the annual Ranney School Ball in Addison Park in Aberdeen, New Jersey. His autographed guitar is auctioned later to benefit the school.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/medium.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/medium.jpg.webp)
 
 **2014:** On International Workers' Day, Bruce opens his Tampa High Hopes show with "[Joe Hill](../2019-05-01_cover-me-joe-hill/post.md)" and continues a streak of unpredictable tour premieres with "[Brothers Under the Bridge](https://www.youtube.com/watch?v=QjudCSZ7TC4)," "[Gloria](../2018-03-16_cover-me-gloria/post.md)," and warm-up performances of "[Jesse James](../2006-01-03_roll-of-the-dice-cover-me-jesse-james/post.md)" and "[O Mary Don't You Weep](../2006-01-05_cover-me-o-mary-dont-you-weep/post.md)" for the band's upcoming Jazz Fest gig. During the encores, Bruce forgets that his microphone stand isn't bolted down, leading to an embarrassingly awkward backbend attempt on "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." This show is available as part of Bruce's official archive series. Buy or stream it [here](https://live.brucespringsteen.net/live-music/0,11387/Bruce-Springsteen-mp3-flac-download-5-1-2014-MidFlorida-Credit-Union-Amphitheatre-Tampa-FL.html).<br>
 
@@ -74,7 +74,7 @@ post_id: 56667
 
 [Watch on Youtube: Thunder Road - Springsteen - Tampa, FL - May 1, 2014](https://www.youtube.com/watch?v=cGaKs2WsKs8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2014-05-01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2014-05-01.jpg.webp)
 
 **2018:** The Tony Awards announce that Bruce will be awarded a special Tony for *Springsteen on Broadway*, "a once in a lifetime theater going experience of extraordinary dimensions." Watch the announcement at the 12:40 mark below.<br>
 

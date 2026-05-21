@@ -10,7 +10,7 @@ post_id: 2111
 ---
 Today, the dice land on another entry from 18-year-old Bruce's handwritten notebook of mystery songs, never recorded and possibly never performed. (See "[Until the Rain Comes](../2018-04-22_roll-of-the-dice-until-the-rain-comes/post.md)" for the backstory.)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
 
 Crystal is the second song from that notebook. We may never know whether it was a ballad or a rocker, but the lyrics are about what you'd expect from a teenage Bruce, an ode to the elusive mystery girl who lights his world afire as she nears and saps the color and brightness as she walks away.
 

@@ -24,7 +24,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 [Watch Video Highlight](https://videopress.com/embed/FxQZ7p9W)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Richmond_Times_Dispatch_Fri__Jun_1__1973_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Richmond_Times_Dispatch_Fri__Jun_1__1973_-scaled.jpg.webp)
 
 **1974:** A scheduled gig at the Agora in Columbus is cancelled due to low ticket sales.<br>
 
@@ -46,7 +46,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 **1985:** Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" is released as the fifth single from *Born in the U.S.A*.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1985-05-31.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1985-05-31.jpg.webp)
 
 [Watch on Youtube: Glory Days](https://www.youtube.com/watch?v=GLBnj159q3s)
 
@@ -64,7 +64,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 [Watch Video Highlight](https://videopress.com/embed/DIWG2BtK)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2006-05-31.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2006-05-31.jpg.webp)
 
 **2008:** Back-to-back tour premieres at Night Two at London's Emirates Stadium, both from *Born in the U.S.A.*: "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" and "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."<br>
 

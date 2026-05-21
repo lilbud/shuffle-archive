@@ -20,7 +20,7 @@ post_id: 56718
 
 **1976:** Bruce continues his Chicken Scratch Tour of the south with a show at Louisiana State University in Baton Rouge.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1976-0508.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1976-0508.jpg.webp)
 
 **1981:** Night Two in Stockholm for the original River Tour opens with Bruce’s last known performance of “[Run Through the Jungle](../2018-04-05_cover-me-run-through-the-jungle/post.md)” and features the European debut of “[The Price You Pay](../2019-09-23_roll-of-the-dice-the-price-you-pay/post.md).”<br>
 
@@ -32,7 +32,7 @@ post_id: 56718
 
 [Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1982-0508.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1982-0508.jpg.webp)
 
 **1992:** MTV’s *Week in Rock* features an interview with Bruce to promote his upcoming tour and *Saturday Night Live* appearance.<br>
 
@@ -48,7 +48,7 @@ post_id: 56718
 
 [Watch on Youtube: Bruce Springsteen - Straight Time, Madrid, May 8, 1996](https://www.youtube.com/watch?v=VzYVorPmGiE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/La_Prensa_Mon__May_13__1996_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/La_Prensa_Mon__May_13__1996_-scaled.jpg.webp)
 
 **2000:** Bruce and the E Street band play their second of two shows at the Hartford Civic Center, opening with the first performance of “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)” in almost twelve years.<br>
 
@@ -80,11 +80,11 @@ post_id: 56718
 
 [Watch on Youtube: Springsteen Wooly Bully Penn State U 20090508](https://www.youtube.com/watch?v=Oj5rS8-3xPI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Centre_Daily_Times_Sat__May_9__2009_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Centre_Daily_Times_Sat__May_9__2009_-scaled.jpg.webp)
 
 **2013:** The second Wrecking Ball show in Turku features the live premiere of “[Wages of Sin](../2020-02-07_roll-of-the-dice-wages-of-sin/post.md),” the tour debut of “[I’ll Work For Your Love,](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md)” and a rare “[Ain’t Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md).” (photo credit: Jan Alin)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/05/jan.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/jan.jpg.webp)
 
 [Watch on Youtube: Bruce Springsteen - "Wages of Sin" (Turku 05/08/13)](https://www.youtube.com/watch?v=cVVeytSe2wc)
 
@@ -112,9 +112,9 @@ post_id: 56718
 
 [Watch on Youtube: I Don't Want To Go Home Bruce Springsteen & Little Steven Paramount Theater Asbury Park, NJ 5/8/2019](https://www.youtube.com/watch?v=moICCVDSiXM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2019-05-08a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2019-05-08a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2019-05-08b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2019-05-08b.jpg.webp)
 
 **2021:** Bruce joins Nona Hendryx and Lauren Onkey on a panel discussion about the work and impact of Dave Marsh.<br>
 

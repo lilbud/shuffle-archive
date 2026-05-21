@@ -91,7 +91,7 @@ Until then, we're left to choose our own adventure.
 
 **Bonus:** In March 2010, a lyrics sheet for "Loose Change" turned up in an on-line auction. Although typed, it features Bruce's hand-written changes and corrections.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/loosechange_lyrics-sheet-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/loosechange_lyrics-sheet-1.jpg.webp)
 
 **Loose Change**<br>
 **Recorded:** January 31, 1991<br>

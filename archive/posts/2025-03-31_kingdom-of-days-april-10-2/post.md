@@ -12,21 +12,21 @@ post_id: 56431
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/04/19690402_Advert_02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/04/19690402_Advert_02.jpg.webp)
 
 **1971:** The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the "Bruce Springsteen Acoustyc Jam."<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1971-0410.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1971-0410.jpg.webp)
 
 **1974:** Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of *The Wild, The Innocent & The E Street Shuffle* during the break between two shows at Charlie's Place in Cambridge, Massachusetts.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1974-0412.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1974-0412.jpg.webp)
 
 **1976:** As a favor to John Hammond, Bruce performs at Choate Rosemary Hall in Wallingford, Connecticut.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-10 Paul Mellon Arts Center, Wallingford, CT](https://www.youtube.com/watch?v=RpYN1v_VZGc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0410.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1976-0410.jpg.webp)
 
 **1979:** Bruce and the E Street Band work on "[The Ties that Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" at the Power Station in New York City.<br>
 
@@ -42,7 +42,7 @@ post_id: 56431
 
 [Watch on Youtube: Bruce Springsteen YOYOGI TOKYO 1985 4 10](https://www.youtube.com/watch?v=B2cUQ7QRUtc)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1985-0410.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/03/1985-0410.jpg.webp)
 
 **1996:** Bruce begins an Italian mini-tour with a solo acoustic show at the Auditorium Santa Cecilia in Rome. Before the show, Bruce meets one of his favorite composers, [Ennio Morricone](../2018-02-25_cover-me-once-upon-a-time-in-the-west/post.md), for the first time.<br>
 
@@ -50,9 +50,9 @@ post_id: 56431
 
 **2001:** Bruce's 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist's permission.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/04/bootleg_btf.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/bootleg_btf.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2001-04-10.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2001-04-10.jpg.webp)
 
 **2005:** Bruce plays a benefit show with local musicians (including Bobby Bandiera and Ed Manion) for Rumson Country Day School, where his kids went to school. Southside Johnny and Patti Scialfa join the band on stage at times, too. Check out the fantastic recording below.<br>
 
@@ -70,11 +70,11 @@ post_id: 56431
 
 [Watch on Youtube: Rock Hall-Bruce Springsteen & The E Street Band-Kittys Back](https://www.youtube.com/watch?v=ePb_a23uBw0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2014-04-10-rotated.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2014-04-10-rotated.jpg.webp)
 
 **2016:** A scheduled show in Greensboro is cancelled due to the state's adoption of an anti-transgender law.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/2016-0408.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/2016-0408.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

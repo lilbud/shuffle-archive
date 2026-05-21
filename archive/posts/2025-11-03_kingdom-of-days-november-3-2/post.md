@@ -12,7 +12,7 @@ post_id: 61269
 
 **1966:** The Castiles play a show at the Hullabaloo in Middletown, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/48079763806_4856bedde7_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/48079763806_4856bedde7_o.jpg.webp)
 
 **1973:** Bruce plays his first-ever show in Maine, co-headlining with Orleans at Ricker College in Houlton.<br>
 
@@ -22,9 +22,9 @@ post_id: 61269
 
 **1975:** Bruce and the E Street Band play their first of three nights at Arizona State University in Tempe.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/11/1975-1103.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/1975-1103.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/1975-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/1975-11-03.png.webp)
 
 **1976:** It's Night Five of six at the Palladium in New York City on the Lawsuit Tour; tonight's show is notable for the debut of "Mona" as the intro to "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)" and the last known "[A Fine Fine Girl](../2019-01-28_cover-me-a-fine-fine-boy/post.md)" for 33 years.<br>
 
@@ -42,35 +42,35 @@ post_id: 61269
 
 [Watch on Youtube: Bruce Springsteen - "Glory Days" Milwaukee, 1992-11-03](https://www.youtube.com/watch?v=kItDzU6Jz38)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/1992-11-03.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/1992-11-03.jpg.webp)
 
 **1999:** Patti Scialfa has a perforated eardrum, forcing Bruce to postpone a scheduled Reunion show in Minneapolis.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-11-03.png.webp)
 
 **2000:** Bruce returns to The Stone Pony for the first time in five years, joining Joe Grushecky and The Houserockers on stage at Bob Benjamin's first official Light of Day benefit for the Parkinson's Disease Foundation. Listen to the entire show below. (Bruce joins after the first two songs.)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fpVU6S3u)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2000-11-03a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2000-11-03a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2000-11-03b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2000-11-03b.png.webp)
 
 **2001:** Bruce makes an encore appearance at Light of Day 2001 at Tradewinds in Sea Bright, joining Joe Grushecky three songs into his set. Listen to their performance below, featuring Bruce's first performance of "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" in 15 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MNUjFpDS)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2001-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2001-11-03.png.webp)
 
 **2002:** The Rising Tour returns to the U.S., and the next leg kicks off with a show at American Airlines Center in Dallas, where Don Henley makes a guest appearance on the tour premiere of "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)," and Bruce plays a rare solo piano "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen & Don Henley - "I Fought the Law" - Dallas, 2002-11-03](https://www.youtube.com/watch?v=_fKGF8uy3cI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2002-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2002-11-03.png.webp)
 
 **2005:** Hurricane Wilma forces the postponement of a scheduled show in Sunrise, Florida.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2005-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/2005-11-03.png.webp)
 
 **2009:** Bruce plays "[Brown Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)" for the very first time when the Working on a Dream Tour stops at Time Warner Cable Arena in Charlotte. Other highlights include "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)," "So Young and in Love" and a full album performance of *Born to Run.* Frank Bruno makes a guest appearance on "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" in the encores.<br>
 
@@ -80,7 +80,7 @@ post_id: 61269
 
 [Watch on Youtube: Bruce Springsteen - Charlotte, NC 11-03-09 "I Fought The Law"](https://www.youtube.com/watch?v=hNi8h9DeSr4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2009-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2009-11-03.png.webp)
 
 **2010:** Bruce's third appearance at Stand Up for Heroes (at the Beacon Theater in New York City) is his most productive: he once again auctions a guitar and brings in $140,000 for the Bob Woodruff foundation. Oh, and he also joins the Max Weinberg 7 to perform "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," "[Kitty's Back,](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
 
@@ -90,7 +90,7 @@ post_id: 61269
 
 [Watch on Youtube: SPRINGSTEEN, JON STEWART, JERRY SEINFELD STAND UP FOR HEROES, CLOSE TO VETERANS DAY](https://www.youtube.com/watch?v=F0PcvE1E65w)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2010-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2010-11-03.png.webp)
 
 **2011:** Almost one year to the day, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. Bruce joins opening act The Composure for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," performs a mini-acoustic set, and then joins Joe Grushecky and The Houserockers for a full set.<br>
 
@@ -100,7 +100,7 @@ post_id: 61269
 
 [Watch Video Highlight](https://videopress.com/embed/6oxCgyZ2)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2011-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/2011-11-03.png.webp)
 
 **2012:** The Wrecking Ball Tour stops in Louisville, where "[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)" gets a rare outing.<br>
 
@@ -116,9 +116,9 @@ post_id: 61269
 
 [Watch on Youtube: Bruce Springsteen - "Land of Hope & Dreams" - Louisville - November 3, 2012](https://www.youtube.com/watch?v=AxBF-z29vCQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2012-11-03a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/2012-11-03a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2012-11-03b-1.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2012-11-03b-1.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

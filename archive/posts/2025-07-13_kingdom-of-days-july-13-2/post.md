@@ -30,9 +30,9 @@ post_id: 57721
 
 [Watch Video Highlight](https://videopress.com/embed/FHiJ0uH9)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1981-0713.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1981-0713.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1981-07-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1981-07-13.jpg.webp)
 
 **1984:** Bruce and the band play their second of two nights in East Troy, Wisconsin.<br>
 
@@ -40,7 +40,7 @@ post_id: 57721
 
 [Watch on Youtube: Bruce Springsteen Thunder Road East Troy 13/07/1984](https://www.youtube.com/watch?v=P3JL1L83yGA?list=PLJTyL9twk3zAPub4sGssMzCSJ3s27LlyR)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1984-07-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-07-13.jpg.webp)
 
 **1992:** Bruce and his new band wrap up the European leg of World Tour 1992 with a fifth and final show at Wembley Arena. "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" makes its tour debut, and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" is dropped from the set list for the first time since its debut in 1984.<br>
 
@@ -52,15 +52,15 @@ post_id: 57721
 
 [Watch on Youtube: Patti Scialfa - Lucky Girl](https://www.youtube.com/watch?v=zDFajspQd38)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1993-07-13a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1993-07-13a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1993-07-13b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/1993-07-13b.jpg.webp)
 
 **2005:** Bruce brings his Devils & Dust acoustic tour back to North America, kicking off with a show at Corel Center in Ottawa. Bruce plays a fairly standard set, but a lightning strike-induced power outage at the end of "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)" provides some unplanned excitement.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/LRnkEQ4z)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2005-07-13.jpg.webp)
 
 **2013:** Bruce and the E Street Band headline the TW Classic Festival in Werchter, Belgium. Ben Harper makes a guest appearance on "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," and Bruce tour premieres "[Jailhouse Rock.](../2019-10-12_matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/post.md)" "[Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)" and "Follow That Dream" also make rare appearances.<br>
 
@@ -88,7 +88,7 @@ post_id: 57721
 
 **2018:** George Theiss, Bruce's Castiles bandmate and co-writer, passes away at the age of 68. Meanwhile, in New York City, *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2018-07-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2018-07-13.jpg.webp)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.<br>
 

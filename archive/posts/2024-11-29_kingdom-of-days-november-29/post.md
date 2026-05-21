@@ -22,9 +22,9 @@ post_id: 55134
 
 [Watch on Youtube: Bruce Springsteen - "Backstreets" - St. Paul, 1978-11-29](https://www.youtube.com/watch?v=MBwtDBn1vpE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1978-11-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1978-11-29.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/1978-11-29b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/1978-11-29b.png.webp)
 
 **1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" gets its last outing for fifteen years.<br>
 
@@ -38,24 +38,24 @@ post_id: 55134
 
 [Watch on Youtube: Bruce Springsteen - "Murder Incorporated" - Berkeley, 1995-11-29](https://www.youtube.com/watch?v=lKcWzWPHVj0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1995-11-29a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1995-11-29a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1995-11-29b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1995-11-29b.png.webp)
 
 **1999:** Bruce and the E Street Band wrap up the first leg of their Reunion Tour at the Target Center in Minneapolis.<br>
 
 [Watch on Youtube: Bruce Springsteen - My Love Will Not Let You Down (Live, 1999)](https://www.youtube.com/watch?v=PaGYbKCMVig)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1999-11-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1999-11-29.png.webp)
 
 **2016:** Bruce's promotional book tour continues with an appearance at Joseph-Beth Booksellers in Cincinnati.<br>
 
 [Watch on Youtube: Bruce Springsteen meets fans at Joseph-Beth Booksellers](https://www.youtube.com/watch?v=d5k9aLewujE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2016-11-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/2016-11-29.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Nicole Scherzinger and singer-songwriter (and daughter of the late lead vocalist for Soundgarden) Toni Cornell.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2018-11-29.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/2018-11-29.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/2018-11-29.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/2018-11-29.jpg.webp)

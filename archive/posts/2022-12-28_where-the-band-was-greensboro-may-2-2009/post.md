@@ -46,4 +46,4 @@ But I made a mental note: never, ever, miss a Greensboro show again.
 
 Steensboro, indeed.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/steensboro.jpg.webp)(photo credit: Guy Aceto)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/steensboro.jpg.webp)(photo credit: Guy Aceto)

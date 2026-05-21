@@ -19,7 +19,7 @@ There's a famous optical illusion called "My Wife and My Mother-in-Law."
 
 You've probably seen it: Cartoonist William Ely Hill created it in 1915. When you look at it, you can either see the face of a young woman or an old one. You can see them both, but not at the same time–your perception window only allows you to bring only one or the other into focus.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/03/illusion.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/illusion.png.webp)
 
 Research suggests that which one you see first has a lot to do with which one you most relate to: youth or age.
 

@@ -10,17 +10,17 @@ post_id: 56370
 ---
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg.webp)
 
 **1974:** Bruce and his band headline at Burlington County College in Pemberton, New Jersey.<br>
 
 **1976:** Kid Leo interviews Bruce on Cleveland's WMMS-FM radio.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/46906470044_f5c1c852ed_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/46906470044_f5c1c852ed_o.jpg.webp)
 
 **1985:** After finishing his first Australian tour the night before, Bruce takes a day off in Sydney to relax on a yacht with actress/model Joanna Forbes and her boyfriend.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/The_Sydney_Morning_Herald_Mon__Apr_8__1985_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/04/The_Sydney_Morning_Herald_Mon__Apr_8__1985_-scaled.jpg.webp)
 
 **1990:** Bruce records "Trouble River" at Soundworks West in Los Angeles. It will remain in the vault for almost a decade.<br>
 
@@ -30,7 +30,7 @@ post_id: 56370
 
 [Watch on Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1999-04-06-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/1999-04-06-scaled.jpg.webp)
 
 **2006:** Bruce rehearses with the Sessions Band at Asbury Park's Paramount Theater, preparing for their upcoming tour. Meanwhile, Bruce is inducted into the Freehold High School Hall of Fame in absentia. Bruce's mom accepts the award on his behalf and reads a note from Bruce:<br>
 
@@ -56,6 +56,6 @@ post_id: 56370
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Brilliant Disguise" and "Tougher Than the Rest." In attendance tonight: actress Gina Gershon.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/20180406_GinaGershon_01.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/03/20180406_GinaGershon_01.jpg.webp)
 
 **2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "Blinded by the Light."<br>

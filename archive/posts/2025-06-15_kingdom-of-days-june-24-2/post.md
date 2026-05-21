@@ -12,9 +12,9 @@ post_id: 57179
 
 **1973:** Bruce and the E Street Band play their third consecutive night at Fat City in Seaside Heights, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/1973-06-23.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1973-06-23.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1973-0624.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1973-0624.jpg.webp)
 
 **1977:** Bruce and the E Street Band record "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" at Atlantic Studios in New York City.<br>
 
@@ -24,7 +24,7 @@ post_id: 57179
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band 06.24.1978 Portland, OR SBD](https://www.youtube.com/watch?v=1tApe9uQUCs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/06/1978-06-23-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/1978-06-23-scaled.jpg.webp)
 
 **1984:** Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man's West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.<br>
 
@@ -32,7 +32,7 @@ post_id: 57179
 
 [Watch on Youtube: Bruce Springsteen with Bobby Bandiera - UNDER THE BOARDWALK 1989 (audio)](https://www.youtube.com/watch?v=j0h8kVXEdX0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1989-06-24.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1989-06-24.jpg.webp)
 
 **1993:** A momentous night: Bruce and his touring band play a special "Concert to Fight Hunger" at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell... and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
 
@@ -56,7 +56,7 @@ post_id: 57179
 
 [Watch on Youtube: Having A Party (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=U5oB2t2djEU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1993-06-24.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1993-06-24.jpg.webp)
 
 **1999:** Night Two in Stockholm on the Reunion Tour.<br>
 
@@ -68,7 +68,7 @@ post_id: 57179
 
 [Watch on Youtube: When The Saints Go Marching In](https://www.youtube.com/watch?v=aff_zv76sCY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2006-06-24.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2006-06-24.jpg.webp)
 
 **2007:** Bruce performs "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)."<br>
 

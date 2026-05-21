@@ -12,21 +12,21 @@ post_id: 57749
 
 **1970:** Steel Mill headlines at Asbury Park's Sunshine In.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1970-0718.jpeg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1970-0718.jpeg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1970-07-18.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1970-07-18.png.webp)
 
 **1971:** The Bruce Springsteen Band headlines an outdoor show at Monroe Park in Richmond.<br>
 
 **1973:** Bruce and the E Street Band headline two shows at Max's Kansas City in New York, kicking off a six-night/twelve-show stand. The opening act: Bob Marley and the Wailers, on their very first American tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/07/Capture.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/Capture.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1973-0718.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1973-0718.jpg.webp)
 
 **1974:** Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1974-0718.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1974-0718.jpg.webp)
 
 **1975:** Bruce completes "Backstreets" and "Meeting Across the River" at the Record Plant in New York City, a mere month before both songs would appear on record store shelves, and only two days before the kickoff of the the Born to Run Tour.<br>
 
@@ -38,7 +38,7 @@ post_id: 57749
 
 [Watch Video Highlight](https://videopress.com/embed/cBZLC6qs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-18.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-18.png.webp)
 
 **1979:** At The Power Station in New York City, Bruce records "Be True" and "Loose Ends." It will be almost two decades before they see an album release.<br>
 
@@ -66,9 +66,9 @@ post_id: 57749
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dThZ2c3DTxA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-18a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-07-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-18b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-07-18b.png.webp)
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour.<br>
 
@@ -84,9 +84,9 @@ post_id: 57749
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sPziI_eo7fk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-07-18a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2005-07-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2005-07-18b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2005-07-18b.png.webp)
 
 **2012:** On Night Two in Dublin on the Wrecking Ball Tour, an injured Jake Clemons takes the stage in a wheelchair. He threw his back out the night before, and Bruce gently (and very cleverly) teases him during "Spirit in the Night."<br>
 
@@ -116,9 +116,9 @@ post_id: 57749
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YVqt-El6LDA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2015-07-18a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2015-07-18a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2015-07-18b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2015-07-18b.png.webp)
 
 **2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores ("The Ghost of Tom Joad" and "Long Time Comin'") and will be released on the streaming service (and on album) to much acclaim later in the year.<br>
 
@@ -128,7 +128,7 @@ Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lz-lFobWvTs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2018-07-18.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2018-07-18.png.webp)
 
 **2023:** For the first time in over two decades, Bruce plays an identical setlist to his previous show when World Tour 2023 stops in Vienna, Austria.<br>
 

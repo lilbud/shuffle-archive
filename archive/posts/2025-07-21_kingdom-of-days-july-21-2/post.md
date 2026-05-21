@@ -12,23 +12,23 @@ post_id: 57794
 
 **1973:** Bruce and the E Street Band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/07/1973-07-19.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/1973-07-19.jpg.webp)
 
 **1978:** Bruce brings the Darkness Tour to Nashville and plays the earliest known performance of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Factory" - Nashville, 1978-07-21](https://www.youtube.com/watch?v=VRKoRUCKFH8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-21.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-21.png.webp)
 
 **1984:** The Born in the U.S.A. Tour starts its Canadian leg with a show at the Montreal Forum.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mQ0tWBPe)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-21c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-21c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-21a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-21a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-21b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-21b.png.webp)
 
 **2003:** Night Three of ten at the Rising Tour's Giants Stadium stand features a special guest star: original E Street Band drummer Vini Lopez takes the drums on "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)."<br>
 

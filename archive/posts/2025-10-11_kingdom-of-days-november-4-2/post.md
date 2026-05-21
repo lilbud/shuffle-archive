@@ -36,7 +36,7 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 **1978:** Bruce and the E Street Band play a Darkness Tour show at the University of Vermont in Burlington.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1978-11-04.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1978-11-04.png.webp)
 
 **1984:** Bruce and the band wrap up their seven-night Born in the U.S.A. Tour stand at the L.A. Memorial Sports Arena, where Bruce dedicates "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)" to Ron Kovic (who is in attendance). The official video for "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" is filmed at this show.<br>
 
@@ -44,13 +44,13 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 **1998:** Bruce joins Clarence Clemons on stage at Club 251 in West Palm Beach, Florida, for four songs.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1998-11-06a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1998-11-06a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1998-11-06b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1998-11-06b.png.webp)
 
 **1999:** Patti Scialfa has a perforated eardrum, forcing Bruce to postpone a scheduled Reunion show in Minneapolis.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-11-03.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-11-03.png.webp)
 
 **2001:** At the 53rd Annual Emmy Awards, *Live in New York City* is nominated for Outstanding Variety, Music, or Comedy Special but loses to *Cirque du Soleil: Dralion*. Chris Hilson is also nominated as Best Director for *Live in New York City* but loses to David Mallet, the director of *Cirque du Soleil: Dralion.*<br>
 
@@ -58,17 +58,17 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 [Watch Video Highlight](https://videopress.com/embed/wRtLFvfs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Houston_Chronicle_2002_11_05_24.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/The_Houston_Chronicle_2002_11_05_24.jpg.webp)
 
 **2005:** Tampa gets a River-heavy Devils and Dust show, with "[Fade Away](../2018-05-03_cover-me-southside-johnny-fade-away/post.md)," "[Be True,](../2020-12-02_roll-of-the-dice-be-true/post.md)" "[Wreck on the Highway,](../2022-08-28_roll-of-the-dice-wreck-on-the-highway/post.md)" "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," and "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" all making an appearance at this solo acoustic show.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Fade Away" - Tampa, 2005-11-04](https://www.youtube.com/watch?v=EYQyjuSqfJ8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2005-11-04a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2005-11-04a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2005-11-04b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/2005-11-04b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/45615142024_ddbfa16a01_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/45615142024_ddbfa16a01_o.jpg.webp)
 
 **2007:** Continuing east, the Magic Tour stops at Cleveland's Quicken Loans Arena, where Bruce tour premieres "[It's Hard to Be a Saint in the City](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" and "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" (a tour one-off).<br>
 
@@ -76,7 +76,7 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 [Watch on Youtube: Bruce Springsteen Its Hard To Be A Saint In The City Cleveland 04/11/2007](https://www.youtube.com/watch?v=6yWAVehXlr4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Akron_Beacon_Journal_2007_11_06_Page_A002.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/11/The_Akron_Beacon_Journal_2007_11_06_Page_A002.jpg.webp)
 
 **2009:** Bruce makes a return appearance at the Stand Up for Heroes benefit at Town Hall in New York City, performing songs, telling jokes, and auctioning off a guitar for $50,000.<br>
 
@@ -88,7 +88,7 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 [Watch on Youtube: Springsteen - Thunder Road - Pittsburgh. Nov 4th, 2010.MPG](https://www.youtube.com/watch?v=-xPRUcGL3lM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2010-11-04.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2010-11-04.png.webp)
 
 **2011:** Almost one year to the days, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. This is Night Two, and Bruce once again joins opening act The Composure for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)." An acoustic mini-set follows (featuring "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)") and a full set with Joe Grushecky and The Houserockers. But the show doesn't end there–Bruce returns to the stage for a final acoustic set.<br>
 
@@ -108,7 +108,7 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 **2014:** Bruce becomes a published author when his children's book *Outlaw Pete* arrives on bookstore shelves.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2014-11-04.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2014-11-04.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

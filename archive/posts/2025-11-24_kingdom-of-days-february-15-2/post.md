@@ -8,23 +8,23 @@ categories: kingdom-of-days
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/02/melbourne14.jpg
 post_id: 55947
 ---
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-15a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1981-02-15a.png.webp)
 
 **1974:** After firing drummer Vini Lopez three days earlier, Bruce cancels a show at the University of Toledo so that the band has time to rehearse with new drummer Ernest “Boom” Carter.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1974-02-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/1974-02-15.jpg.webp)
 
 **1977:** Bruce and the E Street band return to the U.S. and continue the Lawsuit Tour at Detroit’s Masonic Temple Theater, where “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” makes its tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen - DETROIT MEDLEY 1977 (audio)](https://www.youtube.com/watch?v=kiO9Y-V2z8Y)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/46881241794_6812cfd98f_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/02/46881241794_6812cfd98f_o.jpg.webp)
 
 **1981**: Bruce and band take the River Tour to the Civic Center in Lakeland, Florida.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/XYZd28NA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-15b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1981-02-15b.png.webp)
 
 **1983:** In the studio, Bruce records “[Seven Tears](../2019-03-17_roll-of-the-dice-seven-tears/post.md)” and “The Money We Didn’t Make.” The former circulates among collectors, the latter has not yet surfaced.<br>
 
@@ -34,13 +34,13 @@ post_id: 55947
 
 [Watch on Youtube: Bruce Springsteen - One Step Up (Official Video)](https://www.youtube.com/watch?v=MkFQHScyti0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1988-02-15.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1988-02-15.png.webp)
 
 **1995:** Bruce joins Melissa Etheridge for her MTV Unplugged performance in Brooklyn. They perform a gorgeous duet of “Thunder Road” together.<br>
 
 [Watch on Youtube: Bruce Springsteen and Melissa Etheridge - Thunder Road](https://www.youtube.com/watch?v=5cXzFhZVMnQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/02/1995-02-15.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/02/1995-02-15.jpg.webp)
 
 **1996:** Bruce plays his third solo acoustic show in Germany, this time in Munich.<br>
 
@@ -50,7 +50,7 @@ post_id: 55947
 
 [Watch Video Highlight](https://videopress.com/embed/qmr0Nwtj)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-15.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1997-02-15.png.webp)
 
 **2014:** The first of two nights in Melbourne features a surprise guest in the opening numbers: Eddie Vedder joins the E Street Band for “Highway to Hell” and “[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md).” Another surprise shortly follows: a full performance of the *Born in the U.S.A.* album. Also tour premiering tonight: “[Jole Blon,](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” “[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md),” “[I’m Goin’ Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md),” and “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md).”<br>
 

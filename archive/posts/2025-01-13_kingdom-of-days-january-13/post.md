@@ -18,7 +18,7 @@ post_id: 55587
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Columbia, SC 1985-01-13 (NEW SOURCE)](https://www.youtube.com/watch?v=PUuzb4_JT8I)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1985-01-13.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1985-01-13.png.webp)
 
 **1993:** Bruce inducts Creedence Clearwater Revival into the Rock and Roll Hall of Fame<br>
 
@@ -40,8 +40,8 @@ After the interview, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt
 
 **2019:** At a special screening of *Springsteen on Broadway* at Monmouth University, Bruce slips in unnoticed after the lights go down. He watches the movie with director Thom Zimny and then quietly leaves before the house lights come up.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_San_Francisco_Examiner_1970_01_14_32.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/The_San_Francisco_Examiner_1970_01_14_32.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/01/2019-01-13a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/2019-01-13a.jpg.webp)
 
 **2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. Today's session focuses heavily on covers from *Only the Strong Survive*, with multiple run-throughs of "Do I Love You (Indeed I Do)" (which will not be played during the tour), "[Don't Play That Song](../2023-02-12_cover-me-dont-play-that-song-you-lied/post.md)" (which will be dropped after two weeks), and "Nightshift," which will remain a setlist tentpole throughout.<br>

@@ -18,13 +18,13 @@ post_id: 57793
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8Hoz79azVDI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1975-07-20.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1975-07-20.png.webp)
 
 **1999:** The opening stand of the Reunion Tour's U.S. leg continues with Night Three at the Continental Airlines Arena in East Rutherford.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DhJGQnGP)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-20.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-07-20.png.webp)
 
 **2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres "All That Heaven Will Allow" and "Nothing Man," both on electric piano.<br>
 

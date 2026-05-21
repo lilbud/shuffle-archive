@@ -12,7 +12,7 @@ post_id: 59695
 
 **1967:** The Castiles play at a rally dance at West Freehold School.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1967-09-22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1967-09-22.jpg.webp)
 
 **1973:** A scheduled gig in Miami opening for Richie Havens is cancelled to make room for mixing sessions for *The Wild, The Innocent & The E Street Shuffle* at 914 Sound Studio in Blauvelt, New York.<br>
 
@@ -54,11 +54,11 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 **1985:** A bad weather forecast prompts the postponement of a scheduled show at Denver's Mile High Stadium. The evening ended up with clear skies, however, causing a bit of a backlash among fans and press.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-22a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1985-09-22a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1985-09-22b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1985-09-22b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1985-0922.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1985-0922.jpg.webp)
 
 **1989:** Bruce joins Jimmy Cliff on stage at The Stone Pony in Asbury Park, where the two play "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" in its original arrangement.<br>
 
@@ -74,7 +74,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 [Watch on Youtube: Long Lost Leap](https://www.youtube.com/watch?v=qfvu_H2Egf8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1992-09-22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1992-09-22.jpg.webp)
 
 **2002:** The Rising Tour resumes at the Pepsi Center in Denver after a three-week break, and from this point forward the setlists will have more variety and spontaneity. This show features the tour premieres of "[The Ties That Bind,](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," and a rare "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)."<br>
 
@@ -104,7 +104,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 [Watch on Youtube: Cynthia (Live at MetLife Stadium, E. Rutherford, NJ - 9/22/2012)](https://www.youtube.com/watch?v=OmCnCMdfsVw)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2012-09-22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2012-09-22.jpg.webp)
 
 **2015:** Bruce makes a guest appearance with Jackson Browne and Teresa Williams on a show-closing "[Take It Easy](../2018-01-18_cover-me-take-it-easy/post.md)" and "[Our Lady of the Well](../2019-04-14_matr-jackson-browne-and-bruce-springsteen-our-lady-of-the-well/post.md)" at the Count Basie Theater in Red Bank.<br>
 
@@ -124,4 +124,4 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 **2017:** Bruce holds a second private rehearsal for *Springsteen on Broadway* at Monmouth University.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2017-09-22-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2017-09-22-scaled.jpg.webp)

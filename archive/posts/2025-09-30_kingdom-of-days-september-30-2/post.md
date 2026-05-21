@@ -16,11 +16,11 @@ post_id: 59742
 
 **1973:** Bruce's acoustic guitar is stolen at a Wild & Innocent gig at Stony Brook University. Bruce will play road manager Albee Tellone's guitar (the same model as Bruce's) until Mike Appel replaces it as a Christmas gift.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1973-0930.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1973-0930.jpg.webp)
 
 **1975:** Bruce makes his debut appearance in Nebraska, playing a Born to Run show at Omaha's Civic Auditorium Music Hall.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1975-0930.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1975-0930.jpg.webp)
 
 **1976:** At Night Two on the Lawsuit Tour in Santa Monica, Bruce tells a mid-song "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" story for the first time. Later that night, Bruce and Steve make a surprise guest appearance on stage at Dion DiMucci's show at The Roxy, providing backing vocals on "[A Teenager in Love.](../2020-08-16_matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/post.md)"<br>
 
@@ -28,7 +28,7 @@ post_id: 59742
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Civic Centre, Santa Monica; September 30, 1976](https://www.youtube.com/watch?v=hJX7vjV2qx8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/The_Los_Angeles_Times_1976_10_01_39.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/The_Los_Angeles_Times_1976_10_01_39.jpg.webp)
 
 **1977:** During a recording session break at The Record Plan in New York City, Bruce works on "Candy's Room" on piano.<br>
 
@@ -44,9 +44,9 @@ post_id: 59742
 
 [Watch on Youtube: Prove It All Night (Live at Fox Theatre, Atlanta, GA - 9/30/1978)](https://www.youtube.com/watch?v=Cdwi3yhV8rI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1978-09-30a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1978-09-30a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1978-09-30b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1978-09-30b.jpg.webp)
 
 **1985:** Bruce and the E Street Band play their third of four shows on the Born in the U.S.A. Tour's final stand in Los Angeles. "[Born in the U.S.A.,](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)," "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)," "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," "[War](../2016-01-02_cover-me-war/post.md)," "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" from this show all make it to *Live 1975-85*, and "My Hometown" and "War" will surface on *Video Anthology* as well.<br>
 
@@ -74,7 +74,7 @@ post_id: 59742
 
 [Watch on Youtube: Roy Orbison - Behind The Scenes of Black & White Night 30](https://www.youtube.com/watch?v=rFh8Mc7elY8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1987-09-30a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1987-09-30a.jpg.webp)
 
 **1988:** Bruce plays in India for the first and only time when the Human Rights Now! Tour stops in New Delhi. Bruce makes a guest appearance on harmonica with The Epidemics on "[Up to You.](../2018-10-27_meeting-across-the-river-the-epidemics-and-bruce-springsteen-up-to-you/post.md)"<br>
 
@@ -82,9 +82,9 @@ post_id: 59742
 
 [Amnesty 1988 tour - India show news report](https://player.vimeo.com/video/20209322?dnt=1&app_id=122963)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-30a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1988-09-30a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1988-09-30b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1988-09-30b.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band wrap up their three-show stand at Chicago's United Center with a great set that includes "[Take 'Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)" to open, "[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)" "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)," and "New York City Serenade." This show is now available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,20091/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-30-1999-United-Center-Chicago-IL.html).<br>
 
@@ -98,7 +98,7 @@ post_id: 59742
 
 [Watch Video Highlight](https://videopress.com/embed/MzX3Rod6)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2002-09-30.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2002-09-30.jpg.webp)
 
 **2009:** Bruce kicks off a five-night stand at Giants Stadium with a brand-new song: "[Wrecking Ball,](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" written to honor the scheduled-for-demolition venue. Curt Ramm is on hand, and the set list is clearly constructed to be horn-friendly as a result: "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)," "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)," and "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" all get outings tonight, along with a full-album performance of *Born to Run*. Willie Nile makes a guest appearance in the encores.<br>
 
@@ -106,15 +106,15 @@ post_id: 59742
 
 [Watch on Youtube: Bruce Springsteen - Wrecking Ball (Giants Stadium September 30th 2009)](https://www.youtube.com/watch?v=nVyOlazg6qk)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2009-09-30a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2009-09-30a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2009-09-30b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2009-09-30b.jpg.webp)
 
 **2017:** Bruce performs an acoustic set at the Invictus Games Closing Ceremony in Toronto, previewing (it will turn out) arrangements for his upcoming Broadway show. After his solo set, Bruce plugs in and performs with Bryan Adams. For more highlights from this show, see my [*Where the Band Was*](../2018-09-30_where-the-band-was-toronto-september-30-2017/post.md)[report.](../2018-09-30_where-the-band-was-toronto-september-30-2017/post.md)<br>
 
 [Watch on Youtube: Bryan Adams & Bruce Springsteen performing "Cut's A Knife & "Badlands"](https://www.youtube.com/watch?v=AUTmqptb-XY)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2017-09-30.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2017-09-30.jpg.webp)
 
 **2018:** Bruce makes a surprise appearance with Social Distortion at the inaugural Sea.Hear.Now Festival in Asbury Park, playing three songs including "[Bad Luck](../2020-06-25_matr-bruce-springsteen-and-mike-ness-bad-luck/post.md)," "[Misery Loves Company](../2020-01-22_matr-mike-ness-and-bruce-springsteen-misery-loves-company/post.md)," and a terrific cover of "[Ring of Fire](../2019-07-19_cover-me-ring-of-fire/post.md)."<br>
 
@@ -124,4 +124,4 @@ post_id: 59742
 
 [Watch on Youtube: Ring of Fire - Social Distortion with Bruce Springsteen - See Hear Now](https://www.youtube.com/watch?v=BHCZN7O_4vU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2018-09-30.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2018-09-30.jpg.webp)

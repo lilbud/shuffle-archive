@@ -10,7 +10,7 @@ post_id: 56797
 ---
 **1981:** The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg.webp)
 
 **1992:** Bruce and his new touring band rehearse for their upcoming tour on a Hollywood soundstage.<br>
 
@@ -22,17 +22,17 @@ post_id: 56797
 
 [Watch on Youtube: Dublin 20/05/1993](https://www.youtube.com/playlist?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Star_Tue__May_25__1993_.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/The_Star_Tue__May_25__1993_.jpg.webp)
 
 **1995:** Bruce and Patti attend Don Henley’s wedding. Several musicians are in attendance and perform, including Bruce on “634-5789 (Soulsville, U.S.A.)”<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1995-0520.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1995-0520.jpg.webp)
 
 **2005:** The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-20a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2005-05-20a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-20b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2005-05-20b.jpg.webp)
 
 **2006:** “Devils & Dust” makes its Seeger Sessions Tour debut at the Oslo Spektrum.<br>
 

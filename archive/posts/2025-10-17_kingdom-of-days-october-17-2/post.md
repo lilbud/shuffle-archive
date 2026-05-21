@@ -12,17 +12,17 @@ post_id: 61150
 
 **1970:** Steel Mill headlines at Monmouth College, where Danny Federici, still on the lam after the infamous swim club show, makes an appearance and turns himself in shortly thereafter.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1970-10-17a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/1970-10-17a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1970-10-17b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1970-10-17b.png.webp)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1971-1017.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1971-1017.jpg.webp)
 
 **1973:** Bruce and the E Street Band play their third of five nights at Oliver's in Boston.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1973-1016.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1973-1016.jpg.webp)
 
 **1974:** Bruce and the E Street Band work on "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" during a recording session at 914 Sound Studios in Blauvelt, New York.<br>
 
@@ -32,13 +32,13 @@ post_id: 61150
 
 [https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47753636752_5d704a5bfc_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/47753636752_5d704a5bfc_o.jpg.webp)
 
 **1976:** Bruce and the boys play their first of two Lawsuit Tour shows at Georgetown University.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/y9o1VLNX)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1976-1017.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/1976-1017.jpg.webp)
 
 **1978:** Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to "Mona" into "[Not Fade Away](../2020-06-24_cover-me-not-fade-away/post.md)."<br>
 
@@ -46,33 +46,33 @@ post_id: 61150
 
 **1979:** Photographer David Gahr captures Bruce and the E Street Band on film during a day of photo shoots in New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1979-10-17a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/1979-10-17a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1979-10-17b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/1979-10-17b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/1979-10-17c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/1979-10-17c.jpg.webp)
 
 **1980:** Bruce and the E Street Band play a show–the first of two on the River Tour–at the Kiel Opera House in St. Louis.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bxlCMxZT)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1980-10-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1980-10-17.png.webp)
 
 **1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. Tour shows at the Tacoma Dome. Bruce starts to come down with flu symptoms earlier in the day, and by the time the show ends, he is full-blown sick.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VH3WetqL)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-17d.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1984-10-17d.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-17a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1984-10-17a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-10-17b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1984-10-17b.png.webp)
 
 **1992:** World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce's first-ever show in Alberta.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/6SNwRz24)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1992-10-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1992-10-17.png.webp)
 
 **1994:** *The River* is certified 3x multi-platinum and *Born in the U.S.A.* 14x multi-platinum by the Recording Industry Association of America.<br>
 
@@ -84,11 +84,11 @@ post_id: 61150
 
 [Watch on Youtube: Bruce Springsteen - Down The Road Apiece (audio)](https://www.youtube.com/watch?v=k3hhViVRpf0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1995-10-17a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1995-10-17a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1995-10-17b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1995-10-17b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1995-10-17c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1995-10-17c.png.webp)
 
 **1996:** Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver's Paramount Theater.<br>
 
@@ -98,19 +98,19 @@ post_id: 61150
 
 [Watch Video Highlight](https://videopress.com/embed/vZj3KOnV)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-17a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-10-17a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-17b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-10-17b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1999-10-17c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1999-10-17c.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1999-1017.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1999-1017.jpg.webp)
 
 **2005:** Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for "[People Get Ready](../2019-01-06_matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/post.md)" at the Wachovia Center in Philadelphia.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2005-10-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2005-10-17.png.webp)
 
 **2007:** The young Magic Tour moves on to Madison Square Garden for the first of two nights.<br>
 
@@ -132,7 +132,7 @@ post_id: 61150
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gayle King and Oprah Winfrey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2017-10-17.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2017-10-17.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

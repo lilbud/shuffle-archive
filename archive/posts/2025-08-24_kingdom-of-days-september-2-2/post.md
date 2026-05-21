@@ -18,7 +18,7 @@ post_id: 59530
 
 **1978:** Bruce meets Bob Seger for the first time at Seger's gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/09/1978-0902.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1978-0902.jpg.webp)
 
 **1979:** Bruce and the E Street Band record "From Small Things (Big Things One Day Come)" at The Power Station in New York City. It will remain in the vault for for 24 years.<br>
 
@@ -28,11 +28,11 @@ post_id: 59530
 
 [Watch Video Highlight](https://videopress.com/embed/X9DB6SRG)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/09/Camarillo_Star_1981_09_06_22.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/Camarillo_Star_1981_09_06_22.jpg.webp)
 
 **1984:** Bruce guest stars with John Eddie and the Front Street Runners at The Stone Pony in Asbury Park. (photo credit: John Comerford)<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1984-09-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/1984-09-02.jpg.webp)
 
 **1988:** The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N'Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of "[Get Up, Stand Up,](../2020-11-13_matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/post.md)" and Bruce closes the show with an abbreviated fifteen-song "greatest hits" set capped off by an all-artist "[Chimes of Freedom](../2018-07-18_roll-of-the-dice-cover-me-chimes-of-freedom/post.md)" and "Get Up, Stand Up" reprise.<br>
 
@@ -40,15 +40,15 @@ post_id: 59530
 
 [Watch on Youtube: Bruce Springsteen - Amnesty Tour, Wembley 1988-09-03](https://www.youtube.com/watch?v=Y58hMb-kR4c)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1988-09-02a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1988-09-02a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1988-09-02b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1988-09-02b.jpg.webp)
 
 **1992:** Bruce's World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KSH6dQTI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-09-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-09-02.jpg.webp)
 
 **1995:** The Rock and Roll Hall of Fame celebrates its opening with an inaugural concert in Cleveland, and Bruce and the E Street Band are on hand to perform, joining Chuck Berry...<br>
 
@@ -72,9 +72,9 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry'
 
 [Watch on Youtube: Chuck Berry Pranked Melissa Etheridge and Bruce Springsteen During Hall Of Fame Performance](https://www.youtube.com/watch?v=vSlS4PaXapA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1995-09-02a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1995-09-02a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1995-09-02b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1995-09-02b.jpg.webp)
 
 **2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "[Green Onions](../2019-05-17_cover-me-green-onions/post.md)" during sign collection, as well as "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and Philly special "[You Can't Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/)."<br>
 
@@ -96,4 +96,4 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry'
 
 **2021:** *Springsteen on Broadway* nears the end of its final week at the St. James Theater in New York City. In attendance tonight: Eddie Vedder and Jarod Clemons.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/09/2021-09-02.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/09/2021-09-02.jpg.webp)

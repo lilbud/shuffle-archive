@@ -34,7 +34,7 @@ post_id: 56765
 
 [Watch on Youtube: Bruce marries Julianne - wedding news 1985](https://www.youtube.com/watch?v=pnqMBNuNHIs)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1985-0513.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1985-0513.jpg.webp)
 
 **1988:** Bruce and the band bring the Tunnel of Love Express Tour to the Market Square Arena in Indianapolis.<br>
 
@@ -42,9 +42,9 @@ post_id: 56765
 
 [Watch on Youtube: Bruce Springsteen - ACROSS THE BORDERLINE 1988 (audio)](https://www.youtube.com/watch?v=LN_gm14o6Y8)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-05-13a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-05-13a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1988-05-13b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/1988-05-13b.jpg.webp)
 
 **2008:** Bruce, Patti, Southside Johnny, and Bobby Bandiera perform at The Stone Pony for the annual benefit for The Ranney School.<br>
 
@@ -58,7 +58,7 @@ post_id: 56765
 
 [Watch on Youtube: "Don't Stop Believin'" - Lady Gaga, Elton John, Springsteen, Sting, Blondie, Shirley Bassey](https://www.youtube.com/watch?v=PcIEEdTiNak)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2010-05-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2010-05-13.jpg.webp)
 
 **2012:** The first European leg of the Wrecking Ball Tour kicks off in Seville. The set features the tour premiere of “I’m Goin’ Down.”<br>
 
@@ -100,4 +100,4 @@ post_id: 56765
 
 **2025:** Bruce and the E Street Band rehearse in Manchester for the kick-off of the Land of Hope and Dreams Tour.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/medium-13.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/medium-13.jpg.webp)

@@ -24,7 +24,7 @@ As I arrive at the venue I'm too late for any "pit queuing." They've already mad
 
 Two hours later my company and I are inside the venue and to our surprise IN the pit(!).
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/05/anna.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/anna.jpg.webp)
 
 **The show**<br>
 

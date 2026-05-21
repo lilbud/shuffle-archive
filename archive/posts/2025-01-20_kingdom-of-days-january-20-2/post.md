@@ -16,9 +16,9 @@ post_id: 55626
 
 [Watch Video Highlight](https://videopress.com/embed/CMB9DGt1)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Edmonton_Journal_1981_01_22_34-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/Edmonton_Journal_1981_01_22_34-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/1981-0120b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/1981-0120b.jpg.webp)
 
 **1983:** Bruce records “[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)” and “[Betty Jean](../2019-02-13_roll-of-the-dice-betty-jean/post.md).” Both remain unreleased to this day.<br>
 
@@ -38,19 +38,19 @@ post_id: 55626
 
 [Watch on Youtube: Entertainment Tonight - 1988-01-21 - Rock and Roll Hall of Fame Ceremonies](https://www.youtube.com/watch?v=nyp2_b-0aIA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1988-01-20.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1988-01-20.png.webp)
 
 **1991:** Bruce joins Max and others at McLoone’s Rum Runner in Sea Bright, New Jersey for a benefit for Jim Faulkner. Amongst the set of covers: a smoking “[Tobacco Road](../2018-11-21_meeting-across-the-river-bruce-springsteen-max-weinberg-and-tim-mcloone-tobacco-road/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen, Max Weinberg, Tim McLoone - "Tobacco Road" - Sea Bright, 1991-01-20](https://www.youtube.com/watch?v=x_4ldqSuqNg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/Asbury_Park_Press_1991_01_25_Page_38.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/Asbury_Park_Press_1991_01_25_Page_38.jpg.webp)
 
 **1994**: At the Rock and Roll Hall of Fame induction ceremony, Rod Stewart and Elton John are slated to perform a duet of “[Come Together.](../2018-01-15_meeting-across-the-river-bruce-springsteen-and-axl-rose/post.md)” At the last minute, Rod isn’t able to make it, so the producers ask Bruce to step in. Bruce declines, so they move on to Axl Rose, who accepts. Apparently Axl is a more intriguing duet partner than Elton, though, because when Axl asks Bruce to join him, this time Bruce says yes. Axl and Bruce had no warning this was coming, and therefore no rehearsal time. Mere minutes after being asked to step in, this is what went down.<br>
 
 [Watch on Youtube: Axl Rose and Bruce Springsteen perform "Come Together"](https://www.youtube.com/watch?v=UtzkBewRsiE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/1994-01-20.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/1994-01-20.png.webp)
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

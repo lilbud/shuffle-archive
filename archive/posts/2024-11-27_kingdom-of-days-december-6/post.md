@@ -12,7 +12,7 @@ post_id: 55239
 
 **1972:** Bruce and his unnamed Band play their second night of a six-night, two-shows-nightly stand at Kenny's Castaways In New York City.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/1972-12-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/1972-12-05.jpg.webp)
 
 **1973:** Bruce and the E Street Band play three sets at Childe Harold in Washington DC–their first of three nights. The last set is broadcast by WGTB-FM at Georgetown University.<br>
 
@@ -22,7 +22,7 @@ post_id: 55239
 
 [Watch on Youtube: Bruce Springsteen New Brunswick - 12/06/74](https://www.youtube.com/watch?v=EZ9LSDHCvKU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1974-12-06.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1974-12-06.png.webp)
 
 **1975:** Bruce and the E Street Band play their second of two nights at Georgetown University on the Born to Run Tour.<br>
 
@@ -32,31 +32,31 @@ post_id: 55239
 
 [Watch on Youtube: Bruce Springsteen - "The River" - Philadelphia, 1980-12-06](https://www.youtube.com/watch?v=B1GrsYH2zNo)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/The_News_Journal_Tue__Dec_9__1980_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/12/The_News_Journal_Tue__Dec_9__1980_-scaled.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1980-12-06a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1980-12-06a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1980-12-06b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1980-12-06b.png.webp)
 
 **1984:** Bruce and the E Street Band play a Born in the U.S.A. show at the Birmingham-Jefferson Civic Center Arena in Birmingham.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Downbound Train" - Birmingham, 1984-12-06](https://www.youtube.com/watch?v=jyf0wmiTP30)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1984-12-06.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1984-12-06.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/40118953893_92df22e0a0_o.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/40118953893_92df22e0a0_o.jpg.webp)
 
 Also on this date, Bruce appears on the cover of *Rolling Stone*.
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1984-12-06a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1984-12-06a.jpg.webp)
 
 **1993:** Bruce takes a stroll around South Philly with director Jonathan Demme and his crew, filming the video for "[Streets of Philadelphia.](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen films the video for "Streets of Philadelphia" 1993-12-06](https://www.youtube.com/watch?v=YIlt4gHNLbE)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1993-12-06a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1993-12-06a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1993-12-06b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1993-12-06b.png.webp)
 
 **1995:** At Night Two at Washington DC's Constitution Hall on the Ghost of Tom Joad Tour, Bruce tour premieres "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" and "[Reason to Believe.](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)"<br>
 
@@ -70,7 +70,7 @@ Also on this date, Bruce appears on the cover of *Rolling Stone*.
 
 [Watch on Youtube: Birmingham 29/02/1996](https://www.youtube.com/playlist?list=PLJTyL9twk3zDwD2kjnWXOgedmvtxr8aLV)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/Birmingham_Post_Herald_1996_12_07_2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/12/Birmingham_Post_Herald_1996_12_07_2.jpg.webp)
 
 **2001:** Bruce, The Max Weinberg 7 and a host of friends play their third of five holiday shows at Asbury Park's Convention Hall in support of local charities. All of last night's guests are present, plus the South Community Choir of Asbury Park, which kicks things off.<br>
 
@@ -78,7 +78,7 @@ Also on this date, Bruce appears on the cover of *Rolling Stone*.
 
 **2003:** Bad weather forces Bruce to reschedule a planned holiday show in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2003-12-06.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/2003-12-06.png.webp)
 
 **2012:** Bruce and the E Street Band play their final stateside Wrecking Ball show in Glendale, where Bruce opens with a solo acoustic "[Surprise, Surprise](../2021-05-04_roll-of-the-dice-surprise-surprise/post.md)," Sam Moore makes a cameo on "[Apollo Medley,](../2020-11-20_cover-me-the-way-you-do-the-things-you-do/post.md)" and Garland Jeffreys joins the band for the final two encores.<br>
 
@@ -94,7 +94,7 @@ Also on this date, Bruce appears on the cover of *Rolling Stone*.
 
 [Watch on Youtube: Santa Clause is Coming to Town - Springsteen - Jobing.com Arena Glendale, AZ - Dec 6, 2012](https://www.youtube.com/watch?v=w6PPxuE-gL0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/El_Paso_Times_Tue__Dec_11__2012_-1.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/12/El_Paso_Times_Tue__Dec_11__2012_-1.jpg.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

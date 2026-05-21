@@ -14,7 +14,7 @@ post_id: 56010
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1968-0223.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/1968-0223.jpg.webp)
 
 **1969:** In the wee hours of Sunday morning, Bruce, Vinnie Roslin, and Big Bad Bobby Williams jam at The Upstage in Asbury Park. Danny Federici joins in, and Vini Lopez swaps in for Williams. That foursome (Springsteen, Roslin, Federici, and Lopez) will soon gel as a band called Child, which by the end of the year will become Steel Mill.<br>
 
@@ -28,13 +28,13 @@ post_id: 56010
 
 [Watch on Youtube: Bruce Springsteen - 1975-02-23 Westbury Music Fair, Westbury, NY](https://www.youtube.com/watch?v=PuUvk8watG0)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/02/Newsday__Suffolk_Edition__Mon__Feb_24__1975_-scaled.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/Newsday__Suffolk_Edition__Mon__Feb_24__1975_-scaled.jpg.webp)
 
 **1977:** Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play Chicago’s Auditorium Theater.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/s9oiucKA)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1977-0223.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/1977-0223.jpg.webp)
 
 **1981**: The original River Tour makes a stop at The Omni in Atlanta for one night.<br>
 
@@ -42,11 +42,11 @@ post_id: 56010
 
 [Watch Video Highlight](https://videopress.com/embed/IuMkI1iN)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-23a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1981-02-23a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1981-02-23b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1981-02-23b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1981-0223.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/1981-0223.jpg.webp)
 
 **1985:** Bruce and Madonna make a surprise appearance on-stage with Prince at The Forum in Inglewood, CA. The three mega-stars play “[Baby, I’m a Star](../2020-08-07_matr-prince-bruce-springsteen-and-madonna-baby-im-a-star/post.md)” together. Some sources say that Bruce stayed on stage for “America,” and “[Purple Rain](../2021-03-03_cover-me-purple-rain/post.md)” with Prince as well, but those reports are unconfirmed. Brucebase leans towards it because they hear Prince yelling “Bruce” at the beginning of “America,” but I’m pretty sure Prince is actually saying “Peace!” (the first word of the song). Regardless, I’m sharing those two tracks here just in case. They are certainly amazing performances regardless of whether Bruce appears on them or not.<br>
 
@@ -74,9 +74,9 @@ post_id: 56010
 
 [Watch on Youtube: The Clash Tribute - London Calling - Live](https://www.youtube.com/watch?v=MkyeGVuc2pQ)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2003-02-23a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2003-02-23a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/2003-02-23b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2003-02-23b.png.webp)
 
 **2014:** The second of two shows at Hope Estate winery in Hunter Valley, Australia. The show kicks off with a cover of “[Spill the Wine](../2018-03-15_cover-me-spill-the-wine/post.md)” and features a penultimate encore of a rare solo acoustic “[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md).” Also tour premiering tonight: “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)” and “[4th of July, Asbury Park (Sandy).](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)”<br>
 

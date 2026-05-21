@@ -12,11 +12,11 @@ post_id: 55589
 
 [Watch Video Highlight](https://videopress.com/embed/YKDm9FGq)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/01/The_Charlotte_News_1985_01_16_8.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/01/The_Charlotte_News_1985_01_16_8.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1985-01-15b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1985-01-15b.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1985-01-15c.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/1985-01-15c.png.webp)
 
 **1988:** The video for “[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)” premieres on *Friday Night Videos*.<br>
 
@@ -30,8 +30,8 @@ post_id: 55589
 
 [Watch Video Highlight](https://videopress.com/embed/sZqestDr)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2011-01-15a.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2011-01-15a.png.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/2011-01-15b.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/2011-01-15b.png.webp)
 
 **2016:** Bruce and the E Street Band rehearse in Pittsburgh for the start of the River Tour (2016 version). They rehearse two Bowie songs as a tribute, “Suffragette City” and “Changes,” but they will end up playing a different song altogether when the tour opens the following night.<br>

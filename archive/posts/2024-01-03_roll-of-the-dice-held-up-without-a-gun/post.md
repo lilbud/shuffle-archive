@@ -12,7 +12,7 @@ post_id: 29687
 
 How close? This close:
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/HELD-UP-misprint2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/HELD-UP-misprint2.jpg.webp)
 
 Only at the last minute did Bruce yank this punk rave-up from Disc 3. At a mere 77 seconds, he didn't even need to replace it with anything.
 

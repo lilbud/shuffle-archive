@@ -12,13 +12,13 @@ post_id: 61048
 
 **1974:** Bruce and the E Street Band perform their one-time-only cover of "Twistin' the Night Away" at Albright College in Reading, Pennsylvania.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1974-1005.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1974-1005.jpg.webp)
 
 **1976:** Bruce and the band wrap up a week of California shows with a stop at the Santa Barbara County Bowl.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/dqSWWba3)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Simi_Valley_Star_1976_10_10_2.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/10/Simi_Valley_Star_1976_10_10_2.jpg.webp)
 
 **1979:** Bruce and Vini Lopez appear on stage together for the first time since 1974 at The Fast Lane in Asbury Park, sharing the stage with Beaver Brown and Dave Marsh (on tambourine).<br>
 
@@ -28,7 +28,7 @@ post_id: 61048
 
 **1980:** Bruce and the band (except for Steven) head backstage at the Cleveland Music Hall to visit fellow New Jersey band The Proof at their opening set for Pat Benatar.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/10/1979-10-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/10/1979-10-05a.jpg.webp)
 
 **1987:** Bruce releases his eighth studio album, [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md), to much less fanfare than greeted his previous *Live 1975-85* box set–a fact that almost every news report mentions.<br>
 
@@ -36,9 +36,9 @@ post_id: 61048
 
 [Watch on Youtube: Bruce Springsteen - Tunnel of Love Release Coverage - 1987-10-05](https://www.youtube.com/watch?v=TxNmDrDz9jM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1987-10-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1987-10-05a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1987-10-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1987-10-05b.jpg.webp)
 
 **2002:** Bruce and the E Street Band perform "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)" and "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)" on *Saturday Night Live* in New York City. The afternoon rehearsals are caught on tape–watch and see what happens when Bruce realizes he started the rehearsal without noticing that Patti wasn't there yet.<br>
 
@@ -74,9 +74,9 @@ post_id: 61048
 
 [Watch on Youtube: Bruce Springsteen Radio Nowhere live Philadelphia 10/05/2007](https://www.youtube.com/watch?v=1RrxmM2jpxg)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-10-05a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2007-10-05a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-10-05b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2007-10-05b.jpg.webp)
 
 **2008:** Bruce appears at a rally for presidential candidate Barack Obama at Ohio State University in Columbus, where Bruce opens with a partial "Mr. Spaceman" in honor of former senator and astronaut John Glenn.<br>
 
@@ -86,7 +86,7 @@ post_id: 61048
 
 [Watch on Youtube: Bruce Springsteen-The Rising-Obama Rally Columbus](https://www.youtube.com/watch?v=m2CkeWhZCnM)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2008-10-05.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/2008-10-05.jpg.webp)
 
 **2016:** Bruce appears at a special interview event at the Nourse Theater in San Francisco to promote the release of his autobiography.<br>
 
@@ -98,4 +98,4 @@ post_id: 61048
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce plays his "B" setlist that includes "[Long Time Comin'](../2022-06-19_roll-of-the-dice-long-time-comin/post.md)" and "This Hard Land" in place of his two duets with Patti. In attendance tonight: John Mayer.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/johnmayer.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/johnmayer.jpg.webp)

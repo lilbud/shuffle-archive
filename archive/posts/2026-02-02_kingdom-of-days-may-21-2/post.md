@@ -12,7 +12,7 @@ post_id: 56798
 
 **1971:** Even shorter-lived than Dr. Zoom and the Sonic Boom: *Bruce Springsteen and the Hot Mammas*, making their debut performance in two shows at The Upstage. Bruce also plays an afternoon show on this date with The Sundance Blues Band.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1971-0521.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1971-0521.jpg.webp)
 
 **1974:** Bruce cuts the first version of “Born to Run” in the studio (instrumental only).<br>
 
@@ -38,7 +38,7 @@ post_id: 56798
 
 [Watch on Youtube: Rolling Stone Special - State of the Union (Bruce Springsteen)](https://www.youtube.com/watch?v=SsS2S0I_E6E)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/1998-05-21.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1998-05-21.jpg.webp)
 
 **1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of “You Can Look (But You Better Not Touch)” and the first “Meeting Across the River” in 20 years. Watch the soundcheck below, featuring a lovely, lonely “Racing in the Street” and a bit of Patti Scialfa’s beautiful ballad, “As Long As I (Can Be With You).”<br>
 
@@ -48,11 +48,11 @@ post_id: 56798
 
 **2000:** Still chugging along, the Reunion Tour stops in Anaheim for the first of two shows.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2000-05-21a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2000-05-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2000-05-21b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2000-05-21b.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2000-05-21c.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2000-05-21c.jpg.webp)
 
 **2006:** Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker interview with Bruce.<br>
 
@@ -66,9 +66,9 @@ post_id: 56798
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road - Izod Center, East Rutherford, NJ - 05-21-2009](https://www.youtube.com/watch?v=nHXjrvYwPWI)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2009-05-21a.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2009-05-21a.jpg.webp)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2009-05-21b.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2009-05-21b.jpg.webp)
 
 **2016:** When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres “My City of Ruins,” and “Land of Hope and Dreams.” Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html).<br>
 

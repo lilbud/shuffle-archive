@@ -12,13 +12,13 @@ post_id: 55133
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1971-11-27.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1971-11-27.png.webp)
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to the Dane County Memorial Coliseum in Madison, Wisconsin.<br>
 
 [Watch on Youtube: Bruce Springsteen, "Streets of Fire" - Madison, 1978-11-28](https://www.youtube.com/watch?v=18_SB3a9Jbo)
 
-**![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/47544237051_e03acb5d43_o.jpg.webp)**<br>
+**![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/47544237051_e03acb5d43_o.jpg.webp)**<br>
 
 **1980:** On Black Friday, Bruce and the band play their second of two nights at Madison Square Garden in New York City. This show features a very unusual "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)"/"[Living on the Edge of the World](../2018-10-18_roll-of-the-dice-living-on-the-edge-of-the-world/post.md)" (the latter of which hadn't even been released) mashup, as well as the tour premiere of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
 
@@ -30,7 +30,7 @@ post_id: 55133
 
 [Watch on Youtube: Bruce Springsteen - "Santa Claus is Comin' to Town" - Minneapolis, 1999-11-28](https://www.youtube.com/watch?v=WGTS8ii7nrU)
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1999-11-28.png.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1999-11-28.png.webp)
 
 **2007:** Bruce and the band play a fantastic Magic show in Milan to an Italian crowd that's on fire. For more highlights from this show, see my [*Where the Band Was* report.](../2018-11-28_where-the-band-was-milan-november-28-2007/post.md)<br>
 
@@ -64,4 +64,4 @@ post_id: 55133
 
 **2018:** *Springsteen on Broadway* begins the final leg of its theatrical run (minus Patti, who is absent tonight). In attendance: Patterson Hood of the Drive-By Truckers.<br>
 
-![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/2018-11-28.jpg.webp)
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/2018-11-28.jpg.webp)
