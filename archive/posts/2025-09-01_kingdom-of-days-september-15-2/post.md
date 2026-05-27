@@ -16,7 +16,7 @@ post_id: 59656
 
 **1976:** In the ongoing legal battle between Bruce and Mike Appel, a judge rules that Bruce is banned from entering a recording studio until the lawsuit is resolved. The only thing Bruce can do in the meantime is tour.<br>
 
-**1977:** Bruce wins in the Best Composer category for "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" (currently charting in the form of Manfred Mann's cover) at the third annual (and last ever) Rock Music Awards in Hollywood. He's not present for the ceremony, however–he's at The Record Plant recording studio in New York City, where he completes (for now) work on "[The Little Things (My Baby Does)](https://estreetshuffle.com/index.php/2022/03/04/roll-of-the-dice-the-little-things-my-baby-does/)." More than 30 years later, he'll pick it up again, finish it, and release it on *The Promise*.<br>
+**1977:** Bruce wins in the Best Composer category for "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" (currently charting in the form of Manfred Mann's cover) at the third annual (and last ever) Rock Music Awards in Hollywood. He's not present for the ceremony, however–he's at The Record Plant recording studio in New York City, where he completes (for now) work on "[The Little Things (My Baby Does)](../2022-03-04_roll-of-the-dice-the-little-things-my-baby-does/post.md)." More than 30 years later, he'll pick it up again, finish it, and release it on *The Promise*.<br>
 
 [Watch on Youtube: The Little Things (My Baby Does)](https://www.youtube.com/watch?v=pCAHAsxFVOQ)
 

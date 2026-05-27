@@ -30,7 +30,7 @@ post_id: 59500
 
 **1977:** Bruce and the band are in the studio, recording for what will become *Darkness on the Edge of Town*.<br>
 
-**1978:** Bruce and the E Street Band play their second of two nights at the Stanley Theater in Pittsburgh, where Bruce tour premieres "[It's My Life](../2021-11-23_cover-me-its-my-life/post.md)" and plays "[(I Heard That) Lonesome Whistle](https://estreetshuffle.com/index.php/2019/12/07/cover-me-i-heard-that-lonesome-whistle/)" for the first and only time to date. The TV show *PM Magazine* airs a segment shortly afterward, featuring footage from this show–check it out below.<br>
+**1978:** Bruce and the E Street Band play their second of two nights at the Stanley Theater in Pittsburgh, where Bruce tour premieres "[It's My Life](../2021-11-23_cover-me-its-my-life/post.md)" and plays "[(I Heard That) Lonesome Whistle](../2019-12-07_cover-me-i-heard-that-lonesome-whistle/post.md)" for the first and only time to date. The TV show *PM Magazine* airs a segment shortly afterward, featuring footage from this show–check it out below.<br>
 
 [Watch on Youtube: Bruce Springsteen - I HEARD THAT LONESOME WHISTLE 1978 (audio)](https://www.youtube.com/watch?v=eScrQVnfB34)
 

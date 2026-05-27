@@ -40,7 +40,7 @@ Four songs in, and I’d already checked off two of my most-chased songs. After 
 
 [Watch on Youtube: Bruce Springsteen The River (El Molinón, Gijón June 26 2013)](https://www.youtube.com/watch?v=4yZpmK05Ctg)
 
-When the pace picked up, the treats continued, starting with a rare outing of “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)”
+When the pace picked up, the treats continued, starting with a rare outing of “[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)”
 
 [Watch on Youtube: You Can Look (But You Better Not Touch) - Bruce Springsteen, Gijón 2013](https://www.youtube.com/watch?v=I8cuRqhA-bw)
 

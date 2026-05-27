@@ -52,7 +52,7 @@ post_id: 56856
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2001-05-27.jpg.webp)
 
-**2003:** At Night Two at London's Crystal Palace on the Rising Tour, Bruce opens with a solo acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
+**2003:** At Night Two at London's Crystal Palace on the Rising Tour, Bruce opens with a solo acoustic "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - She's The One](https://www.youtube.com/watch?v=dlAdt0dbmIM)
 

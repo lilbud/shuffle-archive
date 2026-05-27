@@ -84,7 +84,7 @@ post_id: 56765
 
 **2016:** Bruce and the E Street Band rehearse in Barcelona for the European leg of The River (Redux) Tour.<br>
 
-**2021:** Bruce receives the Woody Guthrie Prize from Nora Guthrie at his farm in Colts Neck, in a live-streamed event for members of the Woody Guthrie Center. Following his acceptance, Bruce performs a rarity-filled four-song acoustic set, featuring covers of "[Tom Joad](../2021-05-24_cover-me-tom-joad/post.md)" and "[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" and a gorgeous "[Across the Border.](../2020-09-06_roll-of-the-dice-across-the-border/post.md)"<br>
+**2021:** Bruce receives the Woody Guthrie Prize from Nora Guthrie at his farm in Colts Neck, in a live-streamed event for members of the Woody Guthrie Center. Following his acceptance, Bruce performs a rarity-filled four-song acoustic set, featuring covers of "[Tom Joad](../2021-05-24_cover-me-tom-joad/post.md)" and "[Plane Wreck at Los Gatos (Deportee)](../2020-01-05_cover-me-deportee-plane-wreck-at-los-gatos/post.md)" and a gorgeous "[Across the Border.](../2020-09-06_roll-of-the-dice-across-the-border/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/byP6Gb2q)
 

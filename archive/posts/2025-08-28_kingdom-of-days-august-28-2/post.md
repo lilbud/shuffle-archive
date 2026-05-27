@@ -28,7 +28,7 @@ post_id: 59499
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1978-0828.jpg.webp)
 
-**1981:** At the final show of a six-night River Tour stand at the Los Angeles Sports Arena, Bruce and the E Street Band cover "Proud Mary" and "[Deportee (Plane Wreck at Los Gatos)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" for the first time, and Flo and Eddie make a guest appearance on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" reprising their studio backing vocals.<br>
+**1981:** At the final show of a six-night River Tour stand at the Los Angeles Sports Arena, Bruce and the E Street Band cover "Proud Mary" and "[Deportee (Plane Wreck at Los Gatos)](../2020-01-05_cover-me-deportee-plane-wreck-at-los-gatos/post.md)" for the first time, and Flo and Eddie make a guest appearance on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" reprising their studio backing vocals.<br>
 
 [Watch on Youtube: Bruce Springsteen: Proud Mary (LA, 08/28/1981)](https://www.youtube.com/watch?v=WnXIhhkINpM)
 

@@ -20,7 +20,7 @@ But August gave way to September and the end of the River Tour, and Bruce retrea
 
 Out of the public eye, Bruce's ability to continue to raise awareness for the VVA was diminished. So instead of speaking publicly, he did what he does best: he wrote a song.
 
-He wrote many songs, actually: Out of the fertile period that generated both his *Nebraska* and *Born in the U.S.A.* albums, several dealt with characters either directly or indirectly affected by wartime experiences: "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" is the obvious one, but "[Shut Out the Light,](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)" "[A Good Man is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)," and "Highway Patrolman" also date from this period and show how large the war loomed in Bruce's mind. Each song spotlights an ordinary person grappling with the trauma inflicted by the war and making their way in a world that no longer makes sense to them.
+He wrote many songs, actually: Out of the fertile period that generated both his *Nebraska* and *Born in the U.S.A.* albums, several dealt with characters either directly or indirectly affected by wartime experiences: "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" is the obvious one, but "[Shut Out the Light,](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)" "[A Good Man is Hard to Find (Pittsburgh)](../2021-04-30_roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/post.md)," and "Highway Patrolman" also date from this period and show how large the war loomed in Bruce's mind. Each song spotlights an ordinary person grappling with the trauma inflicted by the war and making their way in a world that no longer makes sense to them.
 
 Many artists focused on the horrors of wartime, but Bruce was one of the very first to focus on the horrors that come after.
 
@@ -97,7 +97,7 @@ The song ends with our narrator arriving in Vietnam. (Ironically, when those lyr
 
 Obviously, "Born in the U.S.A." still has miles to travel before it reaches its final form, but it's important to note just how early Bruce latched on to the power of that phrase. Here, as in the final song, it serves as a statement of birthright, an indictment of the social inequality that leaves him no other choice but to enlist, and a symbol of the narrator's alien presence in a foreign land.
 
-***To be continued in Roll of the Dice: "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"***<br>
+***To be continued in Roll of the Dice: "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)"***<br>
 
 **Vietnam**<br>
 **Recorded:** Autumn 1981<br>

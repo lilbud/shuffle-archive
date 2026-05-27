@@ -16,7 +16,7 @@ post_id: 55576
 
 [Watch on Youtube: Bruce Springsteen Restless Nights #5](https://www.youtube.com/watch?v=KsosBOD17_0)
 
-**1985:** Bruce releases Arthur Baker’s 12-inch “Freedom Mix” of “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)”<br>
+**1985:** Bruce releases Arthur Baker’s 12-inch “Freedom Mix” of “[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)”<br>
 
 [Watch on Youtube: Born In The U.S.A. (The Freedom Mix) - Bruce Springsteen](https://www.youtube.com/watch?v=DsNQb0KO5Zo)
 

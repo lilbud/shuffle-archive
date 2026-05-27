@@ -60,7 +60,7 @@ post_id: 57108
 
 [Watch Video Highlight](https://videopress.com/embed/5vc82MI0)
 
-**2006:** Bruce and the Sessions Band make a tour stop at the DTE Energy Music Theater in Clarkston, Michigan. The performance of "[Bring 'Em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)" on the *American Land* edition of [*We Shall Overcome*](../2022-07-17_album-companion-we-shall-overcome/post.md) was recorded at this show, as was the official video for "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
+**2006:** Bruce and the Sessions Band make a tour stop at the DTE Energy Music Theater in Clarkston, Michigan. The performance of "[Bring 'Em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)" on the *American Land* edition of [*We Shall Overcome*](../2006-01-01_album-companion-we-shall-overcome/post.md) was recorded at this show, as was the official video for "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down (Tour Version Video)](https://www.youtube.com/watch?v=BYF8IntUFZI)
 

@@ -28,7 +28,7 @@ The track was called "Making Love Out of Nothing at All," and like "Total Eclips
 
 Like "Total Eclipse of the Heart" before it, "Making Love Out of Nothing at All" became a smash hit, kept from the top spot on the Billboard Top 100 by Tyler's hit, which means that for three weeks in 1983, Steinman's songs commanded both the #1 and #2 slots.
 
-So perhaps we have Steinman to thank (or blame) for Air Supply's cover of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)," which graced their second eponymous album in 1985.
+So perhaps we have Steinman to thank (or blame) for Air Supply's cover of "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)," which graced their second eponymous album in 1985.
 
 Because while Air Supply may have recorded a few songs written by others, they generally were not a cover band. So it's curious to see Sandy pop up on one of their albums, let alone the very next one following their collaboration with The Professor and The Mighty One.
 

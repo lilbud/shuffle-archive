@@ -8,7 +8,7 @@ categories: cover-me cover-you roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/Oh-Mary-Dont-You-Weep.jpg
 post_id: 36168
 ---
-Of all the traditional songs that Bruce Springsteen arranged and recorded for [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md), none have proved more musically versatile than "O Mary Don't You Weep."
+Of all the traditional songs that Bruce Springsteen arranged and recorded for [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md), none have proved more musically versatile than "O Mary Don't You Weep."
 
 "O Mary Don't You Weep" is a pre-Civil War African-American spiritual that draws heavily on biblical imagery from both testaments. Contrary to popular belief, the titular Mary is not the mother of Jesus; nor is it Mary Magdalene. The song refers to Mary of Bethany, who grieved with Jesus over the death of her brother Lazarus. (Many versions of the song refer to Mary's sister Martha also.) Moved by Mary's grief, Jesus raised Lazarus from the dead.
 
@@ -88,7 +88,7 @@ Bruce even performed it at a mini-reunion of the Sessions Band in 2015. (In actu
 
 **O Mary Don't You Weep**<br>
 **Recorded:** March 19, 2005<br>
-**Released:** *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)*(2006)<br>
+**Released:** *[We Shall Overcome: The Seeger Sessions](../2006-01-01_album-companion-we-shall-overcome/post.md)*(2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** May 16, 2015 (New York City, NY)<br>
 

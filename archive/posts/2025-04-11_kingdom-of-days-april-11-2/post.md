@@ -82,6 +82,6 @@ post_id: 56432
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** At the second of two nights at UBS Arena in Elmont New York, Bruce and the E Street Band tour premiere "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
+**2023:** At the second of two nights at UBS Arena in Elmont New York, Bruce and the E Street Band tour premiere "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Born in the U.S.A. - Live Elmont NY 4/11/23](https://www.youtube.com/watch?v=e4cqs2bbK68)

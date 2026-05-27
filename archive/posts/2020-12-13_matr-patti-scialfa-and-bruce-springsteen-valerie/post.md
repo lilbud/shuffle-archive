@@ -12,7 +12,7 @@ post_id: 23382
 
 Until that revelatory confession, I'd always wondered why Patti chose to play "Valerie" during her promotional tour for *Rumble Doll*, her 1993 debut album.
 
-Not that "Valerie" is a bad song–quite the opposite, as illustrated by Bruce's awestruck reaction to his first listen. But it wasn't the album's first single–that honor belonged to "Lucky Girl." Or even its second ("[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)").
+Not that "Valerie" is a bad song–quite the opposite, as illustrated by Bruce's awestruck reaction to his first listen. But it wasn't the album's first single–that honor belonged to "Lucky Girl." Or even its second ("[As Long As I (Can Be With You)](../2018-10-02_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/post.md)").
 
 In fact, "Valerie" was never released as a single, and yet during a rare in-studio radio appearance in July 1993 (the month that *Rumble Doll* was released), "Valerie" is the song she chose to play.
 

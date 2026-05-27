@@ -14,7 +14,7 @@ post_id: 61074
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/1967-1007.jpg.webp)
 
-**1980:** At Night Two in Richfield on the River Tour, Bruce and the E Street Band play "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" for the very first time.<br>
+**1980:** At Night Two in Richfield on the River Tour, Bruce and the E Street Band play "[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)" for the very first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/43CW31ld)
 

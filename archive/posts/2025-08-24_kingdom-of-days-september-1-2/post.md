@@ -14,7 +14,7 @@ post_id: 59529
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1969-0901.jpg.webp)
 
-**1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of "[It's Time to Go Home,](../1972-01-17_roll-of-the-dice-its-time-to-go-home/post.md)" covers of "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)," "[(Get Your Kicks On) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/)" and "[The Night They Drove Old Dixie Down](../2020-06-13_cover-me-the-night-they-drove-old-dixie-down/post.md)," the fun "[Dance Dance Dance](../1972-01-05_roll-of-the-dice-dance-dance-dance/post.md)" and more.<br>
+**1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of "[It's Time to Go Home,](../1972-01-17_roll-of-the-dice-its-time-to-go-home/post.md)" covers of "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)," "[(Get Your Kicks On) Route 66](../2019-08-15_cover-me-get-your-kicks-on-route-66/post.md)" and "[The Night They Drove Old Dixie Down](../2020-06-13_cover-me-the-night-they-drove-old-dixie-down/post.md)," the fun "[Dance Dance Dance](../1972-01-05_roll-of-the-dice-dance-dance-dance/post.md)" and more.<br>
 
 [Watch on Youtube: Bruce Springsteen Band - ROUTE 66 1971 (audio)](https://www.youtube.com/watch?v=I1hdt69lcSw)
 

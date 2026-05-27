@@ -48,7 +48,7 @@ post_id: 62408
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1996-11-20.png.webp)
 
-**1998:** Bruce sits down for a remarkable 50-minute television interview with Charlie Rose and performs an acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Both are must-watch.<br>
+**1998:** Bruce sits down for a remarkable 50-minute television interview with Charlie Rose and performs an acoustic "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" Both are must-watch.<br>
 
 [Watch Video](https://charlierose.com/video/player/16872)
 

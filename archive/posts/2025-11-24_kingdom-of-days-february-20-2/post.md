@@ -28,7 +28,7 @@ post_id: 55971
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1981-02-19b.png.webp)
 
-**1982:** Bruce joins John Cafferty and Beaver Brown at Big Man’s West in Red Bank, New Jersey for “[Ain’t That a Shame](../2018-03-08_meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/post.md),” “[Money (That’s What I Want)](https://estreetshuffle.com/index.php/2019/11/26/matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/)” and “[You Can’t Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/).”<br>
+**1982:** Bruce joins John Cafferty and Beaver Brown at Big Man’s West in Red Bank, New Jersey for “[Ain’t That a Shame](../2018-03-08_meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/post.md),” “[Money (That’s What I Want)](../2019-11-26_matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/post.md)” and “[You Can’t Sit Down](../2018-06-21-cover-me-you-cant-sit-down/post.md/).”<br>
 
 [Watch on Youtube: ain't that a shame ( cover Fats Domino )](https://www.youtube.com/watch?v=4E-nYKWhBOw)
 

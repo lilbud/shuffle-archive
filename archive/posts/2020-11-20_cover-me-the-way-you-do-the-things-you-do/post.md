@@ -36,7 +36,7 @@ https://www.youtube.com/watch?v=iG38kyraN7Q
 
 "The Way You Do The Things You Do" was a show-stopping highlight of Bruce's Apollo show. Unsurprisingly, he kept it around, performing it frequently throughout the early legs of the Wrecking Ball Tour, less so during the latter ones.
 
-Blended with "[634-5789 (Soulsville, U.S.A.)](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)," the combined performance became known as the "Apollo Medley," and it proved a nightly showcase for the vocalists of the E Street Band–particularly new member Jake Clemons, who quickly established a rapport with fans and by mid-tour had become a crowd-pleasing favorite.
+Blended with "[634-5789 (Soulsville, U.S.A.)](../2018-08-14_cover-me-634-5789-soulsville-u-s-a/post.md)," the combined performance became known as the "Apollo Medley," and it proved a nightly showcase for the vocalists of the E Street Band–particularly new member Jake Clemons, who quickly established a rapport with fans and by mid-tour had become a crowd-pleasing favorite.
 
 In the clip below (one of the song's very last outings to date), we can see that Jake had done his homework. Compare his physical performance with The Temptations above, and you'll notice some undoubtedly intentional similarities.
 

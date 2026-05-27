@@ -42,7 +42,7 @@ post_id: 56135
 
 [Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/watch?v=0LpdEyGhNxM)
 
-**1983:** Bruce records "[The Klansman](../2018-10-15_roll-of-the-dice-the-klansman/post.md)" in his home studio. This haunting gem remains unreleased to this day.<br>
+**1983:** Bruce records "[The Klansman](../1983-01-16_roll-of-the-dice-the-klansman/post.md)" in his home studio. This haunting gem remains unreleased to this day.<br>
 
 [Watch on Youtube: Bruce Springsteen-The Klansman](https://www.youtube.com/watch?v=1ewhMge_MXM)
 

@@ -8,9 +8,9 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/watwcover.jpg
 post_id: 24943
 ---
-Editor's Note
-
-***Editor's Note:*** *Today's guest blogger is Clyde Kaplan, former music and television audio mixer, former television associate director–now happily retired.* *In 1985, though, Clyde was an assistant engineer at A&M Studios in Hollywood, a gig that placed him behind the scenes at one of the most exclusive and star-studded Springsteen appearances ever.*<br>
+> **Editor's Note**
+>
+> *Today's guest blogger is Clyde Kaplan, former music and television audio mixer, former television associate director–now happily retired.* *In 1985, though, Clyde was an assistant engineer at A&M Studios in Hollywood, a gig that placed him behind the scenes at one of the most exclusive and star-studded Springsteen appearances ever.*<br>
 
 After three years working at a recording studio in New York called Aura Recording, I got an offer to work at A&M Records in Los Angeles. In 1981, my wife and I packed up and moved to California. There were a lot of long nights and weekends, but I was still surprised to see all four studios and three mixing rooms blocked out for Quincy Jones on January 28 and 29. I didn't know what the project was, but I was told I would be working on it and wouldn't be making any overtime. A few days later, I saw a news report about an all-star recording session at an unnamed studio in Hollywood with Quincy Jones. I thought about it, then said to my wife, "I think I'm working on that."
 

@@ -75,7 +75,7 @@ We never learn whether he makes it home, though–the song leaves our soldier wi
 
 While "Coming Home" never saw the light of day (officially), it wouldn't be the last time Bruce would write about a returning Vietnam veteran.
 
-But in 1972, [that story](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md) was still burning ten years down the road.
+But in 1972, [that story](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md) was still burning ten years down the road.
 
 **Coming Home**<br>
 **Recorded** March 14, 1972<br>

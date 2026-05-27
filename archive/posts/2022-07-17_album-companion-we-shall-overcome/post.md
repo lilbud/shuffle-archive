@@ -8,11 +8,11 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/5sonlph83439-large__05930.jpg
 post_id: 36318
 ---
-Editor's Note
-
-With last Friday's entry, *We Shall Overcome: The Seeger Sessions* becomes the second Springsteen studio album to receive the complete *Roll of the Dice* treatment–although in this exceptional case, it's actually the *Cover Me* treatment, since the album is comprised entirely of covers except for one track on the *American Land Edition*.
-
-While you read the backstory to the album itself below, I hope you'll take a few minutes to explore the links to the individual songs, too. If you do, you'll hopefully discover (as I did while writing them) history, context, and nuance that will deepen your appreciation for both the source material and Bruce's interpretations.
+> **Editor's Note**
+>
+> With last Friday's entry, *We Shall Overcome: The Seeger Sessions* becomes the second Springsteen studio album to receive the complete *Roll of the Dice* treatment–although in this exceptional case, it's actually the *Cover Me* treatment, since the album is comprised entirely of covers except for one track on the *American Land Edition*.
+>
+> While you read the backstory to the album itself below, I hope you'll take a few minutes to explore the links to the individual songs, too. If you do, you'll hopefully discover (as I did while writing them) history, context, and nuance that will deepen your appreciation for both the source material and Bruce's interpretations.
 
 On September 23, 1997, Bruce Springsteen threw himself a 48th birthday party.
 
@@ -66,7 +66,7 @@ The second session was just as informal as the first: no rehearsing and the on-t
 
 [Watch Video Highlight](https://videopress.com/embed/5O29C2xZ)
 
-Bruce still didn't feel like he had enough material to choose from, but he had a tour waiting so once again the recordings went into the vault. Not for long this time, though–once his acoustic tour wrapped, Bruce almost immediately reassembled his players (adding yet another player, vocalist Lisa Lowell) and recorded another eight songs: "[Jacob's Ladder](../2006-01-08_rotd-cover-me-jacobs-ladder/post.md)," "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)," "[Eyes on the Prize](../2006-01-10_cover-me-eyes-on-the-prize/post.md)," "[How Can I Keep From Singing](../2006-01-16_cover-me-how-can-i-keep-from-singing/post.md)," "[Bring 'Em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)," "[If I Had a Hammer (The Hammer Song)](https://estreetshuffle.com/index.php/2019/10/07/cover-me-if-i-had-a-hammer/)" and the still unreleased "Worried Man Blues." They also recorded an original Springsteen song that day–a version of "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" that remains unheard to this day.
+Bruce still didn't feel like he had enough material to choose from, but he had a tour waiting so once again the recordings went into the vault. Not for long this time, though–once his acoustic tour wrapped, Bruce almost immediately reassembled his players (adding yet another player, vocalist Lisa Lowell) and recorded another eight songs: "[Jacob's Ladder](../2006-01-08_rotd-cover-me-jacobs-ladder/post.md)," "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)," "[Eyes on the Prize](../2006-01-10_cover-me-eyes-on-the-prize/post.md)," "[How Can I Keep From Singing](../2006-01-16_cover-me-how-can-i-keep-from-singing/post.md)," "[Bring 'Em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)," "[If I Had a Hammer (The Hammer Song)](../2019-10-07_cover-me-if-i-had-a-hammer/post.md)" and the still unreleased "Worried Man Blues." They also recorded an original Springsteen song that day–a version of "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" that remains unheard to this day.
 
 "Everything on the record was cut in those three one-day sessions," the famously perfectionist Springsteen marveled, "mostly first or second takes, all live and with a band I'd never played a note with before they showed up at our farm barn dance." The sessions were remarkably, intentionally loose–Bruce leaned into the New Orleans vibe by plying his players with alcohol to create the barroom sound he was looking for, and by taking them outside to inspire spontaneity.
 

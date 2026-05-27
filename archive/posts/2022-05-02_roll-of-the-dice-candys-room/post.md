@@ -8,16 +8,16 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/badlands_sin-nl-07i-6678.jpg
 post_id: 34350
 ---
-Editor's Note
-
-And now (finally) we arrive at the final installment of our deep dive into "Candy's Room."
-
-Even for an artist like Bruce, who tends to cobble songs from parts like souped-up cars, the evolution of "Candy's Room" is tricky to trace. We've covered a lot of essential ground already, so if you haven't already read the first two installments or could use a refresher, I highly recommend starting with these two *Roll of the Dice* installments before reading any further:
-
-- "[Candy's Boy](../2020-09-02_roll-of-the-dice-candys-boy/post.md)" (September 2020)
-- "[The Fast Song](../2021-01-30_roll-of-the-dice-the-fast-song/post.md)" (January 2021)
-
-Caught up? Great–then let's continue.
+> **Editor's Note**
+>
+> And now (finally) we arrive at the final installment of our deep dive into "Candy's Room."
+>
+> Even for an artist like Bruce, who tends to cobble songs from parts like souped-up cars, the evolution of "Candy's Room" is tricky to trace. We've covered a lot of > essential ground already, so if you haven't already read the first two installments or could use a refresher, I highly recommend starting with these two *Roll of the Dice* installments before reading any further:
+>
+> - "[Candy's Boy](../2020-09-02_roll-of-the-dice-candys-boy/post.md)" (September 2020)
+> - "[The Fast Song](../2021-01-30_roll-of-the-dice-the-fast-song/post.md)" (January 2021)
+>
+> Caught up? Great–then let's continue.
 
 We left Bruce and the band on September 2, 1977–the day they finished both the version of "Candy's Boy" that appears on *The Promise* and the last known version of "The Fast Song." In the latter, Bruce had the completed music for "Candy's Room," but the lyrics were still floating unresolved between the two.
 

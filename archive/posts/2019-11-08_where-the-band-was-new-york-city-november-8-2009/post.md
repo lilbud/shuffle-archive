@@ -8,10 +8,10 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/20091108_13_booklet1.jpg
 post_id: 13976
 ---
-Editor's Note
-
-***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips.*<br>
-
+> **Editor's Note**
+>
+> *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips.*
+>
 > *Marietta has shared a lot of her Springsteen concert memories with me over the years, but this one has always been my favorite. Ever wonder how that back-of-the-pit riser became such valuable real estate? Read on…*<br>
 
 There was the 1980-1981 River Tour.
@@ -52,7 +52,7 @@ We lasted about a minute, until his call for "Security!" in between giggles ushe
 
 Right before she gets down, Sharon looks over at Bruce and gives him a little wave, like she's checking with him to make sure he's good with us leaving. It slays me every time I see it. He called out, "Let's hear it for the ladies!"
 
-During "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)," the final encore, as Bruce ran through the crowd, he waved over the singers and brought them up on that riser.
+During "[(Your Love Keeps Lifting Me) Higher and Higher](../2018-09-23_cover-me-your-love-keeps-lifting-me-higher-and-higher/post.md)," the final encore, as Bruce ran through the crowd, he waved over the singers and brought them up on that riser.
 
 [Watch on Youtube: Bruce Springsteen "Higher and Higher" 11-8-09 Madison Square Garden](https://www.youtube.com/watch?v=3f3rHrTfbO0)
 

@@ -8,11 +8,11 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/greetings.jpg
 post_id: 40499
 ---
-Editor's Note
-
-With last Sunday's entry, *Greetings From Asbury Park, N.J.* becomes the fourth Springsteen studio album to receive the complete *Roll of the Dice* treatment.
-
-If you've joined me along the way of this five-year exploration, you might find it interesting to explore some of the earlier essays you missed. If you've been with me from the beginning, these articles are now updated and crosslinked to help explore the connections, genealogy, and comparisons between songs.
+> **Editor's Note:**
+>
+> With last Sunday's entry, *Greetings From Asbury Park, N.J.* becomes the fourth Springsteen studio album to receive the complete *Roll of the Dice* treatment.
+>
+> If you've joined me along the way of this five-year exploration, you might find it interesting to explore some of the earlier essays you missed. If you've been with me from the beginning, these articles are now updated and crosslinked to help explore the connections, genealogy, and comparisons between songs.
 
 Fifty years ago today, Columbia Records introduced their hot new up-and-coming singer-songwriter to the world.
 

@@ -22,7 +22,7 @@ Today, they've recruited [Rett Madison](https://www.rettmadison.com/), a new sin
 
 But wait, there's more!
 
-Scary Pockets also has a sub-brand called Stories, featuring acoustic but no less inventive renditions of well-known songs. A few months back, we checked out[their version](../2020-07-17_cover-me-stories-featuring-garrison-starr/post.md) of Bruce's "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" featuring Garrison Starr.
+Scary Pockets also has a sub-brand called Stories, featuring acoustic but no less inventive renditions of well-known songs. A few months back, we checked out[their version](../2020-07-17_cover-me-stories-featuring-garrison-starr/post.md) of Bruce's "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" featuring Garrison Starr.
 
 That wasn't the only time they acoustically tackled one of Bruce's songs, though. Here's prolific singer-songwriter [George Krikes](https://www.georgekrikes.net/) (with three albums and five EPs under his belt between his band and solo efforts) and his moody, melodic cover of "I'm on Fire."
 

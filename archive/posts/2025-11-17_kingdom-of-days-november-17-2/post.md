@@ -114,7 +114,7 @@ post_id: 62386
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/11/Daily_News_Thu__Nov_19__2009_-scaled.jpg.webp)
 
-**2011:** Bruce and Jessica take in Taylor Swift's concert in Raleigh. Backstage, he borrows Taylor's guitar, plays "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," and signs the guitar for her. Watch Taylor tell the story and show a clip of Bruce's impromptu performance below (and check out her own cover of "Dancing in the Dark" [here).](https://estreetshuffle.com/index.php/2018/11/14/cover-me-taylor-swift-dancing-in-the-dark/)<br>
+**2011:** Bruce and Jessica take in Taylor Swift's concert in Raleigh. Backstage, he borrows Taylor's guitar, plays "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," and signs the guitar for her. Watch Taylor tell the story and show a clip of Bruce's impromptu performance below (and check out her own cover of "Dancing in the Dark" [here).](../2018-11-14_cover-me-taylor-swift-dancing-in-the-dark/post.md)<br>
 
 [Watch on Youtube: Exclusive! Taylor Swift's Springsteen Story on Ellen show](https://www.youtube.com/watch?v=fOpbhV-aLew)
 

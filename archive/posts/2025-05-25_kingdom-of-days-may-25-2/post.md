@@ -48,11 +48,11 @@ post_id: 56836
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1999-05-25.jpg.webp)
 
-**2006:** [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) is certified gold by the Recording Industry Association of America.<br>
+**2006:** [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md) is certified gold by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Bruce Springsteen - Old Dan Tucker](https://www.youtube.com/watch?v=Iuh96kiIU2M?list=PLk9jHCsuoh6mPdX4YMgcpjjqh2IW4oDmZ)
 
-**2008:** Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
+**2008:** Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen "Sandy " RDS Arena 25/5/2008](https://www.youtube.com/watch?v=0jxZCgUa79A)
 

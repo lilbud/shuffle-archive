@@ -36,7 +36,7 @@ post_id: 57666
 
 [Watch on Youtube: Bruce Springsteen: Helsinki '08 - Santa Claus Is Coming To Town](https://www.youtube.com/watch?v=0stcLuNJlIQ)
 
-**2009:** Jake Clemons makes his debut on an E Street Band stage when he guest-stars on sax during "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" as the Working on a Dream Tour stops for the first of two nights at RDS Arena in Dublin. (How strange to see him next to Clarence–the intersection of E Street Past and Present!) Bruce's son Evan joins the band as well, playing acoustic guitar on "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)." Tour debuting tonight: "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)."<br>
+**2009:** Jake Clemons makes his debut on an E Street Band stage when he guest-stars on sax during "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" as the Working on a Dream Tour stops for the first of two nights at RDS Arena in Dublin. (How strange to see him next to Clarence–the intersection of E Street Past and Present!) Bruce's son Evan joins the band as well, playing acoustic guitar on "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)." Tour debuting tonight: "[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out - Dublin 2009-07-11 CLOSEUP](https://www.youtube.com/watch?v=BLQMbiz0mYE)
 

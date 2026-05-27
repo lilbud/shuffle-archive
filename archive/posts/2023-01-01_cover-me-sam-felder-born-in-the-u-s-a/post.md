@@ -14,6 +14,6 @@ Still a couple of weeks away (as of this writing) from the release of his debut 
 
 So yeah, expectations are high for his debut album, but I suspect “the new Dylan” is pulling for him.
 
-In the meantime, we have several of Fender’s Springsteen covers to listen to, and he certainly doesn’t shy away from the iconic ones–here’s a smoking rendition of Bruce’s “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)”
+In the meantime, we have several of Fender’s Springsteen covers to listen to, and he certainly doesn’t shy away from the iconic ones–here’s a smoking rendition of Bruce’s “[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)”
 
 [Watch on Youtube: The Tunnel — Sam Fender - Dancing in the dark (Bruce Springsteen cover)](https://www.youtube.com/watch?v=mwpMYm92Mos)

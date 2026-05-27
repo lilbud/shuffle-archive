@@ -24,7 +24,7 @@ post_id: 55607
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3)
 
-**1983:** Bruce records “[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)” and “[One Love](../2019-04-23_roll-of-the-dice-one-love/post.md).” The former will be released as a 1984 B-side (and on *Tracks* fifteen years later); the latter is unreleased to this day.<br>
+**1983:** Bruce records “[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)” and “[One Love](../1983-01-13_roll-of-the-dice-one-love/post.md).” The former will be released as a 1984 B-side (and on *Tracks* fifteen years later); the latter is unreleased to this day.<br>
 
 [Watch on Youtube: Shut Out The Light](https://www.youtube.com/watch?v=1w_S4JhQ2lE)
 

@@ -54,7 +54,7 @@ post_id: 57122
 
 [Watch on Youtube: Copenhagen (6/22/2005)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1D-h5b2aQCFM2wJZ8n-7x-2)
 
-**2006:** Bruce opens with the debut of a new song at his Seeger Sessions show in Madison Square Garden: "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)." This is the performance that is included on the *American Land* edition of [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md).<br>
+**2006:** Bruce opens with the debut of a new song at his Seeger Sessions show in Madison Square Garden: "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)." This is the performance that is included on the *American Land* edition of [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - American Land (Live tour Video)](https://www.youtube.com/watch?v=tpeisHYbKdE)
 

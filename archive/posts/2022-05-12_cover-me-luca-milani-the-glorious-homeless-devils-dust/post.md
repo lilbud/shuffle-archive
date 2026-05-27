@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/05/milani.jpg
 post_id: 34622
 ---
-If "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," a protest song born of the blues, works as rock anthem, then why wouldn't "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)"?
+If "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)," a protest song born of the blues, works as rock anthem, then why wouldn't "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)"?
 
 "I did a version like that myself in the studio... and it worked very well," Bruce told Brian Hiatt in *Bruce Springsteen: The Stories Behind the Songs*.
 

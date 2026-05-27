@@ -20,7 +20,7 @@ This was more than just Bruce backing Billy on guitar. The two rock legends trad
 
 [Watch Video Highlight](https://videopress.com/embed/O1F4I4Si)
 
-That concert featured a treasure chest of one-time-only Springsteen performances of Billy Joel Classics (see “[Movin’ Out (Anthony’s Song)](https://estreetshuffle.com/index.php/2020/04/27/matr-billy-joel-and-bruce-springsteen-movin-out-anthonys-song/)” and “[A Matter of Trust](../2020-03-17_matr-billy-joel-and-bruce-springsteen-a-matter-of-trust/post.md)” for two of them), but this one’s my favorite.
+That concert featured a treasure chest of one-time-only Springsteen performances of Billy Joel Classics (see “[Movin’ Out (Anthony’s Song)](../2020-04-27_matr-billy-joel-and-bruce-springsteen-movin-out-anthonys-song/post.md)” and “[A Matter of Trust](../2020-03-17_matr-billy-joel-and-bruce-springsteen-a-matter-of-trust/post.md)” for two of them), but this one’s my favorite.
 
 Here’s hoping for an encore performance–for both the song and a show-length team-up–sometime soon.
 

@@ -30,7 +30,7 @@ post_id: 55972
 
 [Watch Video Highlight](https://videopress.com/embed/yVJU9zQW)
 
-**2016:** The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” makes its tour debut. Bruce and Patti also record a tribute greeting for James Burrows, which airs on television that evening.<br>
+**2016:** The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where “[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)” makes its tour debut. Bruce and Patti also record a tribute greeting for James Burrows, which airs on television that evening.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/oa55aClm)
 

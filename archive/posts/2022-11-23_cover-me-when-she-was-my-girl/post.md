@@ -24,7 +24,7 @@ Thematically and lyrically, "When She Was My Girl" could have been a sequel to "
 
 Riding the success of their hit single, the Four Tops returned to Motown in 1983, but except for a minor-charting team-up with Smokey Robinson on "Indestructible" in 1988, the group never had a Top Forty single again.
 
-With such iconic Holland-Dozier-Holland singles like "Baby I Need Your Loving," "[I Can't Help Myself (Sugar Pie Honey Bunch)](https://estreetshuffle.com/index.php/2018/09/30/meeting-across-the-river-the-four-tops-diana-ross-and-bruce-springsteen-i-cant-help-myself/)," "It's the Same Old Song," and "Reach Out I'll Be There" to their credit, it's a bit surprising that Bruce Springsteen chose "When She Was My Girl" to represent the Four Tops on his latest album. (The Holland-Dozier-Holland penned "7 Rooms of Gloom" also appears.)
+With such iconic Holland-Dozier-Holland singles like "Baby I Need Your Loving," "[I Can't Help Myself (Sugar Pie Honey Bunch)](../2018-09-30_meeting-across-the-river-the-four-tops-diana-ross-and-bruce-springsteen-i-cant-help-myself/post.md)," "It's the Same Old Song," and "Reach Out I'll Be There" to their credit, it's a bit surprising that Bruce Springsteen chose "When She Was My Girl" to represent the Four Tops on his latest album. (The Holland-Dozier-Holland penned "7 Rooms of Gloom" also appears.)
 
 But only a little bit, because "When She Was My Girl" is undeniably fun to sing.
 

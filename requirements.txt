@@ -4,4 +4,7 @@ lxml
 user-agent
 markdown
 pandas
-standardebooks
+psycopg[binary,pool]
+python-dotenv
+yt-dlp
+yt-dlp-ejs

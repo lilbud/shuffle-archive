@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/12/whistle.jpeg
 post_id: 39588
 ---
-Earlier this week, we took a listen to Bruce Springsteen's unreleased *Nebraska*-era work-in-progress, "[James Lincoln Deere](../2022-11-29_roll-of-the-dice-james-lincoln-deere/post.md)."
+Earlier this week, we took a listen to Bruce Springsteen's unreleased *Nebraska*-era work-in-progress, "[James Lincoln Deere](../1983-01-10_roll-of-the-dice-james-lincoln-deere/post.md)."
 
 Springsteen's 1982 acoustic home demo featured a protagonist driven to cold-blooded murder by unemployment and a brutal economy. "James Lincoln Deere" was too heavy-handed to earn an official release, but Bruce wasn't ready to give up on his protagonist just yet.
 
@@ -44,7 +44,7 @@ Released from prison for good behavior, Jimmy marries Pat and does his best with
 
 To fully appreciate the evolution in Bruce's songwriting, it's important to understand the very different character portrait Bruce draws with almost the exact same words. At this point in the two songs, James Lincoln is a 22-year-old newlywed making a decent living and easily resisting the overtures of his criminal brother-in-law. By contrast, James Lucas is a reformed ex-con (for what, we never learn), doing his best to stay on the straight and narrow but finding his honest job to be insufficient for feeding his family.
 
-What happens to good people when outside forces make it impossible to survive when you play by the rules? It's a question that obviously fascinated Springsteen; he'd ask it again and again as recently as "[Swallowed Up (In the Belly of the Whale.)](https://estreetshuffle.com/index.php/2020/05/07/roll-of-the-dice-swallowed-up-in-the-belly-of-the-whale/)"
+What happens to good people when outside forces make it impossible to survive when you play by the rules? It's a question that obviously fascinated Springsteen; he'd ask it again and again as recently as "[Swallowed Up (In the Belly of the Whale.)](../2020-05-07_roll-of-the-dice-swallowed-up-in-the-belly-of-the-whale/post.md)"
 
 James Lucas almost immediately starts making moral compromises, rationalizing and justifying as he skims from his decent but wealthy employer.
 

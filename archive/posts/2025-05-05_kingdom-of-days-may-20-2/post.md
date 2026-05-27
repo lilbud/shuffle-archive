@@ -28,7 +28,7 @@ post_id: 56797
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/05/The_Star_Tue__May_25__1993_.jpg.webp)
 
-**1995:** Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance and perform, including Bruce on "[634-5789 (Soulsville, U.S.A.)](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)"<br>
+**1995:** Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance and perform, including Bruce on "[634-5789 (Soulsville, U.S.A.)](../2018-08-14_cover-me-634-5789-soulsville-u-s-a/post.md)"<br>
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1995-0520.jpg.webp)
 

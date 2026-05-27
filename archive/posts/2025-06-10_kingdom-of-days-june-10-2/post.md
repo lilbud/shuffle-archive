@@ -26,13 +26,13 @@ post_id: 57047
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1978-06-10b.jpg.webp)
 
-**1983:** Bruce and the E Street Band record "[Richfield Whistle](../2022-12-01_roll-of-the-dice-richfield-whistle/post.md)" at The Hit Factory in New York City. As of this writing, it has yet to see an official release (but stay tuned).<br>
+**1983:** Bruce and the E Street Band record "[Richfield Whistle](../1983-01-15_roll-of-the-dice-richfield-whistle/post.md)" at The Hit Factory in New York City. As of this writing, it has yet to see an official release (but stay tuned).<br>
 
 **1984:** Bruce and Nils join Cats on a Smooth Surface at the band's Stone Pony gig.<br>
 
 **1988:** Bruce and the E Street Band play a warm-up set at Stadio Comunale in Turin, the day before the kick-off of the European leg of the Tunnel of Love Tour.<br>
 
-**2003:** "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" makes its first post-Reunion appearance at Bruce's Rising show in Munich. Bruce opens the show with a solo acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and plays "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" in Germany for the first time.<br>
+**2003:** "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" makes its first post-Reunion appearance at Bruce's Rising show in Munich. Bruce opens the show with a solo acoustic "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" and plays "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" in Germany for the first time.<br>
 
 [Watch on Youtube: Bruce Springsteen Munich 10/06/2003 soundcheck](https://www.youtube.com/watch?v=vyyQCkZul3I)
 

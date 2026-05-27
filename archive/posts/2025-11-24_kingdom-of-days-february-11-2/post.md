@@ -22,7 +22,7 @@ post_id: 55934
 
 [Watch on Youtube: Marah - Float Away](https://www.youtube.com/watch?v=cLN9gixVL4U)
 
-**2007:** Bruce wins two Grammy Awards: Best Traditional Folk Album (for [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md)) and Best Long Form Music Video (for *Wings for Wheels: The Making of Born to Run*)<br>
+**2007:** Bruce wins two Grammy Awards: Best Traditional Folk Album (for [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md)) and Best Long Form Music Video (for *Wings for Wheels: The Making of Born to Run*)<br>
 
 [Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU)
 

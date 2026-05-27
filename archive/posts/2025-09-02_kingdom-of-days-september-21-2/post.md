@@ -98,7 +98,7 @@ post_id: 59694
 
 Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards in the Outstanding Variety, Music, or Comedy Special category and in the Outstanding Directing for a Variety, Music or Comedy Program category (for director Chris Hilson). Both prizes go to other nominees, the former to *Cher: The Farewell Tour*, and the latter for the *56th Annual Tony Awards.*
 
-**2004:** Patti's solo mini-tour continues at the Bowery Ballroom in New York City, where Bruce joins her on guitar and backing vocals for "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)" and "[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)."<br>
+**2004:** Patti's solo mini-tour continues at the Bowery Ballroom in New York City, where Bruce joins her on guitar and backing vocals for "[As Long As I (Can Be With You)](../2018-10-02_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/post.md)" and "[Love (Stand Up)](../2021-02-14_matr-patti-scialfa-and-bruce-springsteen-love-stand-up/post.md)."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3)
 

@@ -48,7 +48,7 @@ post_id: 56767
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2009-05-15b.jpg.webp)
 
-**2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," "[Working on the Highway,](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" and "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"<br>
+**2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)," "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," "[Working on the Highway,](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" and "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yoA0eBRu)
 

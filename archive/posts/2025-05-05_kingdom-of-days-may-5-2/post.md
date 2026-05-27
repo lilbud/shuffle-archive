@@ -26,7 +26,7 @@ post_id: 56699
 
 [Watch Video Highlight](https://videopress.com/embed/fZwe49y9)
 
-**1982:** At The Power Station studio in New York City, Bruce and the E Street Band record "[Glory Days,](../1984-01-12_roll-of-the-dice-glory-days/post.md)" "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," "[A Good Man Is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)" and the still unreleased "Stop the War."<br>
+**1982:** At The Power Station studio in New York City, Bruce and the E Street Band record "[Glory Days,](../1984-01-12_roll-of-the-dice-glory-days/post.md)" "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," "[A Good Man Is Hard to Find (Pittsburgh)](../2021-04-30_roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/post.md)" and the still unreleased "Stop the War."<br>
 
 [Watch on Youtube: Glory Days](https://www.youtube.com/watch?v=GLBnj159q3s)
 

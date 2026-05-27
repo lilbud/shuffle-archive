@@ -44,7 +44,7 @@ post_id: 57178
 
 [Watch on Youtube: Bruce Springsteen: live footage Stockholm 1999](https://www.youtube.com/watch?v=HmDVXvxXtkA)
 
-**2000:** Night Six of Ten at Madison Square Garden features a rare "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)," as the Reunion Tour's last stand continues.<br>
+**2000:** Night Six of Ten at Madison Square Garden features a rare "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)," as the Reunion Tour's last stand continues.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uLYj1uhJ)
 

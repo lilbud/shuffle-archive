@@ -10,7 +10,7 @@ post_id: 181
 ---
 One of Springsteen's most head-scratching penchants is for pairing dark lyrics with melodies so upbeat that you'll find yourself dancing, singing, and celebrating some low or pitiful characters.
 
-We fist-pump and chant while Bruce sings about a down-and-out Vietnam vet in "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" We sing along while Bruce crowd-surfs his way through "[Hungry Heart,](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" a song about a home-wrecking, family-abandoning philanderer.
+We fist-pump and chant while Bruce sings about a down-and-out Vietnam vet in "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" We sing along while Bruce crowd-surfs his way through "[Hungry Heart,](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" a song about a home-wrecking, family-abandoning philanderer.
 
 And then there's "Working on the Highway," a staple of pretty much every tour since 1985, a reliable crowd-pleaser, and IMHO the best song ever written about statutory rape. (Although "Don't Stand So Close to Me" by The Police is right up there.)
 

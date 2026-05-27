@@ -15,6 +15,6 @@ But I'm a sucker for a good cover of an obscure Bruce song, and this one from th
 
 Never released, never performed: Bruce Springsteen's "," performed in San Diego by The War on Drugs on April 15, 2018. Looks like they know where to find the great bootlegs!
 
-[Unsatisfied Heart](../2018-09-12_roll-of-the-dice-unsatisfied-heart/post.md)
+[Unsatisfied Heart](../1983-01-17_roll-of-the-dice-unsatisfied-heart/post.md)
 
 https://youtu.be/3NP7AJjt3gk

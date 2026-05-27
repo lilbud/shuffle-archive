@@ -24,7 +24,7 @@ Bruce joined R.E.M. for two songs, "[Bad Day](../2021-05-05_meeting-across-the-r
 
 When Bruce and the E Street Band finally took the stage, Bruce stood alone in the spotlight with his twelve-string guitar, and we were several bars into "[The Star-Spangled Banner](../2021-01-20_cover-me-the-star-spangled-banner/post.md)" before I recognized it. Once I did, I was thrilled… and honestly, a little bit weepy. Bruce had wordlessly reclaimed our national anthem from those who would define patriotism for us, and it felt good. It felt *right.* I could feel every thrum of every string playing each note, and it was a like a re-dedication to the "country we carry in our hearts."
 
-As he brought the anthem to a close, I knew… just *knew* what was coming next: a fierce and furious "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Watch those opening moments with me:
+As he brought the anthem to a close, I knew… just *knew* what was coming next: a fierce and furious "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" Watch those opening moments with me:
 
 [Watch Video Highlight](https://videopress.com/embed/iSoDY5oc)
 
@@ -40,6 +40,6 @@ And another highlight was Michael and Bruce's tribute to Patti Smith–they perf
 
 [Watch Video Highlight](https://videopress.com/embed/NKQbVWnu)
 
-The encore though–from a "Born to Run" team up with R.E.M. to a reprise from Fogerty to a celebratory "[(What's So Funny ‘Bout) Peace, Love, and Understanding](https://estreetshuffle.com/index.php/2022/12/15/matr-bruce-springsteen-eddie-vedder-dave-matthews-and-more-whats-so-funny-bout-peace-love-and-understanding/)" and "[People Have the Power](../2020-01-09-matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/post.md/)" was jubilant and satisfying–at least for the night.
+The encore though–from a "Born to Run" team up with R.E.M. to a reprise from Fogerty to a celebratory "[(What's So Funny ‘Bout) Peace, Love, and Understanding](../2022-12-15_matr-bruce-springsteen-eddie-vedder-dave-matthews-and-more-whats-so-funny-bout-peace-love-and-understanding/post.md)" and "[People Have the Power](../2020-01-09-matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/post.md/)" was jubilant and satisfying–at least for the night.
 
 There'd be another show the next day.

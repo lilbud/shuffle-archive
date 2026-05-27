@@ -34,7 +34,7 @@ Not even three weeks after its debut performance, Bruce recorded "When the Light
 
 [Watch on Youtube: When The Lights Go Out (Studio Outtake - 1990)](https://www.youtube.com/watch?v=MmYtkPFqjWE)
 
-Accompanied only by Roy Bittan on keys and Jeff Porcaro on drums (both employed sparingly), Bruce propels the song forward with his bass in the vein of "[57 Channels (And Nothin' On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)" and "[Goin' Cali](../2019-01-01_roll-of-the-dice-goin-cali/post.md)." (All three songs were part of a collection that Bruce wrote on the bass; they might have made for an interesting EP had he released them together.)
+Accompanied only by Roy Bittan on keys and Jeff Porcaro on drums (both employed sparingly), Bruce propels the song forward with his bass in the vein of "[57 Channels (And Nothin' On)](../2020-05-17_roll-of-the-dice-57-channels-and-nothin-on/post.md)" and "[Goin' Cali](../2019-01-01_roll-of-the-dice-goin-cali/post.md)." (All three songs were part of a collection that Bruce wrote on the bass; they might have made for an interesting EP had he released them together.)
 
 The musical effect is ominous and underscores Bruce's lyrics, which percolate with paranoia. The narrator of "When the Lights Go Out" is the voice of our guilty conscience, that nagging instinct that tugs and tries to tell us something our conscious minds either haven't realized yet or simply refuse to: we can't expect fidelity from a partner we've been sneaking around on.
 

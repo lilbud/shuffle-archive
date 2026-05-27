@@ -62,7 +62,7 @@ post_id: 59657
 
 **2002:** Bruce attends an Asbury Park memorial service for Mark McGarril and performs two songs on his acoustic guitar.<br>
 
-**2003:** Bruce and the E Street Band play their first of two Hartford stadium shows at Rentschler Field, opening with an acoustic "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)." The first E Street Band performance of "Leap of Faith" and a rare "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" make it clear that Bruce is re-discovering his missing years, but he's still discovering his latest as well, playing "[Let's Be Friends (Skin to Skin)](https://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)" for the first and only time to date.<br>
+**2003:** Bruce and the E Street Band play their first of two Hartford stadium shows at Rentschler Field, opening with an acoustic "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)." The first E Street Band performance of "Leap of Faith" and a rare "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)" make it clear that Bruce is re-discovering his missing years, but he's still discovering his latest as well, playing "[Let's Be Friends (Skin to Skin)](../2018-03-02_roll-of-the-dice-lets-be-friends-skin-to-skin/post.md)" for the first and only time to date.<br>
 
 [Watch on Youtube: Bruce Springsteen - THE GHOST OF TOM JOAD 2003 - (audio)](https://www.youtube.com/watch?v=5CGaNPu29ds)
 
@@ -74,7 +74,7 @@ post_id: 59657
 
 [https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3](https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3)
 
-**2009:** In Greenville, South Carolina, Bruce and the E Street Band tour premiere "[(I Can't Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/)" and "[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)," performing the latter with The Swingin' Medallions themselves. Jay Weinberg helms the drums for the entire show–the last time he'll do that on this tour.<br>
+**2009:** In Greenville, South Carolina, Bruce and the E Street Band tour premiere "[(I Can't Get No) Satisfaction](../2022-02-02_matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/post.md)" and "[Double Shot (of My Baby's Love)](../2022-04-14_matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/post.md)," performing the latter with The Swingin' Medallions themselves. Jay Weinberg helms the drums for the entire show–the last time he'll do that on this tour.<br>
 
 [Watch on Youtube: Bruce Springsteen 9/16/09 Greenville SC "Double Shot (of my babys love)" with the Swinging Medalions](https://www.youtube.com/watch?v=IiV0IRpXhBA)
 

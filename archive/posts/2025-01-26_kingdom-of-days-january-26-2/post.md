@@ -20,7 +20,7 @@ post_id: 55809
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/1974-0126.jpg.webp)
 
-**1981:** On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: “[Double Shot (of My Baby’s Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)” (after teaching the lyrics to the band during intermission) and “[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md).”<br>
+**1981:** On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: “[Double Shot (of My Baby’s Love)](../2022-04-14_matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/post.md)” (after teaching the lyrics to the band during intermission) and “[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1N1myPz6)
 

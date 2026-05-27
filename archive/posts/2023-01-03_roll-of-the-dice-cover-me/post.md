@@ -90,7 +90,7 @@ Like, *really* awkward.
 
 Bruce's smoking guitar solo distracts for the first few seconds out of the gate, but as soon as the first verse kicks in, so do the cringes. The E Street Band has grown tremendously in versatility over the years but in 1982, they were ill-suited for a song that clearly cries out for a disco beat. Bruce does his best to save it with his lead guitar (and Garry is particularly and impressively active throughout), but it's not enough to be convincing.
 
-Lacking any substantive lyrics to distract from or elevate the backing track, "Cover Me" doesn't so much rock as plod–which may be what motivated Bruce to commission DJ/producer Arthur Baker to remix "Cover Me" (along with "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[Dancing in the Dark.](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)")
+Lacking any substantive lyrics to distract from or elevate the backing track, "Cover Me" doesn't so much rock as plod–which may be what motivated Bruce to commission DJ/producer Arthur Baker to remix "Cover Me" (along with "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[Dancing in the Dark.](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)")
 
 "Cover Me" proved a much bigger challenge than the other two singles, though, and Baker did much more than remix the song. He swapped out Garry's bassline for a new one by Brian Rock, and he added a new background vocal track by Jocelyn Brown.
 

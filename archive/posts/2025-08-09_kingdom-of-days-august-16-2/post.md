@@ -60,7 +60,7 @@ post_id: 58379
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2003-08-16.png.webp)
 
-**2008:** The Magic Tour is in its home stretch, as Bruce kicks off his Charleston, South Carolina show with a cover of "[Double Shot (of My Baby's Love),](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)" played here for the first time in 27 years.<br>
+**2008:** The Magic Tour is in its home stretch, as Bruce kicks off his Charleston, South Carolina show with a cover of "[Double Shot (of My Baby's Love),](../2022-04-14_matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/post.md)" played here for the first time in 27 years.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - tv news clip of DOUBLESHOT OF MY BABYS LOVE --- CHARLESTON SOUTH CAROLINA 2008](https://www.youtube.com/watch?v=r8RsI7CYIEs)
 

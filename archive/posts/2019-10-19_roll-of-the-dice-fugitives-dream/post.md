@@ -14,7 +14,7 @@ This was a particularly prolific songwriting period for Bruce; in addition to th
 
 But there are dozens more that are *still* unreleased–officially, that is. Some of the holdbacks have escaped into the wild, though, and one of the most compelling is "Fugitive's Dream."
 
-"Fugitive's Dream" has a lot of shared DNA with "[Unsatisfied Heart](../2018-09-12_roll-of-the-dice-unsatisfied-heart/post.md)," another contemporaneous outtake, and I strongly recommend that you read my essay on that song for more of the backstory and comparison between the two.
+"Fugitive's Dream" has a lot of shared DNA with "[Unsatisfied Heart](../1983-01-17_roll-of-the-dice-unsatisfied-heart/post.md)," another contemporaneous outtake, and I strongly recommend that you read my essay on that song for more of the backstory and comparison between the two.
 
 But while "Unsatisfied Heart" may be the catchier and more well-known of the sibling outtakes, "Fugitive's Dream" is the one that will haunt you long after you listen to it.
 

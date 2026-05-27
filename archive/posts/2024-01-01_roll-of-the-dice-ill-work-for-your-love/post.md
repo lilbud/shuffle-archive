@@ -54,7 +54,7 @@ But working for her love is gonna take a lot more (or a lot less) than driving a
 
 Am I a Valentine's buzzkill? Well, let me fix that:
 
-When Bruce performs this song live, there's no question that he delivers it as a love song–in fact, he dedicates it specifically *to* the lovers in the room almost every time he plays it. In true Springsteen fashion, the chorus of the song has more power than the verses, but Bruce seems happier to embrace that here than he does for, say, "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
+When Bruce performs this song live, there's no question that he delivers it as a love song–in fact, he dedicates it specifically *to* the lovers in the room almost every time he plays it. In true Springsteen fashion, the chorus of the song has more power than the verses, but Bruce seems happier to embrace that here than he does for, say, "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)"
 
 [Watch on Youtube: MULTICAM-I'll work for your love-Bruce Springsteen (Stockholm 2007) BEST AUDIO.flv](https://www.youtube.com/watch?v=hFcMchbqny4)
 

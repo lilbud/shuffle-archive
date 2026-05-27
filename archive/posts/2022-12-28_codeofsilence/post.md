@@ -18,7 +18,7 @@ In February 2005, the Grammy for Best Solo Rock Vocal Performance went to "Code 
 
 "Code of Silence" also carries another unusual distinction: it's a rare instance of Bruce co-writing with a song with another artist. Bruce and Joe Grushecky wrote this song together in 1997, although neither of them chose to record or perform it at the time.
 
-When Bruce and the E Street Band were wrapping up their Reunion Tour in June of 2000, Bruce start to premiere some brand new songs, telegraphing to fans that he wasn't done releasing new music. First came "[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)" and "American Skin (41 Shots)" in Atlanta, and then at the very next show–the opening show of a ten-night closing stand at Madison Square Garden–Bruce opened the show with the debut of "Code of Silence." (Bruce would debut one more Bruce/Joe collaboration before the tour was done.)
+When Bruce and the E Street Band were wrapping up their Reunion Tour in June of 2000, Bruce start to premiere some brand new songs, telegraphing to fans that he wasn't done releasing new music. First came "[Further On (Up the Road)](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)" and "American Skin (41 Shots)" in Atlanta, and then at the very next show–the opening show of a ten-night closing stand at Madison Square Garden–Bruce opened the show with the debut of "Code of Silence." (Bruce would debut one more Bruce/Joe collaboration before the tour was done.)
 
 [Watch Video Highlight](https://videopress.com/embed/HOWgJ2Ki)
 

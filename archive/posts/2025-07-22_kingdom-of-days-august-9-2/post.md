@@ -16,7 +16,7 @@ post_id: 57929
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1972-0809.jpg.webp)
 
-**1973:** Bruce works on "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" at 914 Sound Studios in Blauvelt, New York.<br>
+**1973:** Bruce works on "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" and "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" at 914 Sound Studios in Blauvelt, New York.<br>
 
 **1974:** Bruce cancels an outdoor gig at the Tanglewood Music Festival in Lenox, Massachusetts to make room for ongoing *Born to Run* recording sessions.<br>
 

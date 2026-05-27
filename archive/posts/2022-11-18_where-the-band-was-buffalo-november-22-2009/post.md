@@ -46,7 +46,7 @@ Not even for his subtle but unmistakable love letter and promise to his fans tha
 
 [Watch on Youtube: Bruce Springsteen-I'll Work For Your Love -11/22/09 Buffalo, NY](https://www.youtube.com/watch?v=6MgLp46U4oo)
 
-And while the final two encores–"[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)" and "Rockin' All Over the World"–were perfect final notes for the tour, the show had already long since been elevated.
+And while the final two encores–"[(Your Love Keeps Lifting Me) Higher and Higher](../2018-09-23_cover-me-your-love-keeps-lifting-me-higher-and-higher/post.md)" and "Rockin' All Over the World"–were perfect final notes for the tour, the show had already long since been elevated.
 
 [Watch on Youtube: Springsteen "Higher and Higher" Buffalo 11-22-09](https://www.youtube.com/watch?v=L-qMol4qoeE)
 

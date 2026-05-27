@@ -18,7 +18,7 @@ Seven months after its release, with the benefit of distance, catalog comparison
 
 Released shortly before his 70th birthday (and recorded some years prior), *Western Stars* introduces us to a handful of characters late in their lives. They've made mistakes, as have we all, and to varying degrees of success they dedicate themselves to moving forward regardless, as do we all. That's the theme of *Western Stars* in a nutshell: living your life when the road ahead is so much shorter than the road already traveled. If we are each the sum of our life experiences and decisions, how do we continue to grow and move forward while carrying the weight of them?
 
-Over the next few years, we'll explore each and every track on the album, from the carpe diem "[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)" and the achingly beautiful "[Moonlight Motel,](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" both of which I rank in Bruce's top ten best songs ever, to what is perhaps the happiest and most romantic song Bruce has ever written, "[Hitch Hikin'](../2021-05-22_roll-of-the-dice-hitch-hikin/post.md)."
+Over the next few years, we'll explore each and every track on the album, from the carpe diem "[Drive Fast (The Stuntman)](../2021-01-17_roll-of-the-dice-drive-fast-the-stuntman/post.md)" and the achingly beautiful "[Moonlight Motel,](../2020-09-30_roll-of-the-dice-moonlight-motel/post.md)" both of which I rank in Bruce's top ten best songs ever, to what is perhaps the happiest and most romantic song Bruce has ever written, "[Hitch Hikin'](../2021-05-22_roll-of-the-dice-hitch-hikin/post.md)."
 
 But today we'll start with the album's literal centerpiece, "Chasin' Wild Horses."
 

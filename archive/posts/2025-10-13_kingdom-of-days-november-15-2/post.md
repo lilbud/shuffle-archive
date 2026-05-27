@@ -74,7 +74,7 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/2005-11-15.png.webp)
 
-**2007:** The Magic Tour comes to Albany, where Bruce and the E Street Band tour premiere a Wild & Innocent double-header: "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" and "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)."<br>
+**2007:** The Magic Tour comes to Albany, where Bruce and the E Street Band tour premiere a Wild & Innocent double-header: "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" and "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)."<br>
 
 [Watch on Youtube: 4th of July, Asbury Park - Bruce Springsteen](https://www.youtube.com/watch?v=Dy6ggRLH6m4)
 

@@ -30,7 +30,7 @@ post_id: 56288
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DkC5FrphrVg?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
 
-**2003:** Bruce and the E Street Band play their second of two nights in Brisbane on the Rising Tour, opening with an acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and featuring a rare "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)."<br>
+**2003:** Bruce and the E Street Band play their second of two nights in Brisbane on the Rising Tour, opening with an acoustic "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" and featuring a rare "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yyUIuX3l)
 

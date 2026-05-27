@@ -20,7 +20,7 @@ Most casual fans are familiar with the rock version–it's the one released on B
 
 The optimistic title, the fairy tale setting in the first line, the soaring chorus, and the gorgeous, string-filled backing track all conspire to deceive the casual listener into thinking this is a happy song.
 
-It's not, though, and Bruce says as much in the first line. But as with the studio version of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," the lyrics are outmatched by the music.
+It's not, though, and Bruce says as much in the first line. But as with the studio version of "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)," the lyrics are outmatched by the music.
 
 > *It's a fairy tale so tragic, there's no prince to break the spell*
 > *I don't believe in magic, but for you I will, yeah for you I will*

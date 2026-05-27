@@ -20,7 +20,7 @@ post_id: 55133
 
 **![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/11/47544237051_e03acb5d43_o.jpg.webp)**<br>
 
-**1980:** On Black Friday, Bruce and the band play their second of two nights at Madison Square Garden in New York City. This show features a very unusual "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)"/"[Living on the Edge of the World](../2018-10-18_roll-of-the-dice-living-on-the-edge-of-the-world/post.md)" (the latter of which hadn't even been released) mashup, as well as the tour premiere of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
+**1980:** On Black Friday, Bruce and the band play their second of two nights at Madison Square Garden in New York City. This show features a very unusual "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)"/"[Living on the Edge of the World](../2018-10-18_roll-of-the-dice-living-on-the-edge-of-the-world/post.md)" (the latter of which hadn't even been released) mashup, as well as the tour premiere of "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Ramrod/Living on the Edge of the World" - NYC, 1980-11-28](https://www.youtube.com/watch?v=4HUThNRDG0E)
 

@@ -86,7 +86,7 @@ Meanwhile, Mike Appel's and Marc Eliot's new tell-all *Down Thunder Road* garner
 
 [Watch Video Highlight](https://videopress.com/embed/sH2YJBjg)
 
-**1999:** It's a big day for Bruce at the Recording Industry Association of America: *The Wild, The Innocent, and The E Street Shuffle* is certified double-platinum, [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) is certified triple platinum, *Greatest Hits* is certified 4x platinum, and *Live 1975-85* is certified an astonishing 13x platinum. Oh, and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" (the single, not the album) is certified gold. Not bad, Bruce!<br>
+**1999:** It's a big day for Bruce at the Recording Industry Association of America: *The Wild, The Innocent, and The E Street Shuffle* is certified double-platinum, [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) is certified triple platinum, *Greatest Hits* is certified 4x platinum, and *Live 1975-85* is certified an astonishing 13x platinum. Oh, and "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" (the single, not the album) is certified gold. Not bad, Bruce!<br>
 
 **2002:** Bruce and the E Street Band rehearse for the Upcoming Rising Tour at Convention Hall in Asbury Park. Their set is filmed by ABC-TV's *Nightline* crew, and Bruce and the band members sit down for interviews. The segment will air following the album's release.<br>
 

@@ -32,7 +32,7 @@ post_id: 57023
 
 [Watch Video Highlight](https://videopress.com/embed/dAro3Txt)
 
-**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)," "[Darlington County,](../1984-01-05_roll-of-the-dice-darlington-county/post.md)" "[My Hometown,](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" all make their live debuts. Listen to this historic bar gig below.<br>
+**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)," "[Darlington County,](../1984-01-05_roll-of-the-dice-darlington-county/post.md)" "[My Hometown,](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" and "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" all make their live debuts. Listen to this historic bar gig below.<br>
 
 [Watch on Youtube: Bruce Springsteen (bootleg) - Stone Pony June 6th 1984 (full album)](https://www.youtube.com/watch?v=_vH_efNE9ZU)
 

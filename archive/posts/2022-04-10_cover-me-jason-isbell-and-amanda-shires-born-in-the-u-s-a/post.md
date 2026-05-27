@@ -12,7 +12,7 @@ Today's *Cover Me* entry has literally been on my "To Blog" list from Day One.
 
 So why haven't I featured it before now? I guess because it's so darn good that I assumed everyone already knew it.
 
-But I had the privilege of catching Jason Isbell and Amanda Shires in an acoustic show in New Jersey this week, and it brought their remarkable cover of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" back to the top of my mind.
+But I had the privilege of catching Jason Isbell and Amanda Shires in an acoustic show in New Jersey this week, and it brought their remarkable cover of "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" back to the top of my mind.
 
 [Watch on Youtube: Amanda Shires & Jason Isbell "Born in the USA"](https://www.youtube.com/watch?v=5AEqTSwtmms)
 

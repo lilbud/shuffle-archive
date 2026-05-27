@@ -30,7 +30,7 @@ An ode to the slow ballads of Murphy's youth and inspired by artists like Otis R
 
 That experience stayed with Murphy. A few years later he wrote another one of those rock ballads he was so fond of, and recalling how well their voices blended, he picked up the phone and asked his friend if he was interested in a true duet.
 
-Bruce accepted, and their recording of "[Everything I Do (Leads Me Back to You)](https://estreetshuffle.com/index.php/2019/01/09/matr-elliott-murphy-and-bruce-springsteen-everything-i-do-leads-me-back-to-you/)" became the only studio recording by the New Dylan class of '74.
+Bruce accepted, and their recording of "[Everything I Do (Leads Me Back to You)](../2019-01-09_matr-elliott-murphy-and-bruce-springsteen-everything-i-do-leads-me-back-to-you/post.md)" became the only studio recording by the New Dylan class of '74.
 
 **Rock Ballad**<br>
 **First performed:** June 30, 1992 (Paris, France)<br>

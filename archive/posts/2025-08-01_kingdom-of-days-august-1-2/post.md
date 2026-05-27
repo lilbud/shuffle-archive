@@ -102,7 +102,7 @@ post_id: 57894
 
 [Watch on Youtube: Great Balls of Fire - Bruce Springsteen - Valladolid 1-8-09](https://www.youtube.com/watch?v=2CuHgNWv5HE)
 
-**2015:** Bruce and Patti join Timepiece (a local band in which Patti's brother plays keyboards) on stage at a private party at the Wonder Bar in Asbury Park. The setlist includes a cover of "[634-5789 (Soulsville, U.S.A.)](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)" and "[Brown Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)."<br>
+**2015:** Bruce and Patti join Timepiece (a local band in which Patti's brother plays keyboards) on stage at a private party at the Wonder Bar in Asbury Park. The setlist includes a cover of "[634-5789 (Soulsville, U.S.A.)](../2018-08-14_cover-me-634-5789-soulsville-u-s-a/post.md)" and "[Brown Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)."<br>
 
 [Watch on Youtube: Timepiece ROCKS The Wonder Bar with Bruce Springsteen 8/1/15](https://www.youtube.com/watch?v=-Ioc6MVuHMM)
 

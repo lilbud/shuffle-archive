@@ -45,6 +45,7 @@ def insert_post() -> None:
                 f"{meta['date_gmt']}+0000",
                 "%Y-%m-%dT%H:%M:%S%z",
             ).astimezone(datetime.timezone.utc)
+
             last_modified = datetime.datetime.strptime(
                 meta["modified_gmt"],
                 "%Y-%m-%dT%H:%M:%S",
@@ -68,8 +69,8 @@ def insert_post() -> None:
 
             cur.execute(
                 """INSERT INTO posts (post_id, published, last_modified, title, content, excerpt, featured_media, author_id, slug, url)
-                        values (%(id)s, %(published)s, %(last_modified)s, %(title)s, %(content)s, %(excerpt)s, %(media)s, %(author)s, %(slug)s, %(link)s)
-                        on conflict (post_id, last_modified) do update set url = %(link)s, slug = %(slug)s, content=%(content)s""",
+                            values (%(id)s, %(published)s, %(last_modified)s, %(title)s, %(content)s, %(excerpt)s, %(media)s, %(author)s, %(slug)s, %(link)s)
+                            on conflict (post_id, last_modified) do update set url = %(link)s, slug = %(slug)s, content=%(content)s""",
                 {
                     "id": post_id,
                     "published": published,

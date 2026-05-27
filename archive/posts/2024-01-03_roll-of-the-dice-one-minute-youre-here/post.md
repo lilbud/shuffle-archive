@@ -29,7 +29,7 @@ When Bruce began his eighth decade on the planet, his songs stopped seeking answ
 
 "One Minute You're Here" has different engineering and mixing credits, too, which lends support to the theory that Bruce's vocals are 2019 overdubs on a previously recorded backing track.
 
-Regardless of its origin, "One Minute You're Here" is notable for opening a Springsteen album on a fatalistic note for the first time since "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" opened the album of the same name 36 years earlier.
+Regardless of its origin, "One Minute You're Here" is notable for opening a Springsteen album on a fatalistic note for the first time since "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" opened the album of the same name 36 years earlier.
 
 [Watch on Youtube: Bruce Springsteen - One Minute You're Here (Official Audio)](https://www.youtube.com/watch?v=s-RT3nxr3T4)
 

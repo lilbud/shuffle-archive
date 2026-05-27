@@ -54,13 +54,13 @@ post_id: 56238
 
 [Watch on Youtube: Tragedy](https://www.youtube.com/watch?v=jf7BSf5ezUY)
 
-**2003:** On the eve of the Iraq War, Bruce opens the Australia leg of The Rising Tour with an acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" at the Telstra Dome in Melbourne. "[War](../2016-01-02_cover-me-war/post.md)" also receives a rare outing.<br>
+**2003:** On the eve of the Iraq War, Bruce opens the Australia leg of The Rising Tour with an acoustic "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" at the Telstra Dome in Melbourne. "[War](../2016-01-02_cover-me-war/post.md)" also receives a rare outing.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uZuuks3s)
 
 **2006:** Bruce rehearses with The Sessions Band at the Paramount Theater in Asbury Park.<br>
 
-**2008:** Danny Federici appears on-stage with the E Street Band for the final time at Bruce's Magic show at the Conseco Fieldhouse in Indianapolis, where Bruce and the band tour premiere "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)." Watch the official, emotional video of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" (also available on the *Magic Tour Highlights* EP). This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,27552/Bruce-Springsteen-mp3-flac-download-3-20-2008-Conseco-Fieldhouse-Indianapolis-IN.html).<br>
+**2008:** Danny Federici appears on-stage with the E Street Band for the final time at Bruce's Magic show at the Conseco Fieldhouse in Indianapolis, where Bruce and the band tour premiere "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)." Watch the official, emotional video of "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" (also available on the *Magic Tour Highlights* EP). This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,27552/Bruce-Springsteen-mp3-flac-download-3-20-2008-Conseco-Fieldhouse-Indianapolis-IN.html).<br>
 
 [Watch on Youtube: 4th Of July, Asbury Park (Sandy) (Live Video Version featuring Danny Federici)](https://www.youtube.com/watch?v=kB1d0eey5ho)
 

@@ -78,7 +78,7 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/04/2005-04-15.jpg.webp)
 
-**2009:** At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" and "[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/)." Making their tour premieres tonight: "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[Spirit in the Night,](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" and "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)."<br>
+**2009:** At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" and "[Hard Times (Come Again No More)](../2022-01-21_cover-me-hard-times-come-again-no-more/post.md)." Making their tour premieres tonight: "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[Spirit in the Night,](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" and "[Raise Your Hand](../1976-01-13_cover-me-raise-your-hand/post.md/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - The Ghost Of Tom Joad w/Tom Morello 2009 (Los Angeles, CA) HQ](https://www.youtube.com/watch?v=BWmUKr7iqZQ)
 

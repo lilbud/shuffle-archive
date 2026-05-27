@@ -8,12 +8,21 @@ from pathlib import Path
 import html_to_markdown
 import httpx
 import pandas as pd
+import yt_dlp
 from bs4 import BeautifulSoup as bs4
 from user_agent import generate_user_agent
 
 from cleanup import initial_cleanup
 from convert import save_to_archive
 from database import load_db
+
+ydl_opts = {
+    # Specify the runtime (e.g., 'deno', 'node', 'bun')
+    "js_runtimes": {
+        "deno": {"path": None},  # Set 'path' to a string if it's not in your PATH
+    },
+    "verbose": False,
+}
 
 # toedit = []
 
@@ -74,22 +83,34 @@ jekyll_dir = Path(
 #             print(date, slug)
 
 
-with load_db() as conn, conn.cursor() as cur:
-    for post in posts_dir.glob("**/*.md"):
-        content = post.read_text(encoding="utf-8")
+with load_db() as conn, conn.cursor() as cur:  # noqa: SIM117
+    with yt_dlp.YoutubeDL(ydl_opts) as ydl:
+        for post in posts_dir.glob("**/*.md"):
+            print(post.parent.name)
+            content = post.read_text(encoding="utf-8")
 
-        link_pattern = r"\[([^\]]*)\]\(..\/(\d{4}-\d{2}-\d{2})_([^/)]*)\/post.md\/?\)"
+            for i in re.findall(
+                r"\[Watch on Youtube: Watch Video\]\((https://www.youtube.com/watch\?v=.{11})\)",
+                content,
+                flags=re.MULTILINE,
+            ):
+                info_dict = ydl.extract_info(i, download=False)
+                video_title = info_dict.get("title", None)
+                print(i)
 
-        for i in re.findall(link_pattern, content):
-            res = cur.execute(
-                """select published::date, slug, filename from published_posts where slug = %(slug)s""",
-                {"slug": i[2]},
-            ).fetchone()
-
-            if res:
-                content = content.replace(
-                    f"{i[1]}_{i[2]}",
-                    f"{res['published']}_{res['slug']}",
+                re.sub(
+                    rf"\[Watch on Youtube: Watch Video\]\({i}\)",
+                    f"[Watch on Youtube: {video_title}]({i})",
+                    content,
                 )
 
-        post.write_text(content, encoding="utf-8")
+        # post.write_text(content, encoding="utf-8")
+
+# test_url = "https://www.youtube.com/watch?v=7-AMJV5EDRI"
+
+
+# with yt_dlp.YoutubeDL(ydl_opts) as ydl:
+#     info_dict = ydl.extract_info(test_url, download=False)
+#     video_title = info_dict.get("title", None)
+
+# print(f"Video Title: {video_title}")

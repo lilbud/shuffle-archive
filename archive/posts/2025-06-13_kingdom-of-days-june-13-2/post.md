@@ -78,7 +78,7 @@ post_id: 57089
 
 [Watch Video Highlight](https://videopress.com/embed/BUkie5gm)
 
-**2006:** Bruce and the Sessions Band play to a sparse crowd at the First Midwest Bank Amphitheater in Tinley Park, Illinois, where Bruce debuts a new arrangement and verse for "[Further On (Up the Road).](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)"<br>
+**2006:** Bruce and the Sessions Band play to a sparse crowd at the First Midwest Bank Amphitheater in Tinley Park, Illinois, where Bruce debuts a new arrangement and verse for "[Further On (Up the Road).](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)"<br>
 
 [Watch on Youtube: My Oklahoma Home, Bruce Springsteen, Seeger Sessions](https://www.youtube.com/watch?v=tbqhUJZcyY0)
 

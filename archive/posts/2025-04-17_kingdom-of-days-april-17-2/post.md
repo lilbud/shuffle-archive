@@ -66,7 +66,7 @@ post_id: 56555
 
 [Watch on Youtube: Bruce Springsteen - "634-5789" - Cleveland - April 17, 2012](https://www.youtube.com/watch?v=UOMdP1Bo2ow)
 
-**2014:** The High Hopes Tour stops at Nashville's Bridgestone Arena and brings with it tour premieres of "[Burning Love](../2018-05-01_cover-me-burning-love/post.md)" and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," and "[(I Can't Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/)."<br>
+**2014:** The High Hopes Tour stops at Nashville's Bridgestone Arena and brings with it tour premieres of "[Burning Love](../2018-05-01_cover-me-burning-love/post.md)" and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," and "[(I Can't Get No) Satisfaction](../2022-02-02_matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Burning Love Into Satisfaction](https://www.youtube.com/watch?v=OQDFsN_saAY)
 

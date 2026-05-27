@@ -46,7 +46,7 @@ post_id: 56798
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/1998-05-21.jpg.webp)
 
-**1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and the first "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" in 20 years. Watch the soundcheck below, featuring a lovely, lonely "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" and a bit of Patti Scialfa's beautiful ballad, "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)."<br>
+**1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)" and the first "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" in 20 years. Watch the soundcheck below, featuring a lovely, lonely "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" and a bit of Patti Scialfa's beautiful ballad, "[As Long As I (Can Be With You)](../2018-10-02_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - London 1999-05-21 soundcheck including Racing In The Street](https://www.youtube.com/watch?v=0raE2AKOFtA)
 

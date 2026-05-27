@@ -8,11 +8,11 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/08/Tunnel-Of-Love-1507561237-1000x1000-1.jpg
 post_id: 36849
 ---
-Editor's Note
-
-With last Friday's entry, *Tunnel of Love* becomes the third Springsteen studio album to receive the complete *Roll of the Dice* treatment.
-
-If you've joined me along the way of this five-year exploration, you might find it interesting to explore some of the earlier essays you missed. If you've been with me from the beginning, these articles are now updated and crosslinked to help explore the connections, genealogy, and comparisons between songs.
+> **Editor's Note**
+>
+> With last Friday's entry, *Tunnel of Love* becomes the third Springsteen studio album to receive the complete *Roll of the Dice* treatment.
+>
+> If you've joined me along the way of this five-year exploration, you might find it interesting to explore some of the earlier essays you missed. If you've been with me from the beginning, these articles are now updated and crosslinked to help explore the connections, genealogy, and comparisons between songs.
 
 It's been called his divorce album, but that ignores all the songs about beginnings rather than endings.
 

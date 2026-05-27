@@ -8,11 +8,11 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/20120919_booklet2.jpg
 post_id: 12573
 ---
-Editor's Note
-
-***Editor’s Note:*** *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*<br>
-
-*If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*
+> **Editor’s Note:**
+>
+> *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*<br>
+>
+> *If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*
 
 If it wasn't the same old Meadowlands Parking Lot this time, it might as well have been–just slightly re-located and renamed along with the stadium, now MetLife Stadium. All the same glorious tailgate vibe was in full force for Night One of three that Bruce and the band would be playing to wrap up the summer and their outdoor venue leg of the Wrecking Ball Tour.
 

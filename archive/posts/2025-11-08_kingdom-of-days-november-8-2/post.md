@@ -70,7 +70,7 @@ post_id: 61316
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/11/Asbury_Park_Press_2003_11_14_Page_109.jpg.webp)
 
-**2005:** Bruce is in Philadelphia, and you know what that means: fans attending Bruce's solo acoustic show get their traditional surprise treat–this time the long-awaited return of "[Drive All Night,](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" played for the first time in 24 years. (Watch that moment and other highlights below.) That's not the only tour premiere: Bruce also opens the show with "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" — as a solo *harmonica* number. Not bad for a Night One!<br>
+**2005:** Bruce is in Philadelphia, and you know what that means: fans attending Bruce's solo acoustic show get their traditional surprise treat–this time the long-awaited return of "[Drive All Night,](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" played for the first time in 24 years. (Watch that moment and other highlights below.) That's not the only tour premiere: Bruce also opens the show with "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" — as a solo *harmonica* number. Not bad for a Night One!<br>
 
 [Watch on Youtube: Born In The USA (solo harmonica) Bruce Springsteen 11/8/2005 Philly](https://www.youtube.com/watch?v=-xmqzYRNlcs)
 

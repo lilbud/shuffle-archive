@@ -54,7 +54,7 @@ post_id: 61329
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/2003-11-11.png.webp)
 
-**2005:** Bruce plays a special Veteran's Day setlist at his Devils & Dust solo acoustic show at Old Dominion University in Norfolk, opening the show with "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and tour premiering "[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)" (in its first "regular" concert performance). To close the main set, Bruce broke with tour tradition, replacing "[Matamoras Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)" with "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)," on which he is joined by Bruce Hornsby.<br>
+**2005:** Bruce plays a special Veteran's Day setlist at his Devils & Dust solo acoustic show at Old Dominion University in Norfolk, opening the show with "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" and tour premiering "[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)" (in its first "regular" concert performance). To close the main set, Bruce broke with tour tradition, replacing "[Matamoras Banks](../2019-10-27_roll-of-the-dice-matamoros-banks/post.md)" with "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)," on which he is joined by Bruce Hornsby.<br>
 
 [Watch on Youtube: Across the Border (Live)- Bruce Sprigsteen (with Bruce Hornsby)](https://www.youtube.com/watch?v=rpl89W4z6lg)
 

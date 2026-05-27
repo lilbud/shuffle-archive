@@ -56,7 +56,7 @@ post_id: 56701
 
 [Watch Video Highlight](https://videopress.com/embed/RE7Q1cpQ)
 
-**2003:** The second European leg of the Rising Tour kicks off with the first of two shows at Stadion Feyenoord in Rotterdam. Bruce opens the show with an acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and plays a solo piano "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," his first performance of that song in The Netherlands.<br>
+**2003:** The second European leg of the Rising Tour kicks off with the first of two shows at Stadion Feyenoord in Rotterdam. Bruce opens the show with an acoustic "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" and plays a solo piano "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," his first performance of that song in The Netherlands.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wZqqSp2L)
 

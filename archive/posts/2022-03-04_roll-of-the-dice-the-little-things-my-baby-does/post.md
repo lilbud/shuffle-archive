@@ -61,7 +61,7 @@ It's a gorgeous track from any angle, so let's not diminish it by analyzing the 
 
 If there's anything of interest here, it's the similarity in content and structure to another of Bruce's contemporaneous songs, "[The Way](../2021-08-06_roll-of-the-dice-the-way/post.md)." Recorded only a couple of months apart, an argument can be made for the evolution of "The Little Things (My Baby Does)" into "The Way," even though there are no actual common lyrics or melodic elements.
 
-Locked in the vault for decades, Bruce finally released "The Little Things (My Baby Does)" on his double-album *The Promise* in 2010, along with the similarly romantic and nostalgic "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/), "[Gotta Get That Feeling](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)" and "Spanish Eyes." All of them remain un- or under-played roadside attractions on a highway not taken.
+Locked in the vault for decades, Bruce finally released "The Little Things (My Baby Does)" on his double-album *The Promise* in 2010, along with the similarly romantic and nostalgic "[Someday (We'll Be Together)](../2019-10-03_roll-of-the-dice-someday-well-be-together/post.md), "[Gotta Get That Feeling](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)" and "Spanish Eyes." All of them remain un- or under-played roadside attractions on a highway not taken.
 
 **The Little Things (My Baby Does)**<br>
 **Recorded** August 15, 1977 (core track), July 2010 (vocals)<br>

@@ -42,7 +42,7 @@ post_id: 57721
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-07-13.jpg.webp)
 
-**1992:** Bruce and his new band wrap up the European leg of World Tour 1992 with a fifth and final show at Wembley Arena. "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" makes its tour debut, and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" is dropped from the set list for the first time since its debut in 1984.<br>
+**1992:** Bruce and his new band wrap up the European leg of World Tour 1992 with a fifth and final show at Wembley Arena. "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" makes its tour debut, and "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" is dropped from the set list for the first time since its debut in 1984.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/pbxCty6f)
 

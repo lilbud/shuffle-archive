@@ -48,7 +48,7 @@ post_id: 59742
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1978-09-30b.jpg.webp)
 
-**1985:** Bruce and the E Street Band play their third of four shows on the Born in the U.S.A. Tour's final stand in Los Angeles. "[Born in the U.S.A.,](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)," "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)," "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," "[War](../2016-01-02_cover-me-war/post.md)," "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" from this show all make it to *Live 1975-85*, and "My Hometown" and "War" will surface on *Video Anthology* as well.<br>
+**1985:** Bruce and the E Street Band play their third of four shows on the Born in the U.S.A. Tour's final stand in Los Angeles. "[Born in the U.S.A.,](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)," "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)," "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)," "[War](../2016-01-02_cover-me-war/post.md)," "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" from this show all make it to *Live 1975-85*, and "My Hometown" and "War" will surface on *Video Anthology* as well.<br>
 
 [Watch on Youtube: Bruce Springsteen: THIS LAND IS YOUR LAND](https://www.youtube.com/watch?v=1yuc4BI5NWU)
 
@@ -94,7 +94,7 @@ post_id: 59742
 
 [Watch on Youtube: If I Should Fall Behind (Live at the United Center, Chicago, IL - 09/30/99 - Official A...](https://www.youtube.com/watch?v=shXhPHM_Obc)
 
-**2002:** The Rising Tour stops at the Xcel Energy Center in St. Paul, where Bruce tour premieres "[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)" and plays "[Nothing Man](../2020-08-29_roll-of-the-dice-nothing-man/post.md)" for the very first time.<br>
+**2002:** The Rising Tour stops at the Xcel Energy Center in St. Paul, where Bruce tour premieres "[Further On (Up the Road)](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)" and plays "[Nothing Man](../2020-08-29_roll-of-the-dice-nothing-man/post.md)" for the very first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MzX3Rod6)
 

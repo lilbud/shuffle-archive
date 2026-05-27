@@ -82,7 +82,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 
-**2006:** At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of "[How Can a Poor Man Stand Such Times and Live?](../2006-01-17_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" will be released on the *American Land Edition* of *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)*.<br>
+**2006:** At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of "[How Can a Poor Man Stand Such Times and Live?](../2006-01-17_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" will be released on the *American Land Edition* of *[We Shall Overcome: The Seeger Sessions](../2006-01-01_album-companion-we-shall-overcome/post.md)*.<br>
 
 [Watch on Youtube: How Can a Poor Man Stand Such Times and Live](https://www.youtube.com/watch?v=ibbOhr8t5pQ)
 

@@ -46,7 +46,7 @@ post_id: 61098
 
 [Watch on Youtube: Long Black Veil (Live at Palalottomatica, Rome, Italy - 10/10/2006)](https://www.youtube.com/watch?v=Bt7QcIUERsc)
 
-**2007:** The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band tour premiere "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)," "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)," "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and the live debut of "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" at their Magic show at the Continental Airlines Arena.<br>
+**2007:** The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band tour premiere "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)," "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)," "[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)" and the live debut of "[Your Own Worst Enemy](../2020-05-31_roll-of-the-dice-your-own-worst-enemy/post.md)" at their Magic show at the Continental Airlines Arena.<br>
 
 [Watch on Youtube: Bruce Springsteen And The E Street Band - Radio Nowhere - 10/10/07 - Izod Center (PROSHOT)](https://www.youtube.com/watch?v=ZgVyP3aoOGw)
 

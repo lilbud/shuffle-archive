@@ -145,7 +145,7 @@ We certainly need the reminder.
 
 **American Land**<br>
 **Recorded** ?<br>
-**Released:** [*We Shall Overcome: The Seeger Sessions: American Land Edition*](../2022-07-17_album-companion-we-shall-overcome/post.md)(2006);[*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)(2011)<br>
+**Released:** [*We Shall Overcome: The Seeger Sessions: American Land Edition*](../2006-01-01_album-companion-we-shall-overcome/post.md)(2006);[*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)(2011)<br>
 **First performed:** June 22, 2006 (New York City, NY)<br>
 **Last performed:** May 29, 2020 (Boston, MA)<br>
 

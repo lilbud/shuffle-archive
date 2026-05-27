@@ -28,7 +28,7 @@ post_id: 59655
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1981-09-14.jpg.webp)
 
-**1983:** Bruce and the E Street Band record "[Brothers Under the Bridges ('83)](https://estreetshuffle.com/index.php/2019/10/21/roll-of-the-dice-brothers-under-the-bridges-83/)" at The Hit Factory in New York City. It will remain in the vaults for fifteen years before seeing release on *Tracks*.<br>
+**1983:** Bruce and the E Street Band record "[Brothers Under the Bridges ('83)](../2019-10-21_roll-of-the-dice-brothers-under-the-bridges-83/post.md)" at The Hit Factory in New York City. It will remain in the vaults for fifteen years before seeing release on *Tracks*.<br>
 
 [Watch on Youtube: Brothers Under The Bridges ('83) (Studio Outtake - 1983)](https://www.youtube.com/watch?v=dthkGZiL1gA)
 

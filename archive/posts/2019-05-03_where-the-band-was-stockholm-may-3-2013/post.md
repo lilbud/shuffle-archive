@@ -8,14 +8,14 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/05/20130503_2_booklet2.jpg
 post_id: 9779
 ---
-Editor's Note
-
-***Editor's Note:*** *My favorite thing about writing my* *[Kingdom of Days](https://estreetshuffle.com/index.php/category/kingdom-of-days/)* *articles is the "I was there!" discussion they generate with readers. My* *[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*<br>
-
-*That's why I've opened the series to other fans with stories to tell, and I couldn't be happier to feature my friend* ***Anna Lind*** *as the Shuffle's inaugural guest blogger. (**[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next one!)*
-
+> **Editor's Note**
+>
+*My favorite thing about writing my* *[Kingdom of Days](https://estreetshuffle.com/index.php/category/kingdom-of-days/)* *articles is the "I was there!" discussion they generate with readers. My* *[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*
+>
+*That's why I've opened the series to other fans with stories to tell, and I couldn't be happier to feature my friend* ***Anna Lind*** *as the Shuffle's inaugural guest blogger. (**[Drop me a line](mailto:ken@estreetshuffle.com) if you'd like to be our next one!**)*
+>
 *Entirely by coincidence, Anna and I started our own Springsteen-focused blogs just days apart in January 2018. Her* *[Stray Bullet](https://straybullet1973.com/category/blog-english/)* *was the first Bruce-related blog I discovered, and seventeen months later it's still my favorite. Her site features a wonderful mix of song spotlights, concert reviews, thematic essays, and (my favorite) personal stories inspired by Bruce's music.*
-
+>
 > *I highly recommend her blog to readers of this one, and I'm grateful to her for sharing her story below. Without further ado, here's Anna's first-hand account of Bruce's Wrecking Ball show in Stockholm, from May 3, 2013.*<br>
 
 It's early morning of May 3, 2013 as we get in the car and drive off to Stockholm to see Bruce Springsteen and The E Street Band. The drive from Gothenburg to Stockholm takes about 4,5 hours and we want to arrive at the venue in good time before the show. My plan is not only to enjoy the show but also to meet up with friends who I've only talked to on Twitter before.

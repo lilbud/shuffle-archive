@@ -30,7 +30,7 @@ post_id: 58368
 
 [Watch Video Highlight](https://videopress.com/embed/D7LMS4B8)
 
-**1985:** At Pittsburgh's Three Rivers Stadium, Nils and Roy miss their signal to take the stage, so Bruce starts the show and plays "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" without them. Bruce will do a pre-show headcount ever after.<br>
+**1985:** At Pittsburgh's Three Rivers Stadium, Nils and Roy miss their signal to take the stage, so Bruce starts the show and plays "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" without them. Bruce will do a pre-show headcount ever after.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/LBLlimMh)
 
@@ -50,7 +50,7 @@ post_id: 58368
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1989-08-11b.png.webp)
 
-**1999:** It's the penultimate show of Bruce and the E Street Band's fifteen-night Reunion Tour stand at East Rutherford's Continental Airlines Arena, and the show rockets out of the gate with the first performance of "[Night](../2019-10-31_roll-of-the-dice-night/post.md)" in 15 years. Later in the show: the first "New York City Serenade" in 24 years, and the show-closing tour premiere of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
+**1999:** It's the penultimate show of Bruce and the E Street Band's fifteen-night Reunion Tour stand at East Rutherford's Continental Airlines Arena, and the show rockets out of the gate with the first performance of "[Night](../2019-10-31_roll-of-the-dice-night/post.md)" in 15 years. Later in the show: the first "New York City Serenade" in 24 years, and the show-closing tour premiere of "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/a9oVxoDc)
 

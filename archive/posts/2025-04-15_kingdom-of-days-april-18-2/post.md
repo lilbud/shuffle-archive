@@ -48,7 +48,7 @@ post_id: 56556
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2003-04-18-rotated.jpg.webp)
 
-**2004:** Patti plays two live shows to promote her upcoming *23rd Street Lullaby* album at The Hit Factory in New York City. Bruce provides backing vocals and guitar on "[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)" and "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)." The initial run of the album will include a bonus disc with a live track from this show, but you can watch Patti's entire concert from that night below.<br>
+**2004:** Patti plays two live shows to promote her upcoming *23rd Street Lullaby* album at The Hit Factory in New York City. Bruce provides backing vocals and guitar on "[Love (Stand Up)](../2021-02-14_matr-patti-scialfa-and-bruce-springsteen-love-stand-up/post.md)" and "[As Long As I (Can Be With You)](../2018-10-02_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/post.md)." The initial run of the album will include a bonus disc with a live track from this show, but you can watch Patti's entire concert from that night below.<br>
 
 [Watch on Youtube: Patti Scialfa - Live at The Hit Factory in New York City - 2004-04-18](https://www.youtube.com/watch?v=WMG0Ji8Qqi4)
 

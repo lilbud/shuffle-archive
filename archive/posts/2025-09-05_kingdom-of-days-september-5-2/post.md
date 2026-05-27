@@ -24,7 +24,7 @@ post_id: 59550
 
 [Watch on Youtube: Hungry Heart](https://www.youtube.com/watch?v=0rapQZffjOM)
 
-**1981:** Bruce makes a guest appearance with The Pretenders on "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)" at Perkins Palace in Pasadena, taking a solo verse towards the end.<br>
+**1981:** Bruce makes a guest appearance with The Pretenders on "[(Your Love Keeps Lifting Me) Higher and Higher](../2018-09-23_cover-me-your-love-keeps-lifting-me-higher-and-higher/post.md)" at Perkins Palace in Pasadena, taking a solo verse towards the end.<br>
 
 [Watch on Youtube: The Pretenders and Bruce Springsteen, "Higher and Higher" 1981-09-05](https://www.youtube.com/watch?v=hgKYmoIcAIU)
 

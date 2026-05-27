@@ -42,7 +42,7 @@ By this point, Kris and I had either forgotten about or given up on the request[
 
 That was my first and still my only "Janey, Don't You Lose Heart," and it was worth the wait.
 
-Back to the piano for "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" and "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)," and then the standard set closers. But there were more surprises in store for the encores, starting with the Canadian debut of "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" (how is that even possible?) and a lovely "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" to mark the end of Bruce's "summer extravaganza."
+Back to the piano for "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" and "[Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)," and then the standard set closers. But there were more surprises in store for the encores, starting with the Canadian debut of "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" (how is that even possible?) and a lovely "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" to mark the end of Bruce's "summer extravaganza."
 
 [Watch Video Highlight](https://videopress.com/embed/CZlO2PIW)
 

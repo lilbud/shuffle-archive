@@ -24,6 +24,6 @@ post_id: 63727
 
 [Watch on Youtube: Bruce Springsteen - Commercial for "Fire" - 1987-01-01](https://www.youtube.com/watch?v=grhe4slilF8)
 
-**2000:** On the first day of the new millennium, *American Top 40* host Casey Kasem recounts the most memorable hits and events in rock and roll history, including Bruce Springsteen's "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
+**2000:** On the first day of the new millennium, *American Top 40* host Casey Kasem recounts the most memorable hits and events in rock and roll history, including Bruce Springsteen's "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3)

@@ -80,7 +80,7 @@ post_id: 56858
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2000-05-29b.jpg.webp)
 
-**2003:** Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
+**2003:** Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)."<br>
 
 [Watch on Youtube: Manchester 29/05/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic)
 

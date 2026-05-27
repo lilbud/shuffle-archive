@@ -14,7 +14,7 @@ In the summer of 1978, Bruce Springsteen was practically obsessed with the music
 
 It wouldn’t be long before Williams’ influence made itself known in Bruce’s songwriting, but it turned up on stage right away.
 
-Just two days after Bruce gave that interview to Ed Sciaky, he soundchecked Hank’s “[Jambalaya (On the Bayou)](https://estreetshuffle.com/index.php/2019/09/14/cover-me-jambalaya-on-the-bayou/).” A week later, he included his first Hank Williams song in his main set, “[(I Heard That) Lonesome Whistle](https://estreetshuffle.com/index.php/2019/12/07/cover-me-i-heard-that-lonesome-whistle/).”
+Just two days after Bruce gave that interview to Ed Sciaky, he soundchecked Hank’s “[Jambalaya (On the Bayou)](../2019-09-14_cover-me-jambalaya-on-the-bayou/post.md).” A week later, he included his first Hank Williams song in his main set, “[(I Heard That) Lonesome Whistle](../2019-12-07_cover-me-i-heard-that-lonesome-whistle/post.md).”
 
 In the bootlegged audio from that show, the crowd sounds respectful but disengaged, which may be why Bruce decided to save his Hank Williams covers for soundchecks.
 

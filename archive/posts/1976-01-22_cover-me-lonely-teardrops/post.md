@@ -16,7 +16,7 @@ It was the song that made Wilson a superstar, earning him the sobriquet "Mr. Exc
 
 Today, "Lonely Teardrops" is enshrined in the Grammy Hall of Fame and sits at a respectable #315 on *Rolling Stone*‘s 500 Greatest Songs of All Time.
 
-When Bruce Springsteen first covered "Lonely Teardrops" in 1988, his hard-core fans were well aware of Bruce's fondness for Jackie Wilson's records: Bruce's closing stand at the Boston Music Hall in 1977 was already legendary (bootleg recordings of the final show had begun to appear on vinyl a few years prior), in part due to Bruce and the E Street Band's memorable show-closing covers of Wilson's "[(Your Love Keeps Lifting Me) Higher and Higher.](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)"
+When Bruce Springsteen first covered "Lonely Teardrops" in 1988, his hard-core fans were well aware of Bruce's fondness for Jackie Wilson's records: Bruce's closing stand at the Boston Music Hall in 1977 was already legendary (bootleg recordings of the final show had begun to appear on vinyl a few years prior), in part due to Bruce and the E Street Band's memorable show-closing covers of Wilson's "[(Your Love Keeps Lifting Me) Higher and Higher.](../2018-09-23_cover-me-your-love-keeps-lifting-me-higher-and-higher/post.md)"
 
 But until the Tunnel of Love Tour more than a decade later, Bruce had never covered Wilson's first great hit. That changed at Bruce's Madison Square Garden stand in May 1988, where in a bit of symmetry Bruce once again closed a pair of shows with a Jackie Wilson cover.
 

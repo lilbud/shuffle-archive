@@ -8,9 +8,9 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/19920605_2_front.jpg
 post_id: 18728
 ---
-Editor's Note
-
-***Editor’s Note:*** *Today’s guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce’s first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*<br>
+> **Editor’s Note:**
+>
+> *Today’s guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce’s first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*<br>
 
 June 5, 1992. I will always remember that date.
 
@@ -37,7 +37,7 @@ He left the stage until showtime. There was time to get food and drinks, which w
 As show time neared, the contest winners were right back up front. The show was broadcast across the country. Here's the setlist and some notes from what I can remember:
 
 - [Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md) (played as a warm-up before the broadcast)
-- [Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)
+- [Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)
 - [Local Hero](../1992-02-04_roll-of-the-dice-local-hero/post.md)
 - [Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)
 - Darkness on the Edge of Town

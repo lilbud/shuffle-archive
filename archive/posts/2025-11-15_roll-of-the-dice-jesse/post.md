@@ -16,7 +16,7 @@ Enter "Jesse."
 
 Recorded with crystal clarity at the apartment of Jim Cretecos (Mike Appel's business partner), "Jesse" is a superb document of Bruce's early acoustic songwriting. (See my earlier essay on "[Hollywood Kids](../2011-01-19-roll-of-the-dice-hollywood-kids/post.md/)" for another lost Springsteen original from this session. "Jesse" is much stronger, though.)
 
-If you listen closely, you'll hear the first evidence of what would eventually become "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)." (The meter is the same, and the third line of each verse is musically almost identical to "Sandy.")
+If you listen closely, you'll hear the first evidence of what would eventually become "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)." (The meter is the same, and the third line of each verse is musically almost identical to "Sandy.")
 
 [Watch on Youtube: Bruce Springsteen - Jesse](https://www.youtube.com/watch?v=3eIuZXI4rTc)
 

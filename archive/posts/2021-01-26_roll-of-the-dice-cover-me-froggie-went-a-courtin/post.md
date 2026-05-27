@@ -8,7 +8,7 @@ categories: cover-me roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/FroggieWentaCourting.png
 post_id: 24640
 ---
-True fact: Bruce's first solo on [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md)comes ninety seconds before the end of the album, when he finally allows himself a moment in the instrumental spotlight with his harmonica.
+True fact: Bruce's first solo on [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md)comes ninety seconds before the end of the album, when he finally allows himself a moment in the instrumental spotlight with his harmonica.
 
 [Watch on Youtube: Froggie Went a Courtin'](https://www.youtube.com/watch?v=hmVDaczx9nU)
 

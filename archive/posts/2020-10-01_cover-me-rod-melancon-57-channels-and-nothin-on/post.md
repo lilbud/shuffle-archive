@@ -10,7 +10,7 @@ post_id: 21385
 ---
 This.
 
-For anyone who thinks "[57 Channels (And Nothin' On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)" sizzles on vinyl but fizzled on stage, *this* is how you capture the dystopian alienation of Bruce's original without distorting it into the production number it became during Bruce's 1992-1993 tour. Courtesy of Red Melancon and his band:
+For anyone who thinks "[57 Channels (And Nothin' On)](../2020-05-17_roll-of-the-dice-57-channels-and-nothin-on/post.md)" sizzles on vinyl but fizzled on stage, *this* is how you capture the dystopian alienation of Bruce's original without distorting it into the production number it became during Bruce's 1992-1993 tour. Courtesy of Red Melancon and his band:
 
 [Watch on Youtube: Rod Melancon - 57 Channels (And Nothin' On) (Bruce Springsteen cover live Hotell Hulingen)](https://www.youtube.com/watch?v=qQzD62E0CTk)
 

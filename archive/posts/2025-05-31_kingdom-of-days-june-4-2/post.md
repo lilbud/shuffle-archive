@@ -34,7 +34,7 @@ post_id: 56996
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Daily_Post__Merseyside_ed___Wed__Jun_5__1985_.jpg.webp)
 
-**2000:** A momentous Reunion show in Atlanta, featuring the world premieres of "[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)," which opens the show, and "American Skin (41 Shots)" which sparks a controversy with law enforcement that will heighten as the tour rolls into its final, legendary, New York City stand next week. Take a listen to that debut performance of "American Skin (41 Shots)" below, in a crystal clear IEM recording that has not circulated until now.<br>
+**2000:** A momentous Reunion show in Atlanta, featuring the world premieres of "[Further On (Up the Road)](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)," which opens the show, and "American Skin (41 Shots)" which sparks a controversy with law enforcement that will heighten as the tour rolls into its final, legendary, New York City stand next week. Take a listen to that debut performance of "American Skin (41 Shots)" below, in a crystal clear IEM recording that has not circulated until now.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Wx7WRyqt)
 

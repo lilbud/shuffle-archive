@@ -18,7 +18,7 @@ post_id: 56995
 
 **1977:** Recording continues for Bruce's fourth album. Today the band works on "[Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)," "[Candy's Boy](../2020-09-02_roll-of-the-dice-candys-boy/post.md)," and "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)."<br>
 
-**1978:** The Darkness Tour stops at the Nassau Coliseum in Uniondale, New York. Bruce tour premieres "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" in the encore.<br>
+**1978:** The Darkness Tour stops at the Nassau Coliseum in Uniondale, New York. Bruce tour premieres "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" in the encore.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/hOUDtFAd)
 

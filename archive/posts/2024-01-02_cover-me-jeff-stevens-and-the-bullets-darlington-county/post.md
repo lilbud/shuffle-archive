@@ -14,7 +14,7 @@ How many *Born in the U.S.A.* songs charted as singles?
 
 …stump your questioner by answering eight instead of seven.
 
-Because in addition to "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)," "[Born in the U.S.A.,](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)," "Glory Days," "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)," and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," one other song made a brief appearance on the Billboard charts.
+Because in addition to "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)," "[Born in the U.S.A.,](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)," "Glory Days," "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)," and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," one other song made a brief appearance on the Billboard charts.
 
 Except it was the Country chart rather than the Hot 100, and it didn't chart until 1986.
 

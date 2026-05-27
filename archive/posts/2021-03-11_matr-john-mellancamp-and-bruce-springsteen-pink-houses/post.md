@@ -14,7 +14,7 @@ I reckon every songwriter has a list of songs they wish they'd written, and I ha
 
 John Mellencamp's 1983 single (it peaked at #8 in early 1984) has a lot in common with Bruce's material at the time. For one thing, it was famously misinterpreted. With an anthemic backing track and a rousing chorus, it's easy to overlook the song's critical lyrics, which scold America for not being accountable to its ideals.
 
-In fact, while President Reagan was latching onto Bruce's "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" during his 1984 reelection campaign, he was also playing "Pink Houses" at his campaign stops. "Pink Houses" has been co-opted by conservative politicians and causes ever since its release; its very liberal author had to ask candidates Reagan, Bush, and McCain to kindly cease and desist.
+In fact, while President Reagan was latching onto Bruce's "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" during his 1984 reelection campaign, he was also playing "Pink Houses" at his campaign stops. "Pink Houses" has been co-opted by conservative politicians and causes ever since its release; its very liberal author had to ask candidates Reagan, Bush, and McCain to kindly cease and desist.
 
 Today, "Pink Houses" is considered one of Mellencamp's greatest songs, and *Rolling Stone* has enshrined it as #447 on its Greatest Songs of All-Time list.
 

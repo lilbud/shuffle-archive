@@ -70,7 +70,7 @@ post_id: 59722
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1991-09-26b.jpg.webp)
 
-**1996:** At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce reprises his newest song, "[In Michigan](../2022-04-12_roll-of-the-dice-in-michigan/post.md)" and plays "[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" for the first time in fifteen years.<br>
+**1996:** At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce reprises his newest song, "[In Michigan](../2022-04-12_roll-of-the-dice-in-michigan/post.md)" and plays "[Plane Wreck at Los Gatos (Deportee)](../2020-01-05_cover-me-deportee-plane-wreck-at-los-gatos/post.md)" for the first time in fifteen years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Deportee" - Live in Ann Arbor, MI - 9/26/1996](https://www.youtube.com/watch?v=Y_HHMd94a0s)
 

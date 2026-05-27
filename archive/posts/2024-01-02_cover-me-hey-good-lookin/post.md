@@ -18,7 +18,7 @@ Bruce did play it live, though–one time only–and it wasn’t even on the See
 
 Nope, this one was in Asbury Park, at Bruce’s last show of the 20th century.
 
-I wrote about that show last month when I shared Bruce’s soundchecked cover of another Hank Williams song, “[Jambalaya (On the Bayou)](https://estreetshuffle.com/index.php/2019/09/14/cover-me-jambalaya-on-the-bayou/).” Bruce’s cover of “Hey Good Lookin'” comes from the same rehearsal–in fact, it immediately followed “Jambalaya,” making for a Hank Williams double-header.
+I wrote about that show last month when I shared Bruce’s soundchecked cover of another Hank Williams song, “[Jambalaya (On the Bayou)](../2019-09-14_cover-me-jambalaya-on-the-bayou/post.md).” Bruce’s cover of “Hey Good Lookin'” comes from the same rehearsal–in fact, it immediately followed “Jambalaya,” making for a Hank Williams double-header.
 
 It’s more than a bit loose and messy, but that’s part of the charm. Take a listen to Bruce, Patti, Garry, Nils, Soozie, Lisa Lowell, and Southside Johnny on the harp having a ball and falling all over themselves:
 

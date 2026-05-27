@@ -54,7 +54,7 @@ Also today, Little Steven releases his third solo album, *Freedom–No Compromis
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/05/Philadelphia_Daily_News_1997_05_14_Page_40-scaled.jpg.webp)
 
-**2003:** The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" for the occasion. The show opener is special as well: an beautiful acoustic version of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)."<br>
+**2003:** The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere of "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" for the occasion. The show opener is special as well: an beautiful acoustic version of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/zFmXQFNE)
 

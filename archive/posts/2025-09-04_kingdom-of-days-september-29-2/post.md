@@ -22,7 +22,7 @@ post_id: 59734
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/1976-09-29.jpg.webp)
 
-**1977:** Bruce records "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)" and "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)" at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.<br>
+**1977:** Bruce records "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)" and "[Someday (We'll Be Together)](../2019-10-03_roll-of-the-dice-someday-well-be-together/post.md)" at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.<br>
 
 [Watch on Youtube: Rendezvous](https://www.youtube.com/watch?v=0ena3tWYo-g)
 

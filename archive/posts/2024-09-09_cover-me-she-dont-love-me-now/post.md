@@ -18,7 +18,7 @@ I'm not saying *Only the Strong Survive* is a bad album–far from it. It's full
 
 But despite its subtitle, I'd argue that it's not so much a covers album as a vocals album, designed to highlight Springsteen as soul crooner rather than interpreter. Every song hews faithfully to its original arrangement. There's no reason to listen to any of the tracks except to hear what the song sounds like with Bruce's voice singing it.
 
-If we listen to "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)," "[Jersey Girl,](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" or anything from the [Seeger Sessions era](../2022-07-17_album-companion-we-shall-overcome/post.md), by contrast, we glean a true appreciation for Bruce's ability to reinvigorate a song that was already great to begin with.
+If we listen to "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)," "[Jersey Girl,](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" or anything from the [Seeger Sessions era](../2006-01-01_album-companion-we-shall-overcome/post.md), by contrast, we glean a true appreciation for Bruce's ability to reinvigorate a song that was already great to begin with.
 
 Which is why it's so refreshing to hear Bruce's rendition of Jesse Malin's "She Don't Love Me Now,"
 a return to form for Bruce and a fitting tribute to [an artist we've featured here many times before](https://estreetshuffle.com/?s=jesse+malin).

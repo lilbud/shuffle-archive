@@ -24,7 +24,7 @@ post_id: 59419
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Atlanta, GA 1975-08-23 (Soundboard)](https://www.youtube.com/watch?v=xYG03nqdFqE)
 
-**1977:** Bruce and the band work on "[Come On (Let's Go Tonight)](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)" at a recording session in New York City.<br>
+**1977:** Bruce and the band work on "[Come On (Let's Go Tonight)](../2020-12-05_roll-of-the-dice-come-on-lets-go-tonight/post.md)" at a recording session in New York City.<br>
 
 **1978:** On the final night (of three) at Madison Square Garden on the Darkness Tour, Bruce brings his mom on stage during the final encore of "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)."<br>
 
@@ -62,7 +62,7 @@ post_id: 59419
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2008-08-23.png.webp)
 
-**2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)" followed by an instrumental "[(Love is Like a) Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "[American Land.](../2016-01-22_roll-of-the-dice-american-land/post.md)"<br>
+**2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)" followed by an instrumental "[(Love is Like a) Heat Wave](../2020-02-18_matr-bruce-springsteen-and-martha-reeves-heat-wave/post.md)" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "[American Land.](../2016-01-22_roll-of-the-dice-american-land/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen "Independence Day" Mansfield 8-23-09](https://www.youtube.com/watch?v=vJTpQPqjBU4)
 

@@ -16,7 +16,7 @@ post_id: 56072
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/1973-0303.jpg.webp)
 
-**1974:** Bruce and the band play two shows at Georgetown University in Washington, DC. The first show's set list features the entire *Wild & Innocent* album, the last known such occurrence for 35 years. The late show is broadcast on campus radio and features the last performance of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" with its original lyrics until 2005.<br>
+**1974:** Bruce and the band play two shows at Georgetown University in Washington, DC. The first show's set list features the entire *Wild & Innocent* album, the last known such occurrence for 35 years. The late show is broadcast on campus radio and features the last performance of "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" with its original lyrics until 2005.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1974-03-03 Gaston Hall, Washington, DC](https://www.youtube.com/watch?v=QKt4kLHbLHk)
 

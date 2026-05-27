@@ -8,12 +8,12 @@ categories: two-faces
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/rockaway.jpg
 post_id: 31153
 ---
-Editor's Note
-
-***Editor's Note:*** *By popular demand, guest blogger Katy Crane returns today with a new **Two Faces** entry.*<br>
-
+> **Editor's Note:**
+>
+> *By popular demand, guest blogger Katy Crane returns today with a new **Two Faces** entry.*<br>
+>
 > *And I do mean popular: Katy's [debut counterpoint](../2021-11-04_two-faces-western-stars/post.md) to my "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)" Roll of the Dice essay already ranks #3 among this site's most-viewed posts of the year!*<br>
-
+>
 > *Today, she takes us deep into a much more obscure song: Bruce's 1984 outtake, "[Rockaway the Days](../2021-03-15_roll-of-the-dice-rockaway-the-days/post.md)." And once again, Katy's take is a very different one from mine. Let's hear what she has to say…*<br>
 
 The 1984 outtake "Rockaway the Days" opens with a poignant little guitar riff, cheerful and reassuring and wistful all at once. Then we hear Springsteen's voice, telling a grim story with the sing-song cadences of a lullaby:

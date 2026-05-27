@@ -38,7 +38,7 @@ post_id: 61249
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/33582182768_17f5871a49_o.jpg.webp)
 
-**1984:** Bruce releases the latest single, the [title track](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md) from his mega-hit *Born in the U.S.A.* album.<br>
+**1984:** Bruce releases the latest single, the [title track](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md) from his mega-hit *Born in the U.S.A.* album.<br>
 
 [Watch on Youtube: Born in the U.S.A.](https://www.youtube.com/watch?v=tRx212PUa4g)
 

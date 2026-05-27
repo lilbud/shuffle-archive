@@ -12,7 +12,7 @@ post_id: 55973
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/02/Asbury_Park_Press_1948_02_27_Page_12-scaled.jpg.webp)
 
-**1970:** Steel Mill records three Springsteen original songs (“[He’s Guilty (The Judge Song)](https://estreetshuffle.com/index.php/2020/07/10/roll-of-the-dice-hes-guilty-the-judge-song/),” “[Goin’ Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md),” and “[The Train Song](../2021-10-06_roll-of-the-dice-the-train-song/post.md)“) at Pacific Recording Studio in San Mateo, California. This is only Bruce’s second time in a recording studio. Two of the three songs will remain in the vault, but “He’s Guilty (The Judge Song)” will finally see the light of day in 2017’s *Chapter and Verse*.<br>
+**1970:** Steel Mill records three Springsteen original songs (“[He’s Guilty (The Judge Song)](../2020-07-10_roll-of-the-dice-hes-guilty-the-judge-song/post.md),” “[Goin’ Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md),” and “[The Train Song](../2021-10-06_roll-of-the-dice-the-train-song/post.md)“) at Pacific Recording Studio in San Mateo, California. This is only Bruce’s second time in a recording studio. Two of the three songs will remain in the vault, but “He’s Guilty (The Judge Song)” will finally see the light of day in 2017’s *Chapter and Verse*.<br>
 
 [Watch on Youtube: He's Guilty (The Judge Song)](https://www.youtube.com/watch?v=FyVMIHwt8oI)
 

@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/shutout-1.png
 post_id: 21387
 ---
-**Blogger's Note:** It's impossible to discuss the genesis and evolution of "Shut Out the Light" without referencing the two songs with which it's inseparably intertwined. Since I've already written about both at length, I strongly recommend that if you haven't already (or recently) read them, take a few minutes to do so now. Start with "[Vietnam](../1984-01-02_roll-of-the-dice-vietnam/post.md)," which has essential backstory for truly appreciating "Shut Out the Light." If you have time, review "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" to understand how that song evolved once Bruce started developing its fraternal twin.<br>
+**Blogger's Note:** It's impossible to discuss the genesis and evolution of "Shut Out the Light" without referencing the two songs with which it's inseparably intertwined. Since I've already written about both at length, I strongly recommend that if you haven't already (or recently) read them, take a few minutes to do so now. Start with "[Vietnam](../1984-01-02_roll-of-the-dice-vietnam/post.md)," which has essential backstory for truly appreciating "Shut Out the Light." If you have time, review "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" to understand how that song evolved once Bruce started developing its fraternal twin.<br>
 
 ---
 

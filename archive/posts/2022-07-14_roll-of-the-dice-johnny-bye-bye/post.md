@@ -18,7 +18,7 @@ He'd been on the road non-stop for six months, and he needed a break. He'd compl
 
 Atypically, he cancelled almost three weeks worth of shows and retreated to his home in Colts Neck, New Jersey to rest. And because he's Bruce Springsteen, he wrote.
 
-He had an outtake from his previous record called "[Come On (Let's Go Tonight)](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)" that didn't make either *Darkness on the Edge of Town* or *The River–*most likely because its melody (and a few of its lyrics) gave way to "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."
+He had an outtake from his previous record called "[Come On (Let's Go Tonight)](../2020-12-05_roll-of-the-dice-come-on-lets-go-tonight/post.md)" that didn't make either *Darkness on the Edge of Town* or *The River–*most likely because its melody (and a few of its lyrics) gave way to "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j_LBQD2nghw)
 

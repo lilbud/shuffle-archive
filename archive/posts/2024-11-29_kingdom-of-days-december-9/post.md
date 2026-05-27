@@ -46,7 +46,7 @@ post_id: 55271
 
 [Watch on Youtube: Streets of Philadelphia (Live at the Tower Theater, Upper Darby, PA - 12/9/1995)](https://www.youtube.com/watch?v=TkOUULX78vE)
 
-**1998:** From Stockholm to Paris: Bruce appears on French TV show *Nulle Part Ailleurs*, granting an interview and performing "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Also on this date: *Tracks* is certified platinum by the Recording Industry Association of America.<br>
+**1998:** From Stockholm to Paris: Bruce appears on French TV show *Nulle Part Ailleurs*, granting an interview and performing "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" Also on this date: *Tracks* is certified platinum by the Recording Industry Association of America.<br>
 
 [Watch Video](https://www.dailymotion.com/embed/video/xjumi)
 

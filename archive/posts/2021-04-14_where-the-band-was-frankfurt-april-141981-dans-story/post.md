@@ -8,12 +8,12 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/df4.png
 post_id: 25023
 ---
-Editor's Note
-
-***Editor's Note:*** *Today's guest blogger has the most vividly detailed and colorful E Street adventure I've ever heard (so much so that I've had to split it into two parts).*<br>
-
+> **Editor's Note**
+>
+> *Today's guest blogger has the most vividly detailed and colorful E Street adventure I've ever heard (so much so that I've had to split it into two parts).*<br>
+>
 > *Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant [Facebook community](https://www.facebook.com/groups/290908270798).*<br>
-
+>
 > *Dan's story has to be read (and re-read) to be believed, so without further ado, Dan's adventure begins.*<br>
 
 Let me set the scene: when Bruce Springsteen and the E Street Band toured Europe in the spring of 1981 to support *The River*, I was living in London, out of work, with only my home-made fanzine *Point Blank* to my name.

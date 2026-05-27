@@ -22,7 +22,7 @@ Supergroup The Power Station covered it in 1985, and their version (slightly ret
 
 When Bruce tackled it for the one and only time, it was with a supergroup of sorts, too. On the night of October 21, 1994, Bruce joined an all-star line-up at The Playpen in Sayreville, New Jersey.
 
-Together with John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy, Bruce tackled an impromptu “Bang a Gong (Get It On)” before seguing seamlessly into “[(Get Your Kicks on) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/).” Listen to that one-time-only performance below.
+Together with John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy, Bruce tackled an impromptu “Bang a Gong (Get It On)” before seguing seamlessly into “[(Get Your Kicks on) Route 66](../2019-08-15_cover-me-get-your-kicks-on-route-66/post.md).” Listen to that one-time-only performance below.
 
 [Watch on Youtube: Bruce Springsteen, John Eddie, and Friends - "Bang a Gong (Get It On)" / "Route 66"](https://www.youtube.com/watch?v=9osA0jMFeBk)
 

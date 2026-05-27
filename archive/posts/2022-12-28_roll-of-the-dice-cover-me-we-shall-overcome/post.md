@@ -38,7 +38,7 @@ The tribute album was released in 1998, and Bruce's "We Shall Overcome" leads of
 
 In the aftermath of September 11, Bruce's version of "We Shall Overcome" made frequent appearance on TV news and documentary specials, and along with "My City of Ruins" helped shore up strength and resilience among frightened citizens.
 
-Eight years after that original home recording session, Bruce revisited "We Shall Overcome" and the five other songs recorded back in 1997, and he supplemented them with nine new recordings using the same musicians. A third and final recording session in early 2006 completed the collection that would yield [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md)and inspire one of Bruce's shortest, under-attended and joyous tours ever.
+Eight years after that original home recording session, Bruce revisited "We Shall Overcome" and the five other songs recorded back in 1997, and he supplemented them with nine new recordings using the same musicians. A third and final recording session in early 2006 completed the collection that would yield [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md)and inspire one of Bruce's shortest, under-attended and joyous tours ever.
 
 Here's the album version of "We Shall Overcome." If you listen with sharp ears, you'll hear the differences in the mix from the original version.
 

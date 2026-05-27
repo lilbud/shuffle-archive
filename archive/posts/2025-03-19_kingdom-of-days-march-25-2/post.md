@@ -14,7 +14,7 @@ post_id: 56287
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/03/The_Columbia_Record_1976_03_26_page_6.jpg.webp)
 
-**1977:** The Lawsuit Tour comes to a close with a final show at Boston's Music Hall, featuring the last "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)" for 22 years, the last "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)" for 32 years, and the last "[Action in the Streets](../2022-06-27_roll-of-the-dice-action-in-the-streets/post.md)" for 34 years.<br>
+**1977:** The Lawsuit Tour comes to a close with a final show at Boston's Music Hall, featuring the last "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)" for 22 years, the last "[(Your Love Keeps Lifting Me) Higher and Higher](../2018-09-23_cover-me-your-love-keeps-lifting-me-higher-and-higher/post.md)" for 32 years, and the last "[Action in the Streets](../2022-06-27_roll-of-the-dice-action-in-the-streets/post.md)" for 34 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - DON'T LOOK BACK 1977 (audio)](https://www.youtube.com/watch?v=s_cwfe-0E8w)
 

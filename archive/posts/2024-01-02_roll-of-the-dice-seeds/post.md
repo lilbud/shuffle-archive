@@ -62,7 +62,7 @@ At this point, a limousine passes by (presumably carrying an oil executive, whos
 
 The bigwig doesn't even acknowledge the presence of his former workers now out on the street. Presumably the exec is rich enough to forget their names, a notion that Bruce would make more explicit in another song on *The Ghost of Tom Joad.*
 
-But Bruce's next lines are a callback to one of his most popular contemporary songs. Like the narrator of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," our hero in "Seeds" feels like a dog who's been beat too much and has hit the ground too many times. These next lines are among Bruce's angriest and most bitter:
+But Bruce's next lines are a callback to one of his most popular contemporary songs. Like the narrator of "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)," our hero in "Seeds" feels like a dog who's been beat too much and has hit the ground too many times. These next lines are among Bruce's angriest and most bitter:
 
 > *How many times can you get up after you've been hit*<br>
 > *Well I swear if I could spare the spit*<br>

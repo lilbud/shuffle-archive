@@ -242,7 +242,7 @@ def get_posts(
 ) -> list | None:
     res = cur.execute(
         """
-        select * from published_posts
+        select * from published_posts where slug = 'january-4'
         """,
     ).fetchall()
 

@@ -18,7 +18,7 @@ post_id: 56572
 
 **1976:** Bruce and the E Street Band play a sparsely attended show at Knoxville Civic Auditorium in Knoxville, Tennessee.<br>
 
-**1980:** At Clover Studios in Los Angeles, Bruce works on the final mixes for "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)."<br>
+**1980:** At Clover Studios in Los Angeles, Bruce works on the final mixes for "[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)" and "[Held Up Without a Gun](../2021-10-12_roll-of-the-dice-held-up-without-a-gun/post.md)."<br>
 
 [Watch on Youtube: You Can Look (But You Better Not Touch)](https://www.youtube.com/watch?v=2QFJkYm-kYk)
 

@@ -34,7 +34,7 @@ As the minutes ticked by and it got closer to showtime, I was genuinely excitedâ
 
 And then the lights went downâ€“and within seconds, we had surprise number one: I was so prepared for and expecting "When You Walk in the Room" that it took me a few seconds to realize that he was playing a *different* old-school out-take, and this one hadn't been played for even a longer time. In fact, the very last time it was played was this very same date 33 years prior.
 
-Bruce was opening the show with a cover of The Crystals' "[Then (S)he Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)."
+Bruce was opening the show with a cover of The Crystals' "[Then (S)he Kissed Me](../2020-12-03_cover-me-then-she-kissed-me/post.md)."
 
 Holy. Freaking. Moley.
 

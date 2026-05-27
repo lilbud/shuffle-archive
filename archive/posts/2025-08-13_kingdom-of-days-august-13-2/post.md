@@ -48,7 +48,7 @@ As for the journalists and critics in attendance, most are won over... but not a
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2003-08-13.png.webp)
 
-**2005:[../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md)**Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour premiering "Because the Night" and giving "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" a rare outing. Fore more highlights from this show, see my [*Where the Band Was* report](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md).<br>
+**2005:[../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md)**Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour premiering "Because the Night" and giving "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" a rare outing. Fore more highlights from this show, see my [*Where the Band Was* report](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - Living Proof on Pump Organ, August 13, 2005](https://www.youtube.com/watch?v=PxtqtXjKuSo?list=PLnbVaK2f4rag5C9NKr6BBJqJ78CeJTqSg)
 

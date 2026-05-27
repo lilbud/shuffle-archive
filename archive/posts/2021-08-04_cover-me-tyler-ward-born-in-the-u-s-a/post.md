@@ -16,7 +16,7 @@ Ward has been building an online following since 2008, through a steady stream o
 
 Yet even though he's been releasing online content constantly for more than a dozen years, it wasn't until a few weeks ago that he covered Bruce Springsteen.
 
-On Independence Day, Tyler released a cover of "[Born in the U.S.A.,](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and with as many followers as he has, it didn't need to be good to get attention.
+On Independence Day, Tyler released a cover of "[Born in the U.S.A.,](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" and with as many followers as he has, it didn't need to be good to get attention.
 
 But holy moly, this is a *damn* good cover–vibrant yet poignant, simmering and seething with carefully contained emotion until it just explodes with anguish and protest.
 

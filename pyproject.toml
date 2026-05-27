@@ -12,10 +12,14 @@ dependencies = [
     "markdown>=3.9",
     "pandas>=2.3.3",
     "pre-commit>=4.6.0",
+    "psycopg[binary,pool]>=3.3.4",
     "pymarkdownlnt>=0.9.37",
+    "python-dotenv>=1.2.2",
     "standardebooks>=2.10.2",
     "user-agent>=0.1.14",
     "utidylib>=1.0.0",
+    "yt-dlp>=2026.3.17",
+    "yt-dlp-ejs>=0.8.0",
 ]
 [tool.ty.rules]
 not-subscriptable = "ignore"

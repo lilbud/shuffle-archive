@@ -58,7 +58,7 @@ Later that night–so late that it's technically the following day, August 31–
 
 [Watch on Youtube: Bruce Springsteen Across The Border (with Emmylou Harris) Giants Stadium New Jersey 30/08/2003](https://www.youtube.com/watch?v=jGOuUpIBAwk)
 
-**2008:** An epilogue for the Magic Tour: Bruce and the E Street Band headline the Harley Davidson 105th Anniversary Festival at The Roadhouse at The Lakefront in Milwaukee. "[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" is a fitting opener, and "[Born to Be Wild](../2020-05-20_cover-me-born-to-be-wild/post.md)" bookends it as the final encore. "[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)" is a mid-set tour premiere (its first appearance in 23 years), and Danny Federici's son Jason plays his dad's part on "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
+**2008:** An epilogue for the Magic Tour: Bruce and the E Street Band headline the Harley Davidson 105th Anniversary Festival at The Roadhouse at The Lakefront in Milwaukee. "[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" is a fitting opener, and "[Born to Be Wild](../2020-05-20_cover-me-born-to-be-wild/post.md)" bookends it as the final encore. "[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md)" is a mid-set tour premiere (its first appearance in 23 years), and Danny Federici's son Jason plays his dad's part on "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)."<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN "Wooly Bully" HQ 8-30-08 Harley Fest Milwaukee, WI 2008](https://www.youtube.com/watch?v=WdPr0MDd9kE)
 

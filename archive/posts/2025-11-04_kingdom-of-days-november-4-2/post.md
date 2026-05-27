@@ -30,7 +30,7 @@ post_id: 61283
 
 [Watch on Youtube: Bruce Springsteen radio interview 1977-11-04](https://www.youtube.com/watch?v=yVQZgG2zLgc)
 
-At the recording session itself, Bruce works on "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)," "[Come On (Let's Go Tonight)](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)," and "[Break Out](../2021-03-20_roll-of-the-dice-break-out/post.md)," the last of which has never been released.
+At the recording session itself, Bruce works on "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)," "[Come On (Let's Go Tonight)](../2020-12-05_roll-of-the-dice-come-on-lets-go-tonight/post.md)," and "[Break Out](../2021-03-20_roll-of-the-dice-break-out/post.md)," the last of which has never been released.
 
 [Watch on Youtube: Bruce Springsteen - BREAKOUT (V2b) (Darkness On The Edge Of Town Sessions)](https://www.youtube.com/watch?v=Rz5BxeBz3O4)
 
@@ -38,7 +38,7 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/1978-11-04.png.webp)
 
-**1984:** Bruce and the band wrap up their seven-night Born in the U.S.A. Tour stand at the L.A. Memorial Sports Arena, where Bruce dedicates "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)" to Ron Kovic (who is in attendance). The official video for "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" is filmed at this show.<br>
+**1984:** Bruce and the band wrap up their seven-night Born in the U.S.A. Tour stand at the L.A. Memorial Sports Arena, where Bruce dedicates "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)" to Ron Kovic (who is in attendance). The official video for "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" is filmed at this show.<br>
 
 [Watch on Youtube: Bruce Springsteen - Born in the U.S.A. (Official Video)](https://www.youtube.com/watch?v=EPhWR4d3FJQ)
 
@@ -82,7 +82,7 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 [Watch on Youtube: Bruce Springsteen - Stand Up For Heroes 2009](https://www.youtube.com/watch?v=fS2M_eBbZAg)
 
-**2010:** Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Hall in Pittsburgh for the first of two 15th anniversary shows for *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md).* Bruce opens the show acoustically, with a location-appropriate "[A Good Man is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)" and two other numbers before joining Joe and the band for a set that includes both Grushecky and Springsteen originals, including the very first performance of "[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md)."<br>
+**2010:** Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Hall in Pittsburgh for the first of two 15th anniversary shows for *[American Babylon](../2020-10-17_american-babylon-a-retrospective/post.md).* Bruce opens the show acoustically, with a location-appropriate "[A Good Man is Hard to Find (Pittsburgh)](../2021-04-30_roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/post.md)" and two other numbers before joining Joe and the band for a set that includes both Grushecky and Springsteen originals, including the very first performance of "[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md)."<br>
 
 [Watch on Youtube: Save My Love - Bruce Springsteen, Pittsburgh, Nov. 4, 2010](https://www.youtube.com/watch?v=ng8d_jYqEKQ)
 

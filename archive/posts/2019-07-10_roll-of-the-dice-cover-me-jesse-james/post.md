@@ -8,7 +8,7 @@ categories: cover-me roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/jesse.jpg
 post_id: 10637
 ---
-Of all of Bruce's adaptations on his [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) album, "Jesse James" is perhaps the most faithful. Which is more than a bit ironic, but we'll get to that later.
+Of all of Bruce's adaptations on his [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md) album, "Jesse James" is perhaps the most faithful. Which is more than a bit ironic, but we'll get to that later.
 
 Bruce's 2006 album is chock full of fresh arrangements and updated lyrics for classic folks songs from "[Mrs. McGrath](../2006-01-04_cover-me-rotd-mrs-mcgrath/post.md)" to "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" to the [title track](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md).
 

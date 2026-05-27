@@ -44,7 +44,7 @@ During the extended introduction, Bruce told a new story–the first of several 
 
 [Watch on Youtube: Bruce Springsteen & the ESB: SOMETHING IN THE NIGHT-- 08/23/16](https://www.youtube.com/watch?v=KfDfbXoC4Zw)
 
-But lest we forget that this was still (officially at least) the River Tour, a six-song run of fan favorites from that album followed: “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md),” “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md),” “[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)” “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md),” “[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)” and “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/).”
+But lest we forget that this was still (officially at least) the River Tour, a six-song run of fan favorites from that album followed: “[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md),” “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md),” “[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)” “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md),” “[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)” and “[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md).”
 
 The River run wasn’t unbroken, though–it was punctuated by a few even older songs, starting with “[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/).”
 

@@ -14,7 +14,7 @@ post_id: 56610
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1971-0423.jpg.webp)
 
-**1973:** Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first show in Connecticut. Bruce opens the show with the earliest known performance of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
+**1973:** Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first show in Connecticut. Bruce opens the show with the earliest known performance of "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)."<br>
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/1973-0423.jpg.webp)
 
@@ -22,7 +22,7 @@ post_id: 56610
 
 **1975:** Bruce works on "Jungleland" and "Thunder Road" at the Record Plant in New York City.<br>
 
-**1983:** Bruce works on "[Richfield Whistle](../2022-12-01_roll-of-the-dice-richfield-whistle/post.md)" at his home studio in Los Angeles. As of this writing, the song has never been released. That's due to change soon.<br>
+**1983:** Bruce works on "[Richfield Whistle](../1983-01-15_roll-of-the-dice-richfield-whistle/post.md)" at his home studio in Los Angeles. As of this writing, the song has never been released. That's due to change soon.<br>
 
 [Watch on Youtube: Bruce Springsteen - Richfield Whistle (RARE home demo 1983)](https://www.youtube.com/watch?v=Gn1OcjnKDsw)
 

@@ -54,7 +54,7 @@ post_id: 56993
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1984-06-01b.jpg.webp)
 
-**1985:** Bruce plays his first ever show in Ireland, kicking off the European leg of the Born in the U.S.A. Tour with a show at Slane Castle, before the largest crowd that Bruce has ever played to (over 90,000 people). This is also Bruce's return to the stage after getting married, and he marks the occasion with a one-time-only performance of "[When I Grow Up (To Be a Man)](https://estreetshuffle.com/index.php/2019/07/08/cover-me-when-i-grow-up-to-be-a-man/)" in the encores.<br>
+**1985:** Bruce plays his first ever show in Ireland, kicking off the European leg of the Born in the U.S.A. Tour with a show at Slane Castle, before the largest crowd that Bruce has ever played to (over 90,000 people). This is also Bruce's return to the stage after getting married, and he marks the occasion with a one-time-only performance of "[When I Grow Up (To Be a Man)](../2019-07-08_cover-me-when-i-grow-up-to-be-a-man/post.md)" in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen - WHEN I GROW UP TO BE A MAN 1985 (audio)](https://www.youtube.com/watch?v=FXckY2qzdUU)
 
@@ -82,7 +82,7 @@ post_id: 56993
 
 [Watch Video Highlight](https://videopress.com/embed/4p0FNGab)
 
-**2016:** When the River Tour stops in Glasgow, Bruce opens the show with "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," and tour premieres "American Skin (41 Shots)" and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."<br>
+**2016:** When the River Tour stops in Glasgow, Bruce opens the show with "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," and tour premieres "American Skin (41 Shots)" and "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)."<br>
 
 [Watch on Youtube: 2016-06-01 Bruce Springsteen - American Skin (41 Shots)](https://www.youtube.com/watch?v=vtg-vJbCH34)
 

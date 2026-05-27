@@ -70,7 +70,7 @@ post_id: 57091
 
 [Watch on Youtube: Bruce Springsteen - I need a train to Offenbach](https://www.youtube.com/watch?v=s9Afum2mp5E)
 
-**2000:** Night Two of the final ten-night stand of the Reunion Tour opens with "[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)" at Madison Square Garden and features another powerful "American Skin (41 Shots)."<br>
+**2000:** Night Two of the final ten-night stand of the Reunion Tour opens with "[Further On (Up the Road)](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)" at Madison Square Garden and features another powerful "American Skin (41 Shots)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Jwv1hB7x)
 

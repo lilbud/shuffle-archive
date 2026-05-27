@@ -38,7 +38,7 @@ post_id: 55933
 
 **2012:** Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of “[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md).”<br>
 
-**2013:** Although nominated for three Grammy Awards (Best Rock Performance and Best Rock Song for “We Take Care of Our Own” and Best Rock Album for [*Wrecking Ball*)](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), Bruce goes home empty-handed for the first time since 2000.<br>
+**2013:** Although nominated for three Grammy Awards (Best Rock Performance and Best Rock Song for “We Take Care of Our Own” and Best Rock Album for [*Wrecking Ball*)](../2023-03-28_album-companion-wrecking-ball/post.md), Bruce goes home empty-handed for the first time since 2000.<br>
 
 **2016:** In Hartford’s XL Center, Bruce and the band play “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)” for the first time on the new River Tour.<br>
 

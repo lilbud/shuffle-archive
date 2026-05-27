@@ -22,7 +22,7 @@ post_id: 59420
 
 **1977:** Bruce and the E Street Band hold a recording session in New York City for their upcoming album.<br>
 
-**1979:** Bruce and the band record "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and an early arrangement of "[You Can Look (Buy You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" during a recording session at the Power Station in New York City.<br>
+**1979:** Bruce and the band record "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and an early arrangement of "[You Can Look (Buy You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)" during a recording session at the Power Station in New York City.<br>
 
 [Watch on Youtube: You Can Look (But You Better Not Touch)](https://www.youtube.com/watch?v=69Gz0eCDtXs)
 

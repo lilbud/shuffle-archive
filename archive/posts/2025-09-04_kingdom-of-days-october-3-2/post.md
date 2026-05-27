@@ -88,7 +88,7 @@ post_id: 59752
 
 [Watch on Youtube: Bruce Springsteen - "If I Should Fall Behind" WBJB-FM Radio Appearance, 2005-10-03](https://www.youtube.com/watch?v=RWCr-vhU6V4)
 
-**2006:** In an unusual move, Bruce re-releases *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)* in the same year as its original release, but this time as an *American Land Edition*, featuring five additional tracks and new videos.<br>
+**2006:** In an unusual move, Bruce re-releases *[We Shall Overcome: The Seeger Sessions](../2006-01-01_album-companion-we-shall-overcome/post.md)* in the same year as its original release, but this time as an *American Land Edition*, featuring five additional tracks and new videos.<br>
 
 [Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU?list=OLAK5uy_kLnnZP0WkflWP_7pxkwgEnpQcwdOoEE1o)
 

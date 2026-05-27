@@ -8,7 +8,7 @@ categories: cover-me meeting-across-the-river
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/steve-earle-johnny-come-lately-1988-5.jpg
 post_id: 6260
 ---
-The first time I heard Steve Earle's "Johnny Come Lately," I thought to myself: this sounds like a companion piece to "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"
+The first time I heard Steve Earle's "Johnny Come Lately," I thought to myself: this sounds like a companion piece to "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)"
 
 [Watch on Youtube: Steve Earle - Johnny Come Lately](https://www.youtube.com/watch?v=xVaPwdgezWI)
 

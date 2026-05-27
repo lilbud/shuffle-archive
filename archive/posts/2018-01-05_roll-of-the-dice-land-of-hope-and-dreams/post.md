@@ -62,7 +62,7 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3)
 
-**Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "[Dancing in the Dark](../2022-05-08_matr-joe-grushecky-and-bruce-springsteen-labor-of-love/post.md)."<br>
+**Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Dancing In The Dark"/"Land of Hope and Dreams" - Theater a MSG - 11/4/19](https://www.youtube.com/watch?v=L50sqx9fYjg)
 
@@ -75,7 +75,9 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 [Watch on Youtube: Bruce Springsteen Performs "Land of Hope and Dreams"| Biden-Harris Inauguration 2021](https://www.youtube.com/watch?v=fW_Vny_aXNM)
 
 **Land of Hope and Dreams**<br>
-**Recorded:** July 1, 2000 (live), unknown (studio)**Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)**First performed:** March 18, 1999 (Asbury Park, NJ)<br>
+**Recorded:** July 1, 2000 (live), unknown (studio)<br>
+**Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)<br>
+**First performed:** March 18, 1999 (Asbury Park, NJ)<br>
 **Last performed:** May 24, 2023 (Gothenburg, Sweden)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

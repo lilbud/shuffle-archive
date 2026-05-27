@@ -56,7 +56,7 @@ post_id: 56781
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/2008-0517.jpg.webp)
 
-**2012:** An amazing Wrecking Ball show in Barcelona, where the tour premieres ("[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "Y[ou Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" from the Darkness Tour finally returned–by request–after being absent for 32 years.<br>
+**2012:** An amazing Wrecking Ball show in Barcelona, where the tour premieres ("[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "Y[ou Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)" are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" from the Darkness Tour finally returned–by request–after being absent for 32 years.<br>
 
 [Watch on Youtube: SPRINGSTEEN JACK OF ALL TRADES 2012-05-17 BARCELONA](https://www.youtube.com/watch?v=7orMrJZ8vPM)
 

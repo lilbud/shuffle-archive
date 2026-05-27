@@ -36,7 +36,7 @@ But because I'm an obsessive completist, let's break it down:
 
 [Watch Video Highlight](https://videopress.com/embed/DfGqCrxF)
 
-Musically, "I'll Stand By You" has a soft, easy-listening vibe–kind of like "[Let's Be Friends (Skin to Skin)](https://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)" but without the soul groove. To my ears, it's flat and lifeless–almost the audio equivalent of stock photography.
+Musically, "I'll Stand By You" has a soft, easy-listening vibe–kind of like "[Let's Be Friends (Skin to Skin)](../2018-03-02_roll-of-the-dice-lets-be-friends-skin-to-skin/post.md)" but without the soul groove. To my ears, it's flat and lifeless–almost the audio equivalent of stock photography.
 
 Lyrically, well…
 

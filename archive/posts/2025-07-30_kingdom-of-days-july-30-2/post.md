@@ -40,7 +40,7 @@ post_id: 57850
 
 **1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.<br>
 
-**1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," along with covers of "[One Love](../2019-11-28_matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/post.md)" and "[People Get Ready.](../2019-01-06_matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/post.md)"<br>
+**1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," along with covers of "[One Love](../2019-11-28_matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/post.md)" and "[People Get Ready.](../2019-01-06_matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/r1cTI473)
 
@@ -50,7 +50,7 @@ post_id: 57850
 
 [Watch Video Highlight](https://videopress.com/embed/mpsQeIHo)
 
-**1992:** At Night Five of eleven at World Tour 1992's opening stand in the Meadowlands, Bruce performs "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)" for the first time, and "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" comes out as well, accompanied by only Bruce and Roy.<br>
+**1992:** At Night Five of eleven at World Tour 1992's opening stand in the Meadowlands, Bruce performs "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)" for the first time, and "[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)" comes out as well, accompanied by only Bruce and Roy.<br>
 
 [Watch on Youtube: Bruce Springsteen All the way home meadowlands 1992](https://www.youtube.com/watch?v=_FhpvZT3dks)
 

@@ -28,7 +28,7 @@ post_id: 56669
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/05/1981-0503.jpg.webp)
 
-**1982:** At the Power Station in New York City, Bruce records what will eventually (upon its release more than two years later) become his most recognizable anthem: "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
+**1982:** At the Power Station in New York City, Bruce records what will eventually (upon its release more than two years later) become his most recognizable anthem: "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - Born in the U.S.A. (Official Video)](https://www.youtube.com/watch?v=EPhWR4d3FJQ)
 

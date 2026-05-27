@@ -58,7 +58,7 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 [Watch on Youtube: Bruce Springsteen - Just Like Fire Would (Official Video)](https://www.youtube.com/watch?v=hJ4a_tgJp4I)
 
-**2016:** Bruce and Patti chair the 2016 USET Olympic and Paralympic benefit for the U.S. Equestrian Team. (Their daughter Jessica is a champion equestrian.) Bruce and Patti perform “[Money (That’s What I Want)](https://estreetshuffle.com/index.php/2019/11/26/matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/)” with the house band.<br>
+**2016:** Bruce and Patti chair the 2016 USET Olympic and Paralympic benefit for the U.S. Equestrian Team. (Their daughter Jessica is a champion equestrian.) Bruce and Patti perform “[Money (That’s What I Want)](../2019-11-26_matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/post.md)” with the house band.<br>
 
 [Watch on Youtube: Bruce Springsteen performs at USET Rockin' Rio Gala](https://www.youtube.com/watch?v=e6n2jeN_x7E)
 

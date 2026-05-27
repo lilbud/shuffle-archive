@@ -24,7 +24,7 @@ But then inspiration struck:
 
 "Wait a minute: instead of being worried that *Michigan* is gonna inspire applause, what I should be thinking is: that´s where the money is! The money is in writing songs with people´s hometowns… It really doesn´t matter what you say in the song at all as long as their hometown comes up regularly!"
 
-So in the ten minutes before he took the stage that night (as his own legend would have it), Bruce wrote a song. "And I do have to tell you it´s one of the greatest songs I´ve ever written! Gonna make 'em forget all about that ‘[Born in the U.S.A](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md).' bullshit!"
+So in the ten minutes before he took the stage that night (as his own legend would have it), Bruce wrote a song. "And I do have to tell you it´s one of the greatest songs I´ve ever written! Gonna make 'em forget all about that ‘[Born in the U.S.A](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md).' bullshit!"
 
 And so without further ado, let's take a listen to one of the greatest songs Bruce ever wrote.
 

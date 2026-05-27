@@ -30,7 +30,7 @@ post_id: 56002
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/02/The_Memphis_Press_Scimitar_Thu__Feb_26__1981_-scaled.jpg.webp)
 
-**1986:** Grammy-nominated “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” loses the Record of the Year award to “[We Are the World](../2022-01-30_matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/post.md)” (which at least features Bruce’s vocals).<br>
+**1986:** Grammy-nominated “[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)” loses the Record of the Year award to “[We Are the World](../2022-01-30_matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/post.md)” (which at least features Bruce’s vocals).<br>
 
 [Watch on Youtube: U.S.A. For Africa - We Are the World](https://www.youtube.com/watch?v=9AjkUyX0rVw)
 

@@ -44,7 +44,7 @@ post_id: 56557
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1996:** Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (“[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)“) will be released on Bruce’s *Missing* EP later in the year.<br>
+**1996:** Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (“[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)“) will be released on Bruce’s *Missing* EP later in the year.<br>
 
 [Watch on Youtube: Darkness On the Edge of Town (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=1rh5xrkopE4)
 

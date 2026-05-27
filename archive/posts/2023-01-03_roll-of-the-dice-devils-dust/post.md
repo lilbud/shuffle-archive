@@ -14,7 +14,7 @@ It's always challenging to write one of these *Roll of the Dice* entries for a s
 
 But since he copped to reverse-engineering his self-analysis, let's take a go at it anyway.
 
-As far as we know, Bruce didn't write many songs in the immediate aftermath of *The Rising.* His follow-up album *Devils & Dust* was comprised almost entirely of songs written prior to *The Rising*, and the album after that ([*We Shall Overcome*](../2022-07-17_album-companion-we-shall-overcome/post.md)) consisted entirely of covers.
+As far as we know, Bruce didn't write many songs in the immediate aftermath of *The Rising.* His follow-up album *Devils & Dust* was comprised almost entirely of songs written prior to *The Rising*, and the album after that ([*We Shall Overcome*](../2006-01-01_album-companion-we-shall-overcome/post.md)) consisted entirely of covers.
 
 The notable exception in the early years of the Iraq War was the title track to *Devils & Dust*–the only song on the album we know for certain was written post-Rising.
 

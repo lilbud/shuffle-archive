@@ -26,7 +26,7 @@ post_id: 55947
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1981-02-15b.png.webp)
 
-**1983:** In the studio, Bruce records “[Seven Tears](../2019-03-17_roll-of-the-dice-seven-tears/post.md)” and “The Money We Didn’t Make.” The former circulates among collectors, the latter has not yet surfaced.<br>
+**1983:** In the studio, Bruce records “[Seven Tears](../1983-01-07_roll-of-the-dice-seven-tears/post.md)” and “The Money We Didn’t Make.” The former circulates among collectors, the latter has not yet surfaced.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Seven Tears (outtake, '83)](https://www.youtube.com/watch?v=6DNs1enmtNM)
 
@@ -46,7 +46,7 @@ post_id: 55947
 
 [Watch Video Highlight](https://videopress.com/embed/3d7UJujn)
 
-**1997:** Moving on to Melbourne, Bruce performs solo at the Palais Theatre, where he plays “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” for the first time in Australia.<br>
+**1997:** Moving on to Melbourne, Bruce performs solo at the Palais Theatre, where he plays “[4th of July, Asbury Park (Sandy)](../2019-04-26_roll-of-the-dice-4th-of-july-asbury-park-sandy/post.md)” for the first time in Australia.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qmr0Nwtj)
 

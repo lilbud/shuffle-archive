@@ -60,7 +60,7 @@ post_id: 56750
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Ludwigshafen 2003 Glory Days](https://www.youtube.com/watch?v=0fEpHXcFNUk)
 
-**2005:** At his solo acoustic show at the Xcel Energy Center in St. Paul, Bruce performs "[A Good Man is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)" for the very first time, in honor of fallen Sgt. Gerald Vick, who was killed in the line of duty a few days earlier. "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" is a tour premiere, along with the electric piano on which Bruce plays it.<br>
+**2005:** At his solo acoustic show at the Xcel Energy Center in St. Paul, Bruce performs "[A Good Man is Hard to Find (Pittsburgh)](../2021-04-30_roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/post.md)" for the very first time, in honor of fallen Sgt. Gerald Vick, who was killed in the line of duty a few days earlier. "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" is a tour premiere, along with the electric piano on which Bruce plays it.<br>
 
 [Watch on Youtube: Bruce Springsteen - A GOOD MAN IS HARD TO FIND 2005 (audio)](https://www.youtube.com/watch?v=AjEjoHqz4LA)
 

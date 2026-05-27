@@ -8,9 +8,9 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/carousel.jpg
 post_id: 23523
 ---
-Editor's Note
-
-***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips. Marietta has been to a lot of Springsteen shows over the years, but none as unusual or intimate as this one from a decade ago today. Read on…*<br>
+> **Editor's Note**
+>
+> *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips. Marietta has been to a lot of Springsteen shows over the years, but none as unusual or intimate as this one from a decade ago today. Read on…*<br>
 
 It's all cold along the beach….the wind's whipping down the boardwalk….
 

@@ -84,7 +84,7 @@ Is Joe summoning up the courage to live one more day, or the courage to make thi
 
 There's no bright interpretation of "Nothing Man," only dark and darker. The most hopeful reading is one where Joe summons the courage to hang on just one more day, and then hopefully does it again tomorrow. This is one of the bleaker songs in Bruce's catalog, and it's a testament to his songwriting skill that he's able to make us feel Joe's pain despite so few of us having experienced anything resembling his trauma.
 
-Still, the bleakness of "Nothing Man" probably has a lot to do with its rarity in concert. Other than "[Let's Be Friends (Skin to Skin)](https://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)" (a personal favorite but one which many fans would argue deserves to be buried), "Nothing Man" is the least-performed song from *The Rising*. In the clip below–one of the the song's only two performances from the Rising Tour–we get a sense of why.
+Still, the bleakness of "Nothing Man" probably has a lot to do with its rarity in concert. Other than "[Let's Be Friends (Skin to Skin)](../2018-03-02_roll-of-the-dice-lets-be-friends-skin-to-skin/post.md)" (a personal favorite but one which many fans would argue deserves to be buried), "Nothing Man" is the least-performed song from *The Rising*. In the clip below–one of the the song's only two performances from the Rising Tour–we get a sense of why.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Nothing Man](https://www.youtube.com/watch?v=rUOzh00TI6k)
 

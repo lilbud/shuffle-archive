@@ -8,7 +8,7 @@ categories: cover-me meeting-across-the-river
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/roy-orbison-dream-baby-1962-14.jpg
 post_id: 10785
 ---
-I've shared a few songs from Bruce's 1987 appearance as a member of Roy Orbison's all-star *Black and White Night* backing band (see "[The Comedians](../2018-02-22_meeting-across-the-river-roy-orbison-and-bruce-springsteen-the-comedians/post.md)," [Blue Angel](../2018-11-05_matr-roy-orbison-bruce-springsteen-and-friends-blue-angel/post.md)," "[Leah](../2019-04-08_matr-roy-orbison-bruce-springsteen-and-friends-leah/post.md)," and "[Go Go Go (Down the Line)](https://estreetshuffle.com/index.php/2019/05/18/matr-roy-orbison-bruce-springsteen-and-friends-go-go-go-down-the-line/)" for the others), but this one's special for two reasons.
+I've shared a few songs from Bruce's 1987 appearance as a member of Roy Orbison's all-star *Black and White Night* backing band (see "[The Comedians](../2018-02-22_meeting-across-the-river-roy-orbison-and-bruce-springsteen-the-comedians/post.md)," [Blue Angel](../2018-11-05_matr-roy-orbison-bruce-springsteen-and-friends-blue-angel/post.md)," "[Leah](../2019-04-08_matr-roy-orbison-bruce-springsteen-and-friends-leah/post.md)," and "[Go Go Go (Down the Line)](../2019-05-18_matr-roy-orbison-bruce-springsteen-and-friends-go-go-go-down-the-line/post.md)" for the others), but this one's special for two reasons.
 
 First, because Bruce apparently thought enough of "Dream Baby (How Long Must I Dream)" to try adapting it in a new arrangement (a la "Follow That Dream") during his *Nebraska* home recording sessions:
 

@@ -32,6 +32,6 @@ Bruce's stamp of approval earned the band some well-deserved attention in their 
 
 So there you go: today's *Cover Me* entry is Boss-approved!
 
-Editor's Note
-
-***Editor's Note:*** *Our Cover Me series (the blog, not the contest) goes on hiatus after today while I take some time off to relax, recharge, and reload the blog's editorial queue. Cover Me will resume in August–until then, consider checking out our [index](/cover-songs/) to discover other great Springsteen covers, and have a great summer!*<br>
+> **Editor's Note:**
+>
+> *Our Cover Me series (the blog, not the contest) goes on hiatus after today while I take some time off to relax, recharge, and reload the blog's editorial queue. Cover Me will resume in August–until then, consider checking out our [index](/cover-songs/) to discover other great Springsteen covers, and have a great summer!*<br>

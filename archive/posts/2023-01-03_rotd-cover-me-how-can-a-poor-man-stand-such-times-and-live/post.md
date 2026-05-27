@@ -34,7 +34,7 @@ Cooder kept only three of Reed's verses, re-ordering them so that the song now s
 
 …before circling back to the top, and then skipping to the fifth verse.
 
-It's Cooder's cover rather than Reed's original that most likely inspired Bruce to include the song at the center of his nightly Seeger Sessions Tour in 2006 and as a bonus track on the *American Land* edition of his [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) album.
+It's Cooder's cover rather than Reed's original that most likely inspired Bruce to include the song at the center of his nightly Seeger Sessions Tour in 2006 and as a bonus track on the *American Land* edition of his [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md) album.
 
 We know this, because Bruce arranged his version similarly to Cooder's (although Bruce's is more brassy and biting), and he retained the same opening verse–the only original verse to appear in his "cover."
 

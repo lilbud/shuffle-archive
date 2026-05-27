@@ -20,7 +20,7 @@ In his review of the event, the *New York Times* music critic wrote, "The show o
 
 And just like that, 2012 became 1984.
 
-But Bruce had learned a thing or two in the almost two decades between "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "We Take Care of Our Own," the most important of which: he put the song's message in the title.
+But Bruce had learned a thing or two in the almost two decades between "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "We Take Care of Our Own," the most important of which: he put the song's message in the title.
 
 Casual listeners might misinterpret "We Take Care of Our Own" as boastful rather than chiding, but in doing so they at least have to acknowledge Bruce's main point: whether at the national or a community level, we expect our citizens to look out for each other.
 

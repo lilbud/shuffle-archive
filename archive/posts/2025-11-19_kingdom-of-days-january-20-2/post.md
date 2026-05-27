@@ -20,13 +20,13 @@ post_id: 55626
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/1981-0120b.jpg.webp)
 
-**1983:** Bruce records “[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)” and “[Betty Jean](../2019-02-13_roll-of-the-dice-betty-jean/post.md).” Both remain unreleased to this day.<br>
+**1983:** Bruce records “[Little Girl (Like You)](../2018-06-15_roll-of-the-dice-little-girl-like-you/post.md)” and “[Betty Jean](../1983-01-19_roll-of-the-dice-betty-jean/post.md).” Both remain unreleased to this day.<br>
 
 **1987:** In his home studio, Bruce kicks off recording sessions for what will become his next album, *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md).* On this first day, Bruce records “[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/),” “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/),” and “[When You Need Me](../2020-01-30_roll-of-the-dice-when-you-need-me/post.md).” That last one won’t be released for more than a decade.<br>
 
 [Watch on Youtube: Springsteen When You Need Me](https://www.youtube.com/watch?v=SEFHIAdPyo4)
 
-**1988**: Bruce inducts Bob Dylan into the Rock and Roll Hall of Fame at New York’s Waldorf-Astoria Hotel. This is the last public appearance Bruce will make with his wife, Julianne Phillips. The all-star jam is a joy to watch, particularly Bruce and Mick Jagger sharing the microphone for “[(I Can’t Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/).”<br>
+**1988**: Bruce inducts Bob Dylan into the Rock and Roll Hall of Fame at New York’s Waldorf-Astoria Hotel. This is the last public appearance Bruce will make with his wife, Julianne Phillips. The all-star jam is a joy to watch, particularly Bruce and Mick Jagger sharing the microphone for “[(I Can’t Get No) Satisfaction](../2022-02-02_matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen inducts Bob Dylan Rock and Roll Hall of Fame inductions 1988](https://www.youtube.com/watch?v=SRu66l3QI_U)
 

@@ -70,7 +70,7 @@ post_id: 56174
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/2008-03-14a.jpg.webp)
 
-**2011:** Bruce and Curtis King join Darlene Love on stage at her induction ceremony into the Rock and Roll Hall of Fame. Their short set includes “[Zip a Dee Doo Dah](../2018-08-28_meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/post.md),” “[(Today I Met) The Boy I’m Going to Marry](https://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/),” and “[He’s a Rebel](../2021-10-02_matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/post.md).” Bette Midler joins for the final song.<br>
+**2011:** Bruce and Curtis King join Darlene Love on stage at her induction ceremony into the Rock and Roll Hall of Fame. Their short set includes “[Zip a Dee Doo Dah](../2018-08-28_meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/post.md),” “[(Today I Met) The Boy I’m Going to Marry](../2018-11-12_matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/post.md),” and “[He’s a Rebel](../2021-10-02_matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/post.md).” Bette Midler joins for the final song.<br>
 
 [Watch on Youtube: 2011 Rock N Roll Hall Of Fame Induction - Darlene Love.mpg](https://www.youtube.com/watch?v=d36vCrKrxp8)
 

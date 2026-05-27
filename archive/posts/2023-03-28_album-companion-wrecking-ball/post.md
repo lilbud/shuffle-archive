@@ -8,13 +8,13 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/03/wrecking.jpg
 post_id: 42585
 ---
-Editor's Note
-
-With last Sunday's entry, *Wrecking Ball* becomes the fifth Springsteen studio album to receive the complete *Roll of the Dice* treatment.
-
-If you've joined me along the way of this six-year odyssey, you might find it interesting to explore some of the earlier essays you missed. If you've been with me from the beginning, these articles are now updated and crosslinked to help explore the connections, genealogy, and comparisons between songs.
-
-Click the song titles to learn more about the meaning behind and origins of each song.
+> **Editor's Note**
+>
+> *With last Sunday's entry, *Wrecking Ball* becomes the fifth Springsteen studio album to receive the complete *Roll of the Dice* treatment.*
+>
+> *If you've joined me along the way of this six-year odyssey, you might find it interesting to explore some of the earlier essays you missed. If you've been with me from the beginning, these articles are now updated and crosslinked to help explore the connections, genealogy, and comparisons between songs.*
+>
+> *Click the song titles to learn more about the meaning behind and origins of each song.*
 
 In the fickle field of popular music, few artists maintain their audience a half-century into their career. Those who do benefit from a back catalog deemed "timeless," "classic," or any other of a host of synonyms that imply a free pass from producing relevant new material.
 
@@ -32,7 +32,7 @@ And then there is *Wrecking Ball*, by far the best and most summational E Street
 
 Released in late 2011*, Wrecking Ball* represented a turning point in Bruce's songwriting. After four decades of penning intimate profiles of characters struggling to survive–let alone rise above–the economic wreckage of the American dream, Springsteen closed that chapter with a mic-drop of an opening run unparalleled in its thematic cohesion:
 
-- "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)" welds the righteous anger and empathy of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" to the joyously galvanizing adrenaline rush of "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" and outdoes both of them as opener on both disc and stage.
+- "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)" welds the righteous anger and empathy of "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" to the joyously galvanizing adrenaline rush of "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" and outdoes both of them as opener on both disc and stage.
 - "[Easy Money](../2021-06-10_roll-of-the-dice-easy-money/post.md)" is a slyer "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" that compares unrepentant pinstriped executives to the connected mobsters of Bruce's 1982 classic, contrasting the former's jubilant criminal embrace to the latter's existential reluctance.
 - "[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" marries the monotony of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" working life to the fatalism of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" and wraps them in an irresistible mélange that's part carnival, part revival, and part shanty. If Bruce is the bard of the working man, there's no better ode to the satisfaction of honest work than this.
 - "[Jack of All Trades](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" is one of the oldest songs on the album, both in origin and sound. Written at the height of the Great Recession, Springsteen employs a Depression-era arrangement of strings, tuba, and bass drum to condemn and contextualize our inability to learn the lessons of history more effectively than songs like "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" could with lyrics alone.
@@ -46,7 +46,7 @@ I don't think you'll find it, because these are songs that could only be written
 
 Although he'd hinted at it in songs like "[Two Faces](../1987-01-08_roll-of-the-dice-two-faces/post.md)" and "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)," *Wrecking Ball* also features Springsteen's most intimate insights into his as-yet-unrevealed lifelong struggle with chronic depression.
 
-Both "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)" and "[Swallowed Up (In the Belly of the Whale)](https://estreetshuffle.com/index.php/2020/05/07/roll-of-the-dice-swallowed-up-in-the-belly-of-the-whale/)" (one of two essential tracks categorized as "bonus" for some unfathomable reason) are deeply informed by his own personal struggles.
+Both "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)" and "[Swallowed Up (In the Belly of the Whale)](../2020-05-07_roll-of-the-dice-swallowed-up-in-the-belly-of-the-whale/post.md)" (one of two essential tracks categorized as "bonus" for some unfathomable reason) are deeply informed by his own personal struggles.
 
 Ever the magician, Bruce managed to slip both songs by critics and fans by camouflaging them on an album more outward focused than inward. It's a tribute to his skill and subtlety as songwriter that both work in either context. The latter especially is an essential listen; more than any other song on the album, it sums up the themes of *Wrecking Ball*.
 

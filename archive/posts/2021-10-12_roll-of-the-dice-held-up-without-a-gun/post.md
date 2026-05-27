@@ -16,7 +16,7 @@ How close? This close:
 
 Only at the last minute did Bruce yank this punk rave-up from Disc 3. At a mere 77 seconds, he didn't even need to replace it with anything.
 
-Why did he pull it? That I can't answer, although I suspect it has at least a little to do with the fact that it's essentially the musical twin of "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)."
+Why did he pull it? That I can't answer, although I suspect it has at least a little to do with the fact that it's essentially the musical twin of "[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)."
 
 [Watch on Youtube: Held Up Without a Gun (Single B-side - 1980)](https://www.youtube.com/watch?v=gxBhIeTARBE)
 

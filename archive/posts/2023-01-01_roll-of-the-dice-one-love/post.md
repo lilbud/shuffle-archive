@@ -14,7 +14,7 @@ By the halfway mark in early 1983, Bruce had already written, recorded, and asse
 
 The track list is fascinating–it includes half of the songs that would eventually comprise *Born in the U.S.A.*, but it also included a handful of *very* strong contenders that have become fan favorites since their eventual release on *Greatest Hits* and *Tracks* years later:
 
-1. [Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)
+1. [Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)
 2. [Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)
 3. [Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)
 4. Glory Days
@@ -28,9 +28,9 @@ The track list is fascinating–it includes half of the songs that would eventua
 
 What an album that would have been!
 
-Bruce was so far along in planning the *Murder Incorporated* album, in fact, that he even had a handful of B-sides selected for the album's first five singles. Those B-sides included two songs Bruce would eventually debut during the Born in the U.S.A. Tour ("Sugarland" and "Follow That Dream"), along with three others that still have yet to see the light of day: "[Don't Back Down](../2022-01-06_roll-of-the-dice-dont-back-down/post.md)," "[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)," and "One Love."
+Bruce was so far along in planning the *Murder Incorporated* album, in fact, that he even had a handful of B-sides selected for the album's first five singles. Those B-sides included two songs Bruce would eventually debut during the Born in the U.S.A. Tour ("Sugarland" and "Follow That Dream"), along with three others that still have yet to see the light of day: "[Don't Back Down](../2022-01-06_roll-of-the-dice-dont-back-down/post.md)," "[Little Girl (Like You)](../2018-06-15_roll-of-the-dice-little-girl-like-you/post.md)," and "One Love."
 
-When I wrote about "[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)" last spring, I wasn't very kind in my assessment. "One Love" is better (faint praise that may be), but it still suffers from an overly simple conceit, a lack of imagination, and Bruce's newfound fascination with drum machines. Take a listen:
+When I wrote about "[Little Girl (Like You)](../2018-06-15_roll-of-the-dice-little-girl-like-you/post.md)" last spring, I wasn't very kind in my assessment. "One Love" is better (faint praise that may be), but it still suffers from an overly simple conceit, a lack of imagination, and Bruce's newfound fascination with drum machines. Take a listen:
 
 [Watch on Youtube: Bruce Springsteen One love](https://www.youtube.com/watch?v=IyHiN-dF04A)
 

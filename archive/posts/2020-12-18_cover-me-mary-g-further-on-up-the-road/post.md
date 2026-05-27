@@ -14,7 +14,7 @@ When someone professes to cover a cover, I usually find they’re just imitating
 
 But there are some covers that are so definitive and so distinctive that they deservedly spawn covers of their own.
 
-Johnny Cash’s superb version of Bruce’s “[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)” is one such cover. (You might have heard Bruce spin it on his *From My Home to Yours* radio show this past week.)
+Johnny Cash’s superb version of Bruce’s “[Further On (Up the Road)](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)” is one such cover. (You might have heard Bruce spin it on his *From My Home to Yours* radio show this past week.)
 
 [Watch on Youtube: Further On Up The Road](https://www.youtube.com/watch?v=bKpqRbxk4Yk)
 

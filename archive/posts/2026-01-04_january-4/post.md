@@ -49,17 +49,17 @@ If you're interested in free ebook versions, allow me to introduce Brian, a Spri
 And now a word from Brian:
 
 > *Hello to the readers of E Street Shuffle*,
-
+>
 > *My name is Brian, a long time reader of E Street Shuffle, and something of an amateur archivist, with Bruce being a primary focus.*<br>
-
+>
 > *To introduce myself briefly, I am in my mid-20s and have been a fan of Bruce for at least 15 of those years (dating back to middle school). I've even been fortunate enough to see him 3 times, including the longest U.S. show to date (September 7, 2016 in Philadelphia.)*<br>
-
+>
 > *As for the "amateur archivist" part, well that is because I've contributed to/started a number of projects in the past few years to archive/preserve/catalog aspects of Bruce's work. I am the developer behind [Databruce](https://www.databruce.com/) (a Springsteen concert database site) and the curator of the [Radio Nowhere Archive](https://archive.org/details/radionowhere) (a collection of Bruce bootlegs on Archive.org, available for streaming and downloading). Additionally, last April I worked with members of the StonePonyLondon forum to coordinate scanning the entire run of Backstreets Magazine, which is available for free [here](https://lilbud.github.io/2025/04/06/backstreets-mag-archive/).*<br>
-
-*To get to the point, I am using this opportunity to "formally" announce my plans for an offline archive/backup of E Street Shuffle. This archive will be available in a few formats, but likely the most interesting to the readers is **a series of eBooks compiling the site's content**. I think the site is a great resource, and it would be a real shame for it to disappear.*
-
+>
+> *To get to the point, I am using this opportunity to "formally" announce my plans for an offline archive/backup of E Street Shuffle. This archive will be available in a few formats, but likely the most interesting to the readers is **a series of eBooks compiling the site's content**. I think the site is a great resource, and it would be a real shame for it to disappear.*
+>
 > *I have written at length about my efforts so far, which you can see over on my blog [here](https://lilbud.github.io/2026/01/03/shuffle-ebook/). I discuss my work on the archive thus far, as well as my plans for the eBooks and even a bit about the process of archiving the site. This effort is expected to be ongoing, and I will post updates as it develops.*<br>
-
+>
 > *I want to thank Ken for allowing me the opportunity to contribute to the final E Street Shuffle post, and don't forget to check out my site if you're interested.*<br>
 
-Thanks, Brian! And thank *you*, dear reader**, for reading, subscribing, sharing, contributing, and encouraging the publication of this blog for the past eight years.
+Thanks, Brian! And thank *you*, dear reader, for reading, subscribing, sharing, contributing, and encouraging the publication of this blog for the past eight years.

@@ -72,6 +72,6 @@ post_id: 62617
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023;** Bruce's scheduled show in Phoenix is postponed to the following March due to his peptic ulcer disease. Instead, he makes an appearance at Darlene Love's holiday concert in New York City to present her with a platinum record for "[Christmas (Baby Please Come Home)](https://estreetshuffle.com/index.php/2021/12/09/matr-bruce-springsteen-jon-bon-jovi-southside-johnny-jesse-malin-and-more-christmas-baby-please-come-home/)."<br>
+**2023;** Bruce's scheduled show in Phoenix is postponed to the following March due to his peptic ulcer disease. Instead, he makes an appearance at Darlene Love's holiday concert in New York City to present her with a platinum record for "[Christmas (Baby Please Come Home)](../2002-01-11_matr-bruce-springsteen-jon-bon-jovi-southside-johnny-jesse-malin-and-more-christmas-baby-please-come-home/post.md)."<br>
 
 [Watch on Youtube: Darlene Love Platinum Plaque Presentation with Bruce Springsteen](https://www.youtube.com/watch?v=QCL9z1FBXFA)

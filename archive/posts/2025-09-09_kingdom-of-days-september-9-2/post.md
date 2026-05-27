@@ -22,7 +22,7 @@ post_id: 59600
 
 **1977:** Bruce holds a recording session at The Record Plant in New York City.<br>
 
-**1978:** The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)" and his first known performance of "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)."<br>
+**1978:** The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "[Double Shot (of My Baby's Love)](../2022-04-14_matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/post.md)" and his first known performance of "[Louie Louie](../2020-03-20_cover-me-louie-louie/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4EmmyA9O)
 

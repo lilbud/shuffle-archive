@@ -12,7 +12,7 @@ A great chef can take a few ingredients and use them to create any number of won
 
 Hardcore Springsteen fans are well aware of Bruce's penchant for recycling lyrics and music; it stems from his practice of writing lyrics and music independently of each other.
 
-Verses and sometimes just fragments or phrases will loiter in his notebook for years. Some will eventually make it to one or more demos and studio recordings, most of which will end up in the vault, maybe to be released one day on an outtake collection. Occasionally, we even see snippets of shared DNA between multiple officially released songs ("[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)" and "[Maria's Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md)," for example).
+Verses and sometimes just fragments or phrases will loiter in his notebook for years. Some will eventually make it to one or more demos and studio recordings, most of which will end up in the vault, maybe to be released one day on an outtake collection. Occasionally, we even see snippets of shared DNA between multiple officially released songs ("[Further On (Up the Road)](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)" and "[Maria's Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md)," for example).
 
 And then there's "Party Lights," the product of so much Springsteenian in-breeding that it would be a joke–if it wasn't so darn catchy.
 

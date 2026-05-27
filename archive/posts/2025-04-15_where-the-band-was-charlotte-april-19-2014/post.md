@@ -38,7 +38,7 @@ After a rocking “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranc
 
 More sign requests followed: “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” a rare encore-opening “[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” and Bruce audibled “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)” as the main set closer.
 
-After “Darkness” kicked of the encores, the show took a (momentarily, at least) more serious turn with “The Wall,” (watch the wonderful pro-shot video below), followed by a perfect pairing with “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)”
+After “Darkness” kicked of the encores, the show took a (momentarily, at least) more serious turn with “The Wall,” (watch the wonderful pro-shot video below), followed by a perfect pairing with “[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)”
 
 [Watch on Youtube: Bruce Springsteen- "The Wall" (Charlotte, NC 04/19/14)](https://www.youtube.com/watch?v=j3m0BXVKPu0)
 

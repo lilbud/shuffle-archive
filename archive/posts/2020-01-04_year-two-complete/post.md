@@ -25,12 +25,3 @@ In addition, I'll continue to spotlight an [original Springsteen song](https://e
 I just did a quick tally of articles left to write based on the above... and it's 919, assuming Bruce doesn't release or cover any new music between now and then (which of course, he probably will). So this is shaping up to be a five-year mission, and we're right in the middle of it.
 
 Thanks again for reading. I hope you stick around for Year Three!
-
-### Share this:
-
-- [Click to share on Twitter (Opens in new window)](https://estreetshuffle.com/index.php/2020/01/04/year-two-complete/?share=twitter&nb=1 "Click to share on Twitter")
-- [Click to share on Facebook (Opens in new window)](https://estreetshuffle.com/index.php/2020/01/04/year-two-complete/?share=facebook&nb=1 "Click to share on Facebook")
--
-### Like this:
-
-Like Loading...

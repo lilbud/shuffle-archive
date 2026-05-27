@@ -18,7 +18,7 @@ That's how close to glory it came; instead, "Linda Let Me Be The One" is buried 
 
 And that's too bad, because "Linda" would have fit perfectly on *Born to Run*. Even more than the title track, "Linda Let Me Be The One" is an homage to Phil Spector, starting with that "[Be My Baby](../2019-06-01_matr-bruce-springsteen-and-ronnie-spector-be-my-baby/post.md)" beat that Bruce loved so much at the time.
 
-(That famous beat shows up again and again in Bruce's mid-seventies songwriting. See "[Gotta Get That Feeling](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)" and "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)," for example.)
+(That famous beat shows up again and again in Bruce's mid-seventies songwriting. See "[Gotta Get That Feeling](../2021-02-08_roll-of-the-dice-gotta-get-that-feeling/post.md)" and "[Someday (We'll Be Together)](../2019-10-03_roll-of-the-dice-someday-well-be-together/post.md)," for example.)
 
 But it's more than the beat: "Linda Let Me Be The One" is a perfectly constructed Spectorian girl group song from its lush, romantic backing track to its lyrical melodrama. (I've always considered "Linda" to be an answer song of sorts to "Leader of the Pack.") Even the title and chorus are hat tips to Spector–there's not a lot of difference between "will you let me be the one" and "won't you please be my baby."
 

@@ -67,6 +67,7 @@ def comments_format():
             r"https://secure.gravatar.com/avatar/(.*)\?s=96&d=mm&r=g",
             author_avatar_urls,
         )[1]
+
         avatar_url = re.sub(
             r"https://secure.gravatar.com/avatar/(.*)\?s=96&d=mm&r=g",
             "/assets/img/avatars/\\1.jpg",

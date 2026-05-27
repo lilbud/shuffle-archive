@@ -66,7 +66,7 @@ post_id: 56612
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2005-04-25c.jpg.webp)
 
-**2006:** Bruce releases [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md)and appears on *Good Morning America* to promote the album and upcoming tour.<br>
+**2006:** Bruce releases [*We Shall Overcome: The Seeger Sessions*](../2006-01-01_album-companion-we-shall-overcome/post.md)and appears on *Good Morning America* to promote the album and upcoming tour.<br>
 
 [Watch on Youtube: Bruce Springsteen 4-25-06 GMA Concert Series](https://www.youtube.com/watch?v=aicCuu5YWHQ)
 
@@ -74,7 +74,7 @@ post_id: 56612
 
 [Watch Video Highlight](https://videopress.com/embed/0RYCqo7d)
 
-That evening, a more awake Bruce and the Sessions Band play a third public warm-up show for their upcoming tour. Notable in the set list: Bruce's first-ever performance and tour one-off of "[Turn! Turn! Turn (To Everything There is a Season)](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/)."
+That evening, a more awake Bruce and the Sessions Band play a third public warm-up show for their upcoming tour. Notable in the set list: Bruce's first-ever performance and tour one-off of "[Turn! Turn! Turn (To Everything There is a Season)](../2021-06-09_matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/post.md)."
 
 [Watch Video Highlight](https://videopress.com/embed/yTqnj3vq)
 

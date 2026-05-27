@@ -147,6 +147,6 @@ So if "Streets of Philadelphia" is on your chase list, you've still got a pretty
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries return in August!
 
-Editor's Note
-
-***Editor's Note:*** *Our Roll of the Dice series goes on hiatus after today while I take some time off to relax, recharge, and reload the blog's editorial queue. Roll of the Dice will resume in August–until then, consider checking out our [album index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) to explore more of Bruce's catalog, and have a great summer!*<br>
+> ***Editor's Note:***
+>
+> *Our Roll of the Dice series goes on hiatus after today while I take some time off to relax, recharge, and reload the blog's editorial queue. Roll of the Dice will resume in August–until then, consider checking out our [album index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) to explore more of Bruce's catalog, and have a great summer!*<br>

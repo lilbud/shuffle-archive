@@ -30,7 +30,7 @@ Here's an actual full-band performance (with everyone in the same room) from the
 
 [Watch on Youtube: Bruce Springsteen - Spare Parts (Official Video - DVD Version)](https://www.youtube.com/watch?v=HKH3C3b2HzU)
 
-By 1988, Bruce had learned the risk of having his material misinterpreted. (See "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)")
+By 1988, Bruce had learned the risk of having his material misinterpreted. (See "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)")
 
 Perhaps that's why he took the time almost every night on the *Tunnel of Love Express* Tour to introduce "Spare Parts" and explain it.
 

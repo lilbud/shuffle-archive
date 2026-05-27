@@ -8,13 +8,13 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/07/springsteen-lettertoyou-front.jpg
 post_id: 44060
 ---
-Editor's Note
-
-*Letter to You* is the seventh Springsteen studio album to receive the complete *Roll of the Dice* treatment.
-
-If you've joined me along the way of this six-year odyssey, you might find it interesting to explore some of the earlier essays you missed. If you've been with me from the beginning, these articles are now updated and crosslinked to help explore the connections, genealogy, and comparisons between songs.
-
-Click the song titles to learn more about the meaning behind and origins of each song.
+> **Editor's Note:**
+>
+> *Letter to You* is the seventh Springsteen studio album to receive the complete *Roll of the Dice* treatment.
+>
+> If you've joined me along the way of this six-year odyssey, you might find it interesting to explore some of the earlier essays you missed. If you've been with me from the beginning, these articles are now updated and crosslinked to help explore the connections, genealogy, and comparisons between songs.
+>
+> Click the song titles to learn more about the meaning behind and origins of each song.
 
 By now, the story is almost as legendary as the origin of *Nebraska*.
 

@@ -14,7 +14,7 @@ Now the folks behind Scary Pockets are back with a new series, simply called Sto
 
 Like Scary Pockets, Stories features a rotating cast of musicians and vocalists, but instead of funking it up, the Stories cover series features stripped-down (but no less inventive) arrangements that let the songwriter's story shine through.
 
-Their latest release features Grammy-nominated singer-songwriter Garrison Starr at the microphone, fronting a beautiful acoustic rendition of "[Born in the U.S.A](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)." that accentuates the pathos of the song rather than the anger or bitterness we're more familiar with.
+Their latest release features Grammy-nominated singer-songwriter Garrison Starr at the microphone, fronting a beautiful acoustic rendition of "[Born in the U.S.A](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)." that accentuates the pathos of the song rather than the anger or bitterness we're more familiar with.
 
 It's a painstakingly textured and nuanced arrangement, gently but deeply sad. Play this for someone who's never paid much attention to the lyrics, and I guarantee they will this time.
 

@@ -22,7 +22,7 @@ post_id: 56782
 
 [Watch on Youtube: Bruce Springsteen, "New York, New York" - MSG May 18, 1988](https://www.youtube.com/watch?v=fNUAkKLceYQ)
 
-**1997:** Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26013/Bruce-Springsteen-mp3-flac-download-5-18-1997-Palais-des-Congr%C3%A8s-Acropolis-Nice-FR.html).<br>
+**1997:** Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of "[You Can Look (But You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26013/Bruce-Springsteen-mp3-flac-download-5-18-1997-Palais-des-Congr%C3%A8s-Acropolis-Nice-FR.html).<br>
 
 [Watch on Youtube: Bruce Springsteen "Murder Incorporated", Nice, France 5/18/97](https://www.youtube.com/watch?v=Av1n3isTar0)
 

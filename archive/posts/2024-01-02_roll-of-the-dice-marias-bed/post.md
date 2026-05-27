@@ -47,7 +47,7 @@ But the second verse of "Maria's Bed" is a *verbatim* swipe from a different Spr
 > *I keep my heart in my work, my troubles in my head*<br>
 > *And I keep my soul in Maria's bed*<br>
 
-Those first two lines made a previous appearance in "[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)" on Bruce's previous album, *The Rising–*and that song actually dates back to the Reunion Tour, which raises the question:
+Those first two lines made a previous appearance in "[Further On (Up the Road)](../2022-01-01_roll-of-the-dice-further-on-up-the-road/post.md)" on Bruce's previous album, *The Rising–*and that song actually dates back to the Reunion Tour, which raises the question:
 
 Did Bruce recycle that lyric on purpose, or is this another case (of which there are many) of Bruce taking the seed of a song in two different directions at the same time?
 

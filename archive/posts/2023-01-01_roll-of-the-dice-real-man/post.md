@@ -20,7 +20,7 @@ That's what I imagine was going through the minds of Bruce's Swedish audience th
 
 I cringe every time I watch that clip. Bruce tries *so* hard to sell the song, delivering an over-the-top performance for a song that started out that way.
 
-As for the studio track, *Ultimate Classic Rock* called it "an embarrassment." *Rolling Stone* cited it as one of 22 Terrible Songs by Great Artists. When Backstreets.com wanted to punk readers on April Fools Day a couple of years back, they announced a promotional release of "the legendary ‘Real Man' single, initially planned as a U.S. follow-up to the ‘[57 Channels (And Nothin' On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)‘ single in 1992 but never released."
+As for the studio track, *Ultimate Classic Rock* called it "an embarrassment." *Rolling Stone* cited it as one of 22 Terrible Songs by Great Artists. When Backstreets.com wanted to punk readers on April Fools Day a couple of years back, they announced a promotional release of "the legendary ‘Real Man' single, initially planned as a U.S. follow-up to the ‘[57 Channels (And Nothin' On)](../2020-05-17_roll-of-the-dice-57-channels-and-nothin-on/post.md)‘ single in 1992 but never released."
 
 That's how dismissively "Real Man" is considered by most critics and fans, to the degree it's considered at all. (As for me, I'd rank it third from the bottom, just above "[I'll Stand By You](../2018-08-09_roll-of-the-dice-ill-stand-by-you-always/post.md)" and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md).")
 

@@ -86,7 +86,7 @@ post_id: 59712
 
 [Watch on Youtube: Bruce Springsteen - Get Out Of Denver (2003-09-25)](https://www.youtube.com/watch?v=BEbMmDwIO9g)
 
-**2004:** Patti's solo mini-tour continues at the Roxy Theater in West Hollywood, where Bruce joins her on guitar and backing vocals for "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)" and "[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)" in his first appearance at the venue since his legendary radio broadcast.<br>
+**2004:** Patti's solo mini-tour continues at the Roxy Theater in West Hollywood, where Bruce joins her on guitar and backing vocals for "[As Long As I (Can Be With You)](../2018-10-02_meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/post.md)" and "[Love (Stand Up)](../2021-02-14_matr-patti-scialfa-and-bruce-springsteen-love-stand-up/post.md)" in his first appearance at the venue since his legendary radio broadcast.<br>
 
 **2007:** Bruce releases his latest studio album, *Magic*. That evening, Bruce and the E Street Band hold a second public rehearsal for the Magic Tour, where they play "[Magic](../2020-09-13_roll-of-the-dice-magic/post.md)" and Patti's "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)" from her new *Play It As It Lays* album for the first time. Sessions Band members Jeremy Chatzky and Curt Ramm join the band for the show-closing "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)."<br>
 

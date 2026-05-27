@@ -14,7 +14,7 @@ post_id: 39613
 
 The roots of "Straight Time" date back much further, though–all the way back to a 1978 neo-noir crime film of the same name starring Dustin Hoffman, and a pair of noir-ish, Nebraska-era outtakes*.*
 
-We took a look at "[James Lincoln Deere](../2022-11-29_roll-of-the-dice-james-lincoln-deere/post.md)" and "[Richfield Whistle](../2022-12-01_roll-of-the-dice-richfield-whistle/post.md)" last week. If you missed them, I recommend checking them out to appreciate how they both informed and influenced "Straight Time."
+We took a look at "[James Lincoln Deere](../1983-01-10_roll-of-the-dice-james-lincoln-deere/post.md)" and "[Richfield Whistle](../1983-01-15_roll-of-the-dice-richfield-whistle/post.md)" last week. If you missed them, I recommend checking them out to appreciate how they both informed and influenced "Straight Time."
 
 [Watch on Youtube: Straight Time](https://www.youtube.com/watch?v=IU7-W_EnJHY)
 

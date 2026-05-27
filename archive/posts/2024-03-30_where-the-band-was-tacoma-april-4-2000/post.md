@@ -14,7 +14,7 @@ Whatever the reason for the hour-plus delay, when the show finally started with 
 
 [Watch Video Highlight](https://videopress.com/embed/KyuwuVe8)
 
-This was my first (and only) Reunion show, and the show that re-hooked me on Bruce’s music. The new arrangements of “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md),” “[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md),” “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)” reinvented those songs for me, the outtakes (“My Love,” “[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)“) were instant classics, and “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)” became my new and forever-after anthem.
+This was my first (and only) Reunion show, and the show that re-hooked me on Bruce’s music. The new arrangements of “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md),” “[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md),” “[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)” reinvented those songs for me, the outtakes (“My Love,” “[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)“) were instant classics, and “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)” became my new and forever-after anthem.
 
 [Watch Video Highlight](https://videopress.com/embed/P8RSioXo)
 

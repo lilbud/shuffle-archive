@@ -8,13 +8,13 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/11/1980-11-05.jpg
 post_id: 30675
 ---
-Editor's Note
-
-**Editor's Note:** Today's guest blogger is friend of the blog and long-time Springsteen fan Barry Rebo. Even if you don't know his name (and many of you certainly do), if you read this blog I guarantee you're familiar with his work.<br>
-
-Having once lived down the Jersey Shore, Barry is one of Bruce's earliest fans (since 1969), and more importantly: he's pretty mean with a camera. He filmed Bruce and the band in the studio recording "Jungleland" in the *Wings for Wheels* documentary; the archival footage included in *The Promise: Darkness on the Edge of Town*; and the River Tour rehearsal video and multi-camera Live in Tempe concert that accompanies the *The River* anniversary box set. As fans, we all share a debt of gratitude to Barry.
-
-Barry moved on to a successful and storied career in documentary film-making and was an early HDTV pioneer. He's still a Springsteen fan, though, and today he recalls for us his last-ever Bruce shoot, one with an ironic behind-the-scenes connection to one of Bruce's most famous on-stage remarks.
+> **Editor's Note**
+>
+> Today's guest blogger is friend of the blog and long-time Springsteen fan Barry Rebo. Even if you don't know his name (and many of you certainly do), if you read this blog I guarantee you're familiar with his work.<br>
+>
+> Having once lived down the Jersey Shore, Barry is one of Bruce's earliest fans (since 1969), and more importantly: he's pretty mean with a camera. He filmed Bruce and the band in the studio recording "Jungleland" in the *Wings for Wheels* documentary; the archival footage included in *The Promise: Darkness on the Edge of Town*; and the River Tour rehearsal video and multi-camera Live in Tempe concert that accompanies the *The River* anniversary box set. As fans, we all share a debt of gratitude to Barry.
+>
+> Barry moved on to a successful and storied career in documentary film-making and was an early HDTV pioneer. He's still a Springsteen fan, though, and today he recalls for us his last-ever Bruce shoot, one with an ironic behind-the-scenes connection to one of Bruce's most famous on-stage remarks.
 
 I remain rightly embarrassed to admit that I did not vote in the Ronald Reagan / Jimmy Carter Presidential Election of November 4th, 1980. This was well before early or mail-in voting was widely adopted or I would/should have supported Carter as I did in his first run for office.
 

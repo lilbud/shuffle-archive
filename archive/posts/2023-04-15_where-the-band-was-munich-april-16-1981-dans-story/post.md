@@ -8,12 +8,12 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/df6.png
 post_id: 26562
 ---
-Editor's Note
-
-***Editor's Note:*** *This is Part Two of guest blogger Dan French's incredible E Street adventure from 1981. If you haven't already, be sure to read* *[Part One](../2021-04-14_where-the-band-was-frankfurt-april-141981-dans-story/post.md)* *before continuing on.*<br>
-
-*Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant* *[Facebook community](https://www.facebook.com/groups/290908270798)**.*
-
+> **Editor's Note:**
+>
+> *This is Part Two of guest blogger Dan French's incredible E Street adventure from 1981. If you haven't already, be sure to read* *[Part One](../2021-04-14_where-the-band-was-frankfurt-april-141981-dans-story/post.md)* *before continuing on.*<br>
+>
+>*Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant* *[Facebook community](https://www.facebook.com/groups/290908270798)**.*
+>
 > *Dan's story has to be read (and re-read) to be believed, so without further ado, Dan's adventure continues.*<br>
 
 The next morning we had a late breakfast, took photos outside the hotel, and left – but not before I encountered Roy by the postcards and asked him for a scribble. 'Sure,' he smiled. 'Take it easy.' No one else was there.

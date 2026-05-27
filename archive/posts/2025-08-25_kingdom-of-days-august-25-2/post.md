@@ -38,7 +38,7 @@ post_id: 59421
 
 Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's Place.
 
-**1979:** Bruce and the band record "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and an early arrangement of "[You Can Look (Buy You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" during a recording session at the Power Station in New York City.<br>
+**1979:** Bruce and the band record "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and an early arrangement of "[You Can Look (Buy You Better Not Touch)](../2020-06-14_roll-of-the-dice-you-can-look-but-you-better-not-touch/post.md)" during a recording session at the Power Station in New York City.<br>
 
 [Watch on Youtube: Point Blank](https://www.youtube.com/watch?v=aQcxrt9-6ZI)
 

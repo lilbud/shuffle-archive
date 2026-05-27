@@ -67,7 +67,7 @@ As the song continues, Bruce zooms the camera in his mind's eye in on the city s
 > *And you're starting to think about writing a book*<br>
 > *But now you won't pledge allegiance to anything*<br>
 
-Strangely enough, there actually was someone out there who had lost the use of his legs thanks to the U.S. defense department and who was starting to think about writing a book. Five years down the road, Bruce would read that book and meet the author; ten years down the road that book would inspire [one of Bruce's best-known songs](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md).
+Strangely enough, there actually was someone out there who had lost the use of his legs thanks to the U.S. defense department and who was starting to think about writing a book. Five years down the road, Bruce would read that book and meet the author; ten years down the road that book would inspire [one of Bruce's best-known songs](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md).
 
 Bruce continues, and the song gets increasingly and vividly adult-themed:
 

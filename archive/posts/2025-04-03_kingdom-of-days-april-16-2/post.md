@@ -28,7 +28,7 @@ post_id: 56455
 
 **1982:** Bruce joins Clarence Clemons and the Red Bank Rockers for "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" at Big Man's West.<br>
 
-**1983:** Bruce works on "[Unsatisfied Heart](../2018-09-12_roll-of-the-dice-unsatisfied-heart/post.md)" at his home studio in Los Angeles.<br>
+**1983:** Bruce works on "[Unsatisfied Heart](../1983-01-17_roll-of-the-dice-unsatisfied-heart/post.md)" at his home studio in Los Angeles.<br>
 
 **1985:** The final night of five in Tokyo on the Born in the U.S.A. Tour.<br>
 

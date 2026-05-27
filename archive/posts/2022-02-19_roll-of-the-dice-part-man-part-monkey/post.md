@@ -20,7 +20,7 @@ I bring this up only because every–and i mean *every* written account I've eve
 
 But it's not.
 
-It may have been inspired by *Inherit the Wind–*a play, film, and TV movie that dramatized the events of the trial–but that's not what the song is *about*. So let's take a listen to this *Human Touch* outtake (which Bruce eventually released as a B-side to "[57 Channels (And Nothin' On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)" and on *Tracks* six years later), and then we'll discuss.
+It may have been inspired by *Inherit the Wind–*a play, film, and TV movie that dramatized the events of the trial–but that's not what the song is *about*. So let's take a listen to this *Human Touch* outtake (which Bruce eventually released as a B-side to "[57 Channels (And Nothin' On)](../2020-05-17_roll-of-the-dice-57-channels-and-nothin-on/post.md)" and on *Tracks* six years later), and then we'll discuss.
 
 [Watch on Youtube: Part Man, Part Monkey (Studio Outtake - 1990)](https://www.youtube.com/watch?v=faWmZrO8HGg)
 

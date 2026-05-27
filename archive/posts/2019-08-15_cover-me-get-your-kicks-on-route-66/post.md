@@ -32,7 +32,7 @@ Except: as you can hear in the recording above (which is actually what influence
 
 In any event, Bruce would go on to cover "Route 66" a half-dozen times throughout the 1970s and 1980s, always in small venues and almost always without the presence of tapers.
 
-It would be almost a full quarter-century before we'd get a clear, circulating recording of Bruce covering "Route 66" again, but it was worth the wait. On October 21, 1994, Bruce joined Greg Kihn, John Eddie, Marshall Crenshaw, and Elliott Murphy on stage at The Playpen in Sayreville, New Jersey, and their cover of "Route 66" (with a "[Bang a Gong (Get It On)](https://estreetshuffle.com/index.php/2019/04/11/matr-john-eddie-and-bruce-springsteen-bang-a-gong-get-it-on/)" intro) is dirty, driving, and rocking.
+It would be almost a full quarter-century before we'd get a clear, circulating recording of Bruce covering "Route 66" again, but it was worth the wait. On October 21, 1994, Bruce joined Greg Kihn, John Eddie, Marshall Crenshaw, and Elliott Murphy on stage at The Playpen in Sayreville, New Jersey, and their cover of "Route 66" (with a "[Bang a Gong (Get It On)](../2019-04-11_matr-john-eddie-and-bruce-springsteen-bang-a-gong-get-it-on/post.md)" intro) is dirty, driving, and rocking.
 
 Take a listen below–it's one of my favorite tracks from a Springsteen bar gig.
 

@@ -38,7 +38,7 @@ post_id: 62429
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/11/1980-11-23.png.webp)
 
-**1984:** MTV premieres Bruce's new video, "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.<br>
+**1984:** MTV premieres Bruce's new video, "[Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)" That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.<br>
 
 [Watch on Youtube: Bruce Springsteen - premiere of "Born in the USA" video on MTV 1984-11-23](https://www.youtube.com/watch?v=vqE08ZnTQNk)
 
