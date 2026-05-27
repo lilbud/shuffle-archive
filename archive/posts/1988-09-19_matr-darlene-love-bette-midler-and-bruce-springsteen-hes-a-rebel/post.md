@@ -16,7 +16,7 @@ Let's watch her induction speech for Darlene Love at the 2011 Rock and Roll Hall
 
 Dead center in that montage was one of those uncredited Darlene Love performances Midler alluded to in her induction speech: "He's a Rebel," a Number One hit for The Crystals in 1962.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G_SXJ18EkNw)
+[Watch on Youtube: The Crystals - He's a Rebel (1962)](https://www.youtube.com/watch?v=G_SXJ18EkNw)
 
 Except, of course, that's not actually The Crystals on that record.
 

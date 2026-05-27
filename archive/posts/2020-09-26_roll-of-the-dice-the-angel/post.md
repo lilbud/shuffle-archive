@@ -21,13 +21,13 @@ Appel thought both songs sucked, but he saw enough potential in Bruce to challen
 
 "The Angel" was also one of a dozen songs that Bruce recorded for John Hammond the day after Appel famously bulldogged him into auditioning Bruce in May of 1972. Amazingly, that early recording of "The Angel" survives, and although Bruce's solo piano performance can't compete with the more confident yet delicate David Sancious performance that graces the official track, there's no question that Bruce's make-or-break vocal for Hammond is far superior to the final version.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DKDw27S88F8)
+[Watch on Youtube: Bruce performs "The Angel" as a demo for John Hamm](https://www.youtube.com/watch?v=DKDw27S88F8)
 
 Hammond signed Bruce to CBS shortly after that, on June 9, 1972. Within three weeks, Bruce had reassembled The Bruce Springsteen Band (minus Steve Van Zandt, still a couple of years away from re-entering the story) and started recording his debut album.
 
 "The Angel" was one of the first songs they recorded, in an arrangement that's essentially a solo Sancious performance. (Richard Davis, who played on Van Morrison's *Astral Weeks* album that Bruce revered, accompanied Sancious on the upright double bass late in the song. Davis would reprise his double bass duty on "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" for Bruce's third album.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s-pdQKRQ_qY)
+[Watch on Youtube: The Angel](https://www.youtube.com/watch?v=s-pdQKRQ_qY)
 
 In the early 1970s, Bruce had a fascination with seamy street scenes and sordid characters; several of his songs from that pre-label period were little more than the musical equivalent of a mural, or at best a character study. (See "[Hollywood Kids,](../2011-01-19-roll-of-the-dice-hollywood-kids/post.md/)" for example.)
 
@@ -50,7 +50,7 @@ Bruce's melody is contemplatively sad, almost poignant–at contrast with his ea
 
 (Hubcap Heaven, by the way, was and is a real place that Bruce was very much familiar with. Officially, it's called the Hubcap Farm, and you can find it in Farmingdale, New Jersey. For all the fans who devote hours of research, exploration, and debate to determining the location of Greasy Lake, Hubcap Heaven is a surprisingly easy yet little-known Springsteen landmark to visit.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rYnlDCZTP1w)
+[Watch on Youtube: The Hubcap Heaven of NJ](https://www.youtube.com/watch?v=rYnlDCZTP1w)
 
 ![](https://www.morrisonhotelgallery.com/images/big/Bruce%20candid_21948.jpg)
 
@@ -94,7 +94,7 @@ Bruce wouldn't attempt "The Angel" again for another 13 years, and this time he 
 
 He chose the original album arrangement, with guest artist Joyce Hammann on viola in place of Richard Davis's double bass. Roy Bittan's piano accompaniment is just as sensitive as Sancious' original version, but it's Bruce's vocals that were the breathtaking surprise. There's no sheepishness in his reading below, only a nostalgic tenderness, as if singing about an old friend or a former self–either way, someone long gone but fondly remembered.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=830jgSJmBwM)
+[Watch on Youtube: Bruce Springsteen & ESB - The Angel & Lost In The Flood (Live)](https://www.youtube.com/watch?v=830jgSJmBwM)
 
 That night–[November 22, 2009](../2018-11-22_where-the-band-was-buffalo-november-22-2009/post.md)–was the last time Bruce played "The Angel" in public to date. That entire tour-finale night felt like a chapter closing; a premonition that would prove true in ways we couldn't and wouldn't wanted to have imagine at the time.
 

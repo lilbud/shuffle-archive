@@ -12,7 +12,7 @@ Okay, so this one's a stretch, but I'm a completist, remember?
 
 Still, Bruce really did join Stevie Wonder on stage for a one-time-only performance of Stevie's classic "Uptight (Everything's Alright)."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kZf3Byq8oLA)
+[Watch on Youtube: Uptight - Stevie Wonder](https://www.youtube.com/watch?v=kZf3Byq8oLA)
 
 It was at the Waldorf-Astoria Hotel in New York City, on the evening of January 18, 1989. The occasion: the fourth annual induction festivities for the Rock and Roll Hall of Fame. (Back then, the proceedings were a lot more modest than they are today.)
 

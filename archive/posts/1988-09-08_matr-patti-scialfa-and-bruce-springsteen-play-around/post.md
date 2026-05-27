@@ -14,7 +14,7 @@ Toward the end of Patti Scialfa's third album, *Play It as It Lays*, there's a q
 
 "Play Around" is a great track on a start-to-finish standout album.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ewTqMZm21LE)
+[Watch on Youtube: Play Around (Album Version)](https://www.youtube.com/watch?v=ewTqMZm21LE)
 
 **Play Around**<br>
 **Recorded:** ?<br>

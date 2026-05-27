@@ -17,7 +17,7 @@ Even the name of the song (if we can call it a song) conveys finality: *The End*
 
 So we can't fault the fans who hear the last lines of *Abbey Road* as a farewell from one of the greatest rock and roll bands of all time.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=12R4FzIhdoQ)
+[Watch on Youtube: The End (Remastered 2009)](https://www.youtube.com/watch?v=12R4FzIhdoQ)
 
 It wasn't, though. The Beatles hadn't intended for "The End" to close out the album (let alone their career) at the time they recorded it, and by all accounts Paul was simply looking for a satisfying way to cap off the medley. He took his inspiration from The Bard, who liked to close his plays with a standalone couplet.
 
@@ -47,7 +47,7 @@ Bruce had already been on stage for a couple of songs (including his own "Glory 
 
 With only four guitarists at the fore for an extra-long jam, Bruce had even more at-bats than he did at The Grammys, and the hometown crowd went wild for it.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=whSVXfetz4g)
+[Watch on Youtube: "The End (Jam) " Paul McCartney & Bruce Springsteen@Metlife East Rutherford, NJ 6/16/22](https://www.youtube.com/watch?v=whSVXfetz4g)
 
 Just nine days later, Bruce reprised his guest appearance at McCartney's headlining gig across the pond at Glastonbury.
 
@@ -55,7 +55,7 @@ That appearance was actually a promise kept: McCartney had asked Bruce to join h
 
 Springsteen agreed, but a global pandemic forced the festival to punt the gig two years down the road. Bruce remembered his promise, however, and showed up for his songwriting idol. This time, Dave Grohl was there too, lending some extra guitar power to the final number.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QfArWz_088U)
+[Watch on Youtube: Paul McCartney at 80, Bruce Springsteen & Dave Grohl at Glastonbury Festival - BBC News - 6/25/2022](https://www.youtube.com/watch?v=QfArWz_088U)
 
 Time will tell if we ever get a chance to see McCartney and Springsteen share a stage again, but if we don't their 2022 performances of "The End" certainly serve as fitting final team-ups.
 

@@ -28,7 +28,7 @@ But for my money, the highlight of the show was Bruce's extended mini-set with S
 
 The last of those, "I Thank You" was also Sam and Dave's final single for storied Stax Records. It scored them another Top Ten hit, peaking at #9 on the Hot 100 and #4 on the R&B charts.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OLKiyo48VJI)
+[Watch on Youtube: Sam & Dave "I Thank You"](https://www.youtube.com/watch?v=OLKiyo48VJI)
 
 When Bruce and Sam tackled "I Thank You" together, Bruce quickly and graciously ceded the bandleader role to Sam, and the result was magic.
 

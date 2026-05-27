@@ -22,7 +22,7 @@ Unable to act, Horn became a farmer, an interpreter, and a nightclub singer fina
 
 She made an impression on a young singer-songwriter from New Jersey, too. In early 1972, 23-year-old Bruce Springsteen wrote a song about Horn–a biographical character arc that summarized her story in only eight lines.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZfZ4RyReDXI)
+[Watch on Youtube: Bruce Springsteen - Camilla Horn](https://www.youtube.com/watch?v=ZfZ4RyReDXI)
 
 Bruce's song–entitled simply "Camilla Horn"–focuses on Horn's arrival in the United States, where she was hailed as the next big thing before the industry moved on to the big thing after her.
 

@@ -14,7 +14,7 @@ I'm not talking about the demo version from *Tracks–*I mean the actual *Greeti
 
 So let's start off by listening to the original mix, and turn the volume way up around the 2:45 mark.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0Evh7nM4bP0)
+[Watch on Youtube: Bruce Springsteen - "It's Hard to Be a Saint in the City" - original mix](https://www.youtube.com/watch?v=0Evh7nM4bP0)
 
 Yeah, that's Bruce rapping his way out of the song as the music fades:
 
@@ -57,7 +57,7 @@ Appel immediately began to work on signing Bruce (which he did a month later), a
 
 The very next day, Bruce was recording demo tracks–fourteen of them–with Hammond at Columbia, and one of them was this acoustic version of "Saint in the City" — the one you can find on *Tracks*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=93AoZt9rZ7o)
+[Watch on Youtube: It's Hard To Be A Saint In The City (Demo Version - 1972)](https://www.youtube.com/watch?v=93AoZt9rZ7o)
 
 Personally, I prefer the earlier *Tracks* version to the *Greetings* version. The song is essentially the story of a guy trying to survive on his own in the big city, and the presence of a band–especially one playing as loose as the band does on the *Greetings* track–kind of undermines that. When I listen to the demo version, I can envision Bruce walking through the city with his acoustic guitar, doing his best to hustle up some cash when the opportunity presents itself and slip along unnoticed when it doesn't.
 
@@ -107,9 +107,9 @@ In electric form, it seemed to serve primarily as a showcase for Bruce's guitar-
 
 As the years passed, it evolved into a guitar duel between Bruce and Steve, which was fun and impressive but completely overshadowed and undermined the content of the song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1fwaS01Zg5k)
+[Watch on Youtube: Bruce Springsteen - Saint In The City (London '75)](https://www.youtube.com/watch?v=1fwaS01Zg5k)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eBIWFRsq3ns)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - It's Hard To Be A Saint In The City (Live in Houston, 1978)](https://www.youtube.com/watch?v=eBIWFRsq3ns)
 
 For my money the song still works best acoustically. I haven't been lucky enough to be there when Bruce performed it that way, but I still hold out hope.
 

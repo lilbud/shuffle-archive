@@ -14,7 +14,7 @@ That entire first album is wonderful. As Emmylou Harris once put it in a 2013 NP
 
 *Rumble Doll* saves one of its best tracks for last. "Spanish Dancer" is a beautiful ballad about a mesmerizing, unattainable love interest who turns out to be "just a man after all." It doesn't require a lot of imagination to suspect who she's singing about.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9jQNUFTjgL4)
+[Watch on Youtube: Spanish Dancer](https://www.youtube.com/watch?v=9jQNUFTjgL4)
 
 While Bruce didn't play on that particular studio track, he did support his wife on guitar when she performed the song live at Bruce's Asbury Park holiday shows in December 2001.
 
@@ -26,9 +26,9 @@ Here's hoping for another Scialfa album (and some solo shows) sometime soon.
 
 **Bonus:** There's a reason Emmylou Harris was discussing Patti in that NPR interview: she covered "Spanish Dancer" with Rodney Crowell on their wonderful *Old Yellow Moon* album. Here's their version, along with a live performance below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8Rn6hBjg2SE)
+[Watch on Youtube: Spanish Dancer](https://www.youtube.com/watch?v=8Rn6hBjg2SE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ATgQhCUnTmg)
+[Watch on Youtube: Emmylou Harris & Rodney Crowell - Spanish Dancer - live Laeiszhalle Hamburg  2013-05-31](https://www.youtube.com/watch?v=ATgQhCUnTmg)
 
 **Spanish Dancer**<br>
 **First performed:** December 3, 2001 (Asbury Park, NJ)<br>

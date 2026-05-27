@@ -18,7 +18,7 @@ There are those that argue that great art is born out of heartbreak and pain, no
 
 I usually start these essays off with the studio version, but to me, the definitive cut is the video version-it's a tad longer and a ton more exuberant. Just look at the carefree expression on Bruce's face throughout the video–this is a Bruce Springsteen we had not seen before.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VmwJQ62Cs_o)
+[Watch on Youtube: Bruce Springsteen - Better Days](https://www.youtube.com/watch?v=VmwJQ62Cs_o)
 
 The lyrics hardly need annotation; "Better Days" is among Bruce's most accessible songs. He'd reached a point in his life where he'd come to terms with his inner demons (or at least was in the process of doing so), and he'd started a family of his own with new wife Patti Scialfa in California and was enjoying the fruits of his commercial success.
 

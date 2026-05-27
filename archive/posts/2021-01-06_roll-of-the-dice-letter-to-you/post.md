@@ -18,7 +18,7 @@ When "Letter to You" debuted as the first single and title track for Bruce's new
 
 "Letter to You" became the first Springsteen track since "Cover Me" to leave me stone cold.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4wtHDwDzVtQ)
+[Watch on Youtube: Letter To You](https://www.youtube.com/watch?v=4wtHDwDzVtQ)
 
 I *hated* that realization. And I hated even more having to confess it in writing–especially because:
 
@@ -101,7 +101,7 @@ Lyrically, "Letter to You" reminds me of "Surprise, Surprise" — a simple but h
 
 There's no better point of comparison than the bridges. Take a listen to the album version, and how Brue stretches out "In my l-ehhhhhhhhhh-ter to you…" for no real reason or effect that I can discern. It distracts more than it underlines. (It's probably the element of the song that turns me off the most.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AQyLEz0qy-g)
+[Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 
 Compare with the [acoustic version](https://vimeo.com/493498107/84b3b1301d) now–see what I mean? Bruce extends the "letter" just a beat shorter than on the album, but it makes all the difference.
 

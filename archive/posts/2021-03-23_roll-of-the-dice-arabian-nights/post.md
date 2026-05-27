@@ -16,7 +16,7 @@ It's hard to fault the decision. As fascinating as "Arabian Nights" is, it doesn
 
 But it came *so* close… so close, in fact, that there are not one but three terrific-sounding recordings of Bruce performing this lost outtake. The last one is the best, so let's start there–take a listen to this stunner from the earliest *Greetings* recording session in June 1972.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YDtMbVrfpeA)
+[Watch on Youtube: BRUCE SPRINGSTEEN - arabian night](https://www.youtube.com/watch?v=YDtMbVrfpeA)
 
 Bruce recorded four songs on that first day of recording, of which only one would make the album. That's probably a good thing, too. Like the other two lost outtakes ("[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)" and "[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/)"), "Arabian Nights" is sexually graphic at times. (Let's give the guy a break–he was only 22 when he recorded them.)
 

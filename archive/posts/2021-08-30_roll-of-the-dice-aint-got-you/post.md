@@ -12,23 +12,23 @@ Billy Boy Arnold isn't anywhere near as famous as his friend Elias McDaniel (who
 
 Bruce clearly took a shine to Arnold's 1955 hit, "I Ain't Got You."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rohDUIDkD70)
+[Watch on Youtube: Billy Boy Arnold - I Ain't Got You](https://www.youtube.com/watch?v=rohDUIDkD70)
 
 Turning the blues formula on its head, "I Ain't Got You" (first recorded and probably written by Jimmy Reed, but Arnold's version was released first) is a seriocomic tale of the limits of commercial success. The song's narrator has everything he could ever have asked for or dreamed of, but as The Beatles would later observe: money can't buy you love.
 
 A decade after Arnold and Reed released their versions, "I Ain't Got You" was covered by both The Animals (who for some reason felt compelled to correct the grammar)…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dc6Xb3Mitf4)
+[Watch on Youtube: The Animals - I Ain`t Got You](https://www.youtube.com/watch?v=dc6Xb3Mitf4)
 
 …and The Yardbirds, featuring Eric Clapton.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=loAkNHnHu2c)
+[Watch on Youtube: I Ain't Got You - Original](https://www.youtube.com/watch?v=loAkNHnHu2c)
 
 Given Bruce's fondness for both bands, it's likely he first became aware of "I Ain't Got You" through those cover recordings, which debuted within weeks of each other during the summer The Castiles played their very first shows.
 
 But at some point Bruce traced the song to its original artist, because there are homages all over "Ain't Got You," the leadoff track to Bruce's 1987 *Tunnel of Love* album.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5iO8d8m0esY)
+[Watch on Youtube: Ain't Got You](https://www.youtube.com/watch?v=5iO8d8m0esY)
 
 Besides the obvious name similarity, the two songs also have the same lyrical theme (although Bruce updates and exaggerates the narrator's Midas-like success) and share a very similar bridge melody.
 
@@ -92,11 +92,11 @@ As powerful a pairing as that was, Bruce lopped off "Ain't Got You" from the med
 
 "Ain't Got You" wasn't seen again until 2005, when Bruce resurrected it for his solo acoustic tour, winkingly recasting it as an outlet for his otherwise humble public demeanor. (Catch the subtle lyric change in the last verse–it's an improvement.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EPGDkyDg2b8)
+[Watch on Youtube: Bruce Springsteen - Ain't Got You - Seattle - 8/11/05](https://www.youtube.com/watch?v=EPGDkyDg2b8)
 
 It's been sixteen years since we last heard from "Ain't Got You" in a Springsteen set list, but Billy Boy Arnold is still alive and kicking–and as recently as 2019 was still performing his original hit, "I Ain't Got You."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WQYKWveDFWY)
+[Watch on Youtube: Billy Boy Arnold @  Colne 2015 - I Ain't Got You](https://www.youtube.com/watch?v=WQYKWveDFWY)
 
 **Ain't Got You**<br>
 **Recorded:** January – April 1987<br>

@@ -23,7 +23,7 @@ ydl_opts = {
         "deno": {"path": None},  # Set 'path' to a string if it's not in your PATH
     },
     "verbose": False,
-    "sleep_interval": 1,
+    "sleep_interval": 5,
     "max_sleep_interval": 5,
     "sleep_requests": 1.5,
 }

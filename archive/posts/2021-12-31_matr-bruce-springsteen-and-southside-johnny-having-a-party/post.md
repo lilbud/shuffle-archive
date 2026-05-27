@@ -12,13 +12,13 @@ Long before it became synonymous with the Jersey Shore, Sam Cooke's "Having a Pa
 
 Released in the spring of 1962 as the B-side to "Bring It On Home to Me," "Having a Party" performed almost as well as its A-side, peaking at #17 on the Billboard Hot 100 that summer.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OmMbN_MrlTQ)
+[Watch on Youtube: Having a Party](https://www.youtube.com/watch?v=OmMbN_MrlTQ)
 
 It's easy to hear why. "Having a Party" is a recipe for a perfect pop song: soulful vocals, a swinging orchestral arrangement (twenty musicians are credited on the track, including a young Lou Rawls on backing vocals), and lyrics so light they almost take flight.
 
 It wasn't anywhere close to his greatest hit, but it became one of Cooke's signature songs. He would close his shows with "Having a Party" from the time he debuted it to his very last concert, and the live setting is where the song came alive. In concert, "Having a Party" became a call to action, and Cooke's audiences took up the call. You can hear Cooke in command in his famous *Live at the Harlem Square Club* concert, recorded shortly before his untimely death.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6droV4mGCRQ)
+[Watch on Youtube: Having a Party (Live at the Harlem Square Club, Miami, FL - January 1963)](https://www.youtube.com/watch?v=6droV4mGCRQ)
 
 After Cooke's passing, "Having a Party" became a bittersweet reminder of a simpler time and eventually an R&B oldies standard.
 

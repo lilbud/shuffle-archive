@@ -12,7 +12,7 @@ post_id: 22144
 
 Maybe if Neil Young had set his beloved "Helpless" (first recorded and released by Crosby, Stills, Nash & Young on their 1970 *Deja Vu* album) in Toronto, Bruce would have covered it sooner?
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C8LYOyqJE7k)
+[Watch on Youtube: Helpless](https://www.youtube.com/watch?v=C8LYOyqJE7k)
 
 As it stands, it took Bruce until 1986 to visit Neil's town in North Ontario, but it was a special moment when he did.
 

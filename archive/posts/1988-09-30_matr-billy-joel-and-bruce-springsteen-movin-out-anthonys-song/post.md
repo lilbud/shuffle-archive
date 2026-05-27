@@ -12,7 +12,7 @@ post_id: 17936
 
 It's a song that drives straight down the center of Bruce Springsteen's songwriting lane, chronicling working-class would-be winners desperate to pull out of a town full of losers.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cJtL8vWNZ4o)
+[Watch on Youtube: Billy Joel - Movin' Out (Anthony's Song) (Official Audio)](https://www.youtube.com/watch?v=cJtL8vWNZ4o)
 
 So it's a little surprising that Billy and Bruce never got around to performing it together until they shared a benefit stage at the tail end of the 2008 U.S. presidential campaign.
 

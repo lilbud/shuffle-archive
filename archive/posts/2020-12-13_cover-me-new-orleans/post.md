@@ -14,7 +14,7 @@ Originally released in September 1960, "New Orleans" was credited to simply "U.S
 
 He might have been right, but the trickery was unnecessary: the song was a hit, peaking at #6 in the U.S. and #16 in the U.K., and it made Bonds a star. He'd never drop the stage surname, but he'd at least start using his real first name the following year.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=J9Ib8sC_wX8)
+[Watch on Youtube: Gary U.S. Bonds - New Orleans](https://www.youtube.com/watch?v=J9Ib8sC_wX8)
 
 By the spring of 1976, Bruce had already been covering Bonds on a regular basis, with "Quarter to Three" as a standard encore. But on the night of May 13th, Bruce changed it up, swapping out Bonds' greatest hit for the less popular "New Orleans."
 

@@ -36,7 +36,7 @@ For Bruce actually is known to be an aficionado of the naked art scene–he's ad
 
 > *"That usually stupefies and satisfies them. Hey, I gotta get through the world somehow."*<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=THuosDWhJC4)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise - Introduction (From VH1 Storytellers)](https://www.youtube.com/watch?v=THuosDWhJC4)
 
 Bruce shared that story almost a decade after his last performance of "Pilgrim in the Temple of Love" and in a much different context. By way of introducing "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)", Bruce used his anecdote to illustrate his theme of a "public face" and a "private face."
 
@@ -158,7 +158,7 @@ I imagine that for Bruce Springsteen, that momentary freedom from his public fac
 
 **Bonus:** Here's a rare live performance of "Pilgrim in the Temple of Love" captured on video, from Cincinnati on December 12, 1996.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YfNiDh9zndQ)
+[Watch on Youtube: Pilgrim In The Temple Of Love Bruce Springsteen 12/10/1996 OH](https://www.youtube.com/watch?v=YfNiDh9zndQ)
 
 **Pilgrim in the Temple of Love**<br>
 **Never recorded**<br>

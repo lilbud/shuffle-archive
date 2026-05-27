@@ -12,7 +12,7 @@ In October 1995, Bruce temporarily became a Houserocker, joining Joe Grushecky's
 
 Their encore each night: Joe's rock anthem “Rebel Music” from his debut album with The Houserockers, *Rock and Real.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C3Y40RF8Lok)
+[Watch on Youtube: Rebel Music](https://www.youtube.com/watch?v=C3Y40RF8Lok)
 
 A nightly highlight in a show full of them, Joe, Bruce and The Houserockers turned an already great song into an epic–and luckily one of their homecoming shows at Nick's Fat City in Pittsburgh was professionally recorded, so you can hear for yourself:
 

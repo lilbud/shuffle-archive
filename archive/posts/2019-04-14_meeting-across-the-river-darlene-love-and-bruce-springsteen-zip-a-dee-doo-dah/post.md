@@ -10,7 +10,7 @@ post_id: 4045
 ---
 You might be more familiar with "Zip a Dee Doo Dah" in its original Disney incarnation, but in 1963, it went all the way to #8 on the charts when Bob B. Soxx and The Blue Jeans covered it. And if you're not familiar with that band, you're probably familiar with their featured vocalist on the track: Darlene Love.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PWOkSyR_NhU)
+[Watch on Youtube: Bob B. Soxx and The Blue Jeans - Zip-A-Dee-Doo-Dah (Audio)](https://www.youtube.com/watch?v=PWOkSyR_NhU)
 
 In 2011, Darlene Love was inducted into the Rock and Roll Hall of Fame, and "Zip a Dee Doo Dah" was among the songs she performed at the induction ceremony.
 

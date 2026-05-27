@@ -16,7 +16,7 @@ Murphy joined Bruce on stage in Paris nine more times over the next 25 years, st
 
 Like they did five years earlier, they played one of Elliott's songs–this time "Diamonds by the Yard," the opening track of his 1976 album, *Night Lights*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KkYwDhxzAJ0)
+[Watch on Youtube: Diamonds By The Yard](https://www.youtube.com/watch?v=KkYwDhxzAJ0)
 
 "Diamonds by the Yard" was Elliott's first "epic" song; at nearly seven minutes, it's practically Springsteenian in length and grandeur. It was a natural pick for them to play together that night in Paris.
 

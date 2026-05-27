@@ -32,7 +32,7 @@ Half therapy and half love letter to his late grandparents, "Randolph Street" is
 
 Bruce's beloved grandmother passed away on December 17, 1965. Bruce recorded "Randolph Street" more than six years later, but the love, loss, and longing are still fresh in his vocals.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c8mnnlidpkA)
+[Watch on Youtube: Early Springsteen: Randolph Street](https://www.youtube.com/watch?v=c8mnnlidpkA)
 
 Bruce's lyrics are uncharacteristically (for the time) straightforward, and they line up with his later recollections and autobiography neatly–so much so that they leave little room or need for analysis.
 

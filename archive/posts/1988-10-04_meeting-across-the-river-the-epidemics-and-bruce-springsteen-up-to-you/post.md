@@ -16,7 +16,7 @@ One such far-flung location was New Delhi, where Bruce met up with The Epidemics
 
 *Eye Catcher* is a curious and unique collectable for Springsteen fans: it contains a studio track called "Up to You," which features an extended harmonica intro and outro by Bruce.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bYEVWKyjS1U)
+[Watch on Youtube: Epidemics - Up to You (1989) - Featuring L. Shankar, Bruce Springsteen, Nils Lofgren](https://www.youtube.com/watch?v=bYEVWKyjS1U)
 
 Although "Eye Catcher" is a studio track, Bruce's contribution was captured live–he joined the duo on stage during their set at the New Delhi Amnesty Rights Now! show, and his solos were seamlessly integrated with the studio track. (Nils and David Sancious are there on the grafted live track as well.)
 

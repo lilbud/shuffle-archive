@@ -12,7 +12,7 @@ It started on the endearing end of the awkwardness spectrum when a humble and gr
 
 But events quickly moved to strange and ultimately offensive when Love took his turn at the mic.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oZSAQX2uuUY)
+[Watch on Youtube: Beach Boys accept award Rock and Roll Hall of Fame inductions 1988](https://www.youtube.com/watch?v=oZSAQX2uuUY)
 
 Even all the years later, I'm not sure exactly what Love was trying to accomplish in that moment. The Beach Boys were already elevated and exalted by their peers, but Love seemed intent on stepping on them to get just a little bit taller. And as you can tell from the video above, the crowd was not having it.
 
@@ -22,23 +22,23 @@ Eventually, though, Love yielded the microphone, and when the end-of-the-night j
 
 That was the first time Bruce Springsteen (along with Little Steven) performed "Barbara Ann" in public, content to hang in the background with a tambourine.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OEAZZ0jrV8w)
+[Watch on Youtube: The Beach Boys - "Barbara Ann" | 1988 Induction](https://www.youtube.com/watch?v=OEAZZ0jrV8w)
 
 Although indelibly associated with The Beach Boys, their 1965 recording of "Barbara Ann" was actually a cover. The song was first released by The Regents in 1961, peaking at #13 on the Billboard Hot 100.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gTffa6I27iA)
+[Watch on Youtube: The Regents - Barbara Ann (ORIGINAL VERSION)](https://www.youtube.com/watch?v=gTffa6I27iA)
 
 The Beach Boys' version did better, reaching #2 in early 1966. .
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4wvx14Qv9cg)
+[Watch on Youtube: The Beach Boys - Barbara Ann (Official Music Video)](https://www.youtube.com/watch?v=4wvx14Qv9cg)
 
 Bruce Springsteen would go on to perform it twice more when Brian Wilson came to his neck of the woods in central New Jersey, once in 2007…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=u4dlmQwN64c)
+[Watch on Youtube: Brian Wilson & Band Red Bank NJ w/ Bruce Springsteen Dennis Diken  Red Bank NJ 5/12/07](https://www.youtube.com/watch?v=u4dlmQwN64c)
 
 …and again in the summer of 2015.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6rhU2FBbWjs)
+[Watch on Youtube: Barbara Ann w/ Bruce Springsteen & Brian Wilson Band](https://www.youtube.com/watch?v=6rhU2FBbWjs)
 
 On both occasions, he braved a little more than the tambourine, but at no point did he step forward to take a lead vocal.
 

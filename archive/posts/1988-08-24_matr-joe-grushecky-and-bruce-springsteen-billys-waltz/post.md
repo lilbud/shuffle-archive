@@ -12,7 +12,7 @@ Towards the end of Joe Grushecky's *American Babylon*, there's a lovely but dark
 
 The non-descriptively named "Billy's Waltz" is the kind of song we'd expect to find on *Nebraska:* a confessional by a man who left his home and family to find work, promising to return for them but knowing he won't keep his promise.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jstRRnVSp8s)
+[Watch on Youtube: Billy's Waltz](https://www.youtube.com/watch?v=jstRRnVSp8s)
 
 The narrator vividly recalls his father struggling to make ends meet and feed his family. He vows to never be in that situation, but his solution is to simply leave rather than confront it.
 

@@ -12,7 +12,7 @@ post_id: 18175
 
 It's far from Elvis' best song. In fact, if "Wear My Ring Around Your Neck" is notable for anything, it's for breaking Elvis' remarkable streak of ten consecutive #1 hits. (Although to be fair, it did reach #2.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0DMrKkGnP6Y)
+[Watch on Youtube: Elvis Presley - Wear My Ring Around Your Neck w/lyrics](https://www.youtube.com/watch?v=0DMrKkGnP6Y)
 
 Still, despite its sometimes awkward lyrical simplicity (there must have been another rhyme available for neck besides "by heck"), and even though it's rarely covered by other artists, it still managed to catch Bruce Springsteen's attention.
 

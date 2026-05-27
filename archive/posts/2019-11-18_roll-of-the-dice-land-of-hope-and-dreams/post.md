@@ -10,7 +10,7 @@ post_id: 52
 ---
 In a better world, *Land of Hope and Dreams* would be our national anthem. It's certainly my personal one.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KHpJhS99Q60)
+[Watch on Youtube: Land of Hope and Dreams](https://www.youtube.com/watch?v=KHpJhS99Q60)
 
 I remember hearing it for the first time, in the Tacoma Dome in April, 2000. I was immediately electrified by it. LOHAD was immediately, and remains to this day, my favorite Bruce Springsteen song.
 
@@ -18,7 +18,7 @@ Like many great Springsteen songs, LOHAD resonates differently in different sett
 
 It can be celebratory and foreboding at the same time. Watch the conclusion of President Obama's farewell address, and try not to choke up when LOHAD swells at the conclusion… and shiver at the lines "You don't know where you're going now, but you know you won't be back."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=R2Zo8vHOgaM)
+[Watch on Youtube: Obama Farewell Speech FULL Event | ABC News](https://www.youtube.com/watch?v=R2Zo8vHOgaM)
 
 Fun fact: Like many Springsteen songs, LOHAD had its genesis in another song. Two, actually:
 
@@ -28,7 +28,7 @@ Original: "This train don't carry no gamblers, liars, thieves, nor big shot ramb
 
 Bruce's reply: "This train carries saints and sinners. This train carries losers and winners. This train carries whores and gamblers. This train carries lost souls."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jOrhjgt-_Qc)
+[Watch on Youtube: Sister Rosetta Tharpe - This Train](https://www.youtube.com/watch?v=jOrhjgt-_Qc)
 
 …but, musically, *Land of Hope and Dreams* began with a little-known guest appearance by Bruce with a little-known artist on what I believe is the finest album released by anyone during the 1990s.
 
@@ -64,7 +64,7 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 **Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "Dancing in the Dark."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L50sqx9fYjg)
+[Watch on Youtube: Bruce Springsteen - "Dancing In The Dark"/"Land of Hope and Dreams" - Theater a MSG - 11/4/19](https://www.youtube.com/watch?v=L50sqx9fYjg)
 
 **Land of Hope and Dreams**<br>
 **Recorded:** July 1, 2000 (live), unknown (studio)**Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)**First performed:** March 18, 1999 (Asbury Park, NJ)<br>

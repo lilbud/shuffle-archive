@@ -24,7 +24,7 @@ While we don't know the exact recording date for "When You're Alone," I suspect 
 
 But whereas "One Step Up" and the album's title track made brilliant use of metaphor to make their point, "When You're Alone" is stark, direct, and more than a little hard-hearted.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yj53o9pkKRo)
+[Watch on Youtube: When You're Alone](https://www.youtube.com/watch?v=yj53o9pkKRo)
 
 Uncharacteristically for Bruce, there's not a trace of metaphor in "When You're Alone," which renders it an easy song to analyze: everything's on the surface. This is the story of a jilted lover whose ex later returns to him, and his reception is not a kind one.
 
@@ -83,11 +83,11 @@ Perhaps that's why Bruce waited so long to perform "When You're Alone" live. Or 
 
 [Watch Video](https://videopress.com/embed/xZGdW7M7?hd=1&loop=0&autoPlay=0&permalink=1)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EpF2lky400s)
+[Watch on Youtube: Bruce Springsteen - When You're Alone](https://www.youtube.com/watch?v=EpF2lky400s)
 
 I've heard each of the dozen "When You're Alone" performances Bruce has given over the years, and the only ones that sticks with me are his 1996 hometown performances in Freehold and Asbury Park, where Soozie accompanied him on violin and both Soozie and Patti supplied backing vocals.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JOzvJGy7Hjw)
+[Watch on Youtube: When You're Alone (Live at Paramount Theatre, Asbury Park, NJ - 11/24/96 - Official Audio)](https://www.youtube.com/watch?v=JOzvJGy7Hjw)
 
 Even then, though, it's only the music that's warm–the lyrics are still icy. I suspect it's not a song most fans would clamor to hear, and likely not one of the artist's favorites either.
 

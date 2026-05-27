@@ -10,7 +10,7 @@ post_id: 32113
 ---
 If every rocker needs a mission statement, for Joe Grushecky, "I Was Born to Rock" is a pretty great candidate.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GNbJlqlWVCI)
+[Watch on Youtube: I Was Born To Rock](https://www.youtube.com/watch?v=GNbJlqlWVCI)
 
 Tucked deep into Joe's otherwise weighty *Somewhere East of Eden* album (his seventeenth studio album, released in 2013), "I Was Born to Rock" is crunchy and catchy, playfully and powerfully personal.
 

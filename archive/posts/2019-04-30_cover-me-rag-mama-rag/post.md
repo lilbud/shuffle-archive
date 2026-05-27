@@ -12,7 +12,7 @@ In retrospect, we probably should have expected it.
 
 Bruce once described the Sessions Band as a band that rolls rather than rocks, and that's also a perfect descriptor for The Band's 1970 single, "Rag Mama Rag."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oHy_XeBMagU)
+[Watch on Youtube: Rag Mama Rag - The Band (The Band 2 of 12)](https://www.youtube.com/watch?v=oHy_XeBMagU)
 
 If the original feels a bit loose, that's largely because the musicians swapped places to make it feel that way, with Levon Helm moving from drums to mandolin, Richard Manuel moving from piano to drums, and Garth Hudson moving from organ to piano. Rick Danko contributed the fiddle, and producer John Simon the all-important tuba.
 

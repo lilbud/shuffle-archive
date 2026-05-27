@@ -12,7 +12,7 @@ Sometimes a wonderful cover can fly completely under the radar.
 
 This is one of them.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ufyu-DgD5tA)
+[Watch on Youtube: Lanny Cordola, "My Beautiful Reward"](https://www.youtube.com/watch?v=Ufyu-DgD5tA)
 
 Lanny Cordola has associated himself with a few bands over the years, but he's a wonderful musician in his own right. (He plays every instrument you hear on this track.)
 

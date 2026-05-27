@@ -10,7 +10,7 @@ post_id: 33338
 ---
 If you're gonna rock in Boston, sooner or later you've got to play "Dirty Water."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=62XRy-jFCm8)
+[Watch on Youtube: The Standells - Dirty Water (Stereo)](https://www.youtube.com/watch?v=62XRy-jFCm8)
 
 "Dirty Water" was the one and only hit from The Standells, a garage rock band based in (where else?) Los Angeles. Released in late 1965, the song climbed the charts the following year, peaking at #11 on the Billboard Hot 100 after breaking out and becoming wildly popular in (where else?) Orlando.
 
@@ -28,7 +28,7 @@ But it wasn't just the local hockey fans who adopted "Dirty Water" as their anth
 
 After three consecutive Boston shows over the course of a year featured "Dirty Water" as the final song of the night, it seemed Bruce had established a new Beantown tradition, and "Dirty Water" would go on to make regular appearances for years to follow. Even when Bruce was on a solo acoustic tour…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BUhL-cFfAUA)
+[Watch on Youtube: Bruce Springsteen - DIRTY WATER  2005 - live](https://www.youtube.com/watch?v=BUhL-cFfAUA)
 
 …or the Americana-influenced Sessions Band Tour (once again with partner-in-crime Peter Wolf).
 
@@ -36,7 +36,7 @@ After three consecutive Boston shows over the course of a year featured "Dirty W
 
 Bruce played it once more in a return appearance at Fenway Park in 2012 (no Peter Wolf this time, though)…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YGyGU8Hc9Cw)
+[Watch on Youtube: BRUCE SPRINGSTEEN FENWAY PARK "Dirty Water" 8/14/12](https://www.youtube.com/watch?v=YGyGU8Hc9Cw)
 
 …but it's been a full decade now since we last heard it. Never fear, though: with tour rumblings once again picking up steam, it's a good bet we'll be hearing Bruce and the band play "Dirty Water" in Boston again sometime soon.
 

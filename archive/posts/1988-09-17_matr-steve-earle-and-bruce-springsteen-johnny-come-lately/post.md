@@ -10,7 +10,7 @@ post_id: 6260
 ---
 The first time I heard Steve Earle's "Johnny Come Lately," I thought to myself: this sounds like a companion piece to "Born in the U.S.A."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xVaPwdgezWI)
+[Watch on Youtube: Steve Earle - Johnny Come Lately](https://www.youtube.com/watch?v=xVaPwdgezWI)
 
 Thematically, the two songs are *very* similar: both are told from the point of view of an American soldier returning home from Vietnam to a very different reception than the one afforded to the veterans of previous wars.
 
@@ -37,7 +37,7 @@ So it's fitting that when Bruce joined Steve Earle and The Dukes on stage at Tra
 
 Take a listen to it below–to date, it's the only known time Bruce has performed the song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ghycWG6AejM)
+[Watch on Youtube: Steve Earle and Bruce Springsteen - "Johnny Come Lately" - Sea Bright, 1998-02-06](https://www.youtube.com/watch?v=ghycWG6AejM)
 
 **Johnny Come Lately**<br>
 **First performed:** February 6, 1998 (Sea Bright, NJ)<br>

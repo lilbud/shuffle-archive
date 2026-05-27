@@ -18,7 +18,7 @@ post_id: 31751
 
 At first listen, "Border Guard" is an introspective, contemplative musing on the toll taken by an unforgiving job. But there's more going on here than meets the ear, I think.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pGHyIfG-fC8)
+[Watch on Youtube: Bruce Springsteen / Border Guard](https://www.youtube.com/watch?v=pGHyIfG-fC8)
 
 That recording is from April 1972, one of several songs recorded by Mike Appel and Jim Cretecos mere weeks before Bruce's fateful meeting with John Hammond at CBS Records.
 

@@ -20,7 +20,7 @@ Regeney was a lapsed Catholic; his wife and songwriting partner Shayne was Jewis
 
 Intended or not, "Do You Hear What I Hear" became an immensely popular holiday song, and arguably the most misunderstood.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ADj-Ru3JQp0)
+[Watch on Youtube: Do You Hear What I Hear? (Original Version)](https://www.youtube.com/watch?v=ADj-Ru3JQp0)
 
 We all know the first verse of "Do You Hear What I Hear":
 
@@ -51,7 +51,7 @@ That year's show had a holiday theme, and Bruce neither surprised nor disappoint
 
 But if Bruce's set list choices were predictable, the encores weren't: Bruce joined the night's talent line-up (including Sting, Jennifer Nettles, Ronnie Spector, Darlene Love, James Taylor, and Idina Menzel) on stage for two traditional Christmas carols. Well, make that [one traditional carol](../2002-01-08_matr-sting-bruce-springsteen-and-friends-joy-to-the-world/post.md/) and one misinterpreted one: Bruce's one and only public performance of "Do You Hear What I Hear."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qZ6XNcPDUpA)
+[Watch on Youtube: Springsteen and Friends, "Do You Hear What I Hear", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=qZ6XNcPDUpA)
 
 Still, even if the context of "Do You Hear What I Hear" is misunderstood, its message isn't:
 

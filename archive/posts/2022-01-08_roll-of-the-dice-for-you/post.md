@@ -22,7 +22,7 @@ Someone who fascinates you, exhilarates you… but who you *know* will ultimatel
 
 If you've ever been in love with someone like that, then "For You" is for you.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rdP3y4k2KKU)
+[Watch on Youtube: For You](https://www.youtube.com/watch?v=rdP3y4k2KKU)
 
 "For You" is from Bruce Springsteen, who wrote the song while recovering from a toxic relationship in the winter of 1971-72. Bruce wrote about it in his autobiography, and in *Western Stars*, he revealed: "I had a gal in New Jersey who broke my heart, ripped it to shreds, trampled on it, and sent it to me C.O.D. in a paper bag. So I was out of there on the first ride west, no looking back."
 
@@ -127,11 +127,11 @@ Bruce recorded "For You" during the summer of 1972 with The Bruce Springsteen Ba
 
 Still, in my opinion "For You" only truly comes to life when Bruce performs it alone at the piano. Bruce seemed to realize that early on: for most of its early performances, that's exactly how the song was played, including this riveting rendition from Bruce's *Live at the Hammersmith Odeon, London '75* release.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nvMRVGjvLus)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - For You (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=nvMRVGjvLus)
 
 In recent years, the arrangement seems to be a toss-up depending on Bruce's mood, but one way or another "For You" still manages to make a few appearances on every tour. My personal favorite was a solo performance in Hershey in 2014.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xZuMWcKdRT0)
+[Watch on Youtube: Bruce Springsteen "For You" Hershey Park](https://www.youtube.com/watch?v=xZuMWcKdRT0)
 
 "For You" even turned up on the Seeger Sessions Tour, although I'm not convinced that was a wise decision. While most of Bruce's song's translated gracefully to the Sessions Band's sound and style, "For You" sounded unwieldy and awkward.
 

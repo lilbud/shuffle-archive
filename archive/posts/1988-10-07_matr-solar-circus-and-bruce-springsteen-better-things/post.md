@@ -36,7 +36,7 @@ And even if it wasn't: you'd know Bruce was on stage just from the taper/bouncer
 
 If you're looking for more definitive evidence of Bruce's on-stage contribution, check out this video clip from that performance. Only the last three-and-a-half minutes or so were captured, but there's a pretty great "Mustang Sally" at the end of it (with Bruce's vocals) as a bonus.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Cq5tE0a3m-M)
+[Watch on Youtube: Solar Circus - 8/10/95-  with Bruce Springsteen, Better Things, Mustang Sally](https://www.youtube.com/watch?v=Cq5tE0a3m-M)
 
 Bruce never played with Solar Circus again, but at least for that one August night, he joined local musicians and fans in paying tribute to an American music icon taken too soon.
 
