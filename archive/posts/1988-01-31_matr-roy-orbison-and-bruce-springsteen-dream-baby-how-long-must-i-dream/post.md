@@ -12,19 +12,19 @@ I've shared a few songs from Bruce's 1987 appearance as a member of Roy Orbison'
 
 First, because Bruce apparently thought enough of "Dream Baby (How Long Must I Dream)" to try adapting it in a new arrangement (a la "Follow That Dream") during his *Nebraska* home recording sessions:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I7iqrFeStJY)
+[Watch on Youtube: Bruce Springsteen  Dream Baby](https://www.youtube.com/watch?v=I7iqrFeStJY)
 
 …and second, because it's the one song from *Black and White Night* where Roy was able to coax Bruce out from his supporting role and over to the center mic for some shared vocals.
 
 If their chemistry doesn't win you over immediately, it will by the time Bruce shrugs at the three-minute mark.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4MXdzlTTmv8)
+[Watch on Youtube: Roy Orbison - Dream Baby (How Long Must I Dream) (Black & White Night 30)](https://www.youtube.com/watch?v=4MXdzlTTmv8)
 
 (And yes, if you found yourself thinking "Is that…" all throughout the video, the answer is yes, that was exactly who you think it was, each and every band member. It's an all-star band, remember?)
 
 Roy's original 1962 single ranks as one of his greatest hits, both then (it peaked at #4 in the U.S. and #2 in the U.K.) and now.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_NxlyXUVCPU)
+[Watch on Youtube: Dream Baby (How Long Must I Dream)](https://www.youtube.com/watch?v=_NxlyXUVCPU)
 
 **Dream Baby (How Long Must I Dream)**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>

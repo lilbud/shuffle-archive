@@ -8,7 +8,7 @@ post_id: 67940
 ---
 "Dustland Fairytale" was always a Springsteen song in spirit. It had the cinematic scale, the desperate romanticism, and that specific brand of "get-out-while-we're-young" energy. But it was wrapped in the velvet and glitter of 21st-century indie rock. It was a tribute from a distance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-3hyrkzFRss)
+[Watch on Youtube: The Killers - A Dustland Fairytale](https://www.youtube.com/watch?v=-3hyrkzFRss)
 
 Until it wasn't.
 
@@ -26,7 +26,7 @@ In an Instagram post announcing their collaboration, Flowers revealed that he'd 
 
 Let's listen to Bruce Springsteen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M3BZ8hnLyRc)
+[Watch on Youtube: The Killers - Dustland (Official Music Video) ft. Bruce Springsteen](https://www.youtube.com/watch?v=M3BZ8hnLyRc)
 
 When Bruce's gravelly baritone kicks in, he jolts the song from fairy tale to history, giving voice to Flowers' father and lacing his performance with aching empathy. It's fitting, therefore, that Flowers dropped the "Fairytale" from the retitled "Dustland" when he released it to the world.
 
@@ -34,7 +34,7 @@ Springsteen had spent his entire career writing about characters like Flowers' p
 
 He didn't just lend his voice; he lent his mythology. And in doing so, he turned a great song into a timeless performance–a performance he reprised on stage in 2022 in a surprise appearance at The Killers' set in New York City.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QgIXt_mi9qA)
+[Watch on Youtube: The Killers and Bruce Springsteen Dustland (with intro) Live at Madison Square Garden NYC 10/1/22 4K](https://www.youtube.com/watch?v=QgIXt_mi9qA)
 
 **Dustland**<br>
 **Recorded:** Late 2020<br>

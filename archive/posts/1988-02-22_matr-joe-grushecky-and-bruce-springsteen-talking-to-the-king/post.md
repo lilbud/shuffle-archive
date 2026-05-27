@@ -16,7 +16,7 @@ It's easy to understand why they enjoy working together so much: their songwriti
 
 And then there are the songs that are just plain fun, and no Grushecky song brings the smiles like "Talking to the King," the lead-off track from Joe's 1992 album *End of the Century.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=twQ8p-R0BtU)
+[Watch on Youtube: Talking To The King](https://www.youtube.com/watch?v=twQ8p-R0BtU)
 
 With its immediately infectious riff and sweet, fantastical lyrics, "Talking to the King" is exactly the kind of dream you'd expect an *almost-*made-it-big rocker to have in the dark of night.
 
@@ -49,7 +49,7 @@ Following their handful of performances on the American Babylon Tour, Bruce and 
 
 You'd need to be in one of their stomping grounds to catch them, though: every one of their 22 performances in the past 22 years has been either on the Jersey Shore or Joe's native Pittsburgh. Here's Bruce, Joe, and the Houserockers performing "Talking to the King" at Light of Day 2011 in Asbury Park, and you can see how much Bruce enjoys playing Joe's song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sPrkW8y9IdA)
+[Watch on Youtube: Talking to the King - Springsteen & Joe Gruschecky](https://www.youtube.com/watch?v=sPrkW8y9IdA)
 
 There's no reason to expect Bruce and Joe will ever stop performing together, and no reason to expect that "Talking to the King" won't always be part of their sets.
 
@@ -57,7 +57,7 @@ It was even one of the very last songs Bruce performed live before the great pan
 
 I'll leave you with Bruce and Joe performing "Talking to the King" at Light of Day 20, Bruce's last public performance to date.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
+[Watch on Youtube: Grushecky & Houserockers Bruce Springsteen “Talking to the King” ~ Rose A Montana Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
 
 **Talking to the King**<br>
 **First performed:** October 17, 1995 (Asbury Park, NJ)<br>

@@ -20,7 +20,7 @@ Warren lived just long enough to see their performance debut to fan and critical
 
 Here's Warren and Bruce's award-winning performance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iWElAh8iLWs)
+[Watch on Youtube: Bruce Springsteen & Warren Zevon - Disorder In The House](https://www.youtube.com/watch?v=iWElAh8iLWs)
 
 **Disorder in the House**<br>
 **Recorded:** December 18, 2002<br>

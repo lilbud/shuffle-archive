@@ -20,11 +20,11 @@ Early in the set for both the early and late shows on May 13th was Steve's own s
 
 Although Steve wrote "Some Things Just Don't Change," it first appeared on Southside Johnny's new (well, at the time at least) album, *This Time It's For Real*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JUtfNGBdxdQ)
+[Watch on Youtube: Some Things Just Don't Change](https://www.youtube.com/watch?v=JUtfNGBdxdQ)
 
 It only took forty years for Steve to record his own version, finally and gloriously appearing on *Soulfire.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hqwApfnNi_A)
+[Watch on Youtube: Some Things Just Don't Change](https://www.youtube.com/watch?v=hqwApfnNi_A)
 
 …which makes "Some Things Just Don't Change" a curiosity: a cover performed 40 years before the original artist released it.
 

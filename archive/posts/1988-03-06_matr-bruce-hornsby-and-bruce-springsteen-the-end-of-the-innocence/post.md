@@ -9,7 +9,7 @@ post_id: 12004
 ---
 Most people associate "The End of the Innocence" with Don Henley, who scored one of the biggest hits of 1989 (peaking at #8 on the Billboard Hot 100) with it when he released it as the lead single and title track from his third solo album.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fOy5KSrwHGw)
+[Watch on Youtube: Don Henley - The End Of The Innocence 1989](https://www.youtube.com/watch?v=fOy5KSrwHGw)
 
 But true Bruce fans know that Henley was only the song's *co-*writer–it was actually co-written and co-produced by Bruce, and it's been a reliable staple of Bruce's setlists ever since.
 

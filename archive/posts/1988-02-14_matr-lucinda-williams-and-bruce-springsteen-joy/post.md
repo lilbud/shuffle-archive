@@ -14,11 +14,11 @@ Lucinda Williams was in town as well, and Bruce joined her on stage at her perfo
 
 The second, though, was Lucinda's hard-rocking "Joy" from her 1998 breakthrough album. *Car Wheels on a Gravel Road*. And while Bruce was a backing guitarist for most of the almost thirteen-minute performance below, he gets a turn in the spotlight at around the 10:50 mark and reminds us that he's not about to surrender his reputation as a mean rock guitarist any time soon.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pq02XzTGGIs)
+[Watch on Youtube: "Joy" Lucinda Williams & Bruce Springsteen - London '06 (Complete)](https://www.youtube.com/watch?v=pq02XzTGGIs)
 
 Lucinda's original studio version remains one of her greatest songs, a rebellious anthem for anyone who's ever had their joy wrested from them. There isn't much more to the lyrics than her "You took my joy; I want it back"–but if you're looking to the lyrics to provide the song's content, you're listening to the wrong part.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eJTHhY-mG94)
+[Watch on Youtube: Joy   Lucinda Williams](https://www.youtube.com/watch?v=eJTHhY-mG94)
 
 **Joy**<br>
 **First performed:** November 10, 1996 (London, England)<br>

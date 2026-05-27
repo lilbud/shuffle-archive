@@ -23,11 +23,11 @@ The first song the truly All-Starr Band tackled was a debut, which is actually s
 
 "Get Back" was released by The Beatles with Billy Preston in April 1969, and it immediately added another notch to The Beatles already long list of #1 singles–in fact, "Get Back" was the single that tied The Beatles with Elvis for the most #1 singles, each with seventeen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IKJqecxswCA)
+[Watch on Youtube: Get Back (Remastered 2009)](https://www.youtube.com/watch?v=IKJqecxswCA)
 
 Still, before Bruce walked on stage that night, Ringo and his band hadn't ever performed "Get Back" live. Whatever prompted its inclusion that night, it was an inspired choice. Bruce took a lead turn on both vocals and guitar, taking a spotlight moment mid-song for a guitar solo.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OK-lSq3vVZ0)
+[Watch on Youtube: Ringo Starr and His All Starr Band / Bruce Springsteen: Get Back](https://www.youtube.com/watch?v=OK-lSq3vVZ0)
 
 For those fortunate enough to have been there, it was a special night, and not just for the historic team-up. No one knew it at the time, but that performance would turn out to be Bruce's final public performance with members of the E Street Band before they went their separate ways that autumn.
 

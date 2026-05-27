@@ -14,7 +14,7 @@ In 2004, Patti Scialfa released her second solo album*.* She was fifty years old
 
 No song better captures the album's theme than its second track, "You Can't Go Back" (which actually would have been a perfect name for the album, too).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Hm0XYpT-y90)
+[Watch on Youtube: You Can't Go Back](https://www.youtube.com/watch?v=Hm0XYpT-y90)
 
 In "You Can't Go Back," Patti revisits the New York City streets she once haunted, searching for that sense of freedom, adventure, and possibility of youth. Her glasses aren't rose-colored (there's a reason she slyly co-ops the chord progression from Lou Reed's "Walk on the Wild Side"), but it's significant that she anchors her memory in 1988, leaving no doubt who she's singing to in the first verse.
 

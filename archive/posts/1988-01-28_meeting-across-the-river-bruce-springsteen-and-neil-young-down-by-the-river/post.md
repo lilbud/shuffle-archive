@@ -12,11 +12,11 @@ When Neil Young played an outdoor show in Long Island's Jones Beach State Park, 
 
 From that June 14, 1989 show, here's their beautifully shot performance of Neil's dark murder ballad, featuring some surprisingly high harmony vocals from Bruce.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jXd_RosBC5w)
+[Watch on Youtube: Down by the river - neil young & bruce springsteen](https://www.youtube.com/watch?v=jXd_RosBC5w)
 
 Neil and Bruce's acoustic rendition is moodier and broodier than the guitar-fueled original, and the result is a performance that would have been right at home on *Nebraska*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KflCXmEX6BY)
+[Watch on Youtube: Down by the River (2009 Remaster)](https://www.youtube.com/watch?v=KflCXmEX6BY)
 
 **Down By the River**<br>
 **First performed:** March 22, 1985 (Sydney, Australia)<br>

@@ -18,7 +18,7 @@ The other songs tapped a different vein, though. "Is She The One" and "A Good Li
 
 With a happy riff and sweet backing vocals from Bruce, "Is She The One" came out pure pop confection. Take a listen and see for yourself–and if you're inclined, pick up the album at Joe's website.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=soyE1oxt0kM)
+[Watch on Youtube: Is She the One](https://www.youtube.com/watch?v=soyE1oxt0kM)
 
 **Is She the One**<br>
 **Recorded:** February 2006<br>

@@ -26,7 +26,7 @@ And then there's Chapter Three, "Slip Away," which begins at the 9-minute mark w
 
 And that guest-star? He's uncredited, but listen below (or skip ahead to the nine-minute mark if you must), and you'll surely recognize him.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4LK9JjW2noo)
+[Watch on Youtube: Lou Reed - Street Hassle (Official Audio)](https://www.youtube.com/watch?v=4LK9JjW2noo)
 
 That's right: Bruce's first post-lawsuit appearance on vinyl wasn't *Darkness on the Edge of Town*, but rather his uncredited spoken-word performance on Lou Reed's "Street Hassle," released four months earlier.
 

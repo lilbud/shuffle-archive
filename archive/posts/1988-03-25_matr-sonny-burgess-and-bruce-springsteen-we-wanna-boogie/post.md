@@ -12,7 +12,7 @@ In fairness, they probably never stood a chance.
 
 To this day, Sonny Burgess’ original 1956 recording of “We Wanna Boogie” is one of the hardest rocking singles I have ever heard.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lu8CcvTPg9k)
+[Watch on Youtube: Sonny Burgess - We Wanna Boogie](https://www.youtube.com/watch?v=lu8CcvTPg9k)
 
 Set to a boogie-woogie beat with an audacious trumpet solo and a Killer-rivaling performance by Kern Kennedy on piano, “We Wanna Boogie” shreds its rockabilly trappings at around the 1:30 mark with a down and dirty twenty-second Burgess guitar solo and pounding drums that absolutely electrify.
 

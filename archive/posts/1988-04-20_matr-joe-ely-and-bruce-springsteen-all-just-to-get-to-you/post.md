@@ -15,7 +15,7 @@ By then, of course, Joe and Bruce had already become fast friends. They'd met in
 
 We listened to one of those tracks, "I'm a Thousand Miles From Home," a few months back, but the subject of today's profile is the more well-known of the pair: "All Just to Get to You."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=olOHGFa2QmA)
+[Watch on Youtube: Joe Ely - All Just To Get To You - Music Video 1997](https://www.youtube.com/watch?v=olOHGFa2QmA)
 
 Ely had written it several years before with Will Sexton, who recorded it and released it in 1988. Joe waited until 1995 to record his own version, and it was worth the wait to have his new friend join him in the studio.
 
@@ -25,7 +25,7 @@ It's easy to understand why Bruce gravitated to it, and it's easy to see why he 
 
 In that performance below–televised at the time–Bruce and Joe trade lead vocals, and Bruce lets loose on lead guitar–a ferocious performance that leaves their studio recording in the dust.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V8KFZSY7edc)
+[Watch on Youtube: all just to get to you - bruce springsteen & joe ely](https://www.youtube.com/watch?v=V8KFZSY7edc)
 
 It's been fifteen years since Bruce and Joe last played "All Just to Get to You," but don't count it out it for good. When Bruce's next tour heads down toward Texas, there's a good chance we'll see these two share the stage again.
 

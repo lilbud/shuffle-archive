@@ -13,7 +13,7 @@ Joe's deep attachment to Pittsburgh is evident in his music and in his deep atta
 
 Might he have made it big(ger) if he'd moved somewhere with a more vibrant music industry? Who knows. But in the title track of his 2009 album *East Carson Street*, Joe adamantly rejects the notion that one has to leave home to find satisfaction.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ijk8P5M8foo)
+[Watch on Youtube: East Carson Street](https://www.youtube.com/watch?v=Ijk8P5M8foo)
 
 "East Carson Street" feels too personal to not be at least somewhat autobiographical, but Joe is too skilled a songwriter to narrow his song's resonance. "East Carson Street" feels universal, a song for anyone lucky enough to already have a sense of community and belonging that no amount of fame and fortune could ever buy.
 

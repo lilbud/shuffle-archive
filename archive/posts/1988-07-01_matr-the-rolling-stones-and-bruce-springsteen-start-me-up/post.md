@@ -18,7 +18,7 @@ Late in the evening, Bill Graham sparked an impromptu jam session with an incred
 
 My favorite part about that video? It's just as delightfully awkward as The Rolling Stones' original 1981 video, right down to the way-too-close-at-times camera operator.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SGyOaCXr8Lw)
+[Watch on Youtube: The Rolling Stones - Start Me Up - Official Promo](https://www.youtube.com/watch?v=SGyOaCXr8Lw)
 
 That video, of course, became one of the most frequently aired videos during the early days of MTV, and the single peaked just shy of the top spot of the Billboard Hot 100, lingering at #2 for three weeks.
 

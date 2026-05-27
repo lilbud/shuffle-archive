@@ -16,6 +16,6 @@ I never for a moment thought it would take a circumstance like this, but like th
 
 Rest in peace, Justin.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-mjlETFom2g)
+[Watch on Youtube: Justin Townes Earle - Glory Days (Official Audio)](https://www.youtube.com/watch?v=-mjlETFom2g)
 
 © August 23, 2020

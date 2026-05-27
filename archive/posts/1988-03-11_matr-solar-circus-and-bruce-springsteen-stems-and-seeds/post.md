@@ -12,7 +12,7 @@ The band is Solar Circus, a North Jersey-based Grateful Dead-influenced band (at
 
 The song is “Stems and Seeds,” the opening track from the band’s 1992 *Step Right Up* album and featured song in *Tie-died: Rock ‘n Roll’s Most Deadicated Fans.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dWxYkrA-594)
+[Watch on Youtube: Solar Circus ~ 'Step Right Up' (1992) full album](https://www.youtube.com/watch?v=dWxYkrA-594)
 
 The date was August 10, 1995–just one day after Grateful Dead founder Jerry Garcia passed away from a heart attack at the young age of 53.
 

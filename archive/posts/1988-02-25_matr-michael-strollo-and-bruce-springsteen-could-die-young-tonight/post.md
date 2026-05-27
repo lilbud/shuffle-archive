@@ -12,7 +12,7 @@ In the early 2000s, Michael Strollo made a local name for himself as the lead si
 
 Strollo went solo in 2008 and released his first album, *Bedroom Eyes*, in 2010. Among the standout songs on that album is a sad, beautiful ballad called "Could Die Young Tonight."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SYn3Jp8Gqbc)
+[Watch on Youtube: Could Die Young Tonight](https://www.youtube.com/watch?v=SYn3Jp8Gqbc)
 
 Although Exit 105 had already once shared a stage with Bruce (at Joe Grushecky's 2004 Flood Aid concert in Pittsburgh), Strollo probably never imagined he'd have the opportunity to do so again as a singer-songwriter. And given the circumstances that led to it, he certainly wouldn't have wished for it.
 
@@ -22,7 +22,7 @@ To celebrate his brother, Michael performed "Could Die Young Tonight," and Bruce
 
 Here's their poignant, one-time-only performance of "Could Die Young Tonight."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=d9Lw3sUj-Q8)
+[Watch on Youtube: "Could Die Young Tonight" by Michael Strollo Feat. Bruce Springsteem @ The Press Room](https://www.youtube.com/watch?v=d9Lw3sUj-Q8)
 
 **Could Die Young Tonight**<br>
 **First performed:** February 25, 2012 (Asbury Park, NJ)<br>

@@ -12,13 +12,13 @@ post_id: 19493
 
 Bruce Springsteen has been a fan of John Fogerty for as long as he's been playing music, calling Fogerty "the Hank Williams of my generation." As early as his days in Child, Bruce included the music of Creedence Clearwater Revival in his sets. The River Tour famously included covers of "Who'll Stop the Rain" and "Run Through the Jungle," and in 1993 Bruce had the privilege of inducting John into the Rock and Roll Hall of Fame.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dgpMGNVf9lw)
+[Watch on Youtube: Bruce Springsteen Inducts Creedence Clearwater Revival](https://www.youtube.com/watch?v=dgpMGNVf9lw)
 
 But at the dawn of the 21st century, it seemed for a while like John might have said all that he had to say. Seven long years went by without new music from Fogerty, until inspiration struck in an election year.
 
 In 2004, America was deeply divided over its leadership and involvement in a foreign war. That's the environment that John Fogerty was built for. John met the moment by releasing a new album, *Deja Vu All Over Again*, with a terrific title track that compared the current conflict with the Vietnam War in a tone both jaded and pointed.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E6Yo647AYSY)
+[Watch on Youtube: John Fogerty - Deja Vu (All Over Again) from The Long Road Home](https://www.youtube.com/watch?v=E6Yo647AYSY)
 
 (If you get a sense of deja vu yourself while listening to the song, that's probably because there are definite echoes of CCR's "Have You Ever Seen the Rain" — an homage I'd like to think was intentional given the more recent song's title.)
 
@@ -26,7 +26,7 @@ In 2004, America was deeply divided over its leadership and involvement in a for
 
 John played "Deja Vu (All Over Again)" nightly during the brief Vote For Change Tour, backed by Bruce and the E Street Band.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0rDbjlLIAFg)
+[Watch on Youtube: Bruce Springsteen  Deja Vu With John FogertyVote For Change Tour](https://www.youtube.com/watch?v=0rDbjlLIAFg)
 
 The Vote For Change shows were powerful and energizing, but ultimately ineffective–that year at least.
 

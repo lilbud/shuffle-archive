@@ -10,7 +10,7 @@ post_id: 262
 ---
 From Emmylou Harris' Grammy-winning album *Red Dirt Girl* comes the graceful "Tragedy," with restrained, haunting background vocals by Bruce and Patti.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jf7BSf5ezUY)
+[Watch on Youtube: Tragedy](https://www.youtube.com/watch?v=jf7BSf5ezUY)
 
 We've featured Emmylou on the blog several times over the years, always spotlighting her beautiful covers of Bruce's music. Bruce's music has been an influence on Emmylou's studio work for decades, however. In fact, her 1985 album *The Ballad of Sally Rose* was directly inspired by *Nebraska.*
 

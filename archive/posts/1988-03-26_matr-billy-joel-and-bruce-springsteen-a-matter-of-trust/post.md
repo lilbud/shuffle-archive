@@ -11,7 +11,7 @@ It’s one of Billy Joel’s greatest hits, cracking the Top 10 (although just b
 
 It’s also one of Billy’s best videos, an homage to The Beatles’ classic rooftop concert, and the only video in which he can be seen playing the guitar. (Is that Ringo at 1:38 and Paul at 2:01? You be the judge.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6yYchgX1fMw)
+[Watch on Youtube: Billy Joel - A Matter Of Trust (Official HD Video)](https://www.youtube.com/watch?v=6yYchgX1fMw)
 
 So when Billy and Bruce joined forces during the last days of the 2008 American presidential campaign to help put Barack Obama over the top, “A Matter of Trust” was a natural candidate for their joint set list.
 

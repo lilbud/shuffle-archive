@@ -10,7 +10,7 @@ post_id: 4186
 ---
 "Baby, I Love You" was Ronnie Spector's second big hit (after "Be My Baby"). Recorded in the autumn of 1963 (with Darlene Love, Sonny Bono, and a 17-year-old Cher on backing vocals) and released in November, the song went to #24 on the American pop charts and #11 in the UK.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kmFkjURkrEE)
+[Watch on Youtube: Baby, I Love You](https://www.youtube.com/watch?v=kmFkjURkrEE)
 
 Ronnie and Bruce go pretty far back as well, and we're lucky enough to have several recordings of her iconic voice paired with the mighty E Street Band.
 
@@ -20,7 +20,7 @@ Bruce was so taken with Ronnie that he insisted that she sing "You Mean So Much 
 
 This recording of "Baby, I Love You" is from Ronnie's very first on-stage performance with Bruce and the E Street Band, on November 4, 1976 at the Palladium in New York City.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jdWqZ3U-e68)
+[Watch on Youtube: Bruce Springsteen and Ronnie Spector, "Baby I Love You" - 1976-11-04](https://www.youtube.com/watch?v=jdWqZ3U-e68)
 
 **Baby, I Love You**<br>
 **First performed:** November 4, 1976 (New York City, NY)<br>

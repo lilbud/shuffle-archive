@@ -16,7 +16,7 @@ True enough.
 
 *Fine Art* was a departure for Malin, although it's one he telegraphed in his 2001 interim project with PCP Highway, *To Be Somebody.* Several songs from that album turned up on his solo debut, but his first single was a new song that kicked off *Fine Art:* "Queen of the Underworld."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bPAkBF49fe4)
+[Watch on Youtube: Jesse Malin - Queen Of The Underworld](https://www.youtube.com/watch?v=bPAkBF49fe4)
 
 "Queen of the Underworld" immediately established Malin as a seriously talented singer-songwriter, with a flair for metaphor and wordplay that was almost Springsteenian at times. Critics took notice of the influence, and comparisons were common.
 

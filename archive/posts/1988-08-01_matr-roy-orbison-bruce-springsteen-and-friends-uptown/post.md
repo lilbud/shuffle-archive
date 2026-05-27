@@ -12,7 +12,7 @@ Oh, those strings.
 
 When Roy Orbison recorded "Uptown" in 1959, a string section in rock and roll was a genuine novelty, and they lent "Uptown" an air of lush sophistication that commanded attention and admiration.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PggaPUzp7fA)
+[Watch on Youtube: Uptown](https://www.youtube.com/watch?v=PggaPUzp7fA)
 
 "Uptown" quickly became Orbison's biggest-selling hit since his breakout "Ooby Dooby" three years prior, peaking at #72 on the Hot 100 and clearing a path for more orchestral arrangements in years to come from Orbison to Spector to Springsteen and beyond.
 
@@ -22,7 +22,7 @@ For most of that concert, Bruce was content to linger in the background, support
 
 It's one of my favorite moments from an incredible show, and yes… there are strings.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_EE3Ko6aGug)
+[Watch on Youtube: Roy Orbison - Uptown (Black & White Night 30)](https://www.youtube.com/watch?v=_EE3Ko6aGug)
 
 Thankfully, that show was captured and released (and re-released) in beautiful quality, because Roy and Bruce's performance of "Uptown" was a one-time-only affair. Roy died of a heart attack at the age of 52 just a year later.
 

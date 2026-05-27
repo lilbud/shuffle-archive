@@ -11,6 +11,7 @@ import pandas as pd
 import yt_dlp
 from bs4 import BeautifulSoup as bs4
 from user_agent import generate_user_agent
+from yt_dlp.utils import DownloadError
 
 from cleanup import initial_cleanup
 from convert import save_to_archive
@@ -22,6 +23,9 @@ ydl_opts = {
         "deno": {"path": None},  # Set 'path' to a string if it's not in your PATH
     },
     "verbose": False,
+    "sleep_interval": 1,
+    "max_sleep_interval": 5,
+    "sleep_requests": 1.5,
 }
 
 # toedit = []
@@ -92,19 +96,21 @@ with load_db() as conn, conn.cursor() as cur:  # noqa: SIM117
             for i in re.findall(
                 r"\[Watch on Youtube: Watch Video\]\((https://www.youtube.com/watch\?v=.{11})\)",
                 content,
-                flags=re.MULTILINE,
+                flags=re.IGNORECASE,
             ):
-                info_dict = ydl.extract_info(i, download=False)
-                video_title = info_dict.get("title", None)
                 print(i)
 
-                re.sub(
-                    rf"\[Watch on Youtube: Watch Video\]\({i}\)",
-                    f"[Watch on Youtube: {video_title}]({i})",
-                    content,
-                )
+                try:
+                    info_dict = ydl.extract_info(i, download=False)
+                    video_title = info_dict.get("title", None)
 
-        # post.write_text(content, encoding="utf-8")
+                    old = f"[Watch on Youtube: Watch Video]({i})"
+                    new = f"[Watch on Youtube: {video_title}]({i})"
+                    content = content.replace(old, new)
+                except DownloadError:
+                    pass
+
+            post.write_text(content, encoding="utf-8")
 
 # test_url = "https://www.youtube.com/watch?v=7-AMJV5EDRI"
 

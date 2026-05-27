@@ -12,7 +12,7 @@ It took more than fifty years after its release, but Bruce Springsteen finally c
 
 Brian Wilson wrote "Surfin' U.S.A." (the lyrics at least–the melody was lifted from "Sweet Little Sixteen") and recorded it with The Beach Boys.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EDb303T-B1w)
+[Watch on Youtube: The Beach Boys - Surfin' USA](https://www.youtube.com/watch?v=EDb303T-B1w)
 
 Released as both a single and the title track from their 1963 album, "Surfin' U.S.A." rocketed up the charts. It peaked at #3 but had such staying power that Billboard ranked it #1 for the entire year. Curiously, though, its radio popularity didn't translate to record sales; "Surfin' U.S.A." has never been awarded gold record status.
 
@@ -26,7 +26,7 @@ At the end of "Barbara Ann," Brian beckoned Bruce front and center, and Bruce ob
 
 Check out that performance below–"Surfin' U.S.A." starts around the one-minute mark.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cFUsZHWVB1M)
+[Watch on Youtube: Bruce Springsteen with the Brian Wilson Band in NJ](https://www.youtube.com/watch?v=cFUsZHWVB1M)
 
 **Surfin' U.S.A.**<br>
 **First performed:** July 1, 2015 (Holmdel, NJ)<br>

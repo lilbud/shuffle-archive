@@ -14,11 +14,11 @@ Bruce has long credited Sam Moore as a major influence, and if you’ve ever see
 
 Sam Moore and Dave Prater had a string of hits on the Stax label in the late sixties. Their instantly recognizable “Hold On, I’m Comin'” became their first single to reach the top of the U.S. R&B chart upon its release in 1966 (it peaked at 21 on the Hot 100).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hR3KX58bpHE)
+[Watch on Youtube: Hold On, I'm Comin'](https://www.youtube.com/watch?v=hR3KX58bpHE)
 
 But it was undoubtedly Sam’s stage presence that commanded Bruce’s attention. Watch Sam and Dave perform “Hold On, I’m Comin'” shortly after its release below–when Sam takes control during the mid-song break about halfway through, you can trace a through-line directly to modern-day Bruce.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Fowldx4hRtI)
+[Watch on Youtube: Sam and Dave - Hold On, I'm Coming](https://www.youtube.com/watch?v=Fowldx4hRtI)
 
 Although Sam contributed his backing vocals in the studio to Bruce’s “Soul Driver,” “Real World,” and “Man’s Job,” they never had the chance to perform together live until Sam joined Bruce on-stage for “Soul Man” during the Reunion Tour. Bruce enjoyed the one-off performance enough to invite Sam to join him for a nightly mini-set during Bruce’s Asbury Park holiday shows in 2003.
 
@@ -30,7 +30,7 @@ Sam’s appearances were such a highlight that when Bruce headlined the Rock and
 
 If anything, Sam’s voice and charisma were even stronger that night than in the 2003 shows, and the look on Bruce’s face around the 2:40 mark (when Sam takes the helm of the E Street Band) is priceless.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RTplny76s7M)
+[Watch on Youtube: Bruce Springsteen w. Sam Moore - Hold On... / Soul Man - Madison Square Garden, NYC 2009/10/29&30](https://www.youtube.com/watch?v=RTplny76s7M)
 
 Today, Sam Moore is 83 years old, still recording music, still performing live, still sounding great, and still commanding the stage. Consider yourself lucky if you’ve had the chance to see him, and leap at the opportunity if one comes along.
 

@@ -14,7 +14,7 @@ Written by Joe around the time Trump took office the firs time, "That's What Mak
 
 Bruce recorded his vocals from his home studio and e-mailed them to Joe. The result: the pointed, defiant resistance anthem that's sadly even more relevant today.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zZ24d71EfLY)
+[Watch on Youtube: Joe Grushecky & the Houserockers - "That's What Makes Us Great" (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=zZ24d71EfLY)
 
 Keep resisting. No kings.
 

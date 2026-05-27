@@ -20,11 +20,11 @@ Although this was the first time Bruce and Roger performed the song together in 
 
 Astute listeners probably realize that the version Bruce and Roger played in Tampa was considerably longer than The Byrds' 1965 version, and it had more verses.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Swqw5a8I4b4)
+[Watch on Youtube: The Byrds - Mr. Tambourine Man (Audio)](https://www.youtube.com/watch?v=Swqw5a8I4b4)
 
 That's because the "Mr. Tambourine Man" was more than twice as long when Bob Dylan first wrote, recorded, and released it just a few weeks before The Byrds' version.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oecX_1pqxk0)
+[Watch on Youtube: Bob Dylan - Mr. Tambourine Man (Official Audio)](https://www.youtube.com/watch?v=oecX_1pqxk0)
 
 It was the abridged Byrds' version that became a smash hit, though. In a way, Bruce was covering both Dylan and The Byrds that night, using Dylan's original lyrics and The Byrds' arrangement for a one-time-only special performance.
 

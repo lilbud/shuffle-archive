@@ -20,6 +20,6 @@ Is it as powerful as the blues arrangement that Bruce featured in his acoustic s
 
 Take a listen,
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j9cn68LjKR4)
+[Watch on Youtube: Born in the U.S.A.](https://www.youtube.com/watch?v=j9cn68LjKR4)
 
 © March 4, 2019

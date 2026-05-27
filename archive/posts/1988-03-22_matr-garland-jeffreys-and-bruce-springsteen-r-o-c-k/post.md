@@ -10,7 +10,7 @@ post_id: 14565
 ---
 We can hear the E Street connection in Garland Jeffreys' "R.O.C.K." from its very first notes–that's Roy Bittan featured prominently on piano throughout.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=p4fpSxuTc7c)
+[Watch on Youtube: Garland Jeffreys - R.O.C.K](https://www.youtube.com/watch?v=p4fpSxuTc7c)
 
 Buried deep on Jeffreys' 1981 album *Escape Artist* (produced by Bob Clearmountain and featuring Danny Federici's keyboards as well as Roy's piano), "R.O.C.K." is an irresistible anthem that demands to be played at full volume.
 

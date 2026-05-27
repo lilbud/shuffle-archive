@@ -16,7 +16,7 @@ Bruce appears on two songs on the album, including "Prison Grove," a prison blue
 
 Bruce supplies very recognizable backing vocals on this haunting track.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_HpFDgPWO5w)
+[Watch on Youtube: Prison Grove](https://www.youtube.com/watch?v=_HpFDgPWO5w)
 
 **Prison Grove**<br>
 **Recorded:** December 2002<br>

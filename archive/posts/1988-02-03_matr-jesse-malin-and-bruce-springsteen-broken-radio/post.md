@@ -13,7 +13,7 @@ After listening to Jesse perform songs from his debut album at Bruce's Asbury Pa
 
 By the time Jesse released his third album, *Glitter in the Gutter*, in 2007, I was a fan for life. Even so, I was completely unprepared for the power of the fourth track on that CD, "Broken Radio."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iPmh_BHJQ_g)
+[Watch on Youtube: Jesse Malin feat. Bruce Springsteen - Broken Radio '22 (Official Music Video)](https://www.youtube.com/watch?v=iPmh_BHJQ_g)
 
 Jesse wrote "Broken Radio" for his mother, who died when he was only eighteen. Jesse has described her as an aspiring singer who never made it big. A single parent, she became a waitress but never forgot her dream. And if a song ever came on the radio, she'd stop what she was doing and sing.
 
@@ -35,17 +35,17 @@ Bruce and Jesse performed "Broken Radio" live together twice–almost exactly a 
 
 Their debut performance was at the Light of Day benefit in 2010. Despite the welcome addition of a viola to warm up the sound, though, Jesse and Bruce couldn't quite match the tenderness of their studio performance. (Bruce also missed his final cue, leaving Jesse hanging, although you'd only know it if you were intimately familiar with the original recording.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WQUvW0MC_Bo)
+[Watch on Youtube: Broken Radio - Bruce Springsteen & Jesse Malin - Light of Day 10 - Jan 16 2010](https://www.youtube.com/watch?v=WQUvW0MC_Bo)
 
 But 364 days later, they had another chance at it at Light of Day 2011, and this time they nailed it:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DJ9UWFwtFDU)
+[Watch on Youtube: Broken radio Bruce Springsteen with Jesse Malin Light of Day 1/15/11](https://www.youtube.com/watch?v=DJ9UWFwtFDU)
 
 Bruce seemed to be really feeling the lyrics that night, in a way he hadn't just a year before. During his Broadway show in 2018, Bruce would regularly refer to his mother's seven-year battle with Alzheimer's disease. Backing out the math, I can't help but wonder if on this night in 2011, "Broken Radio" was beginning to take on an unexpectedly new resonance.
 
 Perhaps that's reading too much into it. Regardless, both the studio and 2011 live performance of "Broken Radio" remain among my all-time favorite Springsteen collaborations.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ucy_O9lXdh8)
+[Watch on Youtube: Jesse Malin ft. Bruce Springsteen - Live | Broken Radio - LOD 25 @ Count Basie, Red Bank NJ 1/18/25](https://www.youtube.com/watch?v=ucy_O9lXdh8)
 
 **Broken Radio**<br>
 **Recorded:** August 2006 (audio), April 18, 2007 (video)<br>

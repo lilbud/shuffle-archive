@@ -18,11 +18,11 @@ But it was the unadvertised guests during Dion's set that sent the crowd through
 
 Together, the all-star ensemble performed Dion's 1959 classic, "A Teenager in Love." (Watch to the end to see Bruce get in one last doo-wop hook.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9hJOwe0vH_s)
+[Watch on Youtube: Teenager in love - Dion - homeless benefit concert, 13-12-87](https://www.youtube.com/watch?v=9hJOwe0vH_s)
 
 "A Teenager in Love" peaked at #5 on the Billboard Hot 100 in 1959. It was one of Dion's greatest hits and is almost universally known and loved to this day.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2pwgswchPDo)
+[Watch on Youtube: Dion & The Belmonts "A Teenager in Love"](https://www.youtube.com/watch?v=2pwgswchPDo)
 
 **A Teenager in Love**<br>
 **First performed:** September 30, 1976 (West Hollywood, CA)<br>

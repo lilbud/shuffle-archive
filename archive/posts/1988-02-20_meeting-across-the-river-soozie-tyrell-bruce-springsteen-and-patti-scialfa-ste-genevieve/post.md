@@ -11,7 +11,7 @@ Just before the Rising Tour kicked off, new E Streeter Soozie Tyrell found time 
 
 One track in particular, though, has a strong Bruce connection: "Ste. Genevieve" is a lovely folk song about perseverance through adversity, in this case a flood that devastates a small town. It's easy to see why the song would appeal to Bruce, and why he agreed to lend his vocals (along with Patti's) to the track.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xKGo5s6EHkc)
+[Watch on Youtube: Ste. Genevieve (feat. Bruce Springsteen, Patti Scialfa)](https://www.youtube.com/watch?v=xKGo5s6EHkc)
 
 In the interview below, Soozie explains how it all came about.
 

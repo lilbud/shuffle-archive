@@ -14,7 +14,7 @@ To that perfect description, I dare not add a thing.
 
 Patti Smith released her standout track "Ain't It Strange" on her poorly-received 1976 album, *Radio Ethiopia.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QIl3r-ZTyQs)
+[Watch on Youtube: Ain't It Strange](https://www.youtube.com/watch?v=QIl3r-ZTyQs)
 
 If the studio track was transcendent, Patti's live performances took "Ain't It Strange" to another plane entirely.
 
@@ -22,7 +22,7 @@ If the studio track was transcendent, Patti's live performances took "Ain't It S
 
 Bruce Springsteen was at one of those Bottom Line shows in November 1976. Two of them, actually–he sat in with The Patti Smith Group for both shows on November 26th. He didn't lend his vocals that evening (Patti was one of the only performers who could overpower and overshadow Bruce on stage), but he played a supporting role on guitar throughout Patti's eleven-minute performance of "Ain't It Strange."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Pa1ckDQQfZk)
+[Watch on Youtube: Patti Smith and Bruce Springsteen: Ain't it strange](https://www.youtube.com/watch?v=Pa1ckDQQfZk)
 
 That's one performance I dearly wish we had video for.
 

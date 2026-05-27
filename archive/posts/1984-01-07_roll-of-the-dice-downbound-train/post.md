@@ -40,19 +40,19 @@ But it didn't start out that way.
 
 Although it was released on *Born in the U.S.A.*, "Downbound Train" was actually written–and recorded–during Bruce's *Nebraska* songwriting and home demo period. Bruce famously tried to come up with electric band arrangements for the songs before giving up and simply releasing his demos as a finished album, but "Downbound Train" was actually one of the songs that successfully made the leap from acoustic to electric. That was for the better–take a listen to Bruce's original *Nebraska* session recording of "Downbound Train" below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BtWwgliLlYU)
+[Watch on Youtube: Bruce Springsteen Downbound Train](https://www.youtube.com/watch?v=BtWwgliLlYU)
 
 Although the song is lyrically complete (we won't quibble over a few minor wording changes), the song isn't anywhere near as powerful as the *Born in the U.S.A.* version. Bruce opted for a driving rockabilly arrangement with almost no variation throughout the song. The effect is one of a fast-moving train, which may be exactly what he was going for–but by doing so, he barrels through the narrator's torment rather than drawing us into it.
 
 Bruce must have realized that fairly quickly himself, two other demos reveal him slowly evolving toward the song's final melody:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2AKYgzTYnfQ)
+[Watch on Youtube: Bruce Springsteen Downbound Train](https://www.youtube.com/watch?v=2AKYgzTYnfQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YurMXzmRkzM)
+[Watch on Youtube: Bruce Springsteen - "Downbound Train" work in progress demo](https://www.youtube.com/watch?v=YurMXzmRkzM)
 
 Bruce recorded the final version with the band in early 1982, long before the song would see the light of day on vinyl. That version is the one we're familiar with from *Born in the U.S.A.* Take a listen below to re-familiarize yourself, and then we'll delve into what makes this song so wonderful.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2WPJT6VZxlo)
+[Watch on Youtube: Downbound Train](https://www.youtube.com/watch?v=2WPJT6VZxlo)
 
 …and by "wonderful," of course, I mean evocatively dark, depressing, full of torment and devoid of hope. But it's so artful, how can you not love this song?
 
@@ -124,19 +124,19 @@ And *that* is how you write a cinematic song.
 
 In concert, "Downbound Train" has been relatively rare since the 1980s, when it was a staple throughout the Born in the U.S.A. Tour. I'm actually not a fan of those early performances; the synthesizer is too dominant in the mix (it was the eighties, after all), and the performances–although strong–sound dated to my ears.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vw3y_WDOgbI)
+[Watch on Youtube: Bruce Springsteen - Downbound Train](https://www.youtube.com/watch?v=vw3y_WDOgbI)
 
 A bona fide rarity for the first decade of the 21st century, "Downbound Train" has made a bit of a comeback since the Wrecking Ball Tour, although it still remains on many fans' chase lists.
 
 When Bruce does perform it, I've noticed that more than with most songs in his catalog, the song requires him to be truly immersed in it. The key section–the dream sequence–is what makes the song, and Bruce performs it differently almost every time he sings it. Here's one of my favorite performances, from 2013. Listen to the emotion in his voice:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Q80_LmmJWno)
+[Watch on Youtube: Bruce Springsteen - Downbound Train (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=Q80_LmmJWno)
 
 On three occasions only, Bruce played "Downbound Train" solo, accompanying himself not on guitar, but on the pump organ. These performances highlight Bruce's vocals but transform the song into a dirge, robbing it of the percussion that foreshadows the train gang reveal, and more importantly lessening the impact of the dream sequence by casting the entire song in the same fashion.
 
 Still, these are fine and unusual performances and worth watching (even if Bruce flubs a key line):
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wvAC9Q4gpJo)
+[Watch on Youtube: Bruce Springsteen - Downbound Train [subita]](https://www.youtube.com/watch?v=wvAC9Q4gpJo)
 
 "Downbound Train" continues to be a favorite of both fans and artists (it's covered with some frequency–see [here](../2018-12-21_cover-me-kurt-vile-downbound-train/post.md) and [here](../2018-02-13_cover-me-the-smithereens-downbound-train/post.md) for a couple of great ones), a rarity within reach of most fans, and a song that holds its power both in stadiums and theaters.
 

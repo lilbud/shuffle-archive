@@ -12,7 +12,7 @@ It's one of only two songs Bruce *didn't* have any involvement with on Joe Grush
 
 The title track to *American Babylon* was all Joe's, and he knew it was great when he wrote it. So did Bruce, who upon hearing the demo that Joe recorded on his own with The Houserockers remarked, "Here's your title track."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=it0MaZc8ewg)
+[Watch on Youtube: American Babylon](https://www.youtube.com/watch?v=it0MaZc8ewg)
 
 Although Bruce sings and/or plays on every other track on the album, Bruce convinced Joe that the track was already perfect as recorded–there was no reason to re-record it.
 
@@ -24,7 +24,7 @@ But that didn't stop Joe and Bruce from performing it live together, which they 
 
 Opening night at The Stone Pony was captured for posterity on *American Babylon: Live at the Stone Pony*, one of the rarer officially released live Springsteen recordings (even if it's actually Joe's show). Bruce's backing vocals may not be audible in the mix, but he definitely makes his presence known on guitar.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Z0o2Sx55fRs)
+[Watch on Youtube: American Babylon (Live)](https://www.youtube.com/watch?v=Z0o2Sx55fRs)
 
 Bruce and Joe have shared a stage together many times since, but after a one-off appearance in Pittsburgh in 1998, "American Babylon" dropped out of rotation as one of their go-to on-stage collaborations.
 

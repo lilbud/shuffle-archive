@@ -12,7 +12,7 @@ On November 6, 2016, the world was a different place. At the *Jam the Vote* conc
 
 Towards the end of an exuberant evening, Arcade Fire's Win Butler took to the stage to front the Preservation Hall Jazz Band (who served as the house band for the event) in an earnest, affectionate reading of Bruce Springsteen's "Born in the U.S.A."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vlQ6rFbU45o)
+[Watch on Youtube: Win Butler & Preservation Hall Jazz Band - Born in the U.S.A. (Bruce Springsteen cover)](https://www.youtube.com/watch?v=vlQ6rFbU45o)
 
 Despite Win's introductory exhortation, we did indeed find ourselves living in the America that Butler never wanted to see. But that just makes Bruce's song and Butler's performance a more poignant reminder of the American promise, still unfulfilled.
 

@@ -31,25 +31,16 @@ def extra_fixes(content: str) -> str:
     return content
 
 
-def save_to_archive(post: dict) -> None:
+def save_to_archive(post: dict, save_path: Path) -> None:
     """Save post to archive folder as MD and JSON."""
-    date = datetime.datetime.strptime(
-        post["modified_gmt"],
-        "%Y-%m-%dT%H:%M:%S",
-    )
-
     content = initial_cleanup(post["content"]["rendered"])
     content = html_to_markdown.convert(content)
 
     content = extra_fixes(content)
 
-    save_path = Path(f"./archive/posts/{date.date()}_{post['slug']}")
-
-    # print(save_path)
-    save_path.mkdir(exist_ok=True)
-
     if not save_path.exists():
         print(save_path.name)
+        save_path.mkdir(exist_ok=True)
     else:
         print(f"{save_path.name}: already exists")
 
@@ -67,7 +58,19 @@ def save_to_archive(post: dict) -> None:
         print(f"{save_path.name}: created md")
 
 
-# for file in Path("./posts_json/").glob("*.json"):
-#     with file.open("r", encoding="utf-8") as f:
-#         post = json.load(f)
-#         save_to_archive(post)
+if __name__ == "__main__":
+    for file in Path("./posts_json/").glob("*.json"):
+        with file.open("r", encoding="utf-8") as f:
+            post = json.load(f)
+
+            date = datetime.datetime.strptime(
+                post["modified_gmt"],
+                "%Y-%m-%dT%H:%M:%S",
+            )
+
+            save_path = Path(f"./archive/posts/{date.date()}_{post['slug']}")
+
+            # only save post if it doesn't already exist and title isn't a number
+            # post with a numerical title are image pages and are new, but have no content
+            if not save_path.exists() and not re.search(r"^\d+$", post["title"]):
+                save_to_archive(post, save_path)

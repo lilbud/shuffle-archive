@@ -12,17 +12,17 @@ Willie Nile’s “One Guitar” won the AIM Independent Music Award for Best So
 
 Here’s the most recent one, from 2015:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wI-WmKdRRkc)
+[Watch on Youtube: Willie Nile (w Bruce Springsteen) - One Guitar - Light Of Day 2015 - Paramount Theatre](https://www.youtube.com/watch?v=wI-WmKdRRkc)
 
 …along with Willie’s original, one of the great rock anthems.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6_YBsy_HtWg)
+[Watch on Youtube: One Guitar](https://www.youtube.com/watch?v=6_YBsy_HtWg)
 
 **Update 1/25/2020:**<br>
 
 Bruce and Willie reprised their Light of Day “One Guitar” duet last week in Asbury Park, and it was a fantastic performance. Take it in below:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DWKZzyuYC1U)
+[Watch on Youtube: Willie Nile Band & Bruce Springsteen ~ “One Guitar” - Rose A Montana Video](https://www.youtube.com/watch?v=DWKZzyuYC1U)
 
 **One Guitar**<br>
 **First performed:** January 14, 2012 (Asbury Park, NJ)<br>

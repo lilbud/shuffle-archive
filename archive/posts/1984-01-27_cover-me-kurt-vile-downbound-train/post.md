@@ -14,10 +14,10 @@ At its heart, "Downbound Train" has always been a stuck-in-one's-own-head tale, 
 
 Watch their performance from 2011, captured in stellar (and fittingly, black and white) quality below:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jr2Oeb-qxtI)
+[Watch on Youtube: Kurt Vile "Downbound Train" 8/6/11 40 Watt Club](https://www.youtube.com/watch?v=jr2Oeb-qxtI)
 
 Vile also recorded "Downbound Train" for his 2011 EP *So Outta Reach*. I don't think it rises to the heights of the live version above, but it's certainly worth a listen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5B7q-M1tZcg)
+[Watch on Youtube: Kurt Vile - Downbound Train (Bruce Springsteen cover)](https://www.youtube.com/watch?v=5B7q-M1tZcg)
 
 © December 21, 2018

@@ -11,7 +11,7 @@ post_id: 27456
 
 "Looking For Elvis" is more than just one of Patti Scialfa's angriest songs; it's also one of her best.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1Vp_yU4e1tk)
+[Watch on Youtube: Patti Scialfa - Looking For Elvis (Official Video)](https://www.youtube.com/watch?v=1Vp_yU4e1tk)
 
 Patti doesn't verge into the civic arena with her songwriting very often, but with "Looking For Elvis" she proved that she can write political songs when she wants to.
 

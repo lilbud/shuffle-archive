@@ -11,7 +11,7 @@ Bruce Springsteen co-wrote four songs on Joe Grushecky's 1998 album, *Coming Hom
 
 *Coming Home* leads off with one of my all-time favorite Grushecky songs. "Everything's Going to Be All Right" is a warm, optimistic rocker that sets the tone for an album rooted in family and the ties that bind.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Blifohq2MwI)
+[Watch on Youtube: Everything's Going To Work Out Right](https://www.youtube.com/watch?v=Blifohq2MwI)
 
 It's also more than a little unjustly ironic, because it's Joe's first track following the artistic success but commercial failure of *American Babylon.* One can't help but reflect that everything *didn't* work out right, which makes the opening verse and chorus by this teacher-by-day/rocker-by-night all the more meaningful:
 
@@ -26,7 +26,7 @@ It's also more than a little unjustly ironic, because it's Joe's first track fol
 
 "Everything's Going to Work Out Right" is a song that's rooted in the personal but resonates universally. There are times when we all need a song like that, especially during a global pandemic–which is why Joe broke it out last summer for his contribution to Feeding America's Rock for Relief benefit.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n_T7nRC7puI)
+[Watch on Youtube: Joe Grushecky Everythings Gonna Work Out Right](https://www.youtube.com/watch?v=n_T7nRC7puI)
 
 Bruce may not have contributed to "Everything's Going to Work Out Right," but he did perform it with Joe and The Houserockers–twice, in fact, on two very appropriate occasions. The first time was at the very first Light of Day benefit in November 2000; the second was at the Flood Aid benefit show that Joe organized four years later to help the victims of Hurricane Ivan. The latter performance was captured on video, a highlight of a great night.
 

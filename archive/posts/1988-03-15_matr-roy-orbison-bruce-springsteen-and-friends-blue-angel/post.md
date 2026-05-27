@@ -14,13 +14,13 @@ Bruce has always been a big Orbison fan, so it's not surprising to learn that he
 
 However, a few songs were cut (for time) from the original broadcast and home releases, and the sublime "Blue Angel" was one of them. It appeared for the first time more than a decade later; if you haven't seen the the re-release, check out the performance below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GCe40AlSAsE)
+[Watch on Youtube: Roy Orbison - "Blue Angel" from Black and White Night](https://www.youtube.com/watch?v=GCe40AlSAsE)
 
 That's Bruce seated in the background on guitar, and if you watch carefully you'll catch Jackson Browne, Elvis Costello, and k.d. lang, and others as well.
 
 Orbison originally released "Blue Angel" in 1960. It peaked at #9 on the U.S. Hot 100.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YUMFNz0IpEQ)
+[Watch on Youtube: Blue Angel](https://www.youtube.com/watch?v=YUMFNz0IpEQ)
 
 **Blue Angel**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>

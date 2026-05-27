@@ -14,7 +14,7 @@ So while we wait for both, let's take a look back at the only time Bruce covered
 
 "Stop! In the Name of Love" was a smash hit for The Supremes in early 1965, topping the Billboard Pop Singles chart and stopping just one spot short on the Soul chart. And even in the days long before music videos, their "talk to the hand" choreography became as identifiable with the song as its jarring cold opening and shocking (by 1965 standards, at least) content.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NPBkiBbO4_4)
+[Watch on Youtube: The Supremes - Stop In The Name Of Love](https://www.youtube.com/watch?v=NPBkiBbO4_4)
 
 It's still one of Motown's most recognizable singles and ranks #254 on *Rolling Stone's* 500 Greatest Songs of All Time and #38 on *Billboard's* 100 Greatest Girl Group Songs of All Time. When The Supremes were inducted into the Rock and Roll Hall of Fame in only its third year, it's not surprising that "Stop! In the Name of Love" was featured in the evening's all-star jam session.
 

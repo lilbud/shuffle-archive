@@ -10,7 +10,7 @@ post_id: 27775
 ---
 This one's been stuck in my head since I wrote my *Roll of the Dice* article on "I'm Goin' Down" recently. Frank Black's cover is crunchy, grungy, and loud–exactly what you'd expect if you read Bruce's lyrics before listening to the song. Turn this one up *loud*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oEbT-xFcbck)
+[Watch on Youtube: I'm Going Down](https://www.youtube.com/watch?v=oEbT-xFcbck)
 
 Oh yeah.
 

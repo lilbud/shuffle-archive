@@ -12,7 +12,7 @@ post_id: 19805
 
 That's a pretty good distillation of what long-term relationships are like, and that's exactly what "Town Called Heartbreak" is about.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L7Dh17orH-g)
+[Watch on Youtube: Town Called Heartbreak (Album Version)](https://www.youtube.com/watch?v=L7Dh17orH-g)
 
 Patti Scialfa recorded "Town Called Heartbreak" for her 2007 album, *Play It As It Lays*, but she wrote it long before. A bit tougher in tone than her earlier material, Patti found a home for it on her third album and released it as the album's first single.
 
@@ -39,7 +39,7 @@ We change, we grow, and our marriages and relationships need to evolve as we do.
 
 There's a tag at the end of Patti's song that comes directly from the end of Janis Ian's "Society's Child," and it ends the song on an ominously unsettled note. "Society's Child" is about an inter-racial relationship that doesn't end well.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-QPF-duKQro)
+[Watch on Youtube: Janis Ian - Society's Child](https://www.youtube.com/watch?v=-QPF-duKQro)
 
 Perhaps Patti's inclusion of it–besides serving as a hat tip to an influence–is her way of signalling that love on its own isn't enough. There are always other forces at play, and to make a relationship work…
 
@@ -61,7 +61,7 @@ That's too bad, because the E Street version is gloriously gritty and features s
 
 **Bonus:** Here's a rare live, televised solo Scialfa performance of "Town Called Heartbreak" from 2007 (with some familiar faces in her backing band).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1J8a884WInk)
+[Watch on Youtube: A Town Called Heartbreak](https://www.youtube.com/watch?v=1J8a884WInk)
 
 **Town Called Heartbreak**<br>
 **Recorded:** Early 2007<br>

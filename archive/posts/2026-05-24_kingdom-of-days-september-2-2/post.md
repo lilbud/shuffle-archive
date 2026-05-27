@@ -1,0 +1,91 @@
+**1973:** Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.
+
+**1977:** Bruce records “Candy’s Boy” at The Record Plant in New York City. It will remain in the vault for more than three decades before finally enjoying an official release on *The Promise*.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kyX31Y8O-20)
+
+**1978:** Bruce meets Bob Seger for the first time at Seger’s gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0902.jpg' alt='' title='' width='369' height='240' />
+
+**1979:** Bruce and the E Street Band record “From Small Things (Big Things One Day Come)” at The Power Station in New York City. It will remain in the vault for for 24 years.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=N8qL5_iWWag)
+
+**1981:** Bruce and the E Street Band bring the original River Tour to the San Diego Sports Arena, where the boys play “Jackson Cage” for the last time for 21 years.
+
+[Watch Video Highlight](https://videopress.com/embed/X9DB6SRG)
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2024/09/Camarillo_Star_1981_09_06_22.jpg' alt='' title='' width='758' height='418' />
+
+**1984:** Bruce guest stars with John Eddie and the Front Street Runners at The Stone Pony in Asbury Park. (photo credit: John Comerford)
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2019/09/1984-09-02.jpg' alt='' title='' width='375' height='500' />
+
+**1988:** The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N’Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of “Get Up, Stand Up,” and Bruce closes the show with an abbreviated fifteen-song “greatest hits” set capped off by an all-artist “Chimes of Freedom” and “Get Up, Stand Up” reprise.
+
+[https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3?_=8)
+
+<https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3>
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Y58hMb-kR4c)
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1988-09-02a.jpg' alt='' title='' width='758' height='1002' />
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2021/09/1988-09-02b.jpg' alt='' title='' width='390' height='1820' />
+
+**1992:** Bruce’s World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.
+
+[Watch Video Highlight](https://videopress.com/embed/KSH6dQTI)
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1992-09-02.jpg' alt='' title='' width='758' height='772' />
+
+**1995:** The Rock and Roll Hall of Fame celebrates its opening with an inaugural concert in Cleveland, and Bruce and the E Street Band are on hand to perform, joining Chuck Berry…
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6swgiM9vSEE)
+
+…Jerry Lee Lewis…
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Flt4klIkYhU)
+
+…and Bob Dylan.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QmCeWhUGXlo)
+
+They even play a few songs by themselves.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1WuqcW9wPrk)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YliGkb_aFu0)
+
+According to Melissa Etheridge, she and Bruce also appeared during one of Berry’s performances with the Stax band, but thanks to Berry’s mystifying bit of sabotage, that performance wasn’t shown.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vSlS4PaXapA)
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1995-09-02a.jpg' alt='' title='' width='758' height='1083' />
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1995-09-02b.jpg' alt='' title='' width='758' height='730' />
+
+**2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres “Green Onions” during sign collection, as well as “Good Rockin’ Tonight,” “Jersey Girl,” and Philly special “You Can’t Sit Down.”
+
+[Watch Video Highlight](https://videopress.com/embed/VD2CbhUu)
+
+[Watch Video Highlight](https://videopress.com/embed/ezSSSYIR)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aKqGDgXMFjM)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Hr6ZTdSxGPg)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_v4oSqEBC-U)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0qIqW_-pH4U)
+
+**2020:** Bruce releases a Labor Day-themed episode (#11 for those keeping count) of *From My Home to Yours* on E Street Radio.
+
+[https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3?_=9)
+
+<https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3>
+
+**2021:** *Springsteen on Broadway* nears the end of its final week at the St. James Theater in New York City. In attendance tonight: Eddie Vedder and Jarod Clemons.
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-02.jpg' alt='' title='' width='500' height='408' />

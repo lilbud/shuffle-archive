@@ -12,7 +12,7 @@ At long last, the dice force us to confront one of the great enduring Springstee
 
 Why is "I'm on Fire" so freaking popular?
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1VxFS5-klfk)
+[Watch on Youtube: I'm On Fire](https://www.youtube.com/watch?v=1VxFS5-klfk)
 
 I'm not exaggerating: only four of Bruce's songs have ever outperformed "I'm on Fire" (which peaked at #6) on the charts, and when it comes to covers, I lost count long ago. It's clearly the most-covered Springsteen song ever. My list of notable "I'm on Fire" covers left to blog about still has dozens of entries and grows by the week.
 
@@ -20,7 +20,7 @@ I'm not exaggerating: only four of Bruce's songs have ever outperformed "I'm on 
 
 It's not that it's a bad song–in fact, it's a *great* song. But it's also one of Bruce's slightest songs at barely two-and-a-half minutes and the sparest of lyrics (half of which he recycled from a Darkness-era outtake called "Spanish Eyes").
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=62951kYR7qY)
+[Watch on Youtube: Spanish Eyes](https://www.youtube.com/watch?v=62951kYR7qY)
 
 It's also a quiet song–not even really an E Street Band track, as Bruce, Max, and Roy (sort of a Jersey version of the Tennessee Three, for whom "I'm on Fire" is clearly an homage) are the only musicians playing on it.
 
@@ -30,7 +30,7 @@ But it had been years since Cash had enjoyed chart success anywhere near where "
 
 Maybe it's the video? Other than "Glory Days," which uses its story as a framing sequence, "I'm on Fire" is really the only Springsteen video that attempts to tell a story rather than spotlight Bruce's performance (at least until "Hunter of Invisible Game").
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lrpXArn3hII)
+[Watch on Youtube: Bruce Springsteen - I'm On Fire (Official Video)](https://www.youtube.com/watch?v=lrpXArn3hII)
 
 "I'm on Fire" is one of Bruce's better videos, thanks to the talent behind it. Legendary film director John Sayles (early in his career) helmed it, conceiving it as a dramatic enactment of the song's forbidden lust theme.
 
@@ -40,7 +40,7 @@ But it's Bruce who clearly and convincingly carries the video, wisely cast as wh
 
 Bruce's video of "I'm on Fire" is basically a more mature version of Billy Joel's "Uptown Girl" video, and watching them back to back begs the question why no one really flagged this at the time.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hCuMWrfXG4E)
+[Watch on Youtube: Billy Joel - Uptown Girl (Official Video)](https://www.youtube.com/watch?v=hCuMWrfXG4E)
 
 Joel's video was nominated for a Best Video VMA in 1984 but lost; "I'm on Fire" was nominated and won the following year. So perhaps audiences favored a more adult approach.
 
@@ -90,15 +90,15 @@ Jackson Browne said it best in *Rolling Stone:* "[Bruce] lets all this muscular 
 
 Bruce's restraint is clearly a conscious choice, a technique he continues to use to this day. Even in the midst of a stadium full of fans, when Bruce breaks out "I'm on Fire," he's likely to do so in a physically intimate fashion–sometimes even sitting down with his audience.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sPkzTBNwkkY)
+[Watch on Youtube: Bruce Springsteen - I'm On Fire](https://www.youtube.com/watch?v=sPkzTBNwkkY)
 
 Even in his less-restrained performances, Bruce is wont to let his audience come to him rather than the other way around.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nMhAnbJ02HQ)
+[Watch on Youtube: Bruce Springsteen - I'm On Fire (Live)](https://www.youtube.com/watch?v=nMhAnbJ02HQ)
 
 So is it Bruce's performance that makes the song so popular? If that was the root cause, it wouldn't explain why there are so many covers in countless varieties of arrangements. More so than most of Bruce's songs, "I'm on Fire" seems infinitely pliable. It takes to pretty much any genre, and depending on how it's performed, it can range in effect from wistful to sinister. Bruce leaned into the latter during his 2005 solo acoustic tour.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W2WAlyG4YCk)
+[Watch on Youtube: Bruce Springsteen - I'm on Fire (live in Rome 2005)](https://www.youtube.com/watch?v=W2WAlyG4YCk)
 
 So which is it? What's the secret to this song's popularity? Is it the production, the music, the lyrics, the video, the vocals, the theme, or its versatility?
 
@@ -108,7 +108,7 @@ Maybe it's the mix and balance of all of the above, perfectly proportioned ingre
 
 But in a nice bit of circle closure, shortly before his death Johnny Cash recorded his own version of the Springsteen song he inspired, joining the crowded and still-growing ranks of notable artists covering one of Bruce's most-loved songs: "I'm on Fire."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VN9RKaL1wD4)
+[Watch on Youtube: I'm On Fire By Johnny Cash - Music Video](https://www.youtube.com/watch?v=VN9RKaL1wD4)
 
 **I'm on Fire**<br>
 **Recorded** May 11, 1982<br>

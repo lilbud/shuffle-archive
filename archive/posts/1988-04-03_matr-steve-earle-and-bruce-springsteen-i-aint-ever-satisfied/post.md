@@ -9,7 +9,7 @@ post_id: 10789
 ---
 “I Ain’t Ever Satisfied” may never have the hit it deserved to be (it only peaked at #26 on the U.S. Mainstream Rock chart), but Earle’s fans still rank it as one of their favorites, and it’s still one of Earle’s most frequently performed songs.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ituFNPXAaE8)
+[Watch on Youtube: Steve Earle & The Dukes - I Ain't Ever Satisfied](https://www.youtube.com/watch?v=ituFNPXAaE8)
 
 With its defiant theme and wordless “Woh-oh-oh-oh-oh-oh-oh-oh ” chorus, “I Ain’t Ever Satisfied” sounds tailor-made for a Springsteen cover or duet.
 

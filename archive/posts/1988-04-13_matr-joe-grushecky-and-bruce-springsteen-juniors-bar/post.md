@@ -15,7 +15,7 @@ Buried in the middle of Side Two of that is one of the album's strongest tracks,
 
 On March 23, 2014, Grushecky obliged during his joint concert with Bruce, and as a result, we have the one and only Grushecky/Springsteen performance of "Junior's Bar." Bruce hangs back on guitar for most of this one, but towards the end he steps up to the mic to provide backing vocals.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QOoXCcig4Xo)
+[Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - Junior's Bar](https://www.youtube.com/watch?v=QOoXCcig4Xo)
 
 IMO, those particular nights (two back-to-back shows) didn't feature Bruce at his best. He'd just finished the High Hopes Tour, and the tour-closing stand seem to exact a pretty steep toll on him.
 

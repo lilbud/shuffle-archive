@@ -15,7 +15,7 @@ Bruce was a week past his 38th birthday when this clip was recorded, but that sm
 
 "Go Go Go (Down the Line)" was actually Orbison's very first self-penned song. released as the rockabilly B-side to "Ooby Dooby" in 1956. It wasn't a hit at the time, but it attracted notable cover artists like The Hollies, The Drifters, Jerry Lee Lewis, and Johnny Cash over the years.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=U6G-GdhLP4o)
+[Watch on Youtube: GO GO GO (DOWN THE LINE)  -  Roy Orbison](https://www.youtube.com/watch?v=U6G-GdhLP4o)
 
 In my opinion, though, nothing matches that one-time-only performance with Roy, Bruce, Elvis Costello, Tom Waits and more. I can only imagine how Bruce felt, because every time I watch this concert, I can't believe it actually happened either.
 

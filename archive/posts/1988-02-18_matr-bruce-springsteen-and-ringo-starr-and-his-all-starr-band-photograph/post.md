@@ -11,11 +11,11 @@ In 1989, with no E Street Band tour on the horizon, Clarence and Nils joined the
 
 When the tour came around to the Garden State Arts Center, Bruce joined his bandmates on-stage during the encores for four songs, including Ringo’s #1 hit song from 1970, “Photograph.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EzxoTbt0FRU)
+[Watch on Youtube: PHOTOGRAPH ( Ringo Star cover )](https://www.youtube.com/watch?v=EzxoTbt0FRU)
 
 This was the only time Bruce is known to have performed “Photograph.” Two months later, Bruce re-connected with Clarence and Nils during Starr’s Japanese tour leg–this time by phone, to break the news that he was ending the E Street Band.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nevdSt_2PIM)
+[Watch on Youtube: Photograph](https://www.youtube.com/watch?v=nevdSt_2PIM)
 
 **Photograph**<br>
 **First performed:** August 11, 1989 (Holmdel, NJ)<br>

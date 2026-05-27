@@ -16,13 +16,13 @@ Geffen's artist was reigning disco queen Donna Summer, and his friend Jon Landau
 
 Bruce set about writing a song that had one foot in the disco arena and one foot in rock. It turned out great–so great, in fact, that Landau wouldn't let his client give "Cover Me" away.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s3tqIk8TPWM)
+[Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
 Landau convinced Bruce to hang on to "Cover Me" (it became the follow-up single to "Dancing in the Dark" and peaked at #7 in 1984), urging him instead to write something just like it, but different.
 
 He did exactly that. Bruce wrote "Protection," another disco-influenced song that was the lyrical polar opposite of "Cover Me" and recorded a demo with the E Street Band.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UMIs8Y23mBc)
+[Watch on Youtube: Bruce Springsteen - Protection](https://www.youtube.com/watch?v=UMIs8Y23mBc)
 
 Where "Cover Me" featured a narrator begging for the shelter of his partner's love, the narrator of the anti-"Cover Me" needs protection *from* his lover.
 
@@ -70,7 +70,7 @@ Summer loved the demo of "Protection" so Bruce flew out to Hollywood to work on 
 
 Still, Bruce spent a few days with Donna working on the song, and he appears on her officially released track, playing lead guitar and contributing backing vocals on a backing track that sounds very similar to the E Street Band's version. (Roy Bittan also performs on the track.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hBzoIJdPiZI)
+[Watch on Youtube: Protection Donna Summer](https://www.youtube.com/watch?v=hBzoIJdPiZI)
 
 Donna released "Protection" as the second single from her self-titled album in early 1983, but it didn't chart. It did, however, earn her a Grammy nomination for Best Female Rock Vocal Performance. (She lost to Pat Benatar.) In her album liner notes, she thanked Bruce for "hangin' out and workin' out" on the song.
 

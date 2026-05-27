@@ -9,7 +9,7 @@ post_id: 11790
 ---
 Jimmy Cliff wrote "The Harder They Come" for the 1972 film by the same name (in which he played the starring role). The film's soundtrack became an international success, raising the global profile of reggae music and establishing Cliff as a star.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7Znh0OM9jiA)
+[Watch on Youtube: Jimmy Cliff - The Harder They Come](https://www.youtube.com/watch?v=7Znh0OM9jiA)
 
 "The Harder They Come" ranks squarely at #350 on Rolling Stone's 500 Greatest Songs of All Time, and Cliff even performed it on *Saturday Night Live* during the show's very first season–three years after the song was released.
 
@@ -21,7 +21,7 @@ In 2012, Bruce keynoted the SxSW festival in Austin, and afterward he played a f
 
 Fortunately, the venue was intimate enough that several filmers were able to preserve their performance for posterity. Here's one of the best ones.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fdQK_ivIgLw)
+[Watch on Youtube: Bruce Springsteen & Jimmy Cliff  "Harder They Come" at Austin City Limits (SxSW 2012)](https://www.youtube.com/watch?v=fdQK_ivIgLw)
 
 **The Harder They Come**<br>
 **First performed:** March 15, 2012 (Austin, TX)<br>
