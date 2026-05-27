@@ -68,7 +68,7 @@ Those final lines still resonate years later, and as a personal credo you could 
 
 If you couldn't stay up late enough for SNL or forgot to record it, your next chance to see Bruce perform it for free was on his episode of *MTV Unplugged*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LJaU_6swr60)
+[Watch on Youtube: Bruce Springsteen - Lucky Town (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=LJaU_6swr60)
 
 "Lucky Town" has made sparing appearances since the 1992-93 touring years, and most of those were on Bruce's solo acoustic tour in 2005. Pared down to just his guitar and harmonica, the intimacy and satisfaction expressed in the song shine through even more strongly than in the full-band version.
 

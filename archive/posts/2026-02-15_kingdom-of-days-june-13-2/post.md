@@ -14,13 +14,13 @@ post_id: 57089
 
 **1970:** When the MC5 can't make their opening gig for Grand Funk Railroad's show at the Ocean Ice Palace in Bricktown, New Jersey, Steel Mill comes to the rescue, playing two opening sets. The setlist tonight includes "Black Sun Rising," "KT-88," "Garden State Parkway Blues," and more.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LsBUW-gjDq4)
+[Watch on Youtube: Steel Mill performs Black Sun Risin' in Bricktown, NJ; June 13, 1970](https://www.youtube.com/watch?v=LsBUW-gjDq4)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1970-06-13.jpg.webp)
 
 **1973:** Bruce and the unnamed E Street Band open for Chicago in Binghamton, New York. The boys are the very first band to play in the new Broome County Veterans Memorial Arena, and the show features the debut of "Seaside Bar Song" in its only performance until Bruce's 2001 holiday shows, the only known performance of "Phantoms," and an unusual "Take Me Out to the Ball Game" and "Secret to the Blues."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SHEkZx6qln8)
+[Watch on Youtube: Rare Bruce Springsteen Concert - 6/13/73 Binghamton](https://www.youtube.com/watch?v=SHEkZx6qln8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1973-06-13.jpg.webp)
 
@@ -30,7 +30,7 @@ post_id: 57089
 
 **1976:** Bruce calls up "Father" Bill Ayres on New York's WPLJ-FM and speaks with him on-air.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TK_9TkegWBs)
+[Watch on Youtube: "Father" Bill Ayres inteviews Bruce Springsteen, June 13, 1976](https://www.youtube.com/watch?v=TK_9TkegWBs)
 
 **1977:** Bruce and the E Street Band record for their upcoming album at Atlantic Studios in New York City.<br>
 
@@ -46,7 +46,7 @@ post_id: 57089
 
 **1979:** At The Power Station in New York City, Bruce records "Little White Lies," "Bring on the Night," and "Night Fire." "Bring on the Night" will go unreleased for almost two decades, the other two for eighteen years beyond that.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lumeLcEFPsI)
+[Watch on Youtube: Bring On The Night (Studio Outtake - 1979)](https://www.youtube.com/watch?v=lumeLcEFPsI)
 
 **1982:** Bruce joins Cats on a Smooth Surface at The Stone Pony for five songs.<br>
 
@@ -54,7 +54,7 @@ post_id: 57089
 
 **1983:** Bruce and the E Street Band record "TV Movie" at The Hit Factory in New York City. It will remain in the vault for fifteen years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PE5jG7b8tvo)
+[Watch on Youtube: TV Movie (Studio Outtake - 1983)](https://www.youtube.com/watch?v=PE5jG7b8tvo)
 
 **1985:** Night Two in Rotterdam on the Born in the U.S.A. Tour.<br>
 
@@ -66,11 +66,11 @@ post_id: 57089
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Daily_Mirror_Wed__Jun_15__1988_.jpg.webp)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5FHRd_4prwY)
+[Watch on Youtube: Commercials for Bruce Springsteen's Stockholm '88 show](https://www.youtube.com/watch?v=5FHRd_4prwY)
 
 **1999:** The Reunion Tour begins a German mini-leg with a show in Leipzig, where fans enjoy the tour premiere of "Downbound Train" and the only performance to date of "Car Wash."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NrmZ4zG_5ls)
+[Watch on Youtube: Car Wash Bruce Springsteen June 13, 1999 Leipzig, GER](https://www.youtube.com/watch?v=NrmZ4zG_5ls)
 
 **2005:** Bruce's solo acoustic mini-tour of Germany begins with a show at Olympiahalle in Munich. Bruce opens with the tour premiere of "Into the Fire" and tour premieres "Point Blank" and "Bobby Jean" as well.<br>
 
@@ -78,7 +78,7 @@ post_id: 57089
 
 **2006:** Bruce and the Sessions Band play to a sparse crowd at the First Midwest Bank Amphitheater in Tinley Park, Illinois, where Bruce debuts a new arrangement and verse for "Further On (Up the Road)."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tbqhUJZcyY0)
+[Watch on Youtube: My Oklahoma Home, Bruce Springsteen, Seeger Sessions](https://www.youtube.com/watch?v=tbqhUJZcyY0)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2006-06-13.jpg.webp)
 
@@ -86,9 +86,9 @@ post_id: 57089
 
 [Watch Video Highlight](https://videopress.com/embed/kLcd8kmd)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1YCoyWb5uSA)
+[Watch on Youtube: Bruce Springsteen and the E Street Band live at Bonnaroo - Thunder Road](https://www.youtube.com/watch?v=1YCoyWb5uSA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EupFKFEVqHs)
+[Watch on Youtube: 2009: Bruce Springsteen, Beastie Boys at Bonnaroo](https://www.youtube.com/watch?v=EupFKFEVqHs)
 
 **2011:** While doctors try to save Clarence's life following his severe stroke, Bruce issues the following statement on his website:<br>
 
@@ -102,8 +102,8 @@ post_id: 57089
 
 **2023:** World Tour 2023 arrives in Zurich, where Bruce and the E Street Band tour debut "My Hometown."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bOdPnIB9iPw)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - My Love Will Not Let You Down - Zürich 13/06/2023](https://www.youtube.com/watch?v=bOdPnIB9iPw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RKUVg2AmMyQ)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - My Hometown (sign request) - Zürich 13/06/2023](https://www.youtube.com/watch?v=RKUVg2AmMyQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UZQa7kX7z6o)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Working On The Highway - Zurich, June 13th 2023](https://www.youtube.com/watch?v=UZQa7kX7z6o)

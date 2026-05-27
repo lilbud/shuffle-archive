@@ -18,13 +18,13 @@ post_id: 57049
 
 **1979:** Bruce works on "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" during a recording session at The Power Station in New York City.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XwJp0FaZNG4)
+[Watch on Youtube: Bruce Springsteen Ramrod #1](https://www.youtube.com/watch?v=XwJp0FaZNG4)
 
 **1982:** Bruce joins Jackson Browne on stage for "The Promised Land" and "Running on Empty" in New York's Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man's West in Red Bank.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ONG5UOwbpu4)
+[Watch on Youtube: Bruce Springsteen & Jackson Browne - The Promised Land](https://www.youtube.com/watch?v=ONG5UOwbpu4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hrYx5FN2RiY)
+[Watch on Youtube: Bruce Springsteen & Jackson Browne - Running On Empty](https://www.youtube.com/watch?v=hrYx5FN2RiY)
 
 [https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3)
 
@@ -46,21 +46,21 @@ post_id: 57049
 
 [Watch Video Highlight](https://videopress.com/embed/HOWgJ2Ki)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M_XKihvL2ZU)
+[Watch on Youtube: Dancing In The Dark (country) Bruce Springsteen (2000)](https://www.youtube.com/watch?v=M_XKihvL2ZU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wvPNteUx6XY)
+[Watch on Youtube: Bruce Springsteen - Roll of the Dice (Live 2000-06-12)](https://www.youtube.com/watch?v=wvPNteUx6XY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gpMgYVidHJ4)
+[Watch on Youtube: Bruce Springsteen Point Blank Madison Square Garden 12/06/2000](https://www.youtube.com/watch?v=gpMgYVidHJ4)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2000-06-12.jpg.webp)
 
 **2003:** Wolfgang Niedecken guest-stars on "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" at Bruce's Rising show in Hamburg.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bDfAzjmjOdc)
+[Watch on Youtube: Born in the USA 12.06.2003](https://www.youtube.com/watch?v=bDfAzjmjOdc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=w-n4UKb8oXI)
+[Watch on Youtube: Springsteen - Downbound Train](https://www.youtube.com/watch?v=w-n4UKb8oXI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tzH8YVrxIUY)
+[Watch on Youtube: Atlantic City](https://www.youtube.com/watch?v=tzH8YVrxIUY)
 
 **2005:** A scheduled solo acoustic show in Berlin is rescheduled after Terry Magovern's fiancée passes away.<br>
 
@@ -72,6 +72,6 @@ post_id: 57049
 
 **2024:** World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering "Frankie Fell in Love" and "Rockin' All Over the World."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=o6m7GqNENNU)
+[Watch on Youtube: Frankie fell in love - Bruce Springsteen Madrid 12 June 2024](https://www.youtube.com/watch?v=o6m7GqNENNU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jA0rqOq-vts)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Rockin' All Over The World - Madrid 12/06/2024](https://www.youtube.com/watch?v=jA0rqOq-vts)

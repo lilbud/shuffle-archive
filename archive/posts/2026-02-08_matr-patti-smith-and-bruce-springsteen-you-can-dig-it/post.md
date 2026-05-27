@@ -18,7 +18,7 @@ They played it twice that night (and never again), and both were captured on tap
 
 Take a listen to both performances below, and for more Bruce and Patti from this night, see “Slowly Walking Down by the River” and “Picture Hanging Blues.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NVv9bjYr6eo)
+[Watch on Youtube: PATTI SMITH featuring BRUCE SPRINGSTEEN : YOU CAN DIG IT](https://www.youtube.com/watch?v=NVv9bjYr6eo)
 
 [Watch Video Highlight](https://videopress.com/embed/xcYOkknQ)
 

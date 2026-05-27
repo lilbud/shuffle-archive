@@ -90,7 +90,7 @@ post_id: 57180
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eXewv9h_5EM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OmU3lSF9d6s)
+[Watch on Youtube: Tunnel Of Love Multicam Mix 2016 06 25 Dubbed](https://www.youtube.com/watch?v=OmU3lSF9d6s)
 
 **2021:** Bruce holds an invite-only dress rehearsal for the return engagement of *Springsteen on Broadway* at the St. James Theater in New York City.<br>
 

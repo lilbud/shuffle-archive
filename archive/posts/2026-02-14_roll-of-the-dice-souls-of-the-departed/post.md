@@ -16,7 +16,7 @@ There's probably no better example of this duality at work in his music than "So
 
 Let's take a listen, and then we'll break it down:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2t-81cQv5f8)
+[Watch on Youtube: Souls of the Departed](https://www.youtube.com/watch?v=2t-81cQv5f8)
 
 The first thing–literally–that we notice about "Souls of the Departed" is that its musical backbone is virtually copied and pasted from the album's opening track, "Better Days." That's almost certainly intentional: although "My Beautiful Reward" serves as the album's epilogue, "Souls of the Departed" functions as the album's true closer, and as such "Better Days" and "Souls of the Departed" serve as bookends, mirror images–the first a confession of contentment and the last a confession of complicity.
 
@@ -85,11 +85,11 @@ With so much care and control exercised over the content and sound of the song, 
 
 Here are two of my favorites: first, from Bruce's appearance on *MTV Unplugged* (for which he famously refused to stay unplugged). A foreboding "Star-Spangled Banner" serves as the lead-in, fading out as Bruce begins the song accompanied only by a soft drone and barely perceptible percussion. The band explodes into action following the first chorus but recedes at the critically intimate final verse.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QYZqriRLyi4)
+[Watch on Youtube: Souls of the Departed - Bruce Springsteen (live at Warner Hollywood Studios, Los Angeles 1992)](https://www.youtube.com/watch?v=QYZqriRLyi4)
 
 …and from the final weeks of the tour, a performance from Verona, Italy.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qBbnAiiz-5w)
+[Watch on Youtube: bruce springsteen souls of the departed verona italy 1993](https://www.youtube.com/watch?v=qBbnAiiz-5w)
 
 One of my favorite performances of "Souls of the Departed" is the sole time Bruce played it solo and acoustic on his twelve-string slide guitar at one of his benefit shows in Somerville in 2003.
 
@@ -101,11 +101,11 @@ The arrangement is so stark and powerful that you probably didn't even realize h
 
 Here are two final clips, from the few performances with the E Street Band (there have only been six). The first is from the Rising Tour:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QJDAcNF6ax8)
+[Watch on Youtube: Souls Of The Departed Bruce Springsteen 10/3/2003 NYC Shea Stadium](https://www.youtube.com/watch?v=QJDAcNF6ax8)
 
 …and finally from the following year's Vote for Change Tour, an on-point performance featuring not just Bruce and the E Street Band, but Neil Young as well:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ljabZgADz5g)
+[Watch on Youtube: bruce springsteen ft neil young souls of the departed](https://www.youtube.com/watch?v=ljabZgADz5g)
 
 **Souls of the Departed**<br>
 **Recorded:** July-December 1991<br>

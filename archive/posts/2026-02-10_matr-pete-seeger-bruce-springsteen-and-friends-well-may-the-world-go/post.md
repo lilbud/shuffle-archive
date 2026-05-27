@@ -20,7 +20,7 @@ Bruce and Patti stayed respectfully in the background, but they were clearly exc
 
 "Well May the World Go" was a great choice to cap an evening celebrating the life of Pete Seeger. Written by Pete in 1973 (adapted from the 18th century song "Weel May the Keel Row"), the song is a wish for peace, health, joy, and love for the world long after the singer is gone from it.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mc_w9Bvce5I)
+[Watch on Youtube: Well May the World Go](https://www.youtube.com/watch?v=mc_w9Bvce5I)
 
 Pete spent his life doing his best to ensure that well the world may go, and he'd go on to do so for almost another five years after his 90th birthday concert.
 

@@ -22,7 +22,7 @@ post_id: 55961
 
 [Watch on Youtube: Bruce Springsteen - Jacksonville Soundcheck - 1981-02-18](https://www.youtube.com/watch?v=_oYfUcPwuFM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VJVyZxoCk4Q)
+[Watch on Youtube: The River Tour Jacksonville, Florida Feb. 18 ,1981](https://www.youtube.com/watch?v=VJVyZxoCk4Q)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/1981-02-18.jpg.webp)
 

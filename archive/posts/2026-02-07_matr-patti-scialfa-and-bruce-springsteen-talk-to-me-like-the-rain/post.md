@@ -18,7 +18,7 @@ Heartbreaker Mike Campbell also plays guitar on the track, as does Tim Pierce, w
 
 But Bruce certainly does carry the song on guitar and keyboards, lifting and supporting–but never outshining–Patti's soulful vocals.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=359_qS82zBA)
+[Watch on Youtube: Talk To Me Like The Rain](https://www.youtube.com/watch?v=359_qS82zBA)
 
 In an interview with *Rolling Stone's* Steve Pond shortly after the album's release, Patti spoke to the inspiration behind the songs.
 

@@ -16,7 +16,7 @@ But even a “standard” Springsteen show has the power to inspire great art an
 
 Still, Earle did write “Guitar Town” shortly thereafter as the title song and lead single for his 1986 debut album, and it became a country rock hit, notching the number seven spot on the Billboard Country chart and earning Earle Grammy nominations in both the “Best Country Song” and “Best Male Country Vocalist” categories.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AINUPFbFpqg)
+[Watch on Youtube: Steve Earle - Guitar Town (Official Music Video)](https://www.youtube.com/watch?v=AINUPFbFpqg)
 
 Twelve years after its release, Earle finally got a chance to perform “Guitar Town” with the man who inspired it. When Earle played at Tradewinds on the Jersey Shore, local boy Bruce Springsteen dropped by to catch the show.
 

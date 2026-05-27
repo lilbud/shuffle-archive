@@ -20,7 +20,7 @@ Atypically, he cancelled almost three weeks worth of shows and retreated to his 
 
 He had an outtake from his previous record called "[Come On (Let's Go Tonight)](../2020-12-05_roll-of-the-dice-come-on-lets-go-tonight/post.md)" that didn't make either *Darkness on the Edge of Town* or *The River–*most likely because its melody (and a few of its lyrics) gave way to "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j_LBQD2nghw)
+[Watch on Youtube: Come On (Let's Go Tonight)](https://www.youtube.com/watch?v=j_LBQD2nghw)
 
 But "Come On (Let's Go Tonight)" was more than just a prototypical "Factory." It was actually a profound meditation on the difference between wealth and happiness, and how even the most successful entertainer in the world succumbed to his demons in the end. ("Everybody wants heaven," Bruce wrote, "but nobody wants to die.")
 
@@ -32,7 +32,7 @@ This new version of "Come On (Let's Go Tonight)" was more uptempo and more urgen
 
 It was a stronger song, and one that showed considerable promise. When he returned to the stage a few weeks later, Bruce brought his new song with him. It wasn't the version he'd recorded at home, though–the song had evolved and now featured a new melody, three new verses, and a new title: "Johnny Bye Bye."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PWTmqL6HsiA)
+[Watch on Youtube: Bruce Springsteen - Johnny Bye-Bye (Live at Wembley Stadium, London, UK - 06/05/81 - Official Audio)](https://www.youtube.com/watch?v=PWTmqL6HsiA)
 
 "Johnny Bye Bye" featured a contemplative, almost pensive melody, but its lyrics ran the gamut from wistfully romantic to brutally tragic.
 
@@ -44,7 +44,7 @@ One of the most recognizable and most covered songs in rock history, "Johnny B. 
 
 "Bye Bye Johnny" picks up the story. Still unflagging in her support for her son's dreams, Johnny's mother empties her life savings to send her boy out west to become not just a pop star, but a movie star too (not unlike a certain boy from Memphis).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zdNH78oEHpE)
+[Watch on Youtube: Chuck Berry - "Bye Bye Johnny"](https://www.youtube.com/watch?v=zdNH78oEHpE)
 
 "Bye Bye Johnny" has a happy ending: Johnny makes it big, falls in love, and promises his mother he will send for her soon.
 
@@ -93,11 +93,11 @@ Success brought down Hank, and it brought down Elvis. Bruce saw the parallel bet
 
 In early 1983, however, Bruce made another attempt, once again recasting the musical accompaniment (this time almost rockabilly) and recruiting Roy Bittan and Max Weinberg to join him on what would otherwise be a solo track. Lyrically, Bruce tightened the song, eliminating a verse to bring the song in well under two minutes.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VK2l94VDFkU)
+[Watch on Youtube: Johnny Bye-Bye (Single B-Side - 1984)](https://www.youtube.com/watch?v=VK2l94VDFkU)
 
 That version of "Johnny Bye Bye" appeared on the B-side of the single for "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)," and Bruce played it throughout the fall and winter of 1984-1985.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MQ6hQ2iHD2g)
+[Watch on Youtube: Bruce Springsteen Johnny Bye Bye Tempe 08/11/1984](https://www.youtube.com/watch?v=MQ6hQ2iHD2g)
 
 There's yet another officially released version of "Johnny Bye Bye" — the one that appears on Bruce's 1998 *Tracks* box set. That version is essentially the same one as the "I'm on Fire" B-side, but it features a drum machine instead of Max's live drumming. (Max is not credited on the *Tracks* version.)
 
@@ -105,7 +105,7 @@ That version doesn't appear to be officially streamable on-line, however, so I c
 
 And there's even *another* version of "Johnny Bye Bye" with yet another additional verse, recorded in March 1983, but this one was never released.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=d89fQRSqKS8)
+[Watch on Youtube: Bruce Springsteen Bye Bye Johnny #5 AKA Johnny Bye Bye](https://www.youtube.com/watch?v=d89fQRSqKS8)
 
 For a song that he tinkered with so incessantly and performed on stage 71 times, it's surprising that "Johnny Bye Bye" disappeared from Bruce's set lists in the middle of the Born in the U.S.A. Tour, never to return.
 

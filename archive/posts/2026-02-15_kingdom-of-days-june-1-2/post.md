@@ -26,17 +26,17 @@ post_id: 56993
 
 **1977:** Finally free to record again after settling his legal dispute with Mike Appel, Bruce officially kicks off the recording sessions for *Darkness on the Edge of Town*. The sessions start with a bang, with at least ten tracks recorded on this first day, including the officially released version of "Something in the Night."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5q_JZGV05Rk)
+[Watch on Youtube: Something in the Night](https://www.youtube.com/watch?v=5q_JZGV05Rk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_5xt7hp9a28)
+[Watch on Youtube: Bruce Springsteen - I WANNA BE WITH YOU (V1) (Darkness On The Edge Of Town Sessions)](https://www.youtube.com/watch?v=_5xt7hp9a28)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WJV0i_J1-hQ)
+[Watch on Youtube: Bruce Springsteen - Outside Looking in (V1) - Studio Take, Atlantic Studios, NYC (June 1, 1977)](https://www.youtube.com/watch?v=WJV0i_J1-hQ)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1977-06-01.jpg.webp)
 
 **1979:** Bruce and the E Street Band work on "Little White Lies" and "Mary Lou" at the Power Station in New York City.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JlfQCfBSxaw)
+[Watch on Youtube: Bruce Springsteen - Little White Lies (V2) - Studio take at the Power Station (June 1, 1979)](https://www.youtube.com/watch?v=JlfQCfBSxaw)
 
 **1981:** Bruce and the E Street Band play their third of six shows at London's Wembley Arena.<br>
 
@@ -54,9 +54,9 @@ post_id: 56993
 
 **1985:** Bruce plays his first ever show in Ireland, kicking off the European leg of the Born in the U.S.A. Tour with a show at Slane Castle, before the largest crowd that Bruce has ever played to (over 90,000 people). This is also Bruce's return to the stage after getting married, and he marks the occasion with a one-time-only performance of "When I Grow Up (To Be a Man)" in the encores.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FXckY2qzdUU)
+[Watch on Youtube: Bruce Springsteen - WHEN I GROW UP TO BE A MAN 1985  (audio)](https://www.youtube.com/watch?v=FXckY2qzdUU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HehJDZOwlOs)
+[Watch on Youtube: Bruce Springsteen at Slane Castle](https://www.youtube.com/watch?v=HehJDZOwlOs)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBjjejwxYCnsuOYNJVQL58J)
 
@@ -66,11 +66,11 @@ post_id: 56993
 
 [Watch Video Highlight](https://videopress.com/embed/x7xbmPSW)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V8GA_hlYbzg)
+[Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
 **1993:** Bruce wraps up World Tour 1993 with a show at Valle Hovin Stadion in Oslo. "Born to Be Wild" in the encore is a tour premiere, featuring vocals by Bruce's roadie Rick "Chainsaw" Lapointe. Warren Kay, another crew member, joins during the final encore of "Twist and Shout."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=O37NpEiLRmI)
+[Watch on Youtube: Bruce Springsteen - Born to be wild (Oslo, 1th June '93) PRO-SHOT](https://www.youtube.com/watch?v=O37NpEiLRmI)
 
 [Watch Video Highlight](https://videopress.com/embed/vgR4UE3w)
 
@@ -82,17 +82,17 @@ post_id: 56993
 
 **2016:** When the River Tour stops in Glasgow, Bruce opens the show with "Waitin' on a Sunny Day," and tour premieres "American Skin (41 Shots)" and "4th of July, Asbury Park (Sandy)."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vtg-vJbCH34)
+[Watch on Youtube: 2016-06-01 Bruce Springsteen - American Skin (41 Shots)](https://www.youtube.com/watch?v=vtg-vJbCH34)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GIJlrluaTz0)
+[Watch on Youtube: 2016-06-01 Bruce Springsteen - 4th of July, Asbury Park (Sandy)](https://www.youtube.com/watch?v=GIJlrluaTz0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gFBuoK_QqNM)
+[Watch on Youtube: Bruce Springsteen - This Hard Land - Hampden Park, Glasgow. (01/06/16)](https://www.youtube.com/watch?v=gFBuoK_QqNM)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2019:** Bruce attends (but does not perform at) Bob Seger's concert in Holmdel, New Jersey. Bob dedicates "Downtown Train" to Bruce.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gh8HkDEKAHE)
+[Watch on Youtube: "Downtown Train (Dedicated to Bruce Springsteen)" Bob Seger@Holmdel, NJ 6/1/19](https://www.youtube.com/watch?v=gh8HkDEKAHE)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2019-06-01.png.webp)
 

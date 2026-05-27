@@ -9,7 +9,7 @@ post_id: 22319
 ---
 Of all the songs in Billy Joel’s catalog begging for a Billy/Bruce team-up, “The River of Dreams” is a no-brainer.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hSq4B_zHqPM)
+[Watch on Youtube: Billy Joel - The River Of Dreams (Official HD Video)](https://www.youtube.com/watch?v=hSq4B_zHqPM)
 
 Not just because it was a hit single, topping the U.S. Adult Contemporary chart (peaking at #3 on the Hot 100), but because Bruce sure loves him some river metaphors (“If I Should Fall Behind,” “Across the Border,” “Blood Brothers,” “One Minute You’re Here…” the list goes on and on.)
 

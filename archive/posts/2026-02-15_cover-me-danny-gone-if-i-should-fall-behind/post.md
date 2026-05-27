@@ -14,7 +14,7 @@ Every once in a while, I come across a cover from an unknown artist that makes m
 
 Listen to this.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VHZv3mQkpJk)
+[Watch on Youtube: Danny Gone: 'If I Should Fall Behind' (Springsteen Cover)](https://www.youtube.com/watch?v=VHZv3mQkpJk)
 
 I'm completely unfamiliar with Danny Gone, but his absolutely gorgeous cover of "If I Should Fall Behind" is better than any other I've encountered. It's brand new (released just days ago as I write this), but it's immediately cemented as one of my all-time favorite Springsteen covers.
 

@@ -11,7 +11,7 @@ Garland Jeffreys should have been a much bigger star than he is, and there were 
 
 The last time was in 1992, when "Hail Hail Rock ‘n' Roll" (the lead single off his *Don't Call Me Buckwheat* album) cracked the Top 40 across Europe and even the Top 10 on the Dutch and Swiss charts.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SB9NZkKJoGo)
+[Watch on Youtube: Garland Jeffreys - Hail Hail Rock 'N' Roll (Official Music Video)](https://www.youtube.com/watch?v=SB9NZkKJoGo)
 
 But "Hail Hail Rock ‘n' Roll" never registered at all in Garland's native U.S., and that's too bad–it's a great song that celebrates the melting pot of rock music.
 

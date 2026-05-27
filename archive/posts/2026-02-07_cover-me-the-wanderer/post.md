@@ -12,7 +12,7 @@ post_id: 9730
 
 Dion’s “The Wanderer” was an immediate hit upon its release in late 1961, peaking just one spot shy of the top of U.S. charts, #10 in the U.K., and at #1 in Australia.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jP1z0dQVcIQ)
+[Watch on Youtube: Dion - The Wanderer - 1961](https://www.youtube.com/watch?v=jP1z0dQVcIQ)
 
 Dion has referred to “The Wanderer” as “Black music filtered through an Italian neighborhood that comes out with an attitude,” so it’s no wonder that Bruce would eventually gravitate to it.
 
@@ -32,7 +32,7 @@ In the mid-nineties, Bruce played the song with Dion once again, but this time b
 
 It took a request sign to finally get Bruce to play the song with the E Street Band–almost ten years ago in Des Moines, Iowa. It took them a minute to work it out, but once they did… let’s just say it was worth the wait.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kg2AOVXpqU4)
+[Watch on Youtube: Bruce Springsteen The Wanderer Des Moines 9/21/09](https://www.youtube.com/watch?v=kg2AOVXpqU4)
 
 **The Wanderer**<br>
 **First performed:** July 25, 1982 (Asbury Park, NJ)<br>

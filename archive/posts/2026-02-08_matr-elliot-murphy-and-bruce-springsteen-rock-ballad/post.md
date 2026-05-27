@@ -20,11 +20,11 @@ That moment came when Bruce's 1992 world tour arrived in Paris, where Murphy had
 
 It was Bruce's idea to play "Rock Ballad," from Elliott's 1977 album, *Just a Story From America*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GwCWIbe2U6o)
+[Watch on Youtube: Rock Ballad](https://www.youtube.com/watch?v=GwCWIbe2U6o)
 
 An ode to the slow ballads of Murphy's youth and inspired by artists like Otis Redding and Percy Faith, it's easy to see why Bruce took a shine to "Rock Ballad." Bruce and Elliott performed it acoustically late in the second set, with Elliot on lead vocals and Bruce supporting.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_epZc23R2Fg)
+[Watch on Youtube: Elliott Murphy & Bruce Springsteen, Paris 1992](https://www.youtube.com/watch?v=_epZc23R2Fg)
 
 "It was an incredible moment for me," Murphy wrote in a 2008 essay, "and I got to admit I was nervous as hell. When I walked to the stage with Bruce's late and truly missed assistant Terry Magovern I think I was visibly shaking and Terry put his hand on my shoulder saying ‘Elliott, its just like the old days only more people.' That calmed me right down and Bruce and I settled into the song in front of 18,000 fans like we were back at Max's Kansas City. Hearing our voices together was kind of an epiphany – they blended together better then I would have imagined."
 

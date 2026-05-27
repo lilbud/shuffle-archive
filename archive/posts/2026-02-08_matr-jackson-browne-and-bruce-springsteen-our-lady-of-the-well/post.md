@@ -16,7 +16,7 @@ And yet, "Our Lady of the Well" remains a fan favorite and a traditional show cl
 
 The latter performance in particular features some lovely guitar work from Bruce–enjoy the performance of two long-time friends and legends below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uoZE3iJKs8g)
+[Watch on Youtube: Take It Easy/Our Lady Of The Well Jackson Browne & Bruce Springsteen Holmdel, NJ](https://www.youtube.com/watch?v=uoZE3iJKs8g)
 
 **Our Lady of the Well**<br>
 **First performed:** September 22, 2015 (Red Bank, NJ)<br>

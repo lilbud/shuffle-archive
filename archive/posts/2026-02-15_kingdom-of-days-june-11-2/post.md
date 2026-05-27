@@ -10,7 +10,7 @@ post_id: 57048
 ---
 **1988:** The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of "Because the Night."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Q9KzCea1pas)
+[Watch on Youtube: Bruce Springsteen Live in Turin 1988](https://www.youtube.com/watch?v=Q9KzCea1pas)
 
 [Watch Video Highlight](https://videopress.com/embed/gYCoDgq3)
 
@@ -18,31 +18,31 @@ post_id: 57048
 
 [Watch Video Highlight](https://videopress.com/embed/biYvkhDi)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=adIkoqMKc1o)
+[Watch on Youtube: Bruce Springsteen Torino 11/6/1988 Full Concert](https://www.youtube.com/watch?v=adIkoqMKc1o)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Daily_News_Thu__Jun_16__1988_-scaled.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band make a tour stop in Genoa, Italy.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2-7fj8Of7ok)
+[Watch on Youtube: Bruce Springsteen - My Love Will Not Let You Down](https://www.youtube.com/watch?v=2-7fj8Of7ok)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=63BVID2q18M)
+[Watch on Youtube: Bruce Springsteen - DARKNESS ON THE EDGE OF TOWN](https://www.youtube.com/watch?v=63BVID2q18M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WcRpP5lWB_E)
+[Watch on Youtube: BRUCE SPRINGSTEEN  - DARLINGTON COUNTY](https://www.youtube.com/watch?v=WcRpP5lWB_E)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KhuCEwHwy30)
+[Watch on Youtube: Bruce Springsteen - MANSION ON THE HILL](https://www.youtube.com/watch?v=KhuCEwHwy30)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rcPAp51lgpw)
+[Watch on Youtube: Bruce Springsteen - THE RIVER](https://www.youtube.com/watch?v=rcPAp51lgpw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BTf7n8cpxA4)
+[Watch on Youtube: BRUCE SPRINGSTEEN  - OUT IN THE STREET](https://www.youtube.com/watch?v=BTf7n8cpxA4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jIyY16fAwxs)
+[Watch on Youtube: SPRINGSTEEN's Mom & Aunt dancing in Italy](https://www.youtube.com/watch?v=jIyY16fAwxs)
 
 **2005:** A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern's fiancée passes away.<br>
 
 **2006:** The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "Long Black Veil" makes its American premiere.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OJZmPNby-9U)
+[Watch on Youtube: Bruce Springsteen Jacob's ladder live in St. Paul](https://www.youtube.com/watch?v=OJZmPNby-9U)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/2006-06-11.jpg.webp)
 
@@ -52,28 +52,28 @@ post_id: 57048
 
 **2012:** Elliott Murphy guest-stars in Trieste at the last Italian show of the 2012 tour.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PTyyLZXTepw)
+[Watch on Youtube: BRUCE SPRINGSTEEN Trieste Italy 2012-06-11, Badlands, No Surrender, We Take Care of Our Own, live!](https://www.youtube.com/watch?v=PTyyLZXTepw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=f86-p4P1ZFk)
+[Watch on Youtube: Bruce Springsteen - Murder Incorporated - Trieste 2012 06 11](https://www.youtube.com/watch?v=f86-p4P1ZFk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iH3kQ58-2D4)
+[Watch on Youtube: BRUCE SPRINGSTEEN Trieste Italy 2012-06-11 HD! Because the Night, The Rising, live](https://www.youtube.com/watch?v=iH3kQ58-2D4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nv4bP9tb_k4)
+[Watch on Youtube: Bruce Springsteen - Born In The U.S.A. -HD- @ Stadio Nereo Rocco TRIESTE \ 11 giugno 2012 / 1080p](https://www.youtube.com/watch?v=nv4bP9tb_k4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NXOEj7DT3WA)
+[Watch on Youtube: Bruce Springsteen - Born to run - Trieste 11/06/2012 - Feat. Elliot Murphy](https://www.youtube.com/watch?v=NXOEj7DT3WA)
 
 **2023:** Bruce and the E Street Band return to the stage after an eleven-day break with a show at Megaland in Landgraaf, The Netherlands. Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,31079/Bruce-Springsteen-mp3-flac-download-6-11-2023-Megaland-Landgraaf-NLD.html).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=piUALxtq05U)
+[Watch on Youtube: Bruce Springsteen-Landgraaf-2023/06/11-02-Ghosts](https://www.youtube.com/watch?v=piUALxtq05U)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cW97ZkLHJUg)
+[Watch on Youtube: BRUCE SPRINGSTEEN & The E Street Band - Johnny 99 - Landgraaf - 2023-06-11](https://www.youtube.com/watch?v=cW97ZkLHJUg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NPS5b-XWCyU)
+[Watch on Youtube: BRUCE SPRINGSTEEN & The E Street Band - Thunder Road - Landgraaf - 2023-06-11](https://www.youtube.com/watch?v=NPS5b-XWCyU)
 
 **2025:** The Land of Hope and Dreams Tour moves on to Olympiastadion in Berlin, where "Two Hearts" and "Seven Nights to Rock" receive rare outings.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9QYg0126zzY)
+[Watch on Youtube: Bruce Springsteen - walk on, anti-Trump speech, Ghosts, Berlin 2025-06-11](https://www.youtube.com/watch?v=9QYg0126zzY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Cdl-GBT758k)
+[Watch on Youtube: Bruce Springsteen „ Two Hearts + Out in the Street „ Berlin Olympiastadion 11.06.25](https://www.youtube.com/watch?v=Cdl-GBT758k)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rIywFg9CPJw)
+[Watch on Youtube: Bruce Springsteen live Berlin 11.06.2025 Full Encore (from Born in the U.S.A. to Chimes of Freedom)](https://www.youtube.com/watch?v=rIywFg9CPJw)

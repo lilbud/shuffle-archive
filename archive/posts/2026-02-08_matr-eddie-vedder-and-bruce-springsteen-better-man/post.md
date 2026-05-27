@@ -10,7 +10,7 @@ post_id: 39221
 ---
 Even though it was Bruce's stage and he'd never played it before, "Better Man" was recognizable from its opening notes. Released on their *Vitalogy* album in 1994, the song was a smash hit for Pearl Jam despite never being issued as a single.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nDK-wsdEhNE)
+[Watch on Youtube: Pearl Jam - Better Man (Official Audio)](https://www.youtube.com/watch?v=nDK-wsdEhNE)
 
 It topped the Billboard Album Rock Tracks chart for eight weeks and stopped one spot shy of the top of the Modern Rock Track chart. It reached #13 in the Top 40 Mainstream chart and went on to amass accolade after accolade over the years.
 
@@ -20,11 +20,11 @@ However, it's actually a much older song than most of Bruce's fans likely realiz
 
 Eddie first recorded "Better Man" in 1988 with his pre-PJ band, Bad Radio.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KQkhP4isUp4)
+[Watch on Youtube: Bad Radio - Better Man (1st Studio Version - Demos 1988)](https://www.youtube.com/watch?v=KQkhP4isUp4)
 
 He performed it live with Bad Radio, too, so by the time he recorded it with Pearl Jam years later, "Better Man" was both time- and road-tested.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aeD1fywAK5w)
+[Watch on Youtube: Bad Radio - Better Man - San Diego (June 10, 1989) (Soundboard Audio)](https://www.youtube.com/watch?v=aeD1fywAK5w)
 
 When Bruce and Eddie performed it together in 2004, "Better Man" was a quarter-century old. The setting was the final show of the Vote for Change Show, just weeks before the 2004 U.S. presidential election.
 

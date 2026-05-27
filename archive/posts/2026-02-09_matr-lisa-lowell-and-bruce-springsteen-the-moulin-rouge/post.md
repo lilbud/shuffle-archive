@@ -11,7 +11,7 @@ Lisa Lowell is familiar name to E Street Nation. Her vocals can be found all ove
 
 After Lisa lent her support to a cool dozen of Bruce's released tracks (plus three of Patti's), Bruce decided to return the favor, playing electric guitar on her sultry track "The Moulin Rouge" on Lisa's *Beautiful Behavior* album.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YvaJAhjMsTA)
+[Watch on Youtube: The Moulin Rouge](https://www.youtube.com/watch?v=YvaJAhjMsTA)
 
 Written in the 1980s (which explains the Billy Idol reference) when her band Venus Flytrap (which included E Streeter Soozie Tyrell) had an extended stay in Paris, "The Moulin Rouge" exudes sex, and Bruce's tight, restrained guitar work helps keep the heat on high.
 

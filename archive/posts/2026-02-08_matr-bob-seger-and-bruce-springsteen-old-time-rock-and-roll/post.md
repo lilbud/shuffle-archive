@@ -12,7 +12,7 @@ There's no official video for the studio version of Bob Seger's "Old Time Rock a
 
 That's just as well, because come on: how could any video compete with the iconic movie scene it's most associated with?
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8elAi-7G0OE)
+[Watch on Youtube: Bob Seger - Old Time Rock And Roll (Risky Business) (1983)](https://www.youtube.com/watch?v=8elAi-7G0OE)
 
 "Old Time Rock and Roll" charted in the Top 100 twice–once when it was originally released in the spring of 1979 (it peaked at #28), and again in 1983 when *Risky Business* was released (peaking at #48).
 
@@ -20,7 +20,7 @@ But despite their long-time association (they first played together in 1980), Bo
 
 It was worth the wait. Turn the volume up, switch to full-screen mode, and enjoy:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gFKmo9f5EIs)
+[Watch on Youtube: BOB SEGER & BRUCE SPRINGSTEEN Old Time Rock & Roll](https://www.youtube.com/watch?v=gFKmo9f5EIs)
 
 Bob and Bruce's team-up was pretty spectacular, considering they'd never played the song together before.
 

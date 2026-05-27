@@ -13,7 +13,7 @@ But there are a couple of love notes on her follow-up album, too, and a standout
 
 Although it features a prominent guitar solo and understated keyboards from Bruce, it's Patti's vocals on "Love (Stand Up)" that carry the day.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UYNSpb7308M)
+[Watch on Youtube: Love (Stand Up)](https://www.youtube.com/watch?v=UYNSpb7308M)
 
 Patti has always been underrated as both a songwriter and vocalist, but in my opinion, what truly sets her apart is her rare ability to voice both steel and vulnerability at the same time.
 

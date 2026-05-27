@@ -14,7 +14,7 @@ Bruce's recent autobiographical openness sheds light on his penchant for getting
 
 "Lady and the Doctor" is one of the more artistically ambitious entries in this category; while it never quite seems fully realized, at times Bruce dazzles with his lyrics.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c3b07ZZxdEs)
+[Watch on Youtube: Bruce Springsteen - Lady And The Doctor](https://www.youtube.com/watch?v=c3b07ZZxdEs)
 
 The first verse of "Lady and the Doctor" introduces us to our two title characters. Bruce writes in parallel throughout, alternating his point-of-view characters to ensure his listeners can empathize with both.
 

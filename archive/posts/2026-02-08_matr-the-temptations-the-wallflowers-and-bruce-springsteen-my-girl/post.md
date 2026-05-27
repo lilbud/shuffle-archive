@@ -16,17 +16,17 @@ Anywhere in the world, people can name that tune in just its opening three bass 
 
 So why the heck hasn’t Bruce Springsteen–a famously avowed Motown fan–ever covered “My Girl” properly in concert?
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8Ff2Z0Dq2sg)
+[Watch on Youtube: My Girl - The Temptations (1964) (HD Quality)](https://www.youtube.com/watch?v=8Ff2Z0Dq2sg)
 
 “My Girl” was the second number one hit for its songwriter, Smokey Robinson. (The first was the song he was answering: “My Guy,” written for Mary Wells.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4WT7nBGX5eU)
+[Watch on Youtube: Mary Wells - My Guy](https://www.youtube.com/watch?v=4WT7nBGX5eU)
 
 “My Guy” was the bigger hit of the pair, but “My Girl” is the more enduring. In 1998, it was inducted into the Grammy Hall of Fame. In 2017, the U.S. Library of Congress enshrined it in the National Recording Registry for its cultural, historical, and artistic significance.
 
 In 1989, The Temptations received their due honor when they were inducted into the Rock and Roll Hall of Fame. When the assembled luminaries gathered on stage for the now-customary all-star jam session, everyone wanted to get in on the “My Girl” action–including an unusually reserved Bruce Springsteen, who can be seen supplying rhythm guitar stage right.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eQ6xLX6sFog)
+[Watch on Youtube: Finale performance of "My Girl" featuring the Temptations at the 1989 Induction Ceremony](https://www.youtube.com/watch?v=eQ6xLX6sFog)
 
 I suppose one could technically argue that was Bruce’s first public performance of “My Girl,” but it’s pretty tough to pick out his contribution among the pantheon of rock royalty on stage.
 

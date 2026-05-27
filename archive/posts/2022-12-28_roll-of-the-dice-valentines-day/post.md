@@ -14,7 +14,7 @@ Like much of the [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love
 
 The result is a carefully crafted song that gradually builds instrumental intensity that to match the lyrical desperation that's there from the beginning. Take a listen before we dive in:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=h5XgjPfL8KM)
+[Watch on Youtube: Valentine's Day](https://www.youtube.com/watch?v=h5XgjPfL8KM)
 
 > *I'm driving a big lazy car rushin' up the highway in the dark*<br>
 
@@ -80,7 +80,7 @@ For years, "Valentine's Day" went unperformed, but then in the summer of 2005, B
 
 Performed entirely on the piano (and a harmonica coda), the music matches for the first time the power of the lyrics from start to finish. Bruce's piano is as persistent and insistent a declaration of love as any lyrics could ever be, and once you hear this arrangement, it instantly becomes the definitive version of this song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HHdoqmz_lEw)
+[Watch on Youtube: Valentine's Day - Bruce Springsteen (Live 2005)](https://www.youtube.com/watch?v=HHdoqmz_lEw)
 
 When Bruce performed "Valentine's Day" in Portland, he received a mid-set standing ovation–it was that powerful.
 

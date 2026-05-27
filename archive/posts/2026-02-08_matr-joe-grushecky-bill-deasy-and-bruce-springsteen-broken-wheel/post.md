@@ -13,7 +13,7 @@ But while "Another Thin Line" may be the only song on Joe's 2009 album that feat
 
 Deep in the middle of the album, we find "Broken Wheel."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DYMLz8QZvU4)
+[Watch on Youtube: Joe Grushecky & The Houserockers - "Broken Wheel"](https://www.youtube.com/watch?v=DYMLz8QZvU4)
 
 Written and performed by Joe and fellow Pittsburgh singer/songwriter Bill Deasy, "Broken Wheel" is a song about a broken heart (for reasons I shall not spoil, but suffice to say this is not a love song), and it features Bruce prominently on lead guitar.
 

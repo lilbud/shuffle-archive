@@ -22,7 +22,7 @@ That compliment was "a defining moment for me," O'Ree said in a 2016 press relea
 
 Bruce end up contributing lead vocals and a screaming guitar solo, and the finished duet track was released as the lead single to O'Ree's 2016 album, *Brotherhood.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BLMLUdyYhMo)
+[Watch on Youtube: Black Boots](https://www.youtube.com/watch?v=BLMLUdyYhMo)
 
 "Black Boots" is a scorcher, featuring strong vocal performances from both Bruce and Matt and some serious shredding. It stayed under the radar upon its release, but it deserves to be in any Springsteen fan's collection.
 

@@ -24,7 +24,7 @@ Patti was kind when the DJ called "Valerie" a "buddy-girl type of song" in the c
 
 The narrator of "Valerie" followed her lover on a great adventure, only to find herself alone and abandoned. He's been gone for three years now, but she'd still sacrifice anything and everything to recapture that feeling of intense love.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RXQyuidSUFw)
+[Watch on Youtube: Valerie](https://www.youtube.com/watch?v=RXQyuidSUFw)
 
 The second verse of "Valerie" may be the most artful lyric Patti has ever written:
 
@@ -54,7 +54,7 @@ Enjoy Patti Scialfa, backed by Bruce Springsteen and The Sessions Band, performi
 
 The song loses some of its power when performed as a duet, however, and even though Harris and Ronstadt are both superb vocalists, neither quite manage to summon the brave vulnerability that "Valerie" (like much of Patti's catalog) requires.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oCTK3Rl0yms)
+[Watch on Youtube: Valerie](https://www.youtube.com/watch?v=oCTK3Rl0yms)
 
 **Valerie**<br>
 **First performed:** October 5, 2006 (Verona, Italy)<br>

@@ -14,11 +14,11 @@ Those words are from the U.S. Library of Congress, describing the global societa
 
 It may indeed be the most powerful song of the 20th century, but it's origins trace back a lot further: the music all the way back to Beethoven…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XqSjIQBtuVY)
+[Watch on Youtube: O Sanctissima - A Hymn of Praise to the Blessed Virgin Mary](https://www.youtube.com/watch?v=XqSjIQBtuVY)
 
 ..and the lyrics to a turn-of-the-20th-century hymn called "I'll Overcome Someday."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ns4rLJbY370)
+[Watch on Youtube: I'll Overcome Someday - Annastasia Victory playing Gospel](https://www.youtube.com/watch?v=ns4rLJbY370)
 
 Beyond that, like many popular folk songs (although it seems somehow diminishing to call it that), the history and evolution of "We Shall Overcome" is hard to trace. But its popularity is widely attributed to Pete Seeger, who adopted and shaped it in the 1950s, and to Guy Carawan, who shares a copyright with Seeger and who introduced it to the Civil Rights movement and the SNCC in 1960.
 
@@ -34,7 +34,7 @@ Bruce's version dates back not to his 2006 album of the same name, as many peopl
 
 The tribute album was released in 1998, and Bruce's "We Shall Overcome" leads off Disc 2. If you listen to it below, you'll notice that it's a different mix than the one Bruce would release on his own eight years later, but it's also clearly the same recording.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=026oa4oMG5k)
+[Watch on Youtube: Bruce Springsteen - "We Shall Overcome" (original 1998 version)](https://www.youtube.com/watch?v=026oa4oMG5k)
 
 In the aftermath of September 11, Bruce's version of "We Shall Overcome" made frequent appearance on TV news and documentary specials, and along with "My City of Ruins" helped shore up strength and resilience among frightened citizens.
 
@@ -42,21 +42,21 @@ Eight years after that original home recording session, Bruce revisited "We Shal
 
 Here's the album version of "We Shall Overcome." If you listen with sharp ears, you'll hear the differences in the mix from the original version.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ULYpA_Z4yx8)
+[Watch on Youtube: We Shall Overcome](https://www.youtube.com/watch?v=ULYpA_Z4yx8)
 
 Throughout the Seeger Sessions tour, "We Shall Overcome" was a nightly highlight. Every performance was delicate but life-affirming, and it's almost impossible to pick stand-out performances.
 
 Certainly its first official outing from New Orleans Jazz Fest is a contender:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LrBATPhL0DI)
+[Watch on Youtube: We Shall Overcome (Live at the New Orleans Jazz & Heritage Festival, 2006)](https://www.youtube.com/watch?v=LrBATPhL0DI)
 
 This one from London's St. Luke's Church is probably the most atmospheric:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FMfaAHoZ8xs)
+[Watch on Youtube: Bruce Springsteen - We Shall Overcome](https://www.youtube.com/watch?v=FMfaAHoZ8xs)
 
 But there were two other performances that stand out for me, both long after the Seeger Sessions Tour wrapped: one was a 2012 performance in Oslo by Bruce and Steve at the memorial concert for the victims of the Norway terror attacks, a somber but powerful performance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LTrgNSlCkKY)
+[Watch on Youtube: July 22- 2012 Bruce Springsteen NORWAY Memorial Concert For Victims on Utøya and Oslo](https://www.youtube.com/watch?v=LTrgNSlCkKY)
 
 The other was remarkable for both the location–Cape Town, South Africa, where the song carried special resonance–and the date: January 28, 2014, mere hours after the passing of Pete Seeger. [I was lucky enough to be present for it](../2018-01-28_where-the-band-was-cape-town-january-28-2014/post.md), and it remains to this day one of the most powerful concert moments I've ever experienced.
 

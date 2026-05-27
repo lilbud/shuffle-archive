@@ -14,7 +14,7 @@ Released in 2003, *White Lines* highlights not just Soozie's musicianship–we a
 
 The album leads off with its title track, one of two songs on the album to feature a Springsteen contribution. (See "Ste. Genevieve" for the other.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dnz2SeT9IP4)
+[Watch on Youtube: White Lines (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=dnz2SeT9IP4)
 
 It's easy to see why this song in particular might have attracted Bruce: with its road metaphor and childhood reminiscences, it's tailor-made for him.
 

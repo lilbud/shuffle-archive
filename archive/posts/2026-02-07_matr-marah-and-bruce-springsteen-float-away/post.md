@@ -27,7 +27,7 @@ So when the Bielanko brothers decided to leave their garage behind and embrace a
 
 Bruce recorded his part for "Float Away" at The Hit Factory in New York City on February 11, 2002, right in the middle of the Rising sessions. The boys asked The Boss for a scorching guitar solo, which Bruce was happy to provide, but he threw in a bonus: if you listen carefully at the end of the song, you'll hear his backing vocals as well.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cLN9gixVL4U)
+[Watch on Youtube: Marah - Float Away](https://www.youtube.com/watch?v=cLN9gixVL4U)
 
 Unfortunately, though, we really *do* have to listen carefully, because the production almost completely submerges Bruce in the mix. Over-production plagued the entire album, and *Float Away With the Night Gods* became a controversial, almost polarizing album among their fans.
 

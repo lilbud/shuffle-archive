@@ -12,13 +12,13 @@ It was a tale of… well, if not forbidden then at least frowned-upon love.
 
 The year was 1955, and the film was *All That Heaven Allows*. Directed by Douglas Sirk, the film starred Jane Wyman as Cary, a wealthy widow, and Rock Hudson as Ron, her gardener turned suitor.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3H8yXanHW1I)
+[Watch on Youtube: All That Heaven Allows (1955) ORIGINAL TRAILER [HD 1080p]](https://www.youtube.com/watch?v=3H8yXanHW1I)
 
 Cary and Ron fall in love and plan to marry, but Ron's social status gets in the way–as do Cary's children, who plead with their mother to reject Ron's proposal and preserve their family home. She does, only to find that her kids soon leave the nest (as kids do). Cary finds herself alone and ruing her decision.
 
 I won't spoil the rest for you, in case you haven't seen it. Let's just say it's a little, um, rockier than the Springsteen song it inspired.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XlMDSTeb4_w)
+[Watch on Youtube: All That Heaven Will Allow](https://www.youtube.com/watch?v=XlMDSTeb4_w)
 
 Bruce is notorious for borrowing film titles for his songs, but rarely do the songs fit their namesakes as snugly as "All That Heaven Will Allow." (Bruce slightly retitled for flow.)
 
@@ -58,11 +58,11 @@ It might be another hat tip to the movie, as Hudson's character faces mortal per
 
 Musically, "All That Heaven Will Allow" is a solo number. With the exception of Max Weinberg on drums (although it sounds more like he's playing the drumsticks), Bruce plays every instrument on the track. In concert, though, the feel-good song came alive in a full-band arrangement that stretched more than ten minutes, although most of that time belonged to a charming scene between Bruce and the Big Man (who gets some fine solo time), and a brief snippet of "[Here She Comes Walking.](../2020-06-28_roll-of-the-dice-city-of-night/post.md)"
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kerAh8FGtvQ)
+[Watch on Youtube: All That Heaven Will Allow  (Bruce Springsteen)](https://www.youtube.com/watch?v=kerAh8FGtvQ)
 
 "All That Heaven Will Allow" was a nightly staple throughout the Tunnel of Love Tour but promptly disappeared when the tour ended, save for a unique Asbury Park cameo in 1996, when Bruce performed it acoustically accompanied only by Soozie Tyrell on violin and Richard Blackwell on percussion. (It's my favorite version.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D55wEqJT94A)
+[Watch on Youtube: All That Heaven Will Allow- Live in Asbury Park, NJ; November 26, 1996](https://www.youtube.com/watch?v=D55wEqJT94A)
 
 "All That Heaven Will Allow" made its next proper tour appearance in 2005, showing up frequently in the set list throughout the summer and fall–this time a true solo performance on the electric piano.
 
@@ -70,7 +70,7 @@ Musically, "All That Heaven Will Allow" is a solo number. With the exception of 
 
 "All That Heaven Will Allow" showed up a few more times since then, the most recent of which was a 2013 pre-show performance in Oslo…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BrAcs1ywKqA)
+[Watch on Youtube: Bruce Springsteen 2013-04-29 Oslo - All That Heaven Will Allow (solo acoustic pre-show)](https://www.youtube.com/watch?v=BrAcs1ywKqA)
 
 …but even though it's made fifteen appearances since the Tunnel of Love era, the E Street Band hasn't had a crack at their 1988 set piece in almost 35 years. Will we see an encore appearance for "All That Heaven Will Allow" on stage next year? Only time will tell.
 

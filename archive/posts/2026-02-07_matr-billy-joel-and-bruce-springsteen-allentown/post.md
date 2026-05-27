@@ -16,7 +16,7 @@ And yet it only happened once–but what a night that was.
 
 The song is "Allentown," Billy's 1982 hit single and ode to blue collar workers and communities.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BHnJp0oyOxs)
+[Watch on Youtube: Billy Joel - Allentown (Official Video)](https://www.youtube.com/watch?v=BHnJp0oyOxs)
 
 "Allentown" only reached #17 on the Billboard Hot 100, but it refused to leave for almost a half a year. That was enough to earn it a #43 berth on the year-end rankings for 1983.
 
@@ -28,7 +28,7 @@ Although they'd shared a stage together a half-dozen times before, it took an Oc
 
 Among the songs they played that night was "Allentown," with Bruce and Billy trading lead vocals. And of course, Billy let Bruce take the second half of the first verse, because you simply can't have the words "Jersey shore" in a song and *not* let Bruce sing them. The crowd responded approvingly.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=O_MZd3PSBcc)
+[Watch on Youtube: Allentown | Billy Joel & Bruce Springsteen (Live at the Hammerstein Ballroom - October 2008)](https://www.youtube.com/watch?v=O_MZd3PSBcc)
 
 "Allentown" was just one of the Billy Joel songs that Billy and Bruce performed that night–see "The River of Dreams," "Movin' Out (Anthony's Song)" and "A Matter of Trust" for more amazing one-time-only performances.
 

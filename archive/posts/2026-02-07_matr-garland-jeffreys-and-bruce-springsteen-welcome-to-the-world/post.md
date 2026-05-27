@@ -15,7 +15,7 @@ Garland's reception was much more muted than Bruce's, but *Don't Call Me Buckwhe
 
 None of the album's singles charted in America, but "Hail Hail Rock ‘n' Roll" was a minor hit in several European countries, and a follow-up single of "Welcome to the World" managed to crack the Top 100 in the Netherlands.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8KUI5JS7Ea4)
+[Watch on Youtube: Welcome To The World](https://www.youtube.com/watch?v=8KUI5JS7Ea4)
 
 "Welcome to the World" is one of the album's most overt pieces of social commentary. It seemed a fitting yet optimistic choice for the set list when Bruce invited Garland to join him for his run of Asbury Park holiday benefit concerts a few months after the events of 9/11.
 

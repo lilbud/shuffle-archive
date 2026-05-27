@@ -30,13 +30,13 @@ post_id: 57090
 
 **1981:** Bruce joins Jackson Browne, Gary U.S. Bonds and others at Survival Sunday, an anti-nuke benefit event at the Hollywood Bowl. Watch the pro-shot performance below, including a duet with Jackson Browne on "The Promised Land" and a team-up with Gary U.S. Bonds on "Jole Blon."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jkNS8KLaXHw)
+[Watch on Youtube: ''Survival Sunday'' - Bruce Springsteen - June 14th, 1981 - Hollywood Bowl - Los Angeles, CA](https://www.youtube.com/watch?v=jkNS8KLaXHw)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1981-06-14.jpg.webp)
 
 **1989:** Bruce joins Neil Young in Jones Beach State Park on Long Island for a show-closing "Down by the River."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qcLfm6WCPys)
+[Watch on Youtube: Down By The River Bruce Springsteen and Neil Young 6/14/1989 NY](https://www.youtube.com/watch?v=qcLfm6WCPys)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1989-06-14-scaled.jpg.webp)
 
@@ -46,7 +46,7 @@ post_id: 57090
 
 **2004:** Volunteers remove and rescue the famous mural of Tillie from the condemned Palace Amusements in Asbury Park. Local news covers the event and plays up the Bruce connection.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_cv00SbTuS8)
+[Watch on Youtube: Local News Coverage of the Save Tillie campaign - June 11, 2004](https://www.youtube.com/watch?v=_cv00SbTuS8)
 
 Meanwhile, Patti films a performance and interview for *The Late Show With David Letterman* to promote her new album, *23rd Street Lullaby.*
 
@@ -54,7 +54,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 **2006:** Bruce and the Sessions Band make a tour stop at the Bradley Center in Milwaukee.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LIgcBBxjgwE)
+[Watch on Youtube: Bruce Springsteen - Eyes On The Prize - (Live Milwaukee 2006)](https://www.youtube.com/watch?v=LIgcBBxjgwE)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zee0qHjvRH8)
 
@@ -98,4 +98,4 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 **2024:** Bruce and the E Street band tour debut "The Power of Prayer" at Night Two in Madrid.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=11WrvJFBSjk)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - The Power Of Prayer - Madrid 14/06/2024](https://www.youtube.com/watch?v=11WrvJFBSjk)

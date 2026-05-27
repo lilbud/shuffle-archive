@@ -14,7 +14,7 @@ The two have performed together on stage in every decade since the 1970s, so it 
 
 Dion first covered Bruce in 1992 in a doo-wop version of Bruce's 1992 standard "If I Should Fall Behind," released as the lead-off track on his *Dream on Fire* album mere months after Bruce's original debuted on *Lucky Town*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TBGO_OBp9y8)
+[Watch on Youtube: Dion - If I Should Fall Behind](https://www.youtube.com/watch?v=TBGO_OBp9y8)
 
 Dion gave it his signature doo-wop treatment, and the result is so perfect that if you didn't know better, you'd think it was first written and recorded in the 1950s instead of the 1990s.
 
@@ -26,6 +26,6 @@ In a 2000 NPR interview, Dion explained why "Book of Dreams" was so special to h
 
 Let's take a listen to Dion's lovely version of "Book of Dreams." It's both faithful to the album version yet distinctly Dion. I have to imagine Bruce strongly approves.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qQLUJen4hKE)
+[Watch on Youtube: Book Of Dreams - Dion](https://www.youtube.com/watch?v=qQLUJen4hKE)
 
 © September 7, 2018 / July 21, 2019

@@ -32,7 +32,7 @@ Without exception, every song on *Tunnel of Love* concerns the consequences of c
 
 Over the weeks and months that followed, Bruce recorded song after song, all in *Nebraska* fashion at home by himself. (He'd eventually ask his bandmates to contribute overdubs to fill out the tracks.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ms1q_1m69ng)
+[Watch on Youtube: Bruce Springsteen: Inside Tunnel of Love on VH1 1988](https://www.youtube.com/watch?v=Ms1q_1m69ng)
 
 At first, the songs featured optimism, or at least acceptance.
 

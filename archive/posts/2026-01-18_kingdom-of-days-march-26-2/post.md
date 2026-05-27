@@ -26,7 +26,7 @@ post_id: 56288
 
 **1992:** *CBS This Morning* previews Bruce’s upcoming albums, *Human Touch* and *Lucky Town*.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DkC5FrphrVg)
+[Watch on Youtube: Bruce Springsteen "Human Touch" and "Lucky Town" albums on CBS This Morning 3-26-92](https://www.youtube.com/watch?v=DkC5FrphrVg)
 
 **2003:** Bruce and the E Street Band play their second of two nights in Brisbane on the Rising Tour, opening with an acoustic “Born in the U.S.A.” and featuring a rare “I’m a Rocker.”<br>
 

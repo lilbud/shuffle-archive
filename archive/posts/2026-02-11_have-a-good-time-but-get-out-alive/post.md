@@ -21,7 +21,7 @@ In the summer of 1980, the music press was abuzz with the arrival of the album t
 
 History played out a little differently, of course. Still, four decades on, the 40th anniversary reissue of *Have a Good Time But…Get Out Alive* (released today digitally, available June 19th on LP and CD) still stands as the epitome of Pittsburgh rock. The reissue sounds as fresh and fierce as ever–more so in fact, thanks to a noticeable sonic upgrade.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L3B7gGs5FyE)
+[Watch on Youtube: Have a Good Time (But Get Out Alive)](https://www.youtube.com/watch?v=L3B7gGs5FyE)
 
 Even if you were around and aware at the time, it's understandable if you missed the album's original release–it was back in the day when artists and bands had regional followings. and the Houserockers definitely had a regional sound. Grushecky attributes the album's magic to "a mixture of Pittsburgh Rock n' Roll, Jersey Shore savvy and soul, and English mystic and muscle." Credit Steve Van Zandt, Mick Ronson, and Ian Hunter for some of that infusion (they all contributed to the album), but the influence was there from the Houserockers' very first album, *Love's So Tough*.
 
@@ -29,7 +29,7 @@ Critics and fans were quick to pick up on the similarities in sound and sensibil
 
 The band even drew the notice of Bruce himself, who dedicated "The Promised Land" to "Joe and the Iron City boys" when he came through their hometown of Pittsburgh that autumn.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I1Ab0iyJitA)
+[Watch on Youtube: Bruce Springsteen - "The Promised Land" - Pittsburgh, 1980-11-30](https://www.youtube.com/watch?v=I1Ab0iyJitA)
 
 Bruce Springsteen and Joe Grushecky had already met by that time, introduced to each other by Steve Van Zandt, who arranged five tracks for *Have a Good Time* and played guitar on one.
 
@@ -55,7 +55,7 @@ I'm married to a high school special ed teacher, so I thought I could identify w
 
 Joe may lead two separate lives, but they occasionally overlap: Songs like and "First Day of School" and "Who Cares About Those Kids" (both on his 2013 *Somewhere East of Eden* album) are inspired by first-hand experience ("What affects me most is seeing that day to day struggle"), and for a long time, Joe brought music into the classroom, working with kids to mount an annual themed rock and roll show–one year a salute to the 1960s, another year to the nineties. This year, he took his students into the studio.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KTUM-GRFF2A)
+[Watch on Youtube: Who Cares About Those Kids](https://www.youtube.com/watch?v=KTUM-GRFF2A)
 
 Over the years, Joe's been an active school and community fundraiser, helping the school get new band uniforms (They wore the same ones for forty years!), computers, supplies, whatever's needed. When Pittsburgh was ravaged by Hurricane Ivan-induced floods in 2004, it was Grushecky who organized a benefit show and pulled in Springsteen.
 
@@ -67,7 +67,7 @@ One of the songs Bruce and Joe played that night was "Pumping Iron," the most en
 
 "Pumping Iron" was even one of the last songs Bruce performed live before the great pandemic of 2020 took him, Joe, and every other musician off the stage for the time being.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5TrjyioI4IQ)
+[Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen “Pumping Iron” LOD20 ~ Rose A Montana Video](https://www.youtube.com/watch?v=5TrjyioI4IQ)
 
 But the *Have a Good Time* reissue offers far more treasures for both long-time and new-found fans alike–in the form of a bonus disc of outtakes and covers, carefully transferred from cassette and decades-old reel-to-reel. "I could've made three discs from those tapes," he admitted, but he had to be careful. The reels hadn't been played in a long time, and Joe was worried they would fall apart.
 
@@ -93,7 +93,7 @@ But on the second album, "we had Steve Van Zandt, Mick Ronson, and Ian Hunter, t
 
 "Hypnotized" is another fascinating bonus track, an almost eight-minute work-in-progress track that offers fans fascinating insight into Joe and the band working out one of my favorite songs on *Have a Good Time*. (It has a similar riff-driven groove to the Rolling Stones' "Shattered.")
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Kpq0sE9m2g0)
+[Watch on Youtube: Hypnotized](https://www.youtube.com/watch?v=Kpq0sE9m2g0)
 
 Joe admitted to me that even the eight-minute outtake was actually a lot longer on the original tape: "Johnny [his son] and Brian [his sound engineer] talked me into putting it on the disc. It was twenty minutes long–we had to edit it!"
 

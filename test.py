@@ -24,7 +24,7 @@ ydl_opts = {
     },
     "verbose": False,
     "sleep_interval": 5,
-    "max_sleep_interval": 5,
+    "max_sleep_interval": 10,
     "sleep_requests": 1.5,
 }
 

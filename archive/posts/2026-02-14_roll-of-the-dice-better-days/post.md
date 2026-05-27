@@ -18,7 +18,7 @@ There are those that argue that great art is born out of heartbreak and pain, no
 
 I usually start these essays off with the studio version, but to me, the definitive cut is the video version-it's a tad longer and a ton more exuberant. Just look at the carefree expression on Bruce's face throughout the video–this is a Bruce Springsteen we had not seen before.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VmwJQ62Cs_o)
+[Watch on Youtube: Bruce Springsteen - Better Days](https://www.youtube.com/watch?v=VmwJQ62Cs_o)
 
 The lyrics hardly need annotation; "Better Days" is among Bruce's most accessible songs. He'd reached a point in his life where he'd come to terms with his inner demons (or at least was in the process of doing so), and he'd started a family of his own with new wife Patti Scialfa in California and was enjoying the fruits of his commercial success.
 
@@ -58,7 +58,7 @@ In Patti, Bruce found someone who understood him, who he could open up to, who v
 
 *Now* here's the album track for comparison. (Fun fact: that's Randy Jackson from American Idol on bass, and Soozie Tyrell contributes backing vocals, a full decade before she joined the E Street Band (in spirit if not in legal fact)).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SM3pM8HZ5fE)
+[Watch on Youtube: Better Days](https://www.youtube.com/watch?v=SM3pM8HZ5fE)
 
 In concert, "Better Days" was a staple of the 1992 and 1993 tours, but it's only been seen seventeen times since. One of those times was acoustic–a lovely guitar-and-harmonica arrangement, and a duet with Elliot Murphy in Paris from 2005:
 

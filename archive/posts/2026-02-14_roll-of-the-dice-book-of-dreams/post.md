@@ -24,7 +24,7 @@ We also find "The Honeymooners," very similar in structure to "Book of Dreams," 
 
 In "Book of Dreams," however, recorded mere months if not weeks after Bruce's second and final wedding day, the narrator fully feels the weight of what's taking place around him. One can almost imagine that it's the same groom from "The Honeymooners," a bit older and a lot wiser.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LNBU4SkW4AM)
+[Watch on Youtube: Book of Dreams](https://www.youtube.com/watch?v=LNBU4SkW4AM)
 
 "Book of Dreams" chronicles the lead-up to the singer's wedding. Most of the "action" takes place the night before, as the groom steps out from his rehearsal dinner for a few moments of quiet reflection.
 
@@ -68,15 +68,15 @@ The penultimate lines of the song are a callback to "If I Should Fall Behind" (i
 
 Fortunately, a few of those rare performances were captured on video, beginning with the song's very first performance at a homecoming show in 1992. Bruce performs "Book of Dreams" in an arrangement very close to the album, but with the lovely addition of backing vocalists during the outro.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pOZX8CqaEp4)
+[Watch on Youtube: Bruce Springsteen - BOOK OF DREAMS 1992 live](https://www.youtube.com/watch?v=pOZX8CqaEp4)
 
 During Bruce's *MTV Unplugged* appearance later that year, Bruce performed "Book of Dreams" but dropped it from the broadcast, the album and the video release. You can watch it here, though:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9HVJ8RiiUyM)
+[Watch on Youtube: Book of Dreams - Bruce Springsteen (live at Warner Hollywood Studios, Los Angeles 1992)](https://www.youtube.com/watch?v=9HVJ8RiiUyM)
 
 But my favorite performance is this one from 2005. It was the first time Bruce played "Book of Dreams" in almost thirteen years, and when performed solo, on piano, and in a small theater, the intimacy of the song shines through.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EpVduSOxvLg)
+[Watch on Youtube: Book Of Dreams (solo piano) Bruce Springsteen 4/30/2005 Glendale, AZ](https://www.youtube.com/watch?v=EpVduSOxvLg)
 
 **Book of Dreams**<br>
 **Recorded:** Late 1991<br>

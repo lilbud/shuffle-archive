@@ -12,7 +12,7 @@ They've never performed it live together, and he's not credited on the album.
 
 Nevertheless, those are unmistakably Bruce Springsteen's backing vocals on "Angel Eyes," Little Steven's standout track from his 1982 debut album, *Men Without Women*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=J9hpdwAnfxY)
+[Watch on Youtube: Angel Eyes](https://www.youtube.com/watch?v=J9hpdwAnfxY)
 
 Although technically billed as The Disciples of Soul, that's not actually the band that you hear on most of the album. Steve didn't assemble the Disciples until the album was almost complete, and while the album features E Streeters, Asbury Jukes, and Miami Horns, "Angel Eyes" is pretty close to an E Street Band song, with prominent contributions from Max, Garry, and Danny that are even easier to pick out than Bruce's vocals.
 

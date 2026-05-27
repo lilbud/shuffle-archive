@@ -18,13 +18,13 @@ Everything about it sounds ominous, from Bruce's lyrics to his idle guitar and m
 
 Let's take a listen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kdZKratq6mw)
+[Watch on Youtube: The Big Muddy](https://www.youtube.com/watch?v=kdZKratq6mw)
 
 That's one foreboding song, isn't it?
 
 It's also one of Bruce's most referential songs, so before we dive into the lyrics, let's start by acknowledging the song's title–an intentional reference to Pete Seeger's famous anti-war song, "Waist Deep in the Big Muddy."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uXnJVkEX8O4)
+[Watch on Youtube: Pete Seeger: Waist Deep in the Big Muddy](https://www.youtube.com/watch?v=uXnJVkEX8O4)
 
 Bruce's song is focused on more intimate conflicts than Pete's song, but they share a central conceit: that the waters of moral corruption run deep, and if you think you can wade in one side and out the other, you're very likely deceiving yourself–perhaps irredeemably so.
 
@@ -94,7 +94,7 @@ We do have one particularly stellar live performance to enjoy, however: Bruce pe
 
 Enjoy the official video (yes, there is one) for "The Big Muddy."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nkSoGDQ09M8)
+[Watch on Youtube: Bruce Springsteen - The Big Muddy (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=nkSoGDQ09M8)
 
 **The Big Muddy**<br>
 **Recorded:** Late 1991<br>

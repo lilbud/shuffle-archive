@@ -18,7 +18,7 @@ But as we can tell from the pull quote at the top of the article, Bruce is too m
 
 "Keep the Car Running" (a Springsteenian title if ever there was one) was the second single off of the band's second album, *Neon Bible*. It peaked at #32 on the Billboard Hot Modern Rock Tracks chart, and *Rolling Stone* ranked it as the 22nd best song of 2007.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Jvrp2bM4FpE)
+[Watch on Youtube: Keep the Car Running](https://www.youtube.com/watch?v=Jvrp2bM4FpE)
 
 Featuring an automobile theme, a driving backing track, and *Nebraska-*esque lyrics, "Keep the Car Running" invited countless comparisons of the two bands, which didn't seem to faze either of them. Bruce and Win both considered the other as an influence, and both were eager to gush about it when given the chance.
 
@@ -26,7 +26,7 @@ And yet, that early Magic Tour appearance in Ottawa was the first time the two m
 
 As it turned out, it translated pretty darn well. See for yourself: the clip below isn't the best quality, but it's more than watchable, and it's easy to feel the energy of the combined band and avid fans feeding off each other.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7KeT7xZrRf4)
+[Watch on Youtube: Bruce Springsteen and Arcade Fire, Keep the Car Runnin](https://www.youtube.com/watch?v=7KeT7xZrRf4)
 
 Bruce would perform with Win and Régine once more, five years down the road, but that 2007 night in Ottawa remains the only time to date Bruce has played "Keep the Car Running."
 
