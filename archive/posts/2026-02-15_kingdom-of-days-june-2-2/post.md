@@ -10,15 +10,15 @@ post_id: 56994
 ---
 **1973:** Bruce and the E Street Band open for Chicago at the Baltimore Civic Center. Prior to the show, Bruce stops by WHFS-FM in Bethesda for an interview and in-station performance.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NPAVhepem1A)
+[Watch on Youtube: Bruce Springsteen Radio Show 6/02/73 Bethesda, MD](https://www.youtube.com/watch?v=NPAVhepem1A)
 
 Listen to Bruce recall his memory of this show 36 years later:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KhV6i-sWdBg)
+[Watch on Youtube: Bruce Springsteen "Thunder Road" Baltimore, MD 11/20/2009](https://www.youtube.com/watch?v=KhV6i-sWdBg)
 
 **1974:** Bruce and the band headline at the Agora in Toledo, Ohio. This show is notable for its opener: the only known performance of "A Night Like This" (also known as "Angel Baby" or "Dance On Little Angel"), an outtake that remains unreleased to this day.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iBgH1Irpf2w)
+[Watch on Youtube: Bruce Springsteen - ANGEL BABY 1974 (audio)](https://www.youtube.com/watch?v=iBgH1Irpf2w)
 
 **1977:** Recording continues for Bruce's fourth album. Today the band works on "Rendezvous."<br>
 
@@ -40,7 +40,7 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 [Watch Video Highlight](https://videopress.com/embed/ITvqaqNw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ibBf1Xvalvg)
+[Watch on Youtube: Bruce Springsteen London 02/06/1981 Full Concert](https://www.youtube.com/watch?v=ibBf1Xvalvg)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/06/1981-06-02.jpg.webp)
 
@@ -78,8 +78,8 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 **2012:** The Wrecking Ball Tour makes a brief stop in Spain for a show at San Sebastian, opening with the tour premiere of "Who'll Stop the Rain."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oZ8IoszA4Y0)
+[Watch on Youtube: Bruce Springsteen - Who´ll stop the rain (San Sebastián, 2/6/2012)](https://www.youtube.com/watch?v=oZ8IoszA4Y0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5iUpbVxRILQ)
+[Watch on Youtube: Bruce Springsteen - Save my Love (San Sebastian, 2 juny 2012)](https://www.youtube.com/watch?v=5iUpbVxRILQ)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>

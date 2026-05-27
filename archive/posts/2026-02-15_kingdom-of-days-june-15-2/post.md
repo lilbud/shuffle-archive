@@ -30,11 +30,11 @@ post_id: 57091
 
 **1983:** At The Hit Factory in New York City, Bruce records "Cynthia" and "Don't Back Down." The former won't be released for another fifteen years; the latter for more than forty.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wzCpphwK8vk)
+[Watch on Youtube: Cynthia (Studio Outtake - 1983)](https://www.youtube.com/watch?v=wzCpphwK8vk)
 
 **1985:** The Born in the U.S.A. Tour moves on to West Germany for two nights, starting with a show in Frankfurt.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TK3GxeQpP1w)
+[Watch on Youtube: Bruce Springsteen Frankfurt 15/6/1985 Full Concert](https://www.youtube.com/watch?v=TK3GxeQpP1w)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/frankfurt.jpg.webp)
 
@@ -42,21 +42,21 @@ post_id: 57091
 
 **1988:** "Bobby Jean" makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TY8qIOyupTs)
+[Watch on Youtube: Bruce Springsteen Live in Rome 1988](https://www.youtube.com/watch?v=TY8qIOyupTs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=39n56E3cxYQ)
+[Watch on Youtube: Glory Days - Bruce Springsteen (live at the Stadio Flaminio, Rome 1988)](https://www.youtube.com/watch?v=39n56E3cxYQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mrTntXBu9sQ)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Rome, Italy - June 15, 1988 [audio]](https://www.youtube.com/watch?v=mrTntXBu9sQ)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/7ab1b174cfb3545ff0ea7a43b1923906-tunnel-of-love-bruce-springsteen.jpg.webp)
 
 **1992:** World Tour 1992 kicks off with the first of two shows at the Globe Arena in Stockholm. A few songs are captured in professional quality video, and you can watch them below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DQiBMawuHE0)
+[Watch on Youtube: Bruce Springsteen - Stockholm 92 (PROSHOT) - Part 1](https://www.youtube.com/watch?v=DQiBMawuHE0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DD1TSwFDyRI)
+[Watch on Youtube: Bruce Springsteen - Stockholm 92 (PROSHOT) - Part 2](https://www.youtube.com/watch?v=DD1TSwFDyRI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ycetI2UqaIQ)
+[Watch on Youtube: Bruce Springsteen - Hungry Heart (Stockholm 92 - PROSHOT)](https://www.youtube.com/watch?v=ycetI2UqaIQ)
 
 [Watch Video Highlight](https://videopress.com/embed/UmQMQHKN)
 
@@ -66,7 +66,7 @@ post_id: 57091
 
 [Watch Video Highlight](https://videopress.com/embed/wGZfQBl3)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s9Afum2mp5E)
+[Watch on Youtube: Bruce Springsteen - I need a train to Offenbach](https://www.youtube.com/watch?v=s9Afum2mp5E)
 
 **2000:** Night Two of the final ten-night stand of the Reunion Tour opens with "Further On (Up the Road)" at Madison Square Garden and features another powerful "American Skin (41 Shots)."<br>
 
@@ -74,7 +74,7 @@ post_id: 57091
 
 [Watch Video Highlight](https://videopress.com/embed/EOBmU7ZO)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Mn4-NPZtctc)
+[Watch on Youtube: American Skin  June 15th 2000](https://www.youtube.com/watch?v=Mn4-NPZtctc)
 
 **2004:** Patti Scialfa releases her long-awaited second album, *23rd Street Lullaby* and plays a promotional free mini-concert in New York City for NBC's *Today*. Watch her full performance below.<br>
 
@@ -88,17 +88,17 @@ post_id: 57091
 
 **2005:** The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres "Countin' on a Miracle."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wm_jQkeLGxM)
+[Watch on Youtube: Bruce Springsteen - Countin' on a Miracle (Live 2005-06-15)](https://www.youtube.com/watch?v=wm_jQkeLGxM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jiRXwCXeLZ8)
+[Watch on Youtube: Bruce Springsteen - INTO THE FIRE 2005  live](https://www.youtube.com/watch?v=jiRXwCXeLZ8)
 
 **2013:** Bruce makes his first appearance at the new Wembley Stadium, where he plays the *Darkness on the Edge of Town* album from start to finish.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bhIGUfHGmrg)
+[Watch on Youtube: Bruce Springsteen - Land Of Hope And Dreams (live @Wembley, London)](https://www.youtube.com/watch?v=bhIGUfHGmrg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Tk4b0QntN8g)
+[Watch on Youtube: Bruce Springsteen Lost In The Flood Wembley Stadium 15-06-13](https://www.youtube.com/watch?v=Tk4b0QntN8g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WNFI4xrZ5e0)
+[Watch on Youtube: Bruce Springsteen Streets Of Fire Wembley Stadium 15-06-13](https://www.youtube.com/watch?v=WNFI4xrZ5e0)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2013-06-15.jpg.webp)
 
@@ -106,4 +106,4 @@ post_id: 57091
 
 **2025:** When the Land of Hope and Dreams Tour stops for a night in Prague, Bruce and the E Street Band open their show with "Summertime Blues," a tour premiere.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_hnpvqyMz-M)
+[Watch on Youtube: Bruce Springsteen - Summertime Blues - Praha 2025 Live in Prague](https://www.youtube.com/watch?v=_hnpvqyMz-M)

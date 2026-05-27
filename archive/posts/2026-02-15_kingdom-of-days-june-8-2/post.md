@@ -18,7 +18,7 @@ post_id: 57023
 
 **1978:** The Darkness Tour stops in Madison for a show at the Dane County Memorial Coliseum.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qYS6FRjrkU8)
+[Watch on Youtube: Bruce Springsteen Madison Wiconsin 8/6/1978 Full Concert](https://www.youtube.com/watch?v=qYS6FRjrkU8)
 
 [Watch Video Highlight](https://videopress.com/embed/OBkPeYRa)
 
@@ -32,7 +32,7 @@ post_id: 57023
 
 **1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "Glory Days," "Darlington County," "My Hometown," and "Born in the U.S.A." all make their live debuts. Listen to this historic bar gig below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_vH_efNE9ZU)
+[Watch on Youtube: Bruce Springsteen (bootleg) - Stone Pony June 6th 1984 (full album)](https://www.youtube.com/watch?v=_vH_efNE9ZU)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-06-08a.jpg.webp)
 
@@ -40,7 +40,7 @@ post_id: 57023
 
 **1985:** The stadium-breaker! Bruce's encore of "Twist and Shout" almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hfIsMDrMlSY)
+[Watch on Youtube: Bruce Springsteen Gothenburg 8/6/1985 Full Concert](https://www.youtube.com/watch?v=hfIsMDrMlSY)
 
 [Watch Video Highlight](https://videopress.com/embed/tmFvbnx2)
 
@@ -48,21 +48,21 @@ post_id: 57023
 
 **1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs "If I Should Fall Behind"–written for the occasion–for the very first time.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=om5UcNKA5XY)
+[Watch on Youtube: News coverage: Bruce Springsteen marries Patti Scialfa - June 9, 1991](https://www.youtube.com/watch?v=om5UcNKA5XY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1991-06-08.jpg.webp)
 
 **2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates "Tougher Than the Rest" for the occasion.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=k7xqgp6x-44)
+[Watch on Youtube: Bruce Springsteen  -  YOU'RE MISSING (live @ Firenze)](https://www.youtube.com/watch?v=k7xqgp6x-44)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9fKxNb7yDkM)
+[Watch on Youtube: Bruce Springsteen -  TOUGHER THAN THE REST live@Firenze 2003](https://www.youtube.com/watch?v=9fKxNb7yDkM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ebU9rCUUjrk)
+[Watch on Youtube: Bruce Springsteen - Glory Days  live@Firenze 2003](https://www.youtube.com/watch?v=ebU9rCUUjrk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1YBD8eJ-k44)
+[Watch on Youtube: Springsteen a Firenze - 2003](https://www.youtube.com/watch?v=1YBD8eJ-k44)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-Vf9BxeFYIM)
+[Watch on Youtube: Bruce Springsteen Florence 8/6/2003 Full Concert](https://www.youtube.com/watch?v=-Vf9BxeFYIM)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

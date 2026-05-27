@@ -16,9 +16,9 @@ post_id: 57108
 
 **1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record for their upcoming album, *Darkness on the Edge of Town*. Listen to their early cuts of "One Way Street" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" (neither of which will make the album) from this date below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DLlsJgQPNIY)
+[Watch on Youtube: Bruce Springsteen - One Way Street (V1) - Studio Take, Atlantic Studios, NYC (June 17, 1977)](https://www.youtube.com/watch?v=DLlsJgQPNIY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iB7xRtFOrZ8)
+[Watch on Youtube: Bruce Springsteen - Fire (V1) - Studio Take, Atlantic Studios, New York (June 17, 1977)](https://www.youtube.com/watch?v=iB7xRtFOrZ8)
 
 **1978:** Bruce and the E Street Band play to a half-sold Kiel Auditorium in St. Louis on the Darkness Tour. In attendance is 18-year-old Michael Stipe, who will share a stage with Bruce decades later when he fronts the rock band R.E.M.<br>
 
@@ -28,27 +28,27 @@ post_id: 57108
 
 **1992:** At Night Two in Stockholm and for World Tour 1992 itself, Bruce plays "All or Nothin' at All" and "Real Man" for the first time.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W0o4Bzl2rx0)
+[Watch on Youtube: All Or Nothin' At All  Bruce SpringsteenJune 17,1992 Stockholm](https://www.youtube.com/watch?v=W0o4Bzl2rx0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=70nhL9xEvw8)
+[Watch on Youtube: Real Man Bruce Springsteen June 17, 1992 Stockholm, Sweeden](https://www.youtube.com/watch?v=70nhL9xEvw8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fmIBGYgbsXs)
+[Watch on Youtube: Real World Bruce Springsteen June 17, 1992 Stockholm, Sweeden](https://www.youtube.com/watch?v=fmIBGYgbsXs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=k-WgU8bSNGc)
+[Watch on Youtube: Bruce Springsteen Stockholm 17/06/1992 Full Concert](https://www.youtube.com/watch?v=k-WgU8bSNGc)
 
 **1999:** "I'm on Fire" makes its Reunion Tour debut when Bruce and the E Street Band make a Reunion Tour stop at Weserstadion in Bremen, Germany. During the pre-show soundcheck, Bruce plays the first known performance of "Waitin' on a Sunny Day."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fdK4HJpdQ10)
+[Watch on Youtube: Bruce Springsteen Waitin' on a Sunny Day Bremen, Germany soundcheck performance 17/06/1999](https://www.youtube.com/watch?v=fdK4HJpdQ10)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=v-Rrlig4Fuc)
+[Watch on Youtube: Bruce Springsteen Trouble River Bremen, Germany soundcheck performance 17/06/1999](https://www.youtube.com/watch?v=v-Rrlig4Fuc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yWhUWT1LnUM)
+[Watch on Youtube: I'm On Fire Bruce Springsteen 6/17/1999 Bremen, GER](https://www.youtube.com/watch?v=yWhUWT1LnUM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Z72MEw1ZjgM)
+[Watch on Youtube: Bruce Springsteen - Working on the highway - Germany 1999](https://www.youtube.com/watch?v=Z72MEw1ZjgM)
 
 **2000:** At Night Three of ten at the Reunion Tour-closing Madison Square Garden stand, Bruce and the band play "The E Street Shuffle" for the first time in 25 years. (Bruce seems to have forgotten he'd ever played it at all.) Bruce opens the show with his third-ever performance of "Code of Silence."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lVdLGGyqm8I)
+[Watch on Youtube: Bruce Springsteen Madison Square Garden New York 17/06/2000 Full Concert](https://www.youtube.com/watch?v=lVdLGGyqm8I)
 
 **2003:** Night Two in Helsinki on the Rising Tour. "You're Missing" drops out of the set list for the first time, replaced by "The River," as the tour set list begins its customary loosening toward its final months.<br>
 
@@ -60,21 +60,21 @@ post_id: 57108
 
 **2006:** Bruce and the Sessions Band make a tour stop at the DTE Energy Music Theater in Clarkston, Michigan. The performance of "Bring ‘Em Home" on the *American Land* edition of *We Shall Overcome* was recorded at this show, as was the official video for "Pay Me My Money Down."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BYF8IntUFZI)
+[Watch on Youtube: Bruce Springsteen - Pay Me My Money Down (Tour Version Video)](https://www.youtube.com/watch?v=BYF8IntUFZI)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2006-06-17.jpg.webp)
 
 **2012:** Bruce brings the Wrecking Ball Tour to Madrid and plays "Spanish Eyes" for the very first time. Southside Johnny is in town and joins Bruce and the E Street Band for a hilarious "Talk to Me" and "Twist and Shout."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eKeX6xff7-4)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Madrid 2012 (PROSHOT)](https://www.youtube.com/watch?v=eKeX6xff7-4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=76aUzAhPQ1I)
+[Watch on Youtube: Bruce Springsteen   Spanish Eyes  2012 06 17 Madrid, Spain CamMix HD 720p](https://www.youtube.com/watch?v=76aUzAhPQ1I)
 
 **2016:** Bruce opens his River show in Munich with the tour premiere of the Darkness Tour arrangement of "Prove It All Night" and closes with a solo acoustic guitar performance of "For You."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TKtwd2fedYQ)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Prove it all night [Münich, ALE - 17.JUN.2016]](https://www.youtube.com/watch?v=TKtwd2fedYQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6tYK2LVQ8yc)
+[Watch on Youtube: Bruce Springsteen - Waitin' On A Sunny Day - Live Olympiastadion Munich 2016-June-17](https://www.youtube.com/watch?v=6tYK2LVQ8yc)
 
 **2020:** Bruce releases Episode 6 ("Down to the River to Pray") of his *From My Home to Yours* radio show on E Street Radio. This episode is a somber one: as the coronavirus pandemic rages and claims lives, Bruce pays his respects to the fallen.<br>
 
@@ -84,4 +84,4 @@ post_id: 57108
 
 **2024:** Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering "[Cover Me.](../1984-01-04_roll-of-the-dice-cover-me/post.md)"<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GNYtVhlI3f8)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Cover Me - Madrid 17/06/2024](https://www.youtube.com/watch?v=GNYtVhlI3f8)

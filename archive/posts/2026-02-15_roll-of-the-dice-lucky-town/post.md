@@ -14,7 +14,7 @@ But by the time the song ends, we realize that Bruce has turned "Hungry Heart" o
 
 And with that revelation about the title track for Bruce's tenth studio album, we realize that we are listening to a very different Bruce Springsteen than we've ever heard before.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NMTrHfiOsmg)
+[Watch on Youtube: Lucky Town](https://www.youtube.com/watch?v=NMTrHfiOsmg)
 
 "Lucky Town" is a return to form for Bruce. Freed from the overly lavish production and arrangements that weighed down much of *Human Touch*, "Lucky Town" saunters its way over the rise. It's also an intensely personal song not just lyrically, but musically: Bruce plays every instrument on the tracks but the drums.
 
@@ -64,7 +64,7 @@ Those final lines still resonate years later, and as a personal credo you could 
 
 "Lucky Town" made its official live debut at an intimate, private show for Sony insiders; the rest of us were introduced to it when Bruce played it as his first-ever performance on *Saturday Night Live*, more than a month before he kicked off his world tour.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kisUZm1yMpQ)
+[Watch on Youtube: Bruce Springsteen - Lucky Town (9-5-1992, Rehearsal)](https://www.youtube.com/watch?v=kisUZm1yMpQ)
 
 If you couldn't stay up late enough for SNL or forgot to record it, your next chance to see Bruce perform it for free was on his episode of *MTV Unplugged*.
 
@@ -72,11 +72,11 @@ If you couldn't stay up late enough for SNL or forgot to record it, your next ch
 
 "Lucky Town" has made sparing appearances since the 1992-93 touring years, and most of those were on Bruce's solo acoustic tour in 2005. Pared down to just his guitar and harmonica, the intimacy and satisfaction expressed in the song shine through even more strongly than in the full-band version.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WIzXbXIf9p4)
+[Watch on Youtube: Bruce Springsteen - Lucky Town (Solo Acoustic) - E. Rutherford-11/17/05](https://www.youtube.com/watch?v=WIzXbXIf9p4)
 
 But the full-on E Street Band version shines too. I'll leave you with a great recent performance, from Rome on the Wrecking Ball Tour, recorded in outstanding quality. (The full show is available for purchase as part of Bruce's official archive series.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aX6dOswftlc)
+[Watch on Youtube: Lucky Town (Live at Ippodromo delle Capannelle, Rome, Italy - 7/11/2013)](https://www.youtube.com/watch?v=aX6dOswftlc)
 
 **Lucky Town**<br>
 **Recorded:** September 1992-January 1992<br>

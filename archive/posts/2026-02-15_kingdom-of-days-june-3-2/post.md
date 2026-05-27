@@ -10,9 +10,9 @@ post_id: 56995
 ---
 **1974:** Bruce and the band play the Agora in Cleveland. The show is recorded by WMMS-FM in Cleveland and is well worth a listen for its superb sound quality and rare performances of "Tokyo," "You Never Can Tell," and "Let the Four Winds Blow."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Clmk7R1mlTI)
+[Watch on Youtube: Bruce Springsteen - YOU NEVER CAN TELL  1974 (audio)](https://www.youtube.com/watch?v=Clmk7R1mlTI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V_MSbAcVExM)
+[Watch on Youtube: Bruce Springsteen - And The Band Played [Tokyo] (Super RARE live!)](https://www.youtube.com/watch?v=V_MSbAcVExM)
 
 **1977:** Recording continues for Bruce's fourth album. Today the band works on "Frankie," "Candy's Boy," and "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)."<br>
 
@@ -32,9 +32,9 @@ post_id: 56995
 
 **1999:** Reunion Night Two in Paris brings a setlist shake-up, featuring the first-ever performances of "Lion's Den" and "Loose Ends," plus the welcome return of "Racing in the Street."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l7GHh5unGfg)
+[Watch on Youtube: Lion's Den](https://www.youtube.com/watch?v=l7GHh5unGfg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8CgiUjpqmQY)
+[Watch on Youtube: Bruce Springsteen loose ends paris June 3rd 1999](https://www.youtube.com/watch?v=8CgiUjpqmQY)
 
 [Watch Video Highlight](https://videopress.com/embed/KajRzjKw)
 
@@ -52,7 +52,7 @@ post_id: 56995
 
 [Watch Video Highlight](https://videopress.com/embed/1qRVUZKR)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rV8Coai6W0k)
+[Watch on Youtube: Bruce Springsteen - Ramrod (With The Seeger Sessions) (2006-06-03)](https://www.youtube.com/watch?v=rV8Coai6W0k)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/The_Arizona_Republic_2006_06_07_Page_458-scaled.jpg.webp)
 
@@ -60,7 +60,7 @@ post_id: 56995
 
 [Watch Video Highlight](https://videopress.com/embed/KbsRPLnm)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4xz4QdYeTDM)
+[Watch on Youtube: Rock in Rio Lisboa - Bruce Springsteen](https://www.youtube.com/watch?v=4xz4QdYeTDM)
 
 **2013:** Bruce plays San Siro in Milan, always the site of amazing shows. Bruce delivers a full album performance of *Born in the U.S.A.*, along with the tour premiere of "Long Tall Sally."<br>
 
@@ -70,11 +70,11 @@ post_id: 56995
 
 **2016:** A stunning River show in Coventry, England: Bruce opens with the tour premieres of "For You" and "Something in the Night," and tour premieres "Save My Love," "Travelin' Band," and "Seven Nights to Rock" as well.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QWZTduaV8vY)
+[Watch on Youtube: Bruce Springsteen - 2016-06-03 - Something In The Night](https://www.youtube.com/watch?v=QWZTduaV8vY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yVI_YWnlTmI)
+[Watch on Youtube: 2016-06-03 Bruce Springsteen - Save My Love](https://www.youtube.com/watch?v=yVI_YWnlTmI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qsosWEaYqwg)
+[Watch on Youtube: Bruce Springsteen Sherry Darling Coventry 3rd June 2016](https://www.youtube.com/watch?v=qsosWEaYqwg)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Penarth_Times_Thu__Jun_9__2016_-scaled.jpg.webp)
 

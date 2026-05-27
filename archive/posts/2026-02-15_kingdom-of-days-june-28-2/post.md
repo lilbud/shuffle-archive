@@ -12,7 +12,7 @@ post_id: 57514
 
 **1973:** David Sancious rejoins the band as recording sessions continue for Bruce's second album at 914 Sound Studios in New York City. Listen to an early take of "New York City Serenade" from this session below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rCVdZiAgGWY)
+[Watch on Youtube: Bruce Springsteen - New York City Serenade (demo)](https://www.youtube.com/watch?v=rCVdZiAgGWY)
 
 **1974:** A scheduled E Street Band gig in Memphis is cancelled.<br>
 
@@ -34,33 +34,33 @@ post_id: 57514
 
 **2003:** Bruce and the E Street Band play their final European Rising show in Milan during an intense thunderstorm. Check out the video below to see how intense the rain was during the performance, and for the beautiful performance (and tour premiere) of "Follow That Dream."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2Pi79S-DHxg)
+[Watch on Youtube: waitin' on a sunny day Milano 28 giugno 2003](https://www.youtube.com/watch?v=2Pi79S-DHxg)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAR7_v5okUXG4AZFkBe04Nc)
 
 **2005:** Bruce plays his final European solo acoustic show at ICC Berlin, where Bruce tour premieres "Sinaloa Cowboys" and Wolfgang Niedecken guest-stars for the tour premiere of "Hungry Heart."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iO4xvbDaCHg)
+[Watch on Youtube: Bruce Springsteen Paradise Berlin 2005](https://www.youtube.com/watch?v=iO4xvbDaCHg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E2tBZDyBbqM)
+[Watch on Youtube: Bruce Springsteen - SINALOA COWBOYS 2005 live](https://www.youtube.com/watch?v=E2tBZDyBbqM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QLpLSeluFsw)
+[Watch on Youtube: Bruce Springsteen This hard Land Berlin 2005](https://www.youtube.com/watch?v=QLpLSeluFsw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JtaQtk3HVrM)
+[Watch on Youtube: Bruce Springsteen Ramrod Berlin 2005 ICC](https://www.youtube.com/watch?v=JtaQtk3HVrM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XMzlrAeyQ-c)
+[Watch on Youtube: Bruce Springsteen Dream Baby dream Berlin 2005](https://www.youtube.com/watch?v=XMzlrAeyQ-c)
 
 **2009:** Bruce and the E Street Band headline Hard Rock Calling in London's Hyde Park, where Brian Fallon repeats his "No Surrender" guest appearance from the day before, and Bruce repeats as well by joining The Gaslight Anthem for "The '59 Sound" during their own set. Bruce opens the show (appropriately) with "London Calling." This show is filmed, broadcast, and released on DVD and Blu-ray as *London Calling: Live in Hyde Park*.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ul0XCTeJx_o)
+[Watch on Youtube: The Gaslight Anthem & Bruce Springsteen - The '59 Sound (PROSHOT)](https://www.youtube.com/watch?v=Ul0XCTeJx_o)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJ3gKh8Ty5pZMnACTqJThy_0Ge7B3hKft)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xg7tlh-H6_Y)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - She's the One (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=Xg7tlh-H6_Y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8j1aCBRWlc8)
+[Watch on Youtube: Racing In The Street (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=8j1aCBRWlc8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=P5pNqBhz8uI)
+[Watch on Youtube: The Rising -The Song (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=P5pNqBhz8uI)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Evening_Standard_2009_06_29_A23.jpg.webp)
 
@@ -70,6 +70,6 @@ post_id: 57514
 
 **2023:** "Twist and Shout" makes its tour debut when Bruce and the E Street Band complete their three-night stand in Gothenburg, Sweden.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ivbJvguHt90)
+[Watch on Youtube: BRUCE SPRINGSTEEN & The E Street Band - Bobby Jean- Gothenburg - 2023-06-28](https://www.youtube.com/watch?v=ivbJvguHt90)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GLSfgcSGwho)
+[Watch on Youtube: Bruce Springsteen - Twist and Shout - Gothenburg 28-June](https://www.youtube.com/watch?v=GLSfgcSGwho)

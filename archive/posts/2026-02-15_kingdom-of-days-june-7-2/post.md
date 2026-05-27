@@ -26,7 +26,7 @@ post_id: 57022
 
 **1981:** In Birmingham, Pete Townshend makes a guest appearance in the encores of the first show of the last European stand of the River Tour. In the main set, Bruce performs "Drive All Night" for the last time for 24 years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SWQc_xELokY)
+[Watch on Youtube: Bruce Springsteen - Drive all night (Birmingham 1981)](https://www.youtube.com/watch?v=SWQc_xELokY)
 
 [Watch Video Highlight](https://videopress.com/embed/CfWATe2k)
 
@@ -34,15 +34,15 @@ post_id: 57022
 
 **1992:** MTV's Guide to Summer features a spotlight on Bruce's upcoming World Tour 1992.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V8GA_hlYbzg)
+[Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
 **1999:** "My Hometown" makes its Reunion Tour premiere at the Estadio de la Comunidad in Madrid.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=95dOlNZgJoQ)
+[Watch on Youtube: bruce springsteen  madrid la peineta 1999 TVE, canal plus, a](https://www.youtube.com/watch?v=95dOlNZgJoQ)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAwq7zti4JD-pLTNdxeooQ8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D5qUFPcnuJU)
+[Watch on Youtube: Light of day with a snippet of 'Wipe out' of The surfaris](https://www.youtube.com/watch?v=D5qUFPcnuJU)
 
 **2005:** Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of "Open All Night" and "Lost in the Flood."<br>
 
@@ -50,29 +50,29 @@ post_id: 57022
 
 [Watch Video Highlight](https://videopress.com/embed/IT2k7cHu)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=17A12QFVytc)
+[Watch on Youtube: Bruce Springsteen - The River (Live Milan 07 June 2005)](https://www.youtube.com/watch?v=17A12QFVytc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=K3bjY14BQf0)
+[Watch on Youtube: Bruce  Springsteen - BLACK COWBOYS (live 2005)](https://www.youtube.com/watch?v=K3bjY14BQf0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=obE4S0udwos)
+[Watch on Youtube: Bruce Springsteen - MY BEAUTIFUL REWARD 2005 live  (on pump organ)](https://www.youtube.com/watch?v=obE4S0udwos)
 
 **2009:** At the final night in Sweden for the Working on a Dream Tour, Bruce tour premieres "The River," "Fade Away," (its first E Street outing since 1981) and "Surprise, Surprise."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MT52j7jnDcc)
+[Watch on Youtube: Bruce Springsteen - The River (Live @ Stockholm Stadium 2009-06-07)](https://www.youtube.com/watch?v=MT52j7jnDcc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s6a9QUBTjUk)
+[Watch on Youtube: Bruce Springsteen & the E Street Band - Fade Away, Stockholm 7th June 2009](https://www.youtube.com/watch?v=s6a9QUBTjUk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HnOvrSuUTEE)
+[Watch on Youtube: Bruce Springsteen - Surprise Surprise - Stockholm 2009-06-07](https://www.youtube.com/watch?v=HnOvrSuUTEE)
 
 **2012:** Bruce plays a marathon show at San Siro in Milan, Italy. At over three and a half hours, it's one of his longest shows to date.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zAKxhmdtQow)
+[Watch on Youtube: Bruce Springsteen MULTICAM PROMO MILANO We take care of our own San Siro 07/06/2012](https://www.youtube.com/watch?v=zAKxhmdtQow)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=88SjIRsN-Dg)
+[Watch on Youtube: Bruce Springsteen Spirit in the night San Siro Milano 07/06/2012 FULL HD](https://www.youtube.com/watch?v=88SjIRsN-Dg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aVOiSl3NEq0)
+[Watch on Youtube: Bruce Springsteen Hungry heart San Siro Milano 07/06/2012 FULL HD](https://www.youtube.com/watch?v=aVOiSl3NEq0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vfe2MbjOf4E)
+[Watch on Youtube: Bruce Springsteen Bobby Jean San Siro Milano 07/06/2012](https://www.youtube.com/watch?v=vfe2MbjOf4E)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -82,4 +82,4 @@ post_id: 57022
 
 **2025:** Hometown hero Sir Paul McCartney makes a surprise appearance with Bruce and the E Street Band on their second of two nights at Anfield in Liverpool, tour debuting "Can't Buy Me Love" and "Kansas City."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=X0o4MT_Lwxo)
+[Watch on Youtube: Bruce Springsteen brings out Paul McCartney in Liverpool - 07/06/2025](https://www.youtube.com/watch?v=X0o4MT_Lwxo)

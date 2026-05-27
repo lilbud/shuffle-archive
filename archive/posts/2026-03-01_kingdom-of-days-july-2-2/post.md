@@ -72,7 +72,7 @@ post_id: 57559
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=96VumdFyljA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LPLW98Q7F40)
+[Watch on Youtube: I'm on Fire, Bruce Springsteen Oslo 2 July 2023](https://www.youtube.com/watch?v=LPLW98Q7F40)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jeSwc-krCZA)
 

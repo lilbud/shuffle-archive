@@ -28,21 +28,21 @@ post_id: 57122
 
 **1981:** Bruce and the E Street Band play at Max Weinberg's wedding in East Orange, New Jersey.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BYSy8wMTC34)
+[Watch on Youtube: Max Wedding](https://www.youtube.com/watch?v=BYSy8wMTC34)
 
 **1988:** At Night Two at Villa Park in Birmingham, England, on the Tunnel of Love Tour, Edwin Starr drops by to perform "War" with the band.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/BFpYsmqK)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IWi4gO40EH0)
+[Watch on Youtube: Bruce Springsteen Birmingham 22/6/1988](https://www.youtube.com/watch?v=IWi4gO40EH0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=w7GBMX0rTEc)
+[Watch on Youtube: Bruce Springsteen with Edwin Starr - War](https://www.youtube.com/watch?v=w7GBMX0rTEc)
 
 **2000:** The Reunion Tour's last stand reaches its halfway point on Night Five at Madison Square Garden. Surprises continue starting with the opener: the premiere of "Another Thin Line." Late in the set, lucky fans get the tour premiere of "Secret Garden" as well, plus a guest appearance by Soozie Tyrell on a beautiful arrangement of "The Ghost of Tom Joad."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qRFjgNwt)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0oSrbygepJ8)
+[Watch on Youtube: Bruce Springsteen - Madison Square Garden 2000 (Part 1)](https://www.youtube.com/watch?v=0oSrbygepJ8)
 
 **2003:** Night Two in Gothenburg on the Rising Tour.<br>
 
@@ -54,7 +54,7 @@ post_id: 57122
 
 **2006:** Bruce opens with the debut of a new song at his Seeger Sessions show in Madison Square Garden: "American Land." This is the performance that is included on the *American Land* edition of *We Shall Overcome: The Seeger Sessions*.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tpeisHYbKdE)
+[Watch on Youtube: Bruce Springsteen - American Land (Live tour Video)](https://www.youtube.com/watch?v=tpeisHYbKdE)
 
 [Watch Video Highlight](https://videopress.com/embed/WbnXwnwr)
 
@@ -66,36 +66,36 @@ post_id: 57122
 
 **2012:** Bruce and the E Street Band continue the Wrecking Ball Tour's mini-leg through England with a show at Ethiad Stadium in Manchester, where Curt Ramm takes a header to the stage during his solo on "Twist and Shout," to the amazement and amusement of Bruce, who has trouble keeping his composure for the rest of the song.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cAVV77kbSyc)
+[Watch on Youtube: Bruce Springsteen - Etihad Stadium Manchester 2012 Twist and shout](https://www.youtube.com/watch?v=cAVV77kbSyc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AXIMaw09zps)
+[Watch on Youtube: Springsteen Etihad Manchester 22 June 2012 - Part 2](https://www.youtube.com/watch?v=AXIMaw09zps)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gpGjGE-FUjU)
+[Watch on Youtube: Bruce Springsteen & The E Street Band Save My Love live Manchester 22 June 2012](https://www.youtube.com/watch?v=gpGjGE-FUjU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gU-b24q4zmw)
+[Watch on Youtube: Bruce Springsteen - Out In The Street -  Etihad -  Manchester -22nd June 2012 - High Quality](https://www.youtube.com/watch?v=gU-b24q4zmw)
 
 **2013:** A rarity: Bruce and the E Street Band have an opening act when they play at Nijmegen in The Netherlands: Jamie N Commons and The Black Crowes kick off the night. Bruce opens his set with an acoustic "The Ghost of Tom Joad" and performs the entire *Darkness on the Edge of Town* album.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ln8CSmYIgJI)
+[Watch on Youtube: Bruce Springsteen - So Young And In Love (HD) (Live @ Goffertpark Nijmegen, 22-06-2013)](https://www.youtube.com/watch?v=Ln8CSmYIgJI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mP84YtM3lfo)
+[Watch on Youtube: Bruce Springsteen "The River", Goffertpark Nijmegen, 22-06-2013](https://www.youtube.com/watch?v=mP84YtM3lfo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Y97eccXdw6c)
+[Watch on Youtube: Bruce Springsteen - Nijmegen - Twist & Shout (60.000 people and rain :) MultiCam](https://www.youtube.com/watch?v=Y97eccXdw6c)
 
 **2016:** The River Tour starts a northern European swing with a show at Telia Parken in Copenhagen, where Bruce tour premieres "Rendezvous," "Blinded by the Light," [We Take Care](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md) [of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," and "Pink Cadillac."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mwlCGEQVK5w)
+[Watch on Youtube: Bruce Springsteen - Pink Cadillac - Copenhagen 2016](https://www.youtube.com/watch?v=mwlCGEQVK5w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-c4toZuJ0K8)
+[Watch on Youtube: Bruce Springsteen - 2016-06-22 - Copenhagen Parken, DK - The River](https://www.youtube.com/watch?v=-c4toZuJ0K8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=amGRRJVYmsw)
+[Watch on Youtube: Bruce Springsteen - 2016-06-22 - Copenhagen Parken, DK - I'm On Fire](https://www.youtube.com/watch?v=amGRRJVYmsw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Oc4uORxf-Ss)
+[Watch on Youtube: Bruce Springsteen - 2016-06-22 - Copenhagen Parken, DK - Thunder Road](https://www.youtube.com/watch?v=Oc4uORxf-Ss)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2024:** "Radio Nowhere" makes another appearance on Night Two in Barcelona, this time with Jay Weinberg sitting in on drums.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wN86Ftuj2Lc)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Radio Nowhere with Jay Weinberg - Barcelona 22/06/2024](https://www.youtube.com/watch?v=wN86Ftuj2Lc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lUZFlq5ghaA)
+[Watch on Youtube: Jay Weinberg - Bruce Springsteen & The E Street Band "Radio Nowhere" Live Drum Cam](https://www.youtube.com/watch?v=lUZFlq5ghaA)

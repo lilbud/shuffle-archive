@@ -34,33 +34,33 @@ post_id: 57121
 
 Wondering how that show came to happen? Watch the interview below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eEJjBDNGmyU)
+[Watch on Youtube: Remembering Bruce Springsteen's Village visit in 1984](https://www.youtube.com/watch?v=eEJjBDNGmyU)
 
 **1985:** Bruce plays in Italy for the very first time, at the San Siro in Milan, home to many legendary Springsteen shows yet to come.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Cj7LIPEemPg)
+[Watch on Youtube: Bruce Springsteen - Born in the U.S.A. - Milano  21.06.1985](https://www.youtube.com/watch?v=Cj7LIPEemPg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5BVwfeDgy1M)
+[Watch on Youtube: Bruce Springsteen - Dancing in the dark - Milano 21.06.1985](https://www.youtube.com/watch?v=5BVwfeDgy1M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZZBxn1E4m-A)
+[Watch on Youtube: Bruce Springsteen - Cadillac Ranch - Milano 21.06.1985](https://www.youtube.com/watch?v=ZZBxn1E4m-A)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4_4VTSVJSRA)
+[Watch on Youtube: Bruce Springsteen - Downbound train - Milano 21.06.1985](https://www.youtube.com/watch?v=4_4VTSVJSRA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XkQhpEdDfHU)
+[Watch on Youtube: Bruce Springsteen - Because the night - Milano 21.06.1985](https://www.youtube.com/watch?v=XkQhpEdDfHU)
 
 [Watch Video Highlight](https://videopress.com/embed/kfEuI4ZX)
 
 [Watch Video Highlight](https://videopress.com/embed/yTH4dGLJ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5rDGHm_JSFo)
+[Watch on Youtube: Bruce Springsteen - Can't help falling in love - Milano 21.06.1985](https://www.youtube.com/watch?v=5rDGHm_JSFo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fKER3FQJQ3g)
+[Watch on Youtube: Bruce Springsteen Milan 21/06/1985 Full Concert](https://www.youtube.com/watch?v=fKER3FQJQ3g)
 
 **1988:** The Tunnel of Love Tour stops at Villa Park in Birmingham, England, for the first of two nights. "One Step Up" makes its final tour appearance at this show.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aLPJR6LC8pg)
+[Watch on Youtube: Bruce Springsteen, Villapark 1988, Tunnel of Love Tour](https://www.youtube.com/watch?v=aLPJR6LC8pg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eJEVlVlXDPw)
+[Watch on Youtube: Springsteen fans breakfast news clip - 'Boom Boom' clip - Villa Park 1988](https://www.youtube.com/watch?v=eJEVlVlXDPw)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCgA3ja676YD_rnoFLX9Rh4)
 
@@ -76,7 +76,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch Video Highlight](https://videopress.com/embed/2aeAI8cl)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BjhQHD8t1gk)
+[Watch on Youtube: Bruce Springsteen. Ullevi, Göteborg. 21st Of June 2003.  Full concert (Audio Only)](https://www.youtube.com/watch?v=BjhQHD8t1gk)
 
 **2004:** Promoting her new album, *23rd Street Lullaby*, Patti Scialfa plays a mini-concert on *The Early Show*, including the title track, "You Can't Go Back," and "Rose."<br>
 
@@ -84,25 +84,25 @@ Wondering how that show came to happen? Watch the interview below.
 
 **2008:** Bruce and the E Street Band bring the Magic Tour to Hamburg, where they play "Held Up Without a Gun" for the first time in 28 years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YCnclWpvx84)
+[Watch on Youtube: Bruce Springsteen - Held Up Without  A Gun - Hamburg 2008](https://www.youtube.com/watch?v=YCnclWpvx84)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9qMfAOvH2bw)
+[Watch on Youtube: Incident on 57th Street Hamburg 2008 - Bruce Springsteen](https://www.youtube.com/watch?v=9qMfAOvH2bw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nH9ghlSkMj8)
+[Watch on Youtube: Bruce Springsteen DVD Hamburg 2008](https://www.youtube.com/watch?v=nH9ghlSkMj8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Vi3j3Gl74Yw)
+[Watch on Youtube: Bruce Springsteen - 7 Nights To Rock (Hamburg, 21.06.2008)](https://www.youtube.com/watch?v=Vi3j3Gl74Yw)
 
 **2011:** At the memorial service for the late Clarence Clemons in Palm Beach, Bruce delivers Clarence's eulogy and performs a sad, acoustic "Tenth Avenue Freeze-Out" in tribute to the Big Man. Bruce and Jackson Browne close the ceremony with a duet of "You're a Friend of Mine."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lr6bSgqsCec)
+[Watch on Youtube: Memorial held for Clarence Clemons](https://www.youtube.com/watch?v=lr6bSgqsCec)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2011-06-21.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops at the Stadium of Light in Sunderland, England.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_IC9Cnwag1g)
+[Watch on Youtube: BRUCE SPRINGSTEEN - BORN TO RUN - SUNDERLAND 21/6/12 - GREAT QUALITY !!!](https://www.youtube.com/watch?v=_IC9Cnwag1g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_sgMcFRmjIQ)
+[Watch on Youtube: BRUCE SPRINGSTEEN - DANCING IN THE DARK LIVE IN SUNDERLAND - GREAT QUALITY !!!](https://www.youtube.com/watch?v=_sgMcFRmjIQ)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2012-06-21-scaled.jpg.webp)
 
@@ -112,10 +112,10 @@ Wondering how that show came to happen? Watch the interview below.
 
 **2023:** Bruce and the E Street Band open their show in Dusseldorf with the tour premiere of "The Ties That Bind."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7WzDdeJixmU)
+[Watch on Youtube: BRUCE SPRINGSTEEN- „The Ties That Bind“- LIVE- June, 21st, 2023-  Düsseldorf, Germany](https://www.youtube.com/watch?v=7WzDdeJixmU)
 
 **2025:** Bruce and the E Street Band bring the Land of Hope and Dreams Tour to San Sebastian for the first of two nights.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4wRycsNmu5g)
+[Watch on Youtube: 21/06/2025 BRUCE SPRINGSTEEN and THE E STREET BAND No Surrender San Sebastián Donostia](https://www.youtube.com/watch?v=4wRycsNmu5g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qvJJ--7wHrw)
+[Watch on Youtube: Bruce Springsteen - The River (LIVE San Sebastian 21/06/2025 estadio Anoeta)](https://www.youtube.com/watch?v=qvJJ--7wHrw)

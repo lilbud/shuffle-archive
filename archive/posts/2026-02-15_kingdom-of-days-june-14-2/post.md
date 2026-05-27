@@ -56,7 +56,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 [Watch on Youtube: Bruce Springsteen - Eyes On The Prize - (Live Milwaukee 2006)](https://www.youtube.com/watch?v=LIgcBBxjgwE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zee0qHjvRH8)
+[Watch on Youtube: Bruce Springsteen - Rag Mama Rag - Live at Bradley Center, Milwaukee (06/14/2006)](https://www.youtube.com/watch?v=zee0qHjvRH8)
 
 **2008:** Bruce plays Wales for the first time when the Magic Tour makes a stop at Millennium Stadium in Cardiff. Bruce opens with the tour premiere of "From Small Things (Big Things One Day Come)" for the occasion.<br>
 
@@ -66,33 +66,33 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 **2009:** The day after his set at Bonnaroo, Bruce checks out sets by MGMT, Band of Horses, and Okkervil River before joining Phish on stage at Bonnaroo for three epic jams: "Mustang Sally," "Bobby Jean," and "Glory Days."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BXA8NLsXdoc)
+[Watch on Youtube: Phish (feat. Bruce Springsteen) - Mustang Sally 6/14/2009](https://www.youtube.com/watch?v=BXA8NLsXdoc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ToQUEYc7Izs)
+[Watch on Youtube: Phish and Bruce Springsteen live at Bonnaroo 2009 - Bobby Jean](https://www.youtube.com/watch?v=ToQUEYc7Izs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pk6ikRcpML4)
+[Watch on Youtube: Phish and Bruce Springsteen live at Bonnaroo 2009 - Glory Days](https://www.youtube.com/watch?v=pk6ikRcpML4)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2009-06-14.jpg.webp)
 
 **2016:** The River Tour sequel resumes in The Hague, following Bruce and Patti's 25th wedding anniversary, with Bruce's 25th show in The Netherlands. To mark the occasion, Bruce tour premieres "From Small Things (Big Things One Day Come)," "Jersey Girl," and "Racing in the Street." An unusual note: this show features an opening act, The Stereophonics.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RYgiJn3LaqA)
+[Watch on Youtube: Bruce Springsteen - From Small Things (Big Things One Day Come) {HD} | The Hague, NL | 14 June 2016](https://www.youtube.com/watch?v=RYgiJn3LaqA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iGEB4GtTH9w)
+[Watch on Youtube: My City Of Ruins - The Hague Malieveld 2016 06 14](https://www.youtube.com/watch?v=iGEB4GtTH9w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9r0R-B8LbPo)
+[Watch on Youtube: Jersey Girl - Bruce Springsteen - Malieveld The Hague 14-06-2016 - MultiCam edit, Soundboard audio](https://www.youtube.com/watch?v=9r0R-B8LbPo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=u9vXZLliBRQ)
+[Watch on Youtube: Bruce Springsteen – I'm On Fire (HD) – Malieveld, The Hague 14-06-2016](https://www.youtube.com/watch?v=u9vXZLliBRQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AVD7dSSBkBk)
+[Watch on Youtube: Bruce Springsteen This Hard Land Acoustic Den haag June 14 2016](https://www.youtube.com/watch?v=AVD7dSSBkBk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vWprjfV84CE)
+[Watch on Youtube: From Small Things (Big Things One Day Come) (Live at Malieveld, The Hague, Holland - 6/14/2016)](https://www.youtube.com/watch?v=vWprjfV84CE)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2019:** Bruce releases *Western Stars*, his nineteenth studio album, along with a video for the title track.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_IXzAAKrsFE)
+[Watch on Youtube: Bruce Springsteen - Western Stars (Official Video)](https://www.youtube.com/watch?v=_IXzAAKrsFE)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2019-06-14.jpg.webp)
 

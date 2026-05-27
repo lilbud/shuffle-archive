@@ -30,33 +30,33 @@ post_id: 57024
 
 **1985:** Bruce and the E Street Band play their second of two Born in the U.S.A. shows at Ullevi in Gothenburg, Sweden.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qQeCrLcCwgg)
+[Watch on Youtube: Bruce Springsteen-Racing in the Street (Live-1985).](https://www.youtube.com/watch?v=qQeCrLcCwgg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Qjx_Dm5byt0)
+[Watch on Youtube: Bruce Springsteen-Bobby Jean (Live-1985).](https://www.youtube.com/watch?v=Qjx_Dm5byt0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_C12AhdgoTc)
+[Watch on Youtube: Bruce Springsteen-Dancing in the Dark (Live-1985).](https://www.youtube.com/watch?v=_C12AhdgoTc)
 
 **1989:** Bruce and Max join Nils for four songs at Nils' gig at the Stone Pony.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9t233EpGPOk)
+[Watch on Youtube: Not Fade Away](https://www.youtube.com/watch?v=9t233EpGPOk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kSDq4tbqniM)
+[Watch on Youtube: In The Midnight Hour](https://www.youtube.com/watch?v=kSDq4tbqniM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KMtw59Yefbs)
+[Watch on Youtube: Lean On Me](https://www.youtube.com/watch?v=KMtw59Yefbs)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/1989-06-09.jpg.webp)
 
 **2009:** Norwegian fans enjoy the tour premiere of "Back in Your Arms" at the first of two Working on a Dream shows in Bergen.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-qv74yl6Ye0)
+[Watch on Youtube: Bruce Springsteen - Intro & Badlands (Live Norway Bergen 2009)](https://www.youtube.com/watch?v=-qv74yl6Ye0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BsrR4VhnJZA)
+[Watch on Youtube: Bruce Springsteen - My Lucky Day - Bergen 2009-06-09 CLOSEUP](https://www.youtube.com/watch?v=BsrR4VhnJZA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wEQWtxsmHQw)
+[Watch on Youtube: Bruce Springsteen - Back In Your Arms](https://www.youtube.com/watch?v=wEQWtxsmHQw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LziT5xFUPTk)
+[Watch on Youtube: Bruce Springsteen - Because The Night - Bergen 2009-06-09 CLOSEUP](https://www.youtube.com/watch?v=LziT5xFUPTk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XZghbhM7t_I)
+[Watch on Youtube: Bruce Springsteen - The Rising - Bergen 2009-06-09 CLOSEUP](https://www.youtube.com/watch?v=XZghbhM7t_I)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

@@ -22,7 +22,7 @@ post_id: 57515
 
 **1975:** Bruce and the E Street Band record "Linda Let Me Be the One" at the Record Plant in New York City. It won't be released for another 23 years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G4yx0JdiKfo)
+[Watch on Youtube: Linda Let Me Be The One (Studio Outtake - 1975)](https://www.youtube.com/watch?v=G4yx0JdiKfo)
 
 **1978:** Bruce and the E Street Band make a Darkness Tour stop at San Jose's Center for the Performing Arts.<br>
 
@@ -32,23 +32,23 @@ post_id: 57515
 
 **1983:** Bruce and the E Street Band record "My Hometown" at The Hit Factory in New York City.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KrGi8ODOWR0)
+[Watch on Youtube: My Hometown](https://www.youtube.com/watch?v=KrGi8ODOWR0)
 
 **1984:** A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.S.A. Tour kicks off at the St. Paul Civic Center Arena, with Nils and Patti making their official debuts as full-fledged members of the band. Film director Brian De Palma is on hand to film Bruce's performance (twice!) of "Dancing in the Dark" for the now classic music video. This is also Courtney Cox's debut–as most people know, she's the "lucky fan" pulled out of the audience to dance with Bruce on-stage.<br>
 
 Watch footage from the video premiere below, and then listen to a never-before-circulated soundboard recording of Bruce's first-ever public concert performance of "Dancing in the Dark." (Sorry about those drum machines…)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MKXlK0fmnTg)
+[Watch on Youtube: Bruce Springsteen - "Dancing in the Dark" video premiere on MTV](https://www.youtube.com/watch?v=MKXlK0fmnTg)
 
 [Watch Video Highlight](https://videopress.com/embed/NV0vpTz3)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=129kuDCQtHs)
+[Watch on Youtube: Bruce Springsteen - Dancing In the Dark (Official Video)](https://www.youtube.com/watch?v=129kuDCQtHs)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAEeAs19HVKihUHhbpsNF26)
 
 In the setlist, a couple of notable moments: Bruce covers "Street Fighting Man" for the first time, and "No Surrender" makes its debut as well, the latter song in a short-lived arrangement with an extended instrumental ending and a new final verse.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_VQiGVKbLok)
+[Watch on Youtube: Bruce Springsteen - No Surrender (Live 1984)](https://www.youtube.com/watch?v=_VQiGVKbLok)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-06-29a.jpg.webp)
 
@@ -76,7 +76,7 @@ Meanwhile, "Glory Days," Bruce's latest single, climbs the charts and is profile
 
 [Watch Video Highlight](https://videopress.com/embed/ewosTtgL)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s3oWgq4VYCQ)
+[Watch on Youtube: Bruce Springsteen Rotterdam 29/06/1988 Full Concert](https://www.youtube.com/watch?v=s3oWgq4VYCQ)
 
 **1989:** Bruce plays a 20-minute-long "Twist and Shout" with The Fabulous Greaseband at The Headliner in Neptune, New Jersey.<br>
 
@@ -84,7 +84,7 @@ Meanwhile, "Glory Days," Bruce's latest single, climbs the charts and is profile
 
 **1990:** Bruce records "Seven Angels" at Oceanway Studios in Los Angeles.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SWUXK4D7F-E)
+[Watch on Youtube: Seven Angels (Studio Outtake - 1990)](https://www.youtube.com/watch?v=SWUXK4D7F-E)
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that "Darkness on the Edge of Town" and "If I Should Fall Behind" share a common character.<br>
 
@@ -98,11 +98,11 @@ Meanwhile, "Glory Days," Bruce's latest single, climbs the charts and is profile
 
 **2000:** Bruce and the E Street Band play their penultimate Reunion show at Madison Square Garden, their ninth show of this final MSG stand. Several songs from this show are recorded, filmed, and eventually released on *Live in New York City.*<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lW1RAYYs8RI)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Jungleland (Live in New York City)](https://www.youtube.com/watch?v=lW1RAYYs8RI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TZp0ghBwgSw)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Darkness On the Edge of Town (Live in New York City)](https://www.youtube.com/watch?v=TZp0ghBwgSw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2i5QJBSNcvo)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Don't Look Back (Live in New York City)](https://www.youtube.com/watch?v=2i5QJBSNcvo)
 
 **2004:** Bruce discovers a painting of himself by local high school student Michael Antrim, who submitted it for (and won) an art contest held by the Freehold Library two years prior. Bruce heads over to Michael's house in Red Bank to sign it. Learning that Michael plays guitar, he spends time playing with him–about 90 minutes in total spent at the boy's house.<br>
 
@@ -116,19 +116,19 @@ Meanwhile, "Glory Days," Bruce's latest single, climbs the charts and is profile
 
 **2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of "Burning Love." Elliot Murphy and his son guest-star on "Born to Run," and Bruce tour premieres "Lucille" in the opening pack.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RPNgL3dOTpM)
+[Watch on Youtube: Bruce Springsteen - Lucille - Stade de France - Paris - 29.06.2013](https://www.youtube.com/watch?v=RPNgL3dOTpM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1UjXkB4xDHA)
+[Watch on Youtube: Bruce Springsteen "Born to Run" - Live @ Stade de France, Paris - 29/06/2013 [HD]](https://www.youtube.com/watch?v=1UjXkB4xDHA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YqB8NgH3_fg)
+[Watch on Youtube: Bruce Springsteen - Ramrod (ending) + Tenth Avenue Freeze-Out (2013-06-29 - Paris)](https://www.youtube.com/watch?v=YqB8NgH3_fg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9UIt2fP0ik0)
+[Watch on Youtube: Bruce Springsteen - American Land (2013-06-29 - Paris)](https://www.youtube.com/watch?v=9UIt2fP0ik0)
 
 **2016:** The River Tour (2016 edition) *almost* returns to its original form in Oslo, with at least 13 songs from the album making the setlist.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/5RghO2RM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cH73sVMiH4A)
+[Watch on Youtube: Bruce Springsteen - I'm a Rocker (Oslo 2016/06/29)](https://www.youtube.com/watch?v=cH73sVMiH4A)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -138,4 +138,4 @@ Meanwhile, "Glory Days," Bruce's latest single, climbs the charts and is profile
 
 **2024:** Bruce and the E Street Band tour debut "Seven Nights to Rock" on Night Two in Nijmegen in The Netherlands.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9ZdNyvVTDXQ)
+[Watch on Youtube: Bruce Springsteen, 7 Nights To Rock, Nijmegen, June 29, 2024](https://www.youtube.com/watch?v=9ZdNyvVTDXQ)

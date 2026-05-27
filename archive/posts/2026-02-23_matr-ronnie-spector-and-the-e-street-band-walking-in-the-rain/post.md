@@ -18,7 +18,7 @@ Barry Mann, Cynthia Weil, and Phil Spector wrote "Walking in the Rain" while Ron
 
 When she returned home to record what would prove to be The Ronettes' last hit single ever (it peaked at #23 on the Billboard Hot 100), Ronnie nailed it in a single take.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4l5t1FUscUI)
+[Watch on Youtube: The Ronettes - Walking In The Rain (Audio)](https://www.youtube.com/watch?v=4l5t1FUscUI)
 
 "Walking in the Rain" featured a gorgeous, effects-laden production that could easily have overpowered a lesser singer. But Ronnie Spector was no lesser singer, and the background thunderclaps only served to heighten her powerful vocals rather than dampen them.
 

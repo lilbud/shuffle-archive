@@ -107,10 +107,12 @@ with load_db() as conn, conn.cursor() as cur:  # noqa: SIM117
                     old = f"[Watch on Youtube: Watch Video]({i})"
                     new = f"[Watch on Youtube: {video_title}]({i})"
                     content = content.replace(old, new)
+                    time.sleep(1)
                 except DownloadError:
                     pass
 
             post.write_text(content, encoding="utf-8")
+
 
 # test_url = "https://www.youtube.com/watch?v=7-AMJV5EDRI"
 

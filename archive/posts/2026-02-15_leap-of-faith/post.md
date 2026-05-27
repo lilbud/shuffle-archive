@@ -7,7 +7,7 @@ post_id: 67620
 ---
 If *Human Touch* is an exercise in over-polished pop, *Lucky Town* is a rock exorcism, and "Leap of Faith" is the prayer.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=U4ALQoRaB9w)
+[Watch on Youtube: Leap Of Faith](https://www.youtube.com/watch?v=U4ALQoRaB9w)
 
 "Leap of Faith" is the ideological heart of *Lucky Town*, a menage a trois of of Bruce's favorite themes: religion, sex, and a determination to move ever forward. Ostensibly, it's a relationship song, and no doubt it had its roots in Springsteen's still young relationship with Patti Scialfa.
 
@@ -74,17 +74,17 @@ It needs a lean, hungry, almost desperate soul treatment, and if it's not perfec
 
 With it's bright, rowdy optimism, "Leap of Faith" quickly became a nightly highlight on World Tour 1992. The new band took to it with skills and confidence that continued to grow throughout the tour, perfectly captured in the live performance video they filmed for the song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ouWEZPkbznQ)
+[Watch on Youtube: Bruce Springsteen - Leap Of Faith](https://www.youtube.com/watch?v=ouWEZPkbznQ)
 
 In the years since, sightings are rare, and it's been almost a decade since Bruce last played it–even though the modern-day E Street Band fuses some of the best elements of the 1992-93 band, like gospel choir singers and multiple percussionists.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ThhW6P23gn4)
+[Watch on Youtube: Leap of Faith - Bruce Springsteen & The E Street Band (5/18/14)](https://www.youtube.com/watch?v=ThhW6P23gn4)
 
 But there have been a pair of occasions that were truly special, where Bruce performed the song acoustically and alone, heightening the normally hidden vulnerability.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hnCZf7buQLs)
+[Watch on Youtube: "Leap of Faith" performed at grand piano live on the Devils & Dust tour](https://www.youtube.com/watch?v=hnCZf7buQLs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lyj-HAE8ets)
+[Watch on Youtube: Bruce Springsteen - Leap of Faith (solo acoustic) - Helsinki 31 July 2012](https://www.youtube.com/watch?v=lyj-HAE8ets)
 
 In later years, Bruce would revisit with greater craft and subtlety the ground he first paved with "Leap of Faith." (See "I'll Work For Your Love" for example.)
 

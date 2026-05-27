@@ -15,7 +15,7 @@ Hir older sister, Betty, however… oh, she stayed all right, and she made life 
 
 Let's take a listen to "Betty Jean," Bruce's unreleased outtake from the *Born in the U.S.A.* sessions, recorded six months earlier than her gender-fluid sibling.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5M3i-cVWXKQ)
+[Watch on Youtube: Bruce Springsteen - Betty Jean](https://www.youtube.com/watch?v=5M3i-cVWXKQ)
 
 Well, she's sure a handful, isn't she?
 

@@ -22,7 +22,7 @@ post_id: 57558
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=62WAhkKMMr0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iIzMmWWYRhA)
+[Watch on Youtube: The Promise (Live at Berkeley Community Theatre, Berkeley, CA - 7/1/1978)](https://www.youtube.com/watch?v=iIzMmWWYRhA)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vaF4di5aPHc)
 

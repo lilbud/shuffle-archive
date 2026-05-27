@@ -18,9 +18,9 @@ post_id: 57110
 
 **1970:** Steel Mill takes a trip down to Richmond, where they play the first of two nights at The String Factory. The set list includes a twenty-minute "Garden State Parkway Blues" and the only known performance of "Where Was Jesus in Ohio?"<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=75UD5Xo01M4)
+[Watch on Youtube: Where Was Jesus In Ohio? - Bruce Springsteen (Very Rare)](https://www.youtube.com/watch?v=75UD5Xo01M4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=q0Du_WZIjgo)
+[Watch on Youtube: Garden State Parkway Blues -  Steel Mill (Rare Springsteen)](https://www.youtube.com/watch?v=q0Du_WZIjgo)
 
 **1971:** The Sundance Blues Band plays the Student Prince in Asbury Park.<br>
 
@@ -32,9 +32,9 @@ post_id: 57110
 
 **1988:** Bruce and the E Street Band bring the Tunnel of Love Tour to Paris for a single show at the Hippodrome de Vincennes.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6zv4sUHh5lg)
+[Watch on Youtube: Bruce Springsteen Seeds Live From Hippodrome de Vincennes 19/06/1988](https://www.youtube.com/watch?v=6zv4sUHh5lg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=McWF04ZD7qw)
+[Watch on Youtube: Bruce Springsteen Born To Run ( Acoustic ) Live From Hippodrome de Vincennes 19/06/1988](https://www.youtube.com/watch?v=McWF04ZD7qw)
 
 **1999:** At Night One in Arnhem on the Reunion Tour, Bruce and the E Street Band tour premiere "Stand On It."<br>
 
@@ -44,11 +44,11 @@ post_id: 57110
 
 **2003:** The Rising Tour stops in Oslo for a night, where "Where the Bands Are" gets a rare outing. Word gets out about where Bruce and the band are staying, and crowds form to greet him as he leaves for the show.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NCAYMEGXfXo)
+[Watch on Youtube: Springsteen and The E Street Band in Oslo 2003](https://www.youtube.com/watch?v=NCAYMEGXfXo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XbiaXQ0j-fY)
+[Watch on Youtube: Bruce Springsteen - Where The Bands Are (Live) - Oslo 2003](https://www.youtube.com/watch?v=XbiaXQ0j-fY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ea1y2A6FAIY)
+[Watch on Youtube: Bruce Springsteen - BORN TO RUN  2003 - live](https://www.youtube.com/watch?v=ea1y2A6FAIY)
 
 **2004:** In support of her new album, *23rd Street Lullaby*, Patti Scialfa drops by *Weekend Today* for an interview.<br>
 
@@ -56,43 +56,43 @@ post_id: 57110
 
 **2005:** Bruce plays "Adam Raised a Cain" for the first time on the Devils & Dust Tour, opening with it at his solo acoustic show in Rotterdam. Before the show, Bruce sits down for an interview with a local reporter.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7YGNzMtCMqo)
+[Watch on Youtube: Interview Springsteen Netherlands 2005 (part 1 of 3)](https://www.youtube.com/watch?v=7YGNzMtCMqo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zWuEVngGm8I)
+[Watch on Youtube: Interview Springsteen Netherlands 2005 (part 2 of 3)](https://www.youtube.com/watch?v=zWuEVngGm8I)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4xqmjXSJwVA)
+[Watch on Youtube: Interview Springsteen Netherlands 2005 (part 3 of 3)](https://www.youtube.com/watch?v=4xqmjXSJwVA)
 
 [Watch Video Highlight](https://videopress.com/embed/Lbp25ccs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zO9akJo53-8)
+[Watch on Youtube: Two Faces (solo piano) Bruce Springsteen June 19, 2005 Rotterdam, NED](https://www.youtube.com/watch?v=zO9akJo53-8)
 
 **2006:** The Seeger Sessions Tour stops at the Performing Arts Center in Saratoga Springs, where "Buffalo Gals" makes its final tour appearance.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-Pi4xwctX_o)
+[Watch on Youtube: Bruce Springsteen & The Sessions Band, Buffalo Gals, Live](https://www.youtube.com/watch?v=-Pi4xwctX_o)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2006-06-19.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "Growin' Up" and "Fire."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oj8ss5Pt6TI)
+[Watch on Youtube: Bruce Springsteen   Montpellier 2012 06 19   Spirit in the Night   Growin' Up](https://www.youtube.com/watch?v=oj8ss5Pt6TI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Etb2zIqxL_E)
+[Watch on Youtube: Bruce Springsteen - Fire - Montpellier 19-06-2012](https://www.youtube.com/watch?v=Etb2zIqxL_E)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aiWB51YdqlI)
+[Watch on Youtube: Bruce Springsteen - Point Blank - Montpellier 19-06-2012](https://www.youtube.com/watch?v=aiWB51YdqlI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OaymbCdxrvM)
+[Watch on Youtube: Bruce Springsteen   Montpellier 2012 06 19   Tenth Avenue Freeze out](https://www.youtube.com/watch?v=OaymbCdxrvM)
 
 **2016:** Bruce and the E Street Band tour premiere "My Lucky Day" at their tour stop in Berlin.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l-pvsoFf9KM)
+[Watch on Youtube: Bruce Springsteen Berlin Full Concert 19/06/2016 Part 1](https://www.youtube.com/watch?v=l-pvsoFf9KM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vnLwEfEtYtQ)
+[Watch on Youtube: Bruce Springsteen – My Hometown (HD) – Olympiastadion, Berlin 19-06-2016](https://www.youtube.com/watch?v=vnLwEfEtYtQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xv7gbSJAg88)
+[Watch on Youtube: Bruce Springsteen - Backstreets live Berlin Olympiastadion 19.06.16](https://www.youtube.com/watch?v=Xv7gbSJAg88)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JvN21SO9c4s)
+[Watch on Youtube: Bruce Springsteen - Born In The U.S.A. live Berlin Olympiastadion 19.06.16](https://www.youtube.com/watch?v=JvN21SO9c4s)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WqvI0lQyCWY)
+[Watch on Youtube: Bruce Springsteen - Land Of Hope And Dreams live Berlin Olympiastadion 19.06.16](https://www.youtube.com/watch?v=WqvI0lQyCWY)
 
 **2018:** News has been building surrounding the Trump administration's inhumane child separation policy, and Bruce has had enough of it. He deviates from his *Springsteen on Broadway* script mid-show at New York City's Walter Kerr Theater in order to address it:<br>
 

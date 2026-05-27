@@ -52,31 +52,31 @@ post_id: 57120
 
 **2005:** Elliott Murphy makes a guest appearance on "Better Days" when Bruce tour premieres it (along with "Cadillac Ranch") at his solo acoustic show in Paris.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6DNpb_i2V7U)
+[Watch on Youtube: Bruce Springsteen My Beautiful Reward 20 Juin 2005 Paris Bercy Solo Acoustic Soundboard](https://www.youtube.com/watch?v=6DNpb_i2V7U)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kNt7lvz1sE4)
+[Watch on Youtube: Bruce Springsteen The River 20 Juin 2005 Paris Bercy Solo Acoustic Great Perfomance Piano](https://www.youtube.com/watch?v=kNt7lvz1sE4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GuyqFpWD9sM)
+[Watch on Youtube: Bruce Springsteen Point Blank 20 Juin 2005 Paris Bercy Solo Acoustic Soundboard](https://www.youtube.com/watch?v=GuyqFpWD9sM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tQ3_Fy5nd10)
+[Watch on Youtube: Bruce Springsteen Dream Baby Dream 20 Juin 2005 Paris Bercy Solo Acoustic Soundboard](https://www.youtube.com/watch?v=tQ3_Fy5nd10)
 
 **2006:** Bruce and the Sessions Band deliver a great show at the Tweeter Center in Camden, tour premiering a full-band "Maria's Bed." Southside Johnny and Joe Grushecky join Bruce for "Pay Me My Money Down."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yoq1or7rtS0)
+[Watch on Youtube: Bruce Springsteen & Seeger Sessions - My city of ruins - Live from Camden, NJ - 2006-06-20](https://www.youtube.com/watch?v=yoq1or7rtS0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1E8KvYPH8RU)
+[Watch on Youtube: Gabriel at Springsteen Concert 6/20/2006](https://www.youtube.com/watch?v=1E8KvYPH8RU)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/2006-06-20.jpg.webp)
 
 **2011:** Fans gather at The Stone Pony to remember Clarence Clemons, who passed away two days prior.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=456baiiyLcs)
+[Watch on Youtube: Saying Goodbye to Clarence Clemons "The Big Man" - NBC Nightly News (June 20, 2011)](https://www.youtube.com/watch?v=456baiiyLcs)
 
 **2013:** Bruce and the E Street Band perform *Born to Run* from start to finish during their Wrecking Ball show at Coventry's Ricoh Arena. This show also features the first full-band (E Street Band, at least) performance of "Long Time Comin'."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=78eZDLRf1aI)
+[Watch on Youtube: Bruce Springsteen 2013-06-20 Coventry - Long Time Comin' (first full E Street performance)](https://www.youtube.com/watch?v=78eZDLRf1aI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oyfTmVXCNhE)
+[Watch on Youtube: Bruce Springsteen, Ricoh Arena Coventry 20th June 2013, Hungry Heart - including 'man hug'](https://www.youtube.com/watch?v=oyfTmVXCNhE)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -86,4 +86,4 @@ post_id: 57120
 
 **2024:** World Tour 2024 arrives in Barcelona for the first of two nights. This night features the tour premiere of "Radio Nowhere."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=74XJN6XUdpA)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Radio Nowhere - Barcelona 20/06/2024](https://www.youtube.com/watch?v=74XJN6XUdpA)

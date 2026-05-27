@@ -14,67 +14,67 @@ post_id: 57179
 
 **1977:** Bruce and the E Street Band record "Streets of Fire" at Atlantic Studios in New York City.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
+[Watch on Youtube: Streets of Fire](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to the Pacific Northwest, starting with a show at the Paramount Theater in Portland.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1tApe9uQUCs)
+[Watch on Youtube: Bruce Springsteen and the E Street Band 06.24.1978 Portland, OR SBD](https://www.youtube.com/watch?v=1tApe9uQUCs)
 
 **1984:** Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man's West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.<br>
 
 **1989:** Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including "Under the Boardwalk."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j0h8kVXEdX0)
+[Watch on Youtube: Bruce Springsteen with Bobby Bandiera - UNDER THE BOARDWALK 1989  (audio)](https://www.youtube.com/watch?v=j0h8kVXEdX0)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1989-06-24.jpg.webp)
 
 **1993:** A momentous night: Bruce and his touring band play a special "Concert to Fight Hunger" at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in "Tenth Avenue Freeze-Out." For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gc2zE_AcJBc)
+[Watch on Youtube: Seeds (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=gc2zE_AcJBc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9Y0RSF242Dw)
+[Watch on Youtube: Bruce Springsteen - SATAN'S JEWELLED CROWN  1993  live](https://www.youtube.com/watch?v=9Y0RSF242Dw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rbSBt9Jp8Ms)
+[Watch on Youtube: Tenth Avenue Freeze Out Bruce Springsteen with THE BIG MAN Clarence Clemons June 24 93 NJ](https://www.youtube.com/watch?v=rbSBt9Jp8Ms)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=okzsJ72I7WY)
+[Watch on Youtube: Bruce Springsteen - News coverage of Concert for Hunger 6/24/93](https://www.youtube.com/watch?v=okzsJ72I7WY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kQNaQRPs_v8)
+[Watch on Youtube: Human Touch (Live at Brendan Byrne Arena, East Rutherford, NJ - 6/24/93 - Official Audio)](https://www.youtube.com/watch?v=kQNaQRPs_v8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hvsiTwqhD4k)
+[Watch on Youtube: Better Days (Live at the Brendan Byrne Arena, East Rutherford, NJ - 06/24/93 - Official Audio)](https://www.youtube.com/watch?v=hvsiTwqhD4k)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jAIHCIOk6Qw)
+[Watch on Youtube: It's Been A Long Time (Live at Brendan Byrne Arena, East Rutherford, NJ - 06/24/93 - Official Audio)](https://www.youtube.com/watch?v=jAIHCIOk6Qw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9dpFvFasyPw)
+[Watch on Youtube: Tenth Avenue Freeze-Out (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=9dpFvFasyPw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QebZyM3ehlQ)
+[Watch on Youtube: My Beautiful Reward (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=QebZyM3ehlQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=U5oB2t2djEU)
+[Watch on Youtube: Having A Party (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=U5oB2t2djEU)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1993-06-24.jpg.webp)
 
 **1999:** Night Two in Stockholm on the Reunion Tour.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vIBrhlatcuA)
+[Watch on Youtube: Bruce Springsteen I Wanna Be With You Stockholm 24/06/1999](https://www.youtube.com/watch?v=vIBrhlatcuA)
 
 [Watch Video Highlight](https://videopress.com/embed/w2v4c6sh)
 
 **2006:** The Seeger Sessions Tour starts its last American stand at the PNC Bank Arts Center in Holmdel, New Jersey.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aff_zv76sCY)
+[Watch on Youtube: When The Saints Go Marching In](https://www.youtube.com/watch?v=aff_zv76sCY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/2006-06-24.jpg.webp)
 
 **2007:** Bruce performs "If I Should Fall Behind" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Neve](../2020-03-14_cover-me-you-never-can-tell/post.md)r[Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QIQjpeIfk9s)
+[Watch on Youtube: Bruce with the JLB](https://www.youtube.com/watch?v=QIQjpeIfk9s)
 
 **2012:** Bruce and the E Street Band headline at the Isle of Wight Festival.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RYR7oQYvBiU)
+[Watch on Youtube: bruce springsteen-2012 isle of wight festival.](https://www.youtube.com/watch?v=RYR7oQYvBiU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BwGvGjaXLQU)
+[Watch on Youtube: bruce springsteen-2012 isle of wight festival-shackled and drawn.](https://www.youtube.com/watch?v=BwGvGjaXLQU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XNoFc-kna6g)
+[Watch on Youtube: # IOW Bruce Springsteen + E Street Band @ Isle of Wight festival 2012 HQ.](https://www.youtube.com/watch?v=XNoFc-kna6g)
 
 **2019:** *Western Stars* debuts at #2 on the Billboard Album chart, just behind Madonna's *Madame X* album–the first time Bruce and Madonna have sat atop the chart together since 1985.<br>
 
@@ -82,14 +82,14 @@ post_id: 57179
 
 **2023:** Bruce and the E Street Band play their first of three nights at Ullevi in Gothenburg, Sweden.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gQWm01XhFac)
+[Watch on Youtube: THE RIVER Bruce Springsteen & The E Street Band  live Ullevi Gothenburg 06/24/2023](https://www.youtube.com/watch?v=gQWm01XhFac)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E8ViDIvaxyw)
+[Watch on Youtube: Bruce Springsteen - Born to Run (Live @ Ullevi, Gothenburg, Sweden 2023)](https://www.youtube.com/watch?v=E8ViDIvaxyw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mP79UWrWZWI)
+[Watch on Youtube: BRUCE SPRINGSTEEN & The E Street Band - Glory Days - Gothenburg - 2023-06-24](https://www.youtube.com/watch?v=mP79UWrWZWI)
 
 **2025:** Bruce and the E Street Band play their second of two nights at Reale Arena in San Sebastian, this time without Little Steven (who is recovering from an emergency appendectomy) and with a twenty-minute interruption due to thunderstorms.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qWdXFg_bxuE)
+[Watch on Youtube: Storm at Bruce Springsteen Concert at Stadio Reale Arena, San Sebastian, Spain 24th June 2025.](https://www.youtube.com/watch?v=qWdXFg_bxuE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yQHAdja-EsA)
+[Watch on Youtube: Bruce Springsteen  Growin’ Up / My Love will not Let you down /Darlington Live San Sebastián 24/6/25](https://www.youtube.com/watch?v=yQHAdja-EsA)

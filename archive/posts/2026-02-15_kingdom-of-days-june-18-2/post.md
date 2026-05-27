@@ -30,7 +30,7 @@ post_id: 57109
 
 **1988:** In town for their Tunnel of Love show the following night, Bruce and Clarence make a guest appearance at the S.O.S. Racisme concert in Paris. The pair perform a mini-set, Bruce on guitar and harmonica and Clarence on sax and backing vocals. Watch this very unusual and beautiful performance below, including a wonderful "The Promised Land" and the first-ever acoustic performance of "My Hometown."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7kltDPpjiP0)
+[Watch on Youtube: Bruce Springsteen and Clarrence Clemons SOS Racisme!  18th of June 1988 Paris](https://www.youtube.com/watch?v=7kltDPpjiP0)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1988-06-18.jpg.webp)
 
@@ -40,17 +40,17 @@ Meanwhile back home, newspapers report official confirmation of the end of Bruce
 
 **1994:** Bruce performs "Wreck on the Highway" with John Wesley Harding at McCabe's Guitar Shop in Santa Monica. Their performance is recorded and will eventually be released as a bonus track on Harding's *Awake* album in 2001.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ND2EcrsB2bY)
+[Watch on Youtube: John Wesley Harding Wreck On The Highway with Bruce Springsteen official video](https://www.youtube.com/watch?v=ND2EcrsB2bY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1994-06-18-scaled.jpg.webp)
 
 **2008:** In Amsterdam on tour, Bruce finds time to perform "Thunder Road" via satellite for the memorial service for Tim Russert, who passed away five days earlier.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=96ul2ivcmDQ)
+[Watch on Youtube: Thunder Road - Tim Russert Memorial](https://www.youtube.com/watch?v=96ul2ivcmDQ)
 
 That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic show: "Summertime Blues," "Stand On It," and "Seven Nights to Rock" make for a great high-energy encore.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=g0PaDMFv50U)
+[Watch on Youtube: Bruce Springsteen SUMMERTIME BLUES Amsterdam 18.06.2008](https://www.youtube.com/watch?v=g0PaDMFv50U)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBMy-mPsiPafvmeiuG0NP9t)
 
@@ -62,29 +62,29 @@ That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic s
 
 **2013:** The U.K. leg of the Wrecking Ball Tour continues with a show at Hampden Park in Glasgow.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2CDXO_8sAHc)
+[Watch on Youtube: Bruce Springsteen Hampden Park Glasgow 2013 - We Take Care Of Our Own ( Opening Song )](https://www.youtube.com/watch?v=2CDXO_8sAHc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jFdq2exs5ck)
+[Watch on Youtube: Rosalita - Bruce Springsteen - Hampden Park, Glasgow 18/06/2013](https://www.youtube.com/watch?v=jFdq2exs5ck)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E05TNkb-fHU)
+[Watch on Youtube: Bruce Springsteen 2013-06-18 Glasgow - Tougher Than The Rest](https://www.youtube.com/watch?v=E05TNkb-fHU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s_OTcsOYx7Q)
+[Watch on Youtube: Bruce Springsteen 2013-06-18 Glasgow - Jole Blon](https://www.youtube.com/watch?v=s_OTcsOYx7Q)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=d6Jqp8LBsQg)
+[Watch on Youtube: Bruce Springsteen 2013-06-18 Glasgow - Shout](https://www.youtube.com/watch?v=d6Jqp8LBsQg)
 
 **2018:** The Asbury Lanes bowling alley and concert venue re-opens, and Bruce is on hand for the occasion. He joins Danny Clinch's Tangiers Blues Band for four songs before an audience selected by a locals-only lottery.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=t7aCF9Uh85Q)
+[Watch on Youtube: Springsteen at Asbury Lanes, 6/18/18](https://www.youtube.com/watch?v=t7aCF9Uh85Q)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ITQX6WHktts)
+[Watch on Youtube: Bruce Springsteen Performs At Asbury Lanes](https://www.youtube.com/watch?v=ITQX6WHktts)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oF8AjzrUKIo)
+[Watch on Youtube: Rockin Flu](https://www.youtube.com/watch?v=oF8AjzrUKIo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JSB6kgHs_hE)
+[Watch on Youtube: Make love](https://www.youtube.com/watch?v=JSB6kgHs_hE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1rzLSntBpHY)
+[Watch on Youtube: Down Road](https://www.youtube.com/watch?v=1rzLSntBpHY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1hsAiDj6t4w)
+[Watch on Youtube: Twist](https://www.youtube.com/watch?v=1hsAiDj6t4w)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/Asbury_Park_Press_Wed__Jun_20__2018_-scaled.jpg.webp)
 
@@ -92,14 +92,14 @@ That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic s
 
 **2023:** Bruce and the E Street Band headline the TW Classic Festival in Werchter, Belgium.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_KBT9KI-Lq4)
+[Watch on Youtube: Bruce Springsteen Werchter, Belgium. June 18 2023 No Surrender](https://www.youtube.com/watch?v=_KBT9KI-Lq4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zVDdLVwCqmo)
+[Watch on Youtube: Bruce Springsteen, Werchter, Belgium, June 18, 2023, My Hometown](https://www.youtube.com/watch?v=zVDdLVwCqmo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nsPfRjSUusE)
+[Watch on Youtube: Bruce Springsteen - Nightshift - Live in Werchter (TW Classic) 2023](https://www.youtube.com/watch?v=nsPfRjSUusE)
 
 **2025:** The Land of Hope and Dreams Tour stops for a night at Deutsche Bank Park in Frankfurt.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TOz5jpOwYu8)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Trapped - Frankfurt 18/06/2025](https://www.youtube.com/watch?v=TOz5jpOwYu8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XgsoJa6oGVs)
+[Watch on Youtube: Bruce Springsteen and the E Street Band - Thunder Road - Frankfurt 18/06/2025](https://www.youtube.com/watch?v=XgsoJa6oGVs)

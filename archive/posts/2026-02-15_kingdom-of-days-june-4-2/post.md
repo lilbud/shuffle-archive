@@ -10,9 +10,9 @@ post_id: 56996
 ---
 **1981:** Bruce and the E Street Band play their fifth of six shows at London's Wembley Arena on the River Tour. This show is available as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AD-C22noboo)
+[Watch on Youtube: Jackson Cage (Live at Wembley Arena, London, UK - 6/4/1981)](https://www.youtube.com/watch?v=AD-C22noboo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gxcHkOEU-9Y)
+[Watch on Youtube: "Trapped" - Bruce Springsteen and the E Street Band 6/4/1981](https://www.youtube.com/watch?v=gxcHkOEU-9Y)
 
 **1984:** Bruce releases his seventh studio album, *Born in the U.S.A.*<br>
 
@@ -22,7 +22,7 @@ post_id: 56996
 
 **1985:** The European leg of the Born in the U.S.A. Tour continues at the first of two nights at St. James' Park in Newcastle. The British television coverage is hysterical to watch; even in 1985, some critics still didn't know quite what to make of him.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yluGYwh_Ceo)
+[Watch on Youtube: Bruce Springsteen - Newcastle, June 4 1985 news coverage](https://www.youtube.com/watch?v=yluGYwh_Ceo)
 
 [Watch Video Highlight](https://videopress.com/embed/f6IjxMxG)
 
@@ -36,27 +36,27 @@ post_id: 56996
 
 [Watch Video Highlight](https://videopress.com/embed/Wx7WRyqt)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KSGwtfg9nd8)
+[Watch on Youtube: Bruce Springsteen-Atlanta 6-4-2000 Further Up the Road](https://www.youtube.com/watch?v=KSGwtfg9nd8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I9murpiJQ3k)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Atlanta, GA 2000-06-04 (NEW SOURCE)](https://www.youtube.com/watch?v=I9murpiJQ3k)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/2000-06-04.jpg.webp)
 
 **2005:** The Devils & Dust solo acoustic tour moves on to Italy, where this first show in Bologna is highlighted by the tour premiere of "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=daRsdZKxBlU)
+[Watch on Youtube: My Father's House (solo acoustic) Bruce Springsteen June 4, 2005 Bologna, ITA](https://www.youtube.com/watch?v=daRsdZKxBlU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lNtOzTcLnek)
+[Watch on Youtube: Bruce Springsteen - Real World (Live 2005-06-04)](https://www.youtube.com/watch?v=lNtOzTcLnek)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2Loi0ScfFw4)
+[Watch on Youtube: Bruce Springsteen - My Hometown - Italy 2005](https://www.youtube.com/watch?v=2Loi0ScfFw4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=v65zWmgyt9A)
+[Watch on Youtube: Bruce Springsteen - Bologna, Italy - June 4, 2005 [audio]](https://www.youtube.com/watch?v=v65zWmgyt9A)
 
 **2009:** Night One of three in Stockholm opens with the tour premiere of "Who'll Stop the Rain" and features the final performance to date of "The Wrestler."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kg5hvBT3Ef0)
+[Watch on Youtube: Springsteen - Who'll Stop the Rain - Stockholm Sweden June 4, 2009](https://www.youtube.com/watch?v=kg5hvBT3Ef0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Iub8BOWu8RU)
+[Watch on Youtube: Bruce Springsteen Live in Stockholm 2009](https://www.youtube.com/watch?v=Iub8BOWu8RU)
 
 **2017:** Bruce drops by The Asbury Hotel to check out Danny Clinch's new photo exhibition, "Transparent."<br>
 
@@ -64,8 +64,8 @@ post_id: 56996
 
 **2025:** Bruce and the E Street Band play their first-ever gig in Liverpool.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6cTtYHdV1MA)
+[Watch on Youtube: Bruce Springsteen with the E street band Live @ Anfield Liverpool 4/6/25.](https://www.youtube.com/watch?v=6cTtYHdV1MA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Od5Lz6yjjn0)
+[Watch on Youtube: Dancing In The Dark - Bruce Springsteen First Night in Liverpool 04/06/2025](https://www.youtube.com/watch?v=Od5Lz6yjjn0)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/06/The_Independent_2025_06_09_14.jpg.webp)
