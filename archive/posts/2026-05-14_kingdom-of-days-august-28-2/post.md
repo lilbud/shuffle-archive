@@ -20,7 +20,7 @@ post_id: 59499
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/RS2B.png.webp)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2TlTowM3kkA)
+[Watch on Youtube: Bruce Springsteen - Darkness on the Edge of Town TV commercials 1978-08-28](https://www.youtube.com/watch?v=2TlTowM3kkA)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1978-08-28.png.webp)
 
@@ -28,23 +28,23 @@ post_id: 59499
 
 **1981:** At the final show of a six-night River Tour stand at the Los Angeles Sports Arena, Bruce and the E Street Band cover "Proud Mary" and "Deportee (Plane Wreck at Los Gatos)" for the first time, and Flo and Eddie make a guest appearance on "Hungry Heart" reprising their studio backing vocals.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WnXIhhkINpM)
+[Watch on Youtube: Bruce Springsteen: Proud Mary (LA, 08/28/1981)](https://www.youtube.com/watch?v=WnXIhhkINpM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ay4AEpEynuc)
+[Watch on Youtube: Bruce Springsteen - DEPORTEE 1981 (audio)](https://www.youtube.com/watch?v=Ay4AEpEynuc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PTekyM4SET8)
+[Watch on Youtube: Bruce Springsteen- prove it all night (1981)](https://www.youtube.com/watch?v=PTekyM4SET8)
 
 **1984:** At Night Three (of four) at Washington DC's Capital Center in the pre-teleprompter days of the Born in the U.S.A. Tour, Bruce tour premieres "Wooly Bully" and forgets the lyrics to "Independence Day," leading to a comically and painfully awkward pause in the proceedings.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9Dt1W6kxZlo)
+[Watch on Youtube: Bruce Springsteen - "Independence Day" 1984-08-28 Largo](https://www.youtube.com/watch?v=9Dt1W6kxZlo)
 
 **1992:** World Tour 1992 moves on to Philadelphia for the first of two shows at The Spectrum, where "[Soul Driver](../2023-01-22_roll-of-the-dice-soul-driver/post.md)" makes its full-band debut.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6dmP2rKyTo0)
+[Watch on Youtube: Bruce Springsteen - Live debut of "Soul Driver" Philadelphia, 1992-08-28](https://www.youtube.com/watch?v=6dmP2rKyTo0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D123CSW-bTk)
+[Watch on Youtube: Bruce Springsteen - Growin' up - Philadelphia 1992](https://www.youtube.com/watch?v=D123CSW-bTk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KXb1s92lNoY)
+[Watch on Youtube: Bruce Springsteen - News coverage, Philadelphia, 1992-08-28](https://www.youtube.com/watch?v=KXb1s92lNoY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-08-28a.png.webp)
 
@@ -60,21 +60,21 @@ post_id: 59499
 
 **2007:** Bruce releases the lead single for his upcoming *Magic* album, "Radio Nowhere," and announces a tour in support of the album.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
+[Watch on Youtube: Radio Nowhere](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2007-08-28.png.webp)
 
 **2016:** Bruce's ten-show River Tour victory lap continues with a stop at the United Center in Chicago, where "New York City Serenade" and "Jack of All Trades" continue to get the string treatment (this time with local musicians), and "None But the Brave" gets a rare outing.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ninx4g1oiLI)
+[Watch on Youtube: "NYC Serenade" (MULTI-CAM) - Bruce Springsteen Chicago 8/28/2016](https://www.youtube.com/watch?v=Ninx4g1oiLI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MSvT_lFu53s)
+[Watch on Youtube: "The Promised Land" (MULTI-CAM) - Bruce Springsteen Chicago 8/28/2016](https://www.youtube.com/watch?v=MSvT_lFu53s)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s2oe-jypwXM)
+[Watch on Youtube: American Skin (41 Shots)- Bruce Springsteen, Chicago](https://www.youtube.com/watch?v=s2oe-jypwXM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-CrjxA_n-Xw)
+[Watch on Youtube: Bruce Springsteen None But The Brave - Hungry Heart - Chicago August 28 2016 United Center](https://www.youtube.com/watch?v=-CrjxA_n-Xw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3cEW15zaeb4)
+[Watch on Youtube: Bruce Springsteen, Waiting on a SunnyDay, 08/28/2016](https://www.youtube.com/watch?v=3cEW15zaeb4)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2016-08-28a.png.webp)
 

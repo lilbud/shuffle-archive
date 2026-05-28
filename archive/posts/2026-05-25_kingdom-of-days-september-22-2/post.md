@@ -18,11 +18,11 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LzsAPhGpMkA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pzhqljeWqeo)
+[Watch on Youtube: The Promised Land (Live at Madison Square Garden, New York, NY - 09/22/79)](https://www.youtube.com/watch?v=pzhqljeWqeo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NnRHijZRh34)
+[Watch on Youtube: The River (Live at Madison Square Garden, New York, NY - 09/22/79)](https://www.youtube.com/watch?v=NnRHijZRh34)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=N6W53QG69Fk)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Rosalita (Come Out Tonight) (22/09/1979)](https://www.youtube.com/watch?v=N6W53QG69Fk)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m2umNcwnjg8)
 
@@ -58,9 +58,9 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WoXRSsM_V-s)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9HVJ8RiiUyM)
+[Watch on Youtube: Book of Dreams - Bruce Springsteen (live at Warner Hollywood Studios, Los Angeles 1992)](https://www.youtube.com/watch?v=9HVJ8RiiUyM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qfvu_H2Egf8)
+[Watch on Youtube: Long Lost Leap](https://www.youtube.com/watch?v=qfvu_H2Egf8)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1992-09-22.jpg' alt='' title='' width='758' height='997' />
 
@@ -100,7 +100,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 **2016:** One week after wrapping the River Tour, Bruce is back on the circuit–this time on a publicity tour for his new autobiography, *Born to Run*. Today, Bruce is interviewed by *Skavlan*, a Norwegian-Swedish talk show. Later, he appears on *The Late Show with Stephen Colbert*. Both appearances are broadcast the following day, Bruce’s 67th birthday.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ewQyiONJGL4)
+[Watch on Youtube: Bruce Springsteen on his father and mental illness | Skavlan](https://www.youtube.com/watch?v=ewQyiONJGL4)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zjYmcuN_9iU)
 
@@ -108,7 +108,7 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SoOVIRpizL8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W8CsEqYCg68)
+[Watch on Youtube: Bruce Springsteen Picks His Top 5 Favorite Springsteen Songs](https://www.youtube.com/watch?v=W8CsEqYCg68)
 
 **2017:** Bruce holds a second private rehearsal for *Springsteen on Broadway* at Monmouth University.
 

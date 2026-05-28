@@ -34,7 +34,7 @@ Suffice it to say that "You Don't Leave Me No Choice" is a funky, wronged-woman 
 
 But musically… holy moley! Like I wrote earlier, this is Bruce at his most *furious* on the guitar, certainly a candidate for one of his most impressive performances ever. Sancious is grand (his piano intro presages his future work on "New York City Serenade") the horn section rules, Mad Dog is an animal, and when Steve Van Zandt joins Bruce toward the end of the song… it's just insane. This is truly a must-listen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C_KgYea09Dc)
+[Watch on Youtube: Bruce Springsteen Band - You Don't Leave Me No Choice (1971)](https://www.youtube.com/watch?v=C_KgYea09Dc)
 
 After leaving Bruce's band, Delores would become a fixture of the Jersey Shore music scene, and she would perform with Bruce on rare occasions as recently as 2008. She passed away two years later.
 

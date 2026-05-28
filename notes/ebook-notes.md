@@ -25,15 +25,16 @@ Both projects will be used as inspiration for how I end up creating my ebooks. T
 --language: 'english',
 
 # ebook tool steps
-- generate body.xhtml with test.py, leaving comments in
-- se split-file
-- mv chapter
-- rm body
-- se clean .
-- se typogrify
-- se build-title .
-- se build-manifest .
-- se build-spine .
-- se build-toc .
-- se clean .
-- se lint .
+
+- generate body.xhtml from MD files
+- split body into chapter files
+- clean the files with their toolset
+- run a check to ensure quotes are proper
+- create the title page
+- create the manifest
+- create the spine and metadata
+- create the table of contents
+- clean these final files
+- run their linter to catch any other errors
+- fix and rerun linter until good
+- generate book

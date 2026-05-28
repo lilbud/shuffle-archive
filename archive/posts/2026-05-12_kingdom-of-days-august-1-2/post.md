@@ -26,13 +26,13 @@ post_id: 57894
 
 **1976:** A big night in Red Bank: unable to record due to Mike Appel's legal injunction, Bruce prepares for what will come to be known as "The Lawsuit Tour" with a week of shows (six days out of seven) at the Monmouth Arts Center. This show features the debut of The Miami Horns, borrowed for this tour from Southside Johnny. Because Bruce is unable to go into the studio, he works out new material on-stage as the tour progresses, starting with this show: "Rendezvous" is played for the very first time, as is an early work-in-progress version of "Something in the Night." Bruce also covers "You Can't Sit Down" for the first time, as well as a one-time-only "She's Sure the Girl I Love." Whew!<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=erYlQgL9v4I)
+[Watch on Youtube: Bruce Springsteen - RENDEZVOUS  1976  (audio)](https://www.youtube.com/watch?v=erYlQgL9v4I)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TX1tEz0uSjI)
+[Watch on Youtube: Bruce Springsteen - SOMETHING IN THE NIGHT 1976 (audio)](https://www.youtube.com/watch?v=TX1tEz0uSjI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hazQKc6EAEo)
+[Watch on Youtube: Bruce Springsteen - SHE'S SURE THE GIRL I LOVE 1976 (audio)](https://www.youtube.com/watch?v=hazQKc6EAEo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SH_QLtXMFy0)
+[Watch on Youtube: Bruce Springsteen Red Bank Concert - 8/1/76](https://www.youtube.com/watch?v=SH_QLtXMFy0)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1976-08-01a.png.webp)
 
@@ -64,17 +64,17 @@ post_id: 57894
 
 [Watch Video Highlight](https://videopress.com/embed/QYAgcBKx)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-TYKWXeXf9A)
+[Watch on Youtube: Trouble River Bruce Springsteen 1999 NJ](https://www.youtube.com/watch?v=-TYKWXeXf9A)
 
 **2001:** Bruce and Evan take in a ballgame at Yankee Stadium, and the cameras pick them out of the crowd repeatedly. That's Lance Armstrong sitting to Bruce's right.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L1G-u3q9G9A)
+[Watch on Youtube: Bruce Springsteen at Yankee Stadium - August 1, 2001](https://www.youtube.com/watch?v=L1G-u3q9G9A)
 
 **2002:** Bruce and the E Street Band perform "The Rising" and "Lonesome Day" on *The Late Show with David Letterman*. (The latter song will air tomorrow.)<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sUk7uV2ua4o)
+[Watch on Youtube: Bruce Springsteen on David letterman The Rising](https://www.youtube.com/watch?v=sUk7uV2ua4o)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kJ5JII8CMig)
+[Watch on Youtube: Bruce Springsteen   Lonesome Day Live 08 02 02 On Letterman](https://www.youtube.com/watch?v=kJ5JII8CMig)
 
 **2003:** At the first of two shows at Gillette Stadium in Foxboro, Bruce opens the encores with a cover of "[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)" in memory of Sam Phillips, who passed away two days prior.<br>
 
@@ -86,9 +86,9 @@ post_id: 57894
 
 **2005:** The remarkable run of tour debuts on the Devils and Dust Tour continues at this show at U.S. Bank Arena in Cincinnati. Bruce opens the show with "Two For the Road" (its first airing ever), and follows it later in the show with "Ain't Got You" and "Living Proof." Also getting rare outings: "Walk Like a Man" and "Janey, Don't You Lose Heart," making for a wonderful set list.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6Zn3qhy37To)
+[Watch on Youtube: Living Proof (solo acoustic) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=6Zn3qhy37To)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LwNPvRvFhKg)
+[Watch on Youtube: Walk Like A Man (solo piano) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=LwNPvRvFhKg)
 
 [Watch Video Highlight](https://videopress.com/embed/KnsFTin1)
 
@@ -96,14 +96,14 @@ post_id: 57894
 
 **2009:** Bruce tour premieres "[Great Balls of Fire](../2022-08-10_matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/post.md)" at the penultimate show of the European Working on a Dream Tour in Valladolid, Spain.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2CuHgNWv5HE)
+[Watch on Youtube: Great Balls of Fire - Bruce Springsteen - Valladolid 1-8-09](https://www.youtube.com/watch?v=2CuHgNWv5HE)
 
 **2015:** Bruce and Patti join Timepiece (a local band in which Patti's brother plays keyboards) on stage at a private party at the Wonder Bar in Asbury Park. The setlist includes a cover of "634-5789 (Soulsville, U.S.A.)" and "Brown Eyed Girl."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-Ioc6MVuHMM)
+[Watch on Youtube: Timepiece ROCKS The Wonder Bar with Bruce Springsteen 8/1/15](https://www.youtube.com/watch?v=-Ioc6MVuHMM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZiHU-QzQ-gg)
+[Watch on Youtube: Key to the Highway and  House is a Rockin](https://www.youtube.com/watch?v=ZiHU-QzQ-gg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_F9getFn-to)
+[Watch on Youtube: Timepiece & Bruce Springsteen - Brown Eyed Girl](https://www.youtube.com/watch?v=_F9getFn-to)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/The_Courier_News_2015_08_07_Page_E4-scaled.jpg.webp)

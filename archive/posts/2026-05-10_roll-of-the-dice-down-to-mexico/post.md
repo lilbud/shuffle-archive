@@ -31,7 +31,7 @@ Honestly, though, the lyrics are so not the point here. "Down to Mexico" is a st
 
 The first minute of the band's 1972 performance at The Back Door in Richmond features Bruce at his funkiest, showing off on the guitar until Sancious enters, steals the spotlight, and runs off with it without ever looking back.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=F0HbqaufqXw)
+[Watch on Youtube: Down to Mexico Bruce Springsteen Band 1972 02 04, Back Door Club, Richmond, VA](https://www.youtube.com/watch?v=F0HbqaufqXw)
 
 Remarkably, there are three additional performances of "Down to Mexico" circulating on bootleg from that month-long stand at The Back Door, but the lyrics don't get any deeper over time.
 

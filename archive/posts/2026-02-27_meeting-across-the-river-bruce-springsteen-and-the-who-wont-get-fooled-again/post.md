@@ -16,13 +16,13 @@ Bruce has cited The Who as a major influence on several occasions, most notably 
 
 After Bruce presented the award, he joined Pete and Roger Daltrey on-stage for "My Generation," and at the end of the night, he came back out (along with Willie Nile and Billy Idol) for "Won't Get Fooled Again."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W2bcUlm863U)
+[Watch on Youtube: Billy Idol, Bruce Springsteen, Willie Nile & The Who - Won't Get Fooled Again](https://www.youtube.com/watch?v=W2bcUlm863U)
 
 But that wasn't the first time Bruce played that song with Pete and Roger–the first and only other time was in 1990, when The Who were inducted into the Rock and Roll Hall of Fame. If you watch the video below carefully, you'll see Bruce on guitar and backing vocals behind Daltrey for much of the performance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LaZOG62Bb3w)
+[Watch on Youtube: The Who ~ Won't Get Fooled Again ~ live Rock & Roll HOF 1991](https://www.youtube.com/watch?v=LaZOG62Bb3w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SHhrZgojY1Q)
+[Watch on Youtube: The Who - Won't Get Fooled Again](https://www.youtube.com/watch?v=SHhrZgojY1Q)
 
 **Won't Get Fooled Again**<br>
 **First performed:** January 17, 1990 (New York City, NY)<br>

@@ -26,11 +26,11 @@ And then, that one time only, Prince, Bruce Springsteen (on guitar) and Madonna 
 
 The original album version of "Baby I'm a Star" was much shorter, of course. Released as the B-side to "Take Me With U" in 1984 it clocked in at a mere four-and-half minutes.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NEvxLjxkEz8)
+[Watch on Youtube: Baby I'm a Star](https://www.youtube.com/watch?v=NEvxLjxkEz8)
 
 On stage, though, "Baby I'm a Star" was epic-length even from the early days of the Purple Rain Tour–like Bruce, Prince made the most of every song, holding band and audience alike in tight formation.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9Lgf2VU_M70)
+[Watch on Youtube: Prince - Baby I'm A Star (Live 1984) [Official Video]](https://www.youtube.com/watch?v=9Lgf2VU_M70)
 
 Unconfirmed rumors abound that Bruce was on stage for more than just that one song that night. I've heard other tracks from that show's bootleg, however, and I'm skeptical.
 

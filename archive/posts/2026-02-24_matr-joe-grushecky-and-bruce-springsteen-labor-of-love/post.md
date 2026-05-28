@@ -12,7 +12,7 @@ post_id: 34234
 
 One of those lighter moments was "Labor of Love," and even if it didn't fit the theme of the album, it became one of Joe's best-loved (*Billboard* editor Thom Duffy named it one of the ten best singles of 1995) and most-played songs, showing up in almost every show.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DSdpmShd7e4)
+[Watch on Youtube: Labor of Love](https://www.youtube.com/watch?v=DSdpmShd7e4)
 
 As he did with the rest of the album, Bruce Springsteen produced the ebullient track, and he contributed his instrumental talents on the guitar and mandolin, too.
 

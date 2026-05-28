@@ -12,7 +12,7 @@ What would the famously fastidious Bruce Springsteen say if we told him in 1975 
 
 Any irony or disappointment would probably be outweighed by appall over the circumstances that inspired future Bruce to write "Streets of Minneapolis."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GDaPdpwA4Iw)
+[Watch on Youtube: Bruce Springsteen - Streets Of Minneapolis (Official Lyric Video)](https://www.youtube.com/watch?v=GDaPdpwA4Iw)
 
 The song was born out of the chaos of Operation Metro Surge. In early 2026, the United States Department of Homeland Security sent more than three thousand Immigration and Customs Enforcement (ICE) agents into the Twin Cities.
 
@@ -22,25 +22,25 @@ Thousands of non-citizens and citizens alike were swept up by ICE agents, whose 
 
 In response, thousands of Minnesotans took to the streets to act as scouts, observers, protectors, documentarians, and agents of public conscience.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Dw2t3XvVa9w)
+[Watch on Youtube: Operation Metro Surge in Minnesota: Key moments during a time of turmoil](https://www.youtube.com/watch?v=Dw2t3XvVa9w)
 
 They were astonishingly successful. Each night, the evening news featured stories of raids and arrests foiled by the actions of concerned neighbors. Even though most took great care to observe the law and rely on their constitutional rights of free speech and protest, ICE began resorting to acts of verbal and physical intimidation to dissuade them.
 
 Americans watching the drama play out nightly on television felt a foreboding sense of a cauldron about to boil over–which finally happened on January 7th when local resident Renée Good was murdered by an ICE agent who shot her repeatedly as she respectfully disengaged and drove away from the scene.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UHXkt3mBI-A)
+[Watch on Youtube: A close examination of the shooting of Renee Good](https://www.youtube.com/watch?v=UHXkt3mBI-A)
 
 Although Trump administration officials (including the president and vice president) did their best to paint Good as a violent threat to the shooter, video evidence continued to emerge over the following days and weeks that proved otherwsie.
 
 Still reeling from the shock of witnessing their own government murder an innocent citizen, Americans watched in horror seventeen days later as a VA intensive care nurse named Alex Pretti was murdered while first observing and then helping a woman being arrested by CBP agents.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=in9xa1jJVWU)
+[Watch on Youtube: Alex Pretti shooting video: Footage from three angles show Minneapolis shooting by Border Patrol](https://www.youtube.com/watch?v=in9xa1jJVWU)
 
 Once again, the Trump administration tried to label a good samaritan as an agitator and insurrectionist. And once again, the video evidence and eyewitness reports proved otherwise.
 
 What little public support remained for the mass deportations quickly began to evaporate, and public outrage erupted in the form of nationwide protests.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D1g3R8GbRt0)
+[Watch on Youtube: Protests spread across US as thousands denounce ICE](https://www.youtube.com/watch?v=D1g3R8GbRt0)
 
 Alex Pretti was killed on Saturday, January 24, 2026. Bruce Springsteen wrote "Streets of Minneapolis" that same day.
 
@@ -50,7 +50,7 @@ And let's be honest: it shows.
 
 "Streets of Minneapolis" is far from Bruce's best work. The rhymes are often lazy, the meter is occasionally clumsy, and the melody is… let's call it an homage to local hero Bob Dylan.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hUvcWXTIjcU)
+[Watch on Youtube: Bob Dylan - Desolation Row (Official Audio)](https://www.youtube.com/watch?v=hUvcWXTIjcU)
 
 As Springsteen protest songs go, it's nowhere near as artful or nuanced as "American Skin (41 Shots)" or "Born in the U.S.A."
 
@@ -111,15 +111,15 @@ Like the repeated references to "the winter of '26," Bruce anchors his song to a
 
 Six days after he wrote it, three days after he recorded it, two days after he released it: Bruce Springsteen performed "Streets of Minneapolis" live on stage for the citizens he wrote it for, as a special guest at Tom Morello's First Avenue benefit show.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FMexHF9LK5I)
+[Watch on Youtube: Bruce Springsteen - Streets of Minneapolis (Live Debut) - First Avenue, Minneapolis, MN 1/30/2026](https://www.youtube.com/watch?v=FMexHF9LK5I)
 
 He performed it again for an even bigger crowd at the flagship No Kings Day rally at the Minnesota State Capitol.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E1EppPc2c4A)
+[Watch on Youtube: Bruce Springsteen performs “Streets of Minneapolis” at No Kings rally in St. Paul; LIVE VIDEO](https://www.youtube.com/watch?v=E1EppPc2c4A)
 
 But even the hardcore fans who watched both performances live or online couldn't have been prepared for the power of "Street of Minneapolis" when arranged for and performed by the full E Street Band.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3zNDYlMVVUM)
+[Watch on Youtube: Streets of Minneapolis (Live From Minneapolis)](https://www.youtube.com/watch?v=3zNDYlMVVUM)
 
 That first full-band performance helped kick off the opening night of a tour that was never supposed to happen, sparked by a horrific murder and a heroic response barely two months before.
 

@@ -20,7 +20,7 @@ Whether supportive or critical, the vast majority of mainstream and vocal fan re
 
 After all, Springsteen had long been outspoken on social causes and civic controversies. Fifty-six years before “Streets of Minneapolis,” he wrote and performed a mournful elegy to the victims of the Kent State massacre called “Where Was Jesus in Ohio?”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=75UD5Xo01M4)
+[Watch on Youtube: Where Was Jesus In Ohio? - Bruce Springsteen (Very Rare)](https://www.youtube.com/watch?v=75UD5Xo01M4)
 
 He’d headlined the Musicians United for Safe Energy (MUSE) concerts in 1979…
 
@@ -44,7 +44,7 @@ And two years later, he turned a cable TV novelty song into a scathing condemnat
 
 More recently, he’d generated controversy by writing a song about the 1999 murder of Amadou Diallo by police officers and performing it nightly following the acquittal of the officers responsible.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aQMqWAiWPMs)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - American Skin (41 Shots) (Live in New York City)](https://www.youtube.com/watch?v=aQMqWAiWPMs)
 
 But somehow, through all of it, Springsteen managed to stay unassociated in the public eye with a particular political leaning, let alone a party or candidate, even though each of those causes were generally associated significantly more with progressive politics than conservative.
 
@@ -54,7 +54,7 @@ Technically, it wasn’t the first time he’d endorsed someone for president, a
 
 It also wasn’t the first time he spoke out against the current office-holder. On the night after President Reagan’s election, Bruce famously remarked from the stage, “I don´t know what you guys think about what happened last night but I think it´s pretty frightening.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NGoBcNXa3mM)
+[Watch on Youtube: Bruce Springsteen - Badlands (Tempe 1980)](https://www.youtube.com/watch?v=NGoBcNXa3mM)
 
 Four years later, Reagan did his best to associate himself with the now mega-star Springsteen by rhetorical proximity.
 
@@ -68,7 +68,7 @@ Both times, though, he was brief enough and sly enough that his remarks went mos
 
 This time was different. On stage during the Vote for Change Tour that fall, Bruce abandoned all pretense at subtlety, opening his shows with the “Star-Spangled Banner” and using “Mary’s Place” as a nightly set piece to galvanize his audience into action.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WD8hha4H-lY)
+[Watch on Youtube: Mary’s Place - Bruce Springsteen (live at Capital One Arena, Washington, D.C. 2004)](https://www.youtube.com/watch?v=WD8hha4H-lY)
 
 Springsteen did everything he could to help the Kerry-Edwards ticket, but as history records, everything he could do wasn’t enough.
 

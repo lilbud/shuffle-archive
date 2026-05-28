@@ -16,7 +16,7 @@ Both songs are narrated by fathers passing along life lessons to their sons; bot
 
 But whereas the narrator of Bruce's 1985 Top Ten single passively and nostalgically accepted his town's fate, the narrator of his 2012 *Wrecking Ball* track isn't about to accept a damn thing.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0mgZZR9ApqI)
+[Watch on Youtube: Death To My Hometown](https://www.youtube.com/watch?v=0mgZZR9ApqI)
 
 If we assume the son in "My Hometown" was the same age as his father was in his reverie, that would make him 35 in 2011… a nice bit of parallelism should we (and we should) consider him now fully grown and the narrator of "Death to My Hometown."
 
@@ -81,13 +81,13 @@ If there's a message in "Death to My Hometown," it's to learn from the past. Our
 
 But the most distinctive musical element in "Death to My Hometown" is surely the folk song sample from "The Last Words of Copernicus" by the United Sacred Harp Musical Association, recorded in 1959. Skip to the 0:53 mark, and you'll hear it clearly.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TWmCplTgflA)
+[Watch on Youtube: United Sacred Harp Musical Association: The Last Words of Copernicus, #112 (1959)](https://www.youtube.com/watch?v=TWmCplTgflA)
 
 That sample was reportedly the song's seed. Bruce was taken by it, imagined a song layered above it, and wrote a song to fit.
 
 With such careful construction, "Death to My Hometown" might seem like a challenge to translate to the concert stage, but when a super-sized E Street Band went on tour behind their *Wrecking Ball* album in 2012, it worked surprisingly well–thanks largely to the expanded horn section and the expressive guitar of Tom Morello, who made frequent guest appearances throughout the tour.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AqME8Yn5ieU)
+[Watch on Youtube: Bruce Springsteen with Tom Morello Death to My Hometown Hyde Park 2012 HD](https://www.youtube.com/watch?v=AqME8Yn5ieU)
 
 "Death to My Hometown" has been a set list staple ever since its debut–it hasn't missed a tour since its original release, and its appearances are regular enough to disqualify as cameo or rare. It remains as relevant today as it was a decade ago–if not more so.
 

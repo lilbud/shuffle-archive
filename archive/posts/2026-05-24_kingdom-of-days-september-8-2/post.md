@@ -56,9 +56,9 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 **2012:** On Night Two at Wrigley Field, Eddie Vedder and Tom Morello reprise their guest appearances from the night before, and Bruce plays “This Depression” for only the third time ever.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_TRdkkamG5o)
+[Watch on Youtube: Bruce Springsteen - This Depression (With Tom Morello) - Wrigley Field; Chicago, IL - 9.8.2012](https://www.youtube.com/watch?v=_TRdkkamG5o)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8QQ3tSgOXpA)
+[Watch on Youtube: Bruce Springsteen "My Hometown" (w/ Eddie Vedder) - Chicago 2012-09-08 - Wrigley Field](https://www.youtube.com/watch?v=8QQ3tSgOXpA)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9ZZyYFa7slQ)
 

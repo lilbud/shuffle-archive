@@ -16,7 +16,7 @@ The song has at least two and possibly three layers to it: one universal, one pe
 
 Let's take a listen to the last recording first. Captured by Tinker West at a Bruce Springsteen Band rehearsal at the Challenger Easter Surfboard factory on March 14, 1972, this is a gorgeous soundboard recording. While the band is still officially known as The Bruce Springsteen Band, the musicians you hear playing (Bruce, Steve, Garry, David, and Vini) are very much the E Street Band–only Danny is missing from the group that only months later would adopt their new name.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dY3To2izd3Y)
+[Watch on Youtube: Bruce Springsteen - Look Towards The Land (1972 rehearsal) [improved audio]](https://www.youtube.com/watch?v=dY3To2izd3Y)
 
 "Look Towards the Land" is an exercise in restraint for the band. Bruce holds tight rein in order to make sure that the introspective, romantic lyrics don't get lost. The melody is piano-driven, and is very similar to "Mary, Queen of Arkansas," which Bruce would record for his first album later that year.
 
@@ -103,11 +103,11 @@ It's possible that this was still a holdover from earlier versions of the song, 
 > *And that's why at night I'm afraid to sleep*<br>
 > *‘Cause some of my dreams frighten me*<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j6Gur5A4Zi8)
+[Watch on Youtube: Look Towards the Land by Bruce Springsteen](https://www.youtube.com/watch?v=j6Gur5A4Zi8)
 
 Five months later, in October 1971, the song sounds very close to the Challenger version at the top of this article. The "man" reference has been dropped, but the "war machine" is there. Take a listen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Imk5QO51SJM)
+[Watch on Youtube: The Bruce Springsteen Band - "Look Toward the Land" - Richmond, 1971-10-23](https://www.youtube.com/watch?v=Imk5QO51SJM)
 
 The fact that the song ends virtually the same way throughout its evolution suggests that Bruce at least had a political context in mind, if not subtext.
 

@@ -18,13 +18,13 @@ post_id: 57724
 
 [Watch Video Highlight](https://videopress.com/embed/xE7qS26M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kJCwCcvLG9g)
+[Watch on Youtube: Bruce Springsteen New Orleans July 16, 1978](https://www.youtube.com/watch?v=kJCwCcvLG9g)
 
 **1979:** At The Power Station in New York City, Bruce records "Ricky Wants a Man of Her Own" and "Cindy." The former won't be released for almost twenty years, the latter not for another fifteen years after that.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xuA_Q9iVyOY)
+[Watch on Youtube: Ricky Wants A Man Of Her Own (Studio Outtake - 1979)](https://www.youtube.com/watch?v=xuA_Q9iVyOY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZlI-L52KrnY)
+[Watch on Youtube: Cindy](https://www.youtube.com/watch?v=ZlI-L52KrnY)
 
 **1981:** Bruce's five-night River stand at The Spectrum in Philly continues.<br>
 
@@ -42,7 +42,7 @@ post_id: 57724
 
 **1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including "I Played the Fool," "Funky Broadway," and "Jersey Girl."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ytSVHBMmYqg)
+[Watch on Youtube: I PLAYED THE FOOL (Bruce Springsteen and Southside Johnny and the Asbury Jukes)](https://www.youtube.com/watch?v=ytSVHBMmYqg)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1994-07-16.jpg.webp)
 
@@ -62,35 +62,35 @@ post_id: 57724
 
 **2009:** Bruce and the band bring the Working on a Dream Tour to Carhaix, France. The show is partially broadcast on French radio–listen to excerpts below:<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D-vlEKWeNNs)
+[Watch on Youtube: Bruce Springsteen - Badlands - Festival Vieilles Charrues 2009](https://www.youtube.com/watch?v=D-vlEKWeNNs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jfJv2omrv88)
+[Watch on Youtube: Bruce Springsteen Outlaw Pete Live In Carhaix Vieilles Charrues 16/07/2009](https://www.youtube.com/watch?v=jfJv2omrv88)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9i__UA5mRJ0)
+[Watch on Youtube: Bruce Springsteen Working On a Dream Live In Carhaix Vieilles Charrues 16/07/2009](https://www.youtube.com/watch?v=9i__UA5mRJ0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=b1LI7at_IPM)
+[Watch on Youtube: Bruce Springsteen "Because the Night" Live Carhaix Les Vieilles Charrues 16-07-2009](https://www.youtube.com/watch?v=b1LI7at_IPM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RuIcvmViugc)
+[Watch on Youtube: Springsteen Live "10th Avenue Freeze Out,I'm Going Down"Carhaix 16-07-2009](https://www.youtube.com/watch?v=RuIcvmViugc)
 
 **2013:** Bruce opens his show in Limerick with the tour premiere of "This Little Light of Mine" and closes it the same way. In between, fans enjoy the tour premiere of "Ain't Too Proud to Beg" and a full album performance of *Born to Run*. If you count a three-song pre-show, this show also features the live debut of "Hearts of Stone" at one of Bruce's own shows.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=t-dRgoK7cjQ)
+[Watch on Youtube: Bruce Springsteen - Live In Limerick 2013-07-16 (HD) Documentary](https://www.youtube.com/watch?v=t-dRgoK7cjQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_YUAu5gy2vg)
+[Watch on Youtube: Bruce Springsteen - Does This Bus Stop At 82nd Street? (HD) Limerick, Irland 2013-07-16](https://www.youtube.com/watch?v=_YUAu5gy2vg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qqK_Qg3xoM4)
+[Watch on Youtube: Bruce Springsteen - Hearts Of Stone (HD) Limerick, Ireland 2013-07-16](https://www.youtube.com/watch?v=qqK_Qg3xoM4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QW8yABgfBAc)
+[Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - This Little Light Of Mine (show start)](https://www.youtube.com/watch?v=QW8yABgfBAc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wtwIatGvFP4)
+[Watch on Youtube: Bruce Springsteen - Ain't too proud to beg (Temptations cover) HD (Thomond Park,Limerick 16.7.13)](https://www.youtube.com/watch?v=wtwIatGvFP4)
 
 **2016:** A stunning opening number at a magical venue: The Roma Sinfonietta strings join the E Street Band for "New York City Serenade" to kick off Bruce's first show at the ancient Circus Maximus in Rome. "Summertime Blues" and "The Ghost of Tom Joad" also make their tour premieres.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=R-1v8w69IWo)
+[Watch on Youtube: Bruce Springsteen - New York City Serenade - Roma 2016 - multicam mix](https://www.youtube.com/watch?v=R-1v8w69IWo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_CpGADrcmNU)
+[Watch on Youtube: Bruce Springsteen & The E Street Band The Ghost of Tom Joad Rome Circus Maximus July 16 2016](https://www.youtube.com/watch?v=_CpGADrcmNU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uh_QQl1Xm_o)
+[Watch on Youtube: Bruce Springsteen Thunder Road Live in Roma 16.07.2016](https://www.youtube.com/watch?v=uh_QQl1Xm_o)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/circus-1.jpg.webp)
 

@@ -12,7 +12,7 @@ If Bruce was only ever going to perform U2's "Where the Streets Have No Name" on
 
 After all, that's what made U2's original Grammy-winning video so memorable.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GzZWSrr5wFI)
+[Watch on Youtube: U2 - Where The Streets Have No Name (Official Music Video)](https://www.youtube.com/watch?v=GzZWSrr5wFI)
 
 That amazing video (staged as a tribute to The Beatles famous rooftop concert) was conceived and directed by Meiert Avis, who also directed some of Bruce's best videos ("Brilliant Disguise," "Tunnel of Love," "One Step Up," "Tougher Than the Rest," "Born to Run" (the acoustic version), "Better Days," and "Human Touch").
 
@@ -26,7 +26,7 @@ The result was a surprise show by "U2 Minus 1," announced just hours before the 
 
 Bruce and U2 performed two songs together: "I Still Haven't Found What I'm Looking For," which they'd played together a couple of times before, and "Where the Streets Have No Name," which remains a one-time-only performance to this day.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=r4amdEdc76o)
+[Watch on Youtube: U2 Minus 1 & Bruce Springsteen - Where The Streets Have No Name](https://www.youtube.com/watch?v=r4amdEdc76o)
 
 This time the band's performance of "Streets" went off without a hint of disruption, and the crowd-pleasing performance proved to be the highlight of an event full of them.
 

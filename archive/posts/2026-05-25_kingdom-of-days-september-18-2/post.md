@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=a_W9UwTVOIM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zrsRXBErrLU)
+[Watch on Youtube: Bruce Springsteen & Dave Edmunds - Let's Talk About Us (1982-09-18, Red Bank, NJ)](https://www.youtube.com/watch?v=zrsRXBErrLU)
 
 **1984:** Bruce and the E Street Band close out their six-night Born in the U.S.A. stand at the Philadelphia Spectrum by tour premiering “I Fought the Law” and “Santa Claus is Comin’ to Town” (the first time they’ve ever played that song earlier than autumn).
 
@@ -26,7 +26,7 @@
 
 **1985:** Bruce plays “Stolen Car” for the last time for 18 years when he and the band play their first of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FPobte6iqSU)
+[Watch on Youtube: Bruce Springsteen: STOLEN CAR](https://www.youtube.com/watch?v=FPobte6iqSU)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PYFmYXI9XII)
 
@@ -58,7 +58,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OuF6DiDDxWs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YfizDCxbBKs)
+[Watch on Youtube: Bruce Springsteen - Hungry Heart - 09/18/2013 - Live in Sao Paulo, Brazil](https://www.youtube.com/watch?v=YfizDCxbBKs)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TMRnU-5ndj0)
 

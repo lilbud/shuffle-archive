@@ -6,7 +6,7 @@
 
 **1975:** Bruce and the E Street Band play their first of two shows at the Houston Music Hall, where they play “Pretty Flamingo” for the first time. (The video below is dubbed because the footage is silent, but it’s pretty great quality for a show this old.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KqXTZAvoTcY)
+[Watch on Youtube: Bruce Springsteen 13th  September 1975.avi](https://www.youtube.com/watch?v=KqXTZAvoTcY)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xOzkYIPncsk)
 
@@ -94,7 +94,7 @@ Why isn’t Bruce there to accept his award? Because he’s on stage with the E 
 
 **2009:** Bruce and the band take the Working on a Dream Tour to Sunrise, Florida, where the encores include the surprising tour premiere of “Then She Kissed Me.” Oh, and “Hava Nagilla.” (Not really, just a snippet.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BmbK6etT7tU)
+[Watch on Youtube: Bruce Springsteen - Hava Nagila/Sherry Darlin - Ft. Lauderdale Sunrise FL  9/13/2009](https://www.youtube.com/watch?v=BmbK6etT7tU)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6TH-ixHYHIQ)
 

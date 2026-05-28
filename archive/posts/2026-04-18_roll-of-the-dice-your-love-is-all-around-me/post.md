@@ -16,7 +16,7 @@ Sporting a unique concept that Bruce wouldn't revisit until "You're Missing," an
 
 Take a listen to this shoulda-been classic:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Dtl8n4A8TpE)
+[Watch on Youtube: Bruce Springsteen Your Love Is All Around Me Now #1](https://www.youtube.com/watch?v=Dtl8n4A8TpE)
 
 There are a few circulating acoustic demos of "Your Love Is All Around Me," and we're fortunate that one of them–the take above–features verses that are both complete (or close enough to complete, at least) and intelligible.
 
@@ -65,7 +65,7 @@ What follows is a full three minutes of self-flagellating chorus riffing, with o
 > *Oh baby let the night fall around*<br>
 > *Oh let the darkness fall on me now*<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sX-yxWSPUC0)
+[Watch on Youtube: Bruce Springsteen Your Love Is All Around Me Now #2](https://www.youtube.com/watch?v=sX-yxWSPUC0)
 
 Like I said, this isn't a happy song. But it's an infectious one, and it would have been right at home on *Born in the U.S.A.*, an album full of darkly tinged songs with upbeat arrangements.
 

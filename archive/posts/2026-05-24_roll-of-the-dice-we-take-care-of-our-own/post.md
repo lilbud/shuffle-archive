@@ -32,7 +32,7 @@ The members of the fourteen-piece(!) string section are the only instrumental mu
 
 The official video, however, is just Bruce, and it holds the distinction of being his first-ever lyric video.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-x8zBzxCwsM)
+[Watch on Youtube: Bruce Springsteen - We Take Care of Our Own (Official Video)](https://www.youtube.com/watch?v=-x8zBzxCwsM)
 
 Lyric videos had come into fashion in the years between *Working on a Dream* and *Wrecking Ball*, and Bruce couldn’t have selected a better track to try out the new format.
 

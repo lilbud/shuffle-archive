@@ -20,11 +20,11 @@ post_id: 57607
 
 **1981:** Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena's opening stand. Recordings of "Independence Day," "Cadillac Ranch," and "Racing in the Street" will eventually be released on *Live 1975-85*.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GSPNMNO5Enc)
+[Watch on Youtube: Independence Day (Live at Meadowlands Arena, E. Rutherford, NJ - July 1981)](https://www.youtube.com/watch?v=GSPNMNO5Enc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hcZFiBWrK4c)
+[Watch on Youtube: Cadillac Ranch (Live at Meadowlands Arena, E. Rutherford, NJ - July 1981)](https://www.youtube.com/watch?v=hcZFiBWrK4c)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dCILTxWFsow)
+[Watch on Youtube: Racing In The Street (Live at Meadowlands Arena, E. Rutherford, NJ - July 1981)](https://www.youtube.com/watch?v=dCILTxWFsow)
 
 **1984:** Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played "The Good, The Bad, and The Ugly."<br>
 
@@ -32,7 +32,7 @@ post_id: 57607
 
 **1985:** Bruce and the E Street Band close out their Wembley Stadium stand with their third of three nights in London. Steve Van Zandt makes his third consecutive encore appearance. Also in attendance tonight: Phil Collins, Mark Knopfler, Roger Taylor, and John Entwhistle.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2Epn-TJSqIM)
+[Watch on Youtube: Bruce Springsteen - Wembley Stadium July 4th and 6th 1985](https://www.youtube.com/watch?v=2Epn-TJSqIM)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB3A7RZuw2uFaPLaMNz2oOs)
 
@@ -52,17 +52,17 @@ post_id: 57607
 
 **2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on "Dirty Rotten Shame," and later joining Southside Johnny & The Asbury Jukes for seven songs.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mO5tTJvyA30)
+[Watch on Youtube: Bruce Springsteen Gives Surprise Performance In Asbury Park](https://www.youtube.com/watch?v=mO5tTJvyA30)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eu9j35DrYTo)
+[Watch on Youtube: Bruce Springsteen with Garry Tallent at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=eu9j35DrYTo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yLy4Df41z0k)
+[Watch on Youtube: Bruce Springsteen sings “The Fever” with Southside Johnny st the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=yLy4Df41z0k)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eZ2TOsR-imQ)
+[Watch on Youtube: Bruce Springsteen and Southside Johnny: Talk to Me at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=eZ2TOsR-imQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DpW738Y9FoE)
+[Watch on Youtube: Bruce Springsteen and Southside Johnny: I Don't Want to Go Home, Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=DpW738Y9FoE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=At_NGkleZUI)
+[Watch on Youtube: Bruce Springsteen and Southside Johnny: Havin’ A Party at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=At_NGkleZUI)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2019-07-06a.jpg.webp)
 
@@ -72,6 +72,6 @@ post_id: 57607
 
 **2023:** Peter Gabriel, Billy Joel, and Jon Bon Jovi are among the fans in attendance at Hyde Park, where Bruce and the E Street Band play their first of two shows on their 2023 World Tour.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qs_vbgeV2-Q)
+[Watch on Youtube: Working On The Highway - Bruce Springsteen, Hyde Park London 2023-07-06](https://www.youtube.com/watch?v=qs_vbgeV2-Q)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PeAhFEkCGfA)
+[Watch on Youtube: BRUCE SPRINGSTEEN- „My Hometown“- London, July 6th- 2023, Hyde Park BST](https://www.youtube.com/watch?v=PeAhFEkCGfA)

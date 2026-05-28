@@ -12,7 +12,7 @@ Turn it up!
 
 If you're only familiar with Southside Johnny's cover and haven't heard Bruce's original version before, turn your stereo way up loud and prepare for a revelation, because this is a *very* different take:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZO9NwCUyU-Q)
+[Watch on Youtube: Bruce Springsteen, "When You Dance" - 1972-03-14](https://www.youtube.com/watch?v=ZO9NwCUyU-Q)
 
 Bruce wrote "When You Dance" with Steve Van Zandt in 1971 and played it with The Bruce Springsteen Band throughout late 1971 and early 1972.
 
@@ -20,7 +20,7 @@ The version above is from a 1972 rehearsal session recorded at Challenger Easter
 
 Southside Johnny covered "When You Dance" on *This Time It's For Real* in 1977, but even though the melody, riff, and hook are recognizable, the lyrics are very different.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=v--JAJJngqo)
+[Watch on Youtube: When You Dance](https://www.youtube.com/watch?v=v--JAJJngqo)
 
 SSJ's version is credited to both Bruce and Steve Van Zandt as songwriters, but it's not clear if that was always the case or if Bruce gave his version to Steve to adapt. Regardless, both versions deserve to be played *loud*.
 

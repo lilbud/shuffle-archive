@@ -11,7 +11,7 @@ Today's roll of the dice is undeservedly obscure.
 
 Sandwiched in between Bruce's guitar-heavy Steel Mill jams and his early Columbia character-driven stories is this funky, horn-fueled dance number.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JMv8WkenPyg)
+[Watch on Youtube: The Bruce Springsteen Band - "Dance Dance Dance"](https://www.youtube.com/watch?v=JMv8WkenPyg)
 
 There's no lyrical depth here, nor should there be, so it doesn't require or ask for lyrical analysis. If this song is about anything, it's about losing yourself in music:
 

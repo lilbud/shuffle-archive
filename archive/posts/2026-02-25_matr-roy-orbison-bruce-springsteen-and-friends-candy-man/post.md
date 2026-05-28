@@ -10,7 +10,7 @@ post_id: 30867
 ---
 It may not have enjoyed quite the success that its A-side did, but Roy Orbison's 1961 B-side "Candy Man" still managed to claw its way to #25 on the Billboard Hot 100.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VWoA74YyDWY)
+[Watch on Youtube: Candy Man](https://www.youtube.com/watch?v=VWoA74YyDWY)
 
 "Candy Man" was tucked onto the flipside of Roy's smash single, "Crying," but audiences found their way to it regardless.
 
@@ -26,7 +26,7 @@ It's also a ton of fun to play–something we can tell by watching Roy and the a
 
 Oh, and Bruce Springsteen of course. Bruce stays in the background on rhythm guitar, but if you keep your eyes open, you'll spot him several times during the performance having the time of his life.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0FTKYtQXbro)
+[Watch on Youtube: Roy Orbison - Candy Man (Black & White Night 30)](https://www.youtube.com/watch?v=0FTKYtQXbro)
 
 **Candy Man**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>

@@ -18,7 +18,7 @@ post_id: 59419
 
 **1975:** Bruce and the E Street Band wrap up their three-night stand at Alex Cooley's Electric Ballroom in Atlanta. The setlist includes "Then She Kissed Me" in its last appearance for 33 years to the day (see below).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xYG03nqdFqE)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Atlanta, GA 1975-08-23 (Soundboard)](https://www.youtube.com/watch?v=xYG03nqdFqE)
 
 **1977:** Bruce and the band work on "Come On (Let's Go Tonight)" at a recording session in New York City.<br>
 
@@ -38,7 +38,7 @@ post_id: 59419
 
 [Watch Video Highlight](https://videopress.com/embed/SgmxFmy4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=S6jU4NVTnq8)
+[Watch on Youtube: Bruce Springsteen - 1981-08-23 - Los Angeles, CA @ Sports Arena [Audio]](https://www.youtube.com/watch?v=S6jU4NVTnq8)
 
 **1982:** Bruce joins Mama Tried on stage at the Brighton Bar in Long Branch, New Jersey for "Twist and Shout."<br>
 
@@ -50,41 +50,41 @@ post_id: 59419
 
 **2008:** Bruce and the E Street Band play what is widely (and personally) considered to be one of his best shows ever, certainly of the Reunion era, in St. Louis. Four tour premieres at this penultimate Magic Tour show, including two ("Then She Kissed Me" and "Mountain of Love") not played for 33 years (to the very day for one of them), along with performances of three epics ("Backstreets," "Drive All Night," and "Jungleland") all in one show. The show is available for purchase as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6L4kMZsy6-E)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - When You Walk In The Room | Rehearsal- St. Louis 2008| audio](https://www.youtube.com/watch?v=6L4kMZsy6-E)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Y0GfHJGmLQ8)
+[Watch on Youtube: Then She Kissed Me ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=Y0GfHJGmLQ8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OZeRLiXWA0w)
+[Watch on Youtube: Then She Kissed Me (Live at the Scottrade Center, St. Louis, MO - 08/23/08 - Official Audio)](https://www.youtube.com/watch?v=OZeRLiXWA0w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VtrYk0ojaN0)
+[Watch on Youtube: Mountain of Love ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=VtrYk0ojaN0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sk79Bgl_7Ms)
+[Watch on Youtube: Drive All Night ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=sk79Bgl_7Ms)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2008-08-23.png.webp)
 
 **2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "Independence Day," followed by an instrumental "(Love is Like a) Heat Wave" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "American Land."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vJTpQPqjBU4)
+[Watch on Youtube: Bruce Springsteen "Independence Day" Mansfield 8-23-09](https://www.youtube.com/watch?v=vJTpQPqjBU4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aA8Po2DBtf8)
+[Watch on Youtube: Bruce Springsteen  "Heatwave" - "I'm Goin' Down" Mansfield, MA  8-23-09](https://www.youtube.com/watch?v=aA8Po2DBtf8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Gaa_S7-ob1k)
+[Watch on Youtube: Bruce Springsteen  "You Never Can Tell"  Mansfield  8-23-09](https://www.youtube.com/watch?v=Gaa_S7-ob1k)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KSufNT9kZhs)
+[Watch on Youtube: Bruce Springsteen  "American Land" Mansfield 8-23-09](https://www.youtube.com/watch?v=KSufNT9kZhs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2GYEcPsBumI)
+[Watch on Youtube: Bruce Springsteen "Hang on Sloopy" into "Growin' Up" Mansfield  8-23-09](https://www.youtube.com/watch?v=2GYEcPsBumI)
 
 **2016:** Bruce and the E Street Band kick off the ten-show "victory lap" leg of what really shouldn't be called the River Tour anymore, with the first of three shows at MetLife Stadium in East Rutherford. Right away, it's clear that this leg is going to be special: the show opens with "New York City Serenade," featuring an eight-piece string section led by Sam Bardfeld of the Sessions Band. The strings return later in the show for the tour premiere of "Jack of All Trades," but these are far from the only highlights: Bruce is reflective tonight, in fresh storytelling mode, perhaps in anticipation of the release of his autobiography. "Santa Claus is Comin' to Town" is played by request, and "Mansion on the Hill" is played as a duet with Patti. A final encore of "Jersey Girl" accompanied by fireworks caps off the third longest show Bruce has ever played in the USA… but it will drop several notches before the tour ends.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jl1BSehj5Ss)
+[Watch on Youtube: New York City Serenade (with strings) - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=jl1BSehj5Ss)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KfDfbXoC4Zw)
+[Watch on Youtube: Bruce Springsteen & the ESB: SOMETHING IN THE NIGHT-- 08/23/16](https://www.youtube.com/watch?v=KfDfbXoC4Zw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kPD2ZBo9_Fc)
+[Watch on Youtube: Mansion on the Hill - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=kPD2ZBo9_Fc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ydQtkgz75Q0)
+[Watch on Youtube: Jack of All Trades (with strings) - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=ydQtkgz75Q0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qL1aFFlXn6I)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Jersey Girl (live at Metlife, NJ 2016)](https://www.youtube.com/watch?v=qL1aFFlXn6I)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2016-08-23a.png.webp)
 
@@ -94,6 +94,6 @@ post_id: 59419
 
 **2024:** After more than a year's postponement, Bruce and the E Street Band finally play their second of two nights at Philadelphia's Citizens Bank Park.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iaM1mbs1PqY)
+[Watch on Youtube: Bruce Springsteen - Seeds/Prove It All Night/My Love... (Citizens Bank Park) Philadelphia,Pa 8.23.24](https://www.youtube.com/watch?v=iaM1mbs1PqY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V3saG9NwoAo)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - “Reason to Believe” - Philadelphia, PA - August 23, 2024](https://www.youtube.com/watch?v=V3saG9NwoAo)

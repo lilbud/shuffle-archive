@@ -24,7 +24,7 @@ post_id: 57928
 
 [Watch Video Highlight](https://videopress.com/embed/D1aamrTq)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=S9bQHNVtfvA)
+[Watch on Youtube: Bruce Springsteen - 1975-08-08 Akron Civic Theatre, Akron, OH](https://www.youtube.com/watch?v=S9bQHNVtfvA)
 
 **1978:** A planned Darkness Tour stop at Ryserson University in Toronto is cancelled.<br>
 

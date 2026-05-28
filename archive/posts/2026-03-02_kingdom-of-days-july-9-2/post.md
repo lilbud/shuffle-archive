@@ -24,13 +24,13 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 **1981:** Bruce and the E Street Band close out their opening stand at the Brendan Byrne Arena in the Meadowlands, and Gary U.S. Bonds joins them on stage for "Jole Blon" and "This Little Girl." Bruce's performance of "Jersey Girl" will be released in 1984 as the B-side to "Cover Me" as well as on the *Live 1975-85* box set. This concert is available for purchase as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c6InmR1IPs4)
+[Watch on Youtube: This Land is Your Land (Live at Brendan Byrne Arena, E. Rutherford, NJ - 7/9/1981)](https://www.youtube.com/watch?v=c6InmR1IPs4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LRWZ11xRVwA)
+[Watch on Youtube: Jole Blon (Live at Brendan Byrne Arena, E. Rutherford, NJ - 7/9/1981)](https://www.youtube.com/watch?v=LRWZ11xRVwA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=78pdEP9Pr4s)
+[Watch on Youtube: Jersey Girl (Live at Meadowlands Arena, E. Rutherford, NJ - July 1981)](https://www.youtube.com/watch?v=78pdEP9Pr4s)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WCcS5hVcVgs)
+[Watch on Youtube: Born to Run (Live at Brendan Byrne Arena, E. Rutherford, NJ - 7/9/1981)](https://www.youtube.com/watch?v=WCcS5hVcVgs)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1981-07-09.jpg.webp)
 
@@ -38,19 +38,19 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 [Watch Video Highlight](https://videopress.com/embed/Eurx5bco)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=i2uzyHlLjSs)
+[Watch on Youtube: Bruce Springsteen Thunder Road Richfield 09/07/1984](https://www.youtube.com/watch?v=i2uzyHlLjSs)
 
 **1988:** Bruce brings the Tunnel of Love Tour to Sheffield for the first of two nights. "Spare Parts" from this show will be released on the *Spare Parts* EP and on *Video Anthology*. Bruce spends time with Roy Orbison at the hotel before the show.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HKH3C3b2HzU)
+[Watch on Youtube: Bruce Springsteen - Spare Parts (Official Video - DVD Version)](https://www.youtube.com/watch?v=HKH3C3b2HzU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jAgD8cwvcxk)
+[Watch on Youtube: Bruce Springsteen   Sheffield 1988 Trailer](https://www.youtube.com/watch?v=jAgD8cwvcxk)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Manchester_Evening_News_1988_07_11_6-scaled.jpg.webp)
 
 **1989:** Bruce joins Cats on a Smooth Surface at The Stone Pony for "Travelin' Band."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IcBM6UlaIzA)
+[Watch on Youtube: Bruce Springsteen and Cats on a Smooth Surface - "Travelin' Band"](https://www.youtube.com/watch?v=IcBM6UlaIzA)
 
 **1992:** Bruce and his new touring band play their second of five nights at Wembley Arena in London.<br>
 
@@ -58,11 +58,11 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 **1995:** One of the stranger collaborations of Bruce's career: Bruce travels to Berlin, where he plays a short concert at Cafe Eckstein with Wolfgang Niedecken and His Leopardefellband. The purpose of the show is to yield a new recording and video for "Hungry Heart," which will be released on video and on the *Hungry Heart* EP (sort of–it will actually feature Bruce's new vocals over the original instrumental track, and it's kind of jarring. Compare the official video with the raw footage below). The setlist also features several covers, including Dylan's "Knockin' on Heaven's Door" and "Highway 61 Revisited."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0My2AqPFpFg)
+[Watch on Youtube: Bruce Springsteen - Hungry Heart (Berlin '95 Version)](https://www.youtube.com/watch?v=0My2AqPFpFg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Bwj6KB8sfO0)
+[Watch on Youtube: Bruce Springsteen Hungry Heart (Live 1995 07 09)](https://www.youtube.com/watch?v=Bwj6KB8sfO0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SGLVwl9JFEg)
+[Watch on Youtube: Bruce Springsteen - Berlin news coverage - July 9, 1995](https://www.youtube.com/watch?v=SGLVwl9JFEg)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLmxwNSnqgfefUrF8aoCMV1UO6oh6FA8TM)
 
@@ -74,44 +74,44 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 **2012:** The Wrecking Ball Tour stops in Zurich for a night, where Bruce opens the show with the tour premiere of "Don't Look Back." Other tour premieres include "Working on a Dream" and "If I Should Fall Behind."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bONvhTMjY38)
+[Watch on Youtube: springsteen opening zurigo 9 7 2012  don't look back + badlands hd!](https://www.youtube.com/watch?v=bONvhTMjY38)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l9G9oDmdrzE)
+[Watch on Youtube: Bruce Springsteen - Working On A Dream (2012-07-09 - Zurich)](https://www.youtube.com/watch?v=l9G9oDmdrzE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Sz4iaouTLIY)
+[Watch on Youtube: Bruce Springsteen - Zürich 9.7.2012 - If I Should Fall Behind](https://www.youtube.com/watch?v=Sz4iaouTLIY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pSH3Cxk32oM)
+[Watch on Youtube: Bruce Springsteen - The Rising / Out In The Street (2012 07-09 - Zurich)](https://www.youtube.com/watch?v=pSH3Cxk32oM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lNy-js7vHb0)
+[Watch on Youtube: Bruce Springsteen - We Are Alive (2012 07-09 - Zurich)](https://www.youtube.com/watch?v=lNy-js7vHb0)
 
 **2013:** In town a day early for his show in Rome, Bruce catches Sting's gig at Stadio del Tennis. After the show, Sting's pianist David Sancious join his current and old bosses for a late dinner at Bruce's hotel.<br>
 
 **2014:** The video–a short film, really–for "Hunter of Invisible Game" makes its debut. It is perhaps Bruce's most artistically ambitious video ever.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_HVuTCfixwA)
+[Watch on Youtube: Bruce Springsteen - "Hunter Of Invisible Game"](https://www.youtube.com/watch?v=_HVuTCfixwA)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2014-07-09.jpg.webp)
 
 **2016:** Bruce and the E Street Band play the TW Classic Festival in Werchter, Belgium, where "Mansion on the Hill" and "If I Should Fall Behind" make their tour premieres.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IHivuJjx3WI)
+[Watch on Youtube: Bruce Springsteen July 9, 2016, Werchter, Belgium Mansion On The Hill](https://www.youtube.com/watch?v=IHivuJjx3WI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=o-igcyw7g3g)
+[Watch on Youtube: Festivalverslag Werchter 2016 Bruce Springsteen 9 juli 2016](https://www.youtube.com/watch?v=o-igcyw7g3g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QR6cXlQkZI4)
+[Watch on Youtube: Springsteen, "Waitin'on a sunny day", TW Classic Werchter, 09-07-2016](https://www.youtube.com/watch?v=QR6cXlQkZI4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=osL78849piw)
+[Watch on Youtube: Bruce Springsteen, July 9, 2016 Werchter, Belgium, 41 Shots](https://www.youtube.com/watch?v=osL78849piw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oWivyPC8Qq8)
+[Watch on Youtube: Springsteen "Dancing in the Dark", TW Classic Werchter, 09-07-2016](https://www.youtube.com/watch?v=oWivyPC8Qq8)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.<br>
 
 **2023:** In flight to his next World Tour 2023 stop, Bruce records a salute to old friend and engineer Louis Lahav, who is receiving a lifetime achievement award in Israel for his contribution to music.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TdpPb-dsFeg)
+[Watch on Youtube: Louis Lahav lifetime Achievement Award](https://www.youtube.com/watch?v=TdpPb-dsFeg)
 
 **2024:** Bruce and the E Street Band bring World Tour 24 to Odense, Denmark.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Tf1gKYJD0Lo)
+[Watch on Youtube: Bruce Springsteen - Trapped - Odense 2024-07-09](https://www.youtube.com/watch?v=Tf1gKYJD0Lo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yppovvUStAM)
+[Watch on Youtube: Bruce Springsteen - The E Street Shuffle. Odense (DK), 09-07-2024](https://www.youtube.com/watch?v=yppovvUStAM)

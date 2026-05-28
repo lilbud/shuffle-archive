@@ -30,9 +30,9 @@ post_id: 57749
 
 **1975:** Bruce completes "Backstreets" and "Meeting Across the River" at the Record Plant in New York City, a mere month before both songs would appear on record store shelves, and only two days before the kickoff of the the Born to Run Tour.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=USQ697oqkaw)
+[Watch on Youtube: Backstreets](https://www.youtube.com/watch?v=USQ697oqkaw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c6OAtvjSf1Y)
+[Watch on Youtube: Meeting Across the River](https://www.youtube.com/watch?v=c6OAtvjSf1Y)
 
 **1978:** The Darkness Tour continues its southern swing with a show at the Municipal Auditorium in Jackson, Mississippi.<br>
 
@@ -42,9 +42,9 @@ post_id: 57749
 
 **1979:** At The Power Station in New York City, Bruce records "Be True" and "Loose Ends." It will be almost two decades before they see an album release.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Rq2lsxXUVew)
+[Watch on Youtube: Be True](https://www.youtube.com/watch?v=Rq2lsxXUVew)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7RvmALTXl1Y)
+[Watch on Youtube: Loose Ends](https://www.youtube.com/watch?v=7RvmALTXl1Y)
 
 **1981:** Bruce and the band play their fourth of five nights at The Spectrum in Philadelphia on the River Tour.<br>
 
@@ -56,15 +56,15 @@ post_id: 57749
 
 **1999:** Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare performances of "I Wanna Be With You" (the show opener), "Loose Ends," "Stand On It," and "Freehold." This show is available as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nuDox-fTUTI)
+[Watch on Youtube: I Wanna Be With You (Live at Continental Airlines Arena, E. Rutherford, NJ - 7/18/1999)](https://www.youtube.com/watch?v=nuDox-fTUTI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3lckBP_w83I)
+[Watch on Youtube: "Stand On It" Bruce Springsteen and the E Street Band, July 18, 1999](https://www.youtube.com/watch?v=3lckBP_w83I)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uGupQlqaGAc)
+[Watch on Youtube: Loose Ends (Live at Continental Airlines Arena, E. Rutherford, NJ - 7/18/1999)](https://www.youtube.com/watch?v=uGupQlqaGAc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SnniBwxZ4D8)
+[Watch on Youtube: Jungleland (Live at Continental Airlines Arena, E. Rutherford, NJ - 7/18/1999)](https://www.youtube.com/watch?v=SnniBwxZ4D8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dThZ2c3DTxA)
+[Watch on Youtube: Freehold (Live at Continental Airlines Arena, E. Rutherford, NJ - 7/18/1999)](https://www.youtube.com/watch?v=dThZ2c3DTxA)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1999-07-18a.png.webp)
 
@@ -78,11 +78,11 @@ post_id: 57749
 
 **2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including "4th of July, Asbury Park (Sandy)," a solo piano "Leap of Faith," "You're Missing," "Darkness on the Edge of Town," "When You're Alone," and a show-opening new acoustic arrangement of "Prove It All Night" on guitar and harmonica.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6tdzu7g-jjc)
+[Watch on Youtube: Bruce Springsteen Prove It All Night Live In Buffalo Solo Acoustic 2005](https://www.youtube.com/watch?v=6tdzu7g-jjc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hnCZf7buQLs)
+[Watch on Youtube: "Leap of Faith" performed at grand piano live on the Devils & Dust tour](https://www.youtube.com/watch?v=hnCZf7buQLs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sPziI_eo7fk)
+[Watch on Youtube: Bruce Springsteen When You're Alone Buffalo 18/07/2005](https://www.youtube.com/watch?v=sPziI_eo7fk)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2005-07-18a.png.webp)
 
@@ -90,31 +90,31 @@ post_id: 57749
 
 **2012:** On Night Two in Dublin on the Wrecking Ball Tour, an injured Jake Clemons takes the stage in a wheelchair. He threw his back out the night before, and Bruce gently (and very cleverly) teases him during "Spirit in the Night."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ITkN4pOsWgk)
+[Watch on Youtube: Spirit in the night - Bruce Springsteen RDS Dublin 18/7/2012](https://www.youtube.com/watch?v=ITkN4pOsWgk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=X_RzL4SsJQg)
+[Watch on Youtube: Bruce Springsteen - This Hard Land Live at the RDS Dublin Ireland](https://www.youtube.com/watch?v=X_RzL4SsJQg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D5thnuln89Q)
+[Watch on Youtube: Something in the Night - Dublin Ireland July 18 2012](https://www.youtube.com/watch?v=D5thnuln89Q)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1SEaF_zs6rE)
+[Watch on Youtube: Bruce Springsteen Dublin 18/07/2012 Full Concert 100 subscribers special](https://www.youtube.com/watch?v=1SEaF_zs6rE)
 
 **2013:** The Wrecking Ball Tour comes to Cork, where "Wild Thing," "The Price You Pay" and "Real World" make their tour debuts. This is the first time Bruce performs "Real World" since 2005, and early arriving fans get to hear it twice: once in the main set and once in a three-song pre-show.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uJ_uzh9WsX8)
+[Watch on Youtube: Bruce Springsteen - Real World (Pre Show) (Live)  2013-07-18  Cork, Ireland](https://www.youtube.com/watch?v=uJ_uzh9WsX8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C8isyYvEzVA)
+[Watch on Youtube: Bruce Springsteen - Wild thing (Troggs Cover) HD (Páirc Uí Chaoimh, Cork 18.7.13)](https://www.youtube.com/watch?v=C8isyYvEzVA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JWq7Oi7VS10)
+[Watch on Youtube: Bruce Springsteen Cork Ireland 18/07/2013 Full Concert](https://www.youtube.com/watch?v=JWq7Oi7VS10)
 
 **2015:** At what point does a guest appearance become a surprise co-headline? I'm not sure, but at Joe Grushecky's show at The Wonder Bar, Bruce clearly crossed that line, joining the Houserockers for fifteen of their eighteen-song set.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eNqsIniq9qY)
+[Watch on Youtube: Bruce Springsteen  and Joe Grushecky Chain Smokin](https://www.youtube.com/watch?v=eNqsIniq9qY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dXffaqgkleI)
+[Watch on Youtube: 07/18/2015 - Wonder Bar - Bruce Springsteen & Joe Grushecky - Never Be Enough Time](https://www.youtube.com/watch?v=dXffaqgkleI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tgUkQownxrg)
+[Watch on Youtube: Bruce Springsteen - Wonder Bar - Asbury Park 7/18/15](https://www.youtube.com/watch?v=tgUkQownxrg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YVqt-El6LDA)
+[Watch on Youtube: Bruce Springsteen Live at Wonder Bar  -- Save my Love Asbury Park NJ  07/18/2015](https://www.youtube.com/watch?v=YVqt-El6LDA)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2015-07-18a.png.webp)
 
@@ -122,20 +122,20 @@ post_id: 57749
 
 **2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores ("The Ghost of Tom Joad" and "Long Time Comin'") and will be released on the streaming service (and on album) to much acclaim later in the year.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E0Bkn9KgT6Y)
+[Watch on Youtube: 'Springsteen On Broadway' (Official Album Trailer #1)](https://www.youtube.com/watch?v=E0Bkn9KgT6Y)
 
 Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to mark Billy's 100th show of his residency. The two play "Tenth Avenue Freeze-Out" and "Born to Run."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lz-lFobWvTs)
+[Watch on Youtube: Bruce Springsteen at Billy Joel #MSG100 10th. Avenue Freeze Out & Born to Run.](https://www.youtube.com/watch?v=Lz-lFobWvTs)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2018-07-18.png.webp)
 
 **2023:** For the first time in over two decades, Bruce plays an identical setlist to his previous show when World Tour 2023 stops in Vienna, Austria.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YZwxrURUL8w)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance+ “No Surrender” - Vienna, Austria - July 18, 2023](https://www.youtube.com/watch?v=YZwxrURUL8w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SWuM5YEDqHI)
+[Watch on Youtube: Bruce Springsteen / Wrecking Ball / Ernst Happel Stadion, Vienna / 2023-07-18](https://www.youtube.com/watch?v=SWuM5YEDqHI)
 
 **2024:** Bruce and the E Street Band play their second of two nights at Strawberry Arena in Solna, Sweden.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bUhyY_1EY3s)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - “I’m On Fire” - Stockholm, Sweden - July 18, 2024](https://www.youtube.com/watch?v=bUhyY_1EY3s)

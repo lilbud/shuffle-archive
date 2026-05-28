@@ -46,7 +46,7 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 **2005:[../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md](../2018-08-13_where-the-band-was-vancouver-august-13-2005/post.md)**Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour premiering "Because the Night" and giving "4th of July, Asbury Park (Sandy)" a rare outing.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PxtqtXjKuSo)
+[Watch on Youtube: Bruce Springsteen - Living Proof on Pump Organ, August 13, 2005](https://www.youtube.com/watch?v=PxtqtXjKuSo)
 
 [Watch Video Highlight](https://videopress.com/embed/IaSVvsd3)
 
@@ -54,11 +54,11 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 [Watch Video Highlight](https://videopress.com/embed/mcsdNdn1)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qjnAIIAbok8)
+[Watch on Youtube: Bruce Springsteen Because The Night Solo Perfomance Live From Vancouver 13/08/2005](https://www.youtube.com/watch?v=qjnAIIAbok8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vbEt0oKCm3o)
+[Watch on Youtube: Bruce Springsteen - 4th of July Asbury Park (Sandy) Solo Piano](https://www.youtube.com/watch?v=vbEt0oKCm3o)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ee4wJU4-COE)
+[Watch on Youtube: "Living Proof" Bruce Springsteen August 13, 2005](https://www.youtube.com/watch?v=Ee4wJU4-COE)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2005-08-13a.png.webp)
 
@@ -66,4 +66,4 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 **2012:** Bruce and the E Street Band rehearse for the final American leg of the Wrecking Ball Tour at Fenway Park in Boston.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WqcEh_6ls8M)
+[Watch on Youtube: Bruce Springsteen Soundcheck "Born In the USA" | 2012 Fenway Park Boston MA](https://www.youtube.com/watch?v=WqcEh_6ls8M)

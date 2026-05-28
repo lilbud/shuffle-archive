@@ -12,7 +12,7 @@
 
 **1981:** It’s the end of the River Tour with this final show at Cincinnati’s Riverfront Coliseum, and it’s Steve Van Zandt’s last show as a member of the E Street Band for 18 years. Also saying their goodbyes for a while: “It’s Hard to Be a Saint in the City” (next seen 15 years later) and “The Ties That Bind” (resurfacing 18 years later).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YhD26kZGafI)
+[Watch on Youtube: Bruce Springsteen - "Rosalita" - Cincinatti, 1981-09-14](https://www.youtube.com/watch?v=YhD26kZGafI)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1981-09-14.jpg' alt='' title='' width='758' height='473' />
 
@@ -82,7 +82,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4fpAr8l2r4M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vBYrksfpzBs)
+[Watch on Youtube: Bobby Jean (Live at Gillette Stadium, Foxboro, MA - 9/14/16 - Official Audio)](https://www.youtube.com/watch?v=vBYrksfpzBs)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2021/09/2016-09-14.jpg' alt='' title='' width='758' height='1462' />
 

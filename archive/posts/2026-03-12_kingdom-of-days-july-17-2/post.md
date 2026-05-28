@@ -16,7 +16,7 @@ post_id: 57748
 
 **1970:** Steel Mill headlines at Asbury Park's Sunshine In, with a setlist that features "Garden State Parkway Blues," "Sherlock Goes Home," and "KT-88."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=40fj8jiZGsM)
+[Watch on Youtube: Bruce Springsteen (Steel Mill) - 1970-07-17 Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=40fj8jiZGsM)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1970-07-17.png.webp)
 
@@ -32,7 +32,7 @@ post_id: 57748
 
 **1984:** On Night Two at the Rosemont Horizon near Chicago, Bruce tour premieres "Tenth Avenue Freeze-Out" and "Because the Night." Watch news coverage and footage below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kkUCWM9MA5k)
+[Watch on Youtube: Bruce Springsteen - Chicago News coverage - July 17, 1984](https://www.youtube.com/watch?v=kkUCWM9MA5k)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-07-17.png.webp)
 
@@ -54,9 +54,9 @@ post_id: 57748
 
 **2008:** The Magic Tour's Spanish leg continues with a show in Madrid, featuring a rare performance of "Cover Me."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xzVzqJEkbJ4)
+[Watch on Youtube: Bruce Springsteen - Cover Me (Madrid 2008)](https://www.youtube.com/watch?v=xzVzqJEkbJ4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bA7WK-awFnY)
+[Watch on Youtube: Bruce Springsteen Santiago Bernabeu TVE 1 Madrid  2008 ana b](https://www.youtube.com/watch?v=bA7WK-awFnY)
 
 **2011:** Bruce makes a guest appearance at J.T. Bowen and The Sensational Soul Cruisers' tribute to Clarence Clemons at The Wonder Bar in Asbury Park. The setlist highlights: long-awaited returns of "Action in the Streets" (the first in 34 years) and "Savin' Up" (the first in 24 years).<br>
 
@@ -66,15 +66,15 @@ post_id: 57748
 
 **2012:** "Before we were so rudely interrupted…"Bruce picks up in Dublin where he left off–or rather, was cut off–at Hyde Park, bringing his own mock generator on stage, flipping the switch to "ON" and finishing "Twist and Shout" from the previous show. He then launches directly into "I Fought the Law," a very appropriate tour premiere. Other tour premieres include "I'm a Rocker" and "My Hometown."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4Ehdf2SbIDI)
+[Watch on Youtube: Bruce Springsteen, Dublin, RDS, 2012, Intro/Twist & Shout (London Cont.)](https://www.youtube.com/watch?v=4Ehdf2SbIDI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6R68gn0eE2E)
+[Watch on Youtube: I Fought the Law - Springsteen - Dublin Ireland July 17 2012](https://www.youtube.com/watch?v=6R68gn0eE2E)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/The_Leader_Post_2012_07_20_15.jpg.webp)
 
 **2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores ("The Ghost of Tom Joad" and "Long Time Comin'") and will be released on the streaming service to much acclaim later in the year.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M1xDzgob1JI)
+[Watch on Youtube: Springsteen on Broadway | Official Trailer [HD] | Netflix](https://www.youtube.com/watch?v=M1xDzgob1JI)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York city, In attendance tonight: Danny DeVito and Adam Duritz.<br>
 

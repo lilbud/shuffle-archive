@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=99rZMwKX0Wo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=i7VciIDpS_U)
+[Watch on Youtube: Bruce Springsteen: At the Spectrum, Philadelphia   9-11-84 TV News](https://www.youtube.com/watch?v=i7VciIDpS_U)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Dybxg0WL_IE)
 

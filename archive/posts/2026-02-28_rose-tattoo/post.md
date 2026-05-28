@@ -24,13 +24,13 @@ The event raised over $700,000 for Boston-area charities, no doubt helped by the
 
 Bruce wisely chose not to risk the trip to Boston. Instead, he streamed his contribution to "Rose Tattoo" from his home studio. Bruce's video was broadcast to the Fenway jumbotron, leading to the strange sight of a giant Springsteen performing with a tiny band.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fCPeuMSizTU)
+[Watch on Youtube: Dropkick Murphys and Bruce Springsteen](https://www.youtube.com/watch?v=fCPeuMSizTU)
 
 That was actually the second time Bruce and the Murphys performed "Rose Tattoo" without an audience, however. The first was back in 2013.
 
 On the day of the Boston Marathon bombing, Bruce called Murphys frontman Ken Casey to offer his support. Casey accepted it. They decided to re-record their recent hit, "Rose Tattoo" (it was only a few months old at the time), this time as a collaboration with Springsteen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kRkkStu4__M)
+[Watch on Youtube: Dropkick Murphys & Bruce Springsteen - Rose Tattoo](https://www.youtube.com/watch?v=kRkkStu4__M)
 
 As he would do years later during the pandemic, Bruce provided his contribution remotely from his home studio. By the time the band released it as the title track of a benefit EP in May, Bruce and the E Street Band were back on tour in Europe.
 

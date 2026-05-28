@@ -179,11 +179,11 @@ It's been covered by luminaries like U[2](../2018-04-17_cover-me-u2-my-hometown/
 
 In 2014, "My Hometown" got an updated official live video release, even more powerful than its predecessor 30 years earlier.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KZ3BJYx43y0)
+[Watch on Youtube: Bruce Springsteen - My Hometown (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=KZ3BJYx43y0)
 
 And of course, Bruce featured "My Hometown" nightly on Broadway, the perfect illustration for the "heart-stopping, pants-dropping, race-rioting, freak-hating, soul-shaking, redneck, love- and fear-making, heartbreaking town of Freehold, New Jersey."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3MNIzddFjwI)
+[Watch on Youtube: Bruce Springsteen - My Hometown (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=3MNIzddFjwI)
 
 As Bruce self-mockingly pointed out each night during his Broadway run, he thought his answer to the central question of "My Hometown" was that he was born to run. But we know that didn't last.
 

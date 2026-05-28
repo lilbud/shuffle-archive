@@ -20,7 +20,7 @@ But even if I did know the band's full story, I probably couldn't summarize thei
 
 Yep, that pretty much captures it. Take a listen:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MshpOY2Vtag)
+[Watch on Youtube: No Surrender](https://www.youtube.com/watch?v=MshpOY2Vtag)
 
 Bimbo du Jour's cover of "No Surrender" might have been under the radar at the time, but it *almost* of made the cut for *One Step Up/Two Steps Back: The Songs of Bruce Springsteen*, a 1998 tribute album with some standout covers.
 

@@ -14,9 +14,9 @@ post_id: 57793
 
 **1975:** A red-letter (and red-eyed) day for Bruce and the E Street Band: after a marathon nineteen-hour rehearsal that ends at 3am, and after recording work on "Jungleland" that continued until 10am, the band races to the Palace Theater in Providence, Rhode Island, for the opening night of the Born to Run Tour and Steven Van Zandt's debut as a member of the E Street Band.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l6IwxpL-ZDk)
+[Watch on Youtube: Jungleland](https://www.youtube.com/watch?v=l6IwxpL-ZDk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8Hoz79azVDI)
+[Watch on Youtube: Bruce Springsteen - 1975-07-20 Palace Concert Theater, Providence, RI](https://www.youtube.com/watch?v=8Hoz79azVDI)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1975-07-20.png.webp)
 
@@ -30,46 +30,46 @@ post_id: 57793
 
 [Watch Video Highlight](https://videopress.com/embed/wpRIRm41)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L9XCvwdwCVk)
+[Watch on Youtube: Nothing Man, Solo Piano Version - Bruce Springsteen](https://www.youtube.com/watch?v=L9XCvwdwCVk)
 
 **2008:** Bruce and the E Street Band play their last European Magic show, at Camp Nou in Barcelona, tour premiering "I'm Goin' Down" (the first time that song has ever been played in Europe).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SzMNhfqCOJ8)
+[Watch on Youtube: Bruce Springsteen & The E Street Band Barcelona 20th July 2008 Tougher Than The Rest](https://www.youtube.com/watch?v=SzMNhfqCOJ8)
 
 [Watch Video Highlight](https://videopress.com/embed/sWVYJ29B)
 
 **2011:** Bruce takes Evan to see U2 at the New Meadowlands Stadium, where Bono pays tribute to Clarence and outros from "Moment of Surrender" into "Jungleland."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dtmUsQjADjc)
+[Watch on Youtube: U2 - Moment of Surrender (New Meadowlands Stadium July 20, 2011) - For Clarence](https://www.youtube.com/watch?v=dtmUsQjADjc)
 
 **2013:** Bruce tour debuts "Nebraska" (as the fourth song in a *Nebraska* mini-set) and "Fade Away" when the Wrecking Ball Tour stops at King's Hall in Belfast. Early fans get an extra treat: short but remarkable pre-show featuring a rare outing for "Maria's Bed."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZG9JFy-hfXA)
+[Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - Surprise, Surprise (pre-show)](https://www.youtube.com/watch?v=ZG9JFy-hfXA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1_hpEKd65z8)
+[Watch on Youtube: Bruce Springsteen 2013-07-20 Belfast - Maria's Bed (pre-show)](https://www.youtube.com/watch?v=1_hpEKd65z8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NCHozP7MWBw)
+[Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - In Dreams (pre-show)](https://www.youtube.com/watch?v=NCHozP7MWBw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6DDpfU3KZas)
+[Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - Fade Away](https://www.youtube.com/watch?v=6DDpfU3KZas)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QW8yABgfBAc)
+[Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - This Little Light Of Mine (show start)](https://www.youtube.com/watch?v=QW8yABgfBAc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=N8_Te_3hzjc)
+[Watch on Youtube: Bruce Springsteen - 2013-07-20 Belfast - Nebraska](https://www.youtube.com/watch?v=N8_Te_3hzjc)
 
 **2016:** The revived River Tour moves on to Horsens, Denmark, where Bruce opens with a tour premiere of "Dream Baby Dream" in memory of songwriter Alan Vega, who died four days prior. Other tour premieres include "You Never Can Tell," "Frankie" and "Follow That Dream."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M7VBOp1OrEM)
+[Watch on Youtube: Dream Baby Dream in Horsens by Bruce Springsteen on July 20th 2016](https://www.youtube.com/watch?v=M7VBOp1OrEM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Dt04fcJgQTM)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Follow That Dream @ Horsens 2016](https://www.youtube.com/watch?v=Dt04fcJgQTM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aGeP38rHcSI)
+[Watch on Youtube: Frankie (Live at CASA Arena, Horsens, Denmark - 07/20/16 - Official Audio)](https://www.youtube.com/watch?v=aGeP38rHcSI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ibvtobZFKNE)
+[Watch on Youtube: Sherry Darling, Bruce Springsteen Horsens/Denmark, 20-07-2016](https://www.youtube.com/watch?v=ibvtobZFKNE)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2025:** Bruce makes a surprise on-stage appearance with Zach Bryan at MetLife Stadium, performing with Zach and Caleb Followill on "Atlantic City" and returning for an encore of "Revival."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E1V0ncuInHc)
+[Watch on Youtube: Zach Bryan, Bruce Springsteen, Kings Of Leon ‘Atlantic City’ LIVE at MetLife](https://www.youtube.com/watch?v=E1V0ncuInHc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=q5hRp-yoQjQ)
+[Watch on Youtube: Revival | Zach Bryan with Bruce Springsteen | Live at MetLife Stadium 7/20/2025](https://www.youtube.com/watch?v=q5hRp-yoQjQ)

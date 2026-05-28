@@ -96,7 +96,7 @@ So now I go into work on Monday. Monday night, I call in sick. Now I'm being a l
 
 The next day we get up, and we're working on a song in Bruce's study. I had my mom and dad at home watching my kids, and in the midst of working on this song… I was a bit nervous, to tell you the truth, because Bruce was using Drop D tuning, and I was not familiar with it at that time. I couldn't figure out what the hell he was playing! I should have just asked him, but I guess…I don't know, I was almost overwhelmed because Bruce Springsteen is recording one of my songs that we're writing together!
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rNH1lwkS-B8)
+[Watch on Youtube: Homestead](https://www.youtube.com/watch?v=rNH1lwkS-B8)
 
 So we're going over the music that he wrote for this, and Patti comes into his study and she has the phone. (This is pre-cell phone days.) And it's my mom. Patti said, "Your mom wants you to call. She just called and left a message." So right away, you think the worst–you think that somethings wrong with the kids, blah blah blah, something's terribly wrong.
 
@@ -136,11 +136,11 @@ Before the final recording sessions in L.A., we recorded "American Babylon" here
 
 No, because I was so excited when I wrote it! I went down to the studio with Rick Witkowski who I always worked with. And we did a version there, and it was just boom, boom, boom, one take–couple of overdubs for guitar stuff and that was it. That was the record. I hadn't planned to do a finished master. I was excited about the song and I wanted to present it to Bruce. He heard it one time, and he said "Here's your title track. There's no reason to re-record that one."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=it0MaZc8ewg)
+[Watch on Youtube: American Babylon](https://www.youtube.com/watch?v=it0MaZc8ewg)
 
 **It's funny you say that. I'm flashing back to our *Have a Good Time* conversation and how when you put those bonus tracks out there was that demo of "Don't Let Them Push You Around" that was wildly different from the final version.**<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=39gDr_UAxSU)
+[Watch on Youtube: Dont Let Them Push You Around (Demo)](https://www.youtube.com/watch?v=39gDr_UAxSU)
 
 **Do you have any demos lying around of any of the *American Babylon* material that are significantly different in arrangement or sound compared to the final version?**<br>
 
@@ -154,7 +154,7 @@ I'm really happy with both of those.
 
 **I love the fact that "Chain Smokin'" *sounds* like someone chain smoking. It's just… musically tremendous.**<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8wQfzwQSSAU)
+[Watch on Youtube: Chain Smokin'](https://www.youtube.com/watch?v=8wQfzwQSSAU)
 
 **"Never Be Enough Time" has, I think, my single favorite lyric of yours–the Miracles and Temptations line, which I think is brilliantly clever in how it works on multiple levels.** **I have trouble reconciling how strong those songs are with your statement–which I absolutely believe–but it's mind-boggling to me that the rest of your songs were so (as you put it) sub-par. Why weren't you able to uncork that bottled lightning?**<br>
 
@@ -164,7 +164,7 @@ Well, "Chain Smokin'" was a song that I'd been playing around with for a while. 
 
 "Never Be Enough Time" was actually a song that I recorded with the Iron City Houserockers on our last record, *Cracking Under Pressure*. We did a completely different version of it.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qh3pAs3LMjM)
+[Watch on Youtube: Joe Grushecky & the Houserockers - Never Be Enough Time 1988](https://www.youtube.com/watch?v=qh3pAs3LMjM)
 
 So I was playing those two acoustically when I went out to work with Bruce, and I had a couple other songs, but I was just glad that he picked those two.
 
@@ -176,7 +176,7 @@ So I played him "Never Been Enough Time." And he *loved* it right off the bat. I
 
 Because we were face to face singing! All these vocals are live, you know. It was a stormy night in Los Angeles, and he had the skylights and the thunder and lightning was going off, and we're just standing at this microphone going at it face-to-face.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6Qe0HaOEKoM)
+[Watch on Youtube: Joe Grushecky & The Houserockers - Never Be Enough Time](https://www.youtube.com/watch?v=6Qe0HaOEKoM)
 
 But like I said, after I did those two, I knew I needed some better songs, because the ones that I had didn't stand up. So that's it, and I was fortunate enough to come up with "Homestead." So I had a three-pack that was pretty good.
 
@@ -196,7 +196,7 @@ The town we grew up in, the coal mines were dead by the time I was born in that 
 
 It was horrifying. You'd see all this molten steel and the noise and the dirt, but everybody worked there. So I just picked his name out of a hat. I could have picked a lot of other ones. I just liked the way it sounded and it was so Pittsburgh: Grzybowski.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rGL4zbzeclA)
+[Watch on Youtube: Dark and Bloody Ground](https://www.youtube.com/watch?v=rGL4zbzeclA)
 
 **Yeah. It works. So you guys you did "Homestead," and I think you did "Dark and Bloody Ground" at the same time?**<br>
 
@@ -250,7 +250,7 @@ So that's how that came about. And then we just sort of pieced the rest of the r
 
 **There are some really great up-tempo songs on that album. "No Strings Attached" is an awesome song. I love that song because it sounds from the title and the sound like it's a casual hookup song, but it's deeply romantic if you listen to it. That's a great one.**<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-hrohc583Gc)
+[Watch on Youtube: No Strings Attached](https://www.youtube.com/watch?v=-hrohc583Gc)
 
 **And then "Labor of Love," of course. That's a song that you had written on your own. Bruce doesn't have any co-writing credit on that. Right?**<br>
 
@@ -264,7 +264,7 @@ Right.
 
 That was just his bit to begin with. Bruce played that part on guitar and mandolin on "Labor of Love." We trade ideas back and forth, so we both used it.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DSdpmShd7e4)
+[Watch on Youtube: Labor of Love](https://www.youtube.com/watch?v=DSdpmShd7e4)
 
 **How did Patti's contribution come about for "Comin' Down Maria"?**<br>
 
@@ -272,7 +272,7 @@ I just had that song. It was just Bruce and I recording it. And one of us (proba
 
 "Comin' Down Maria" and "Talk Show" are both just me and Bruce. We're the only guys playing instruments on those. If there's drum sets, it's probably electronic drums somehow that we did, plus Patti singing on "Comin' Down Maria." The rest of the stuff is just he and I.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WLshTQTt0Rg)
+[Watch on Youtube: Comin' Down Maria](https://www.youtube.com/watch?v=WLshTQTt0Rg)
 
 **Wait. I did not know that. I'm not sure *anybody* knows that, actually.**<br>
 
@@ -292,7 +292,7 @@ Well, *nobody* does. I'm spilling the beans. You're the first guy to know.
 
 [laughs] You know, I don't say much about anything, but it's been 25 years…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=d2OCZHh7w_0)
+[Watch on Youtube: Talk Show](https://www.youtube.com/watch?v=d2OCZHh7w_0)
 
 **Okay, "Only Lovers Left Alive." Like I said earlier, title tracks are interesting to me. Album sequences are interesting to me. That is a *dark* note to close that album on.**<br>
 
@@ -302,7 +302,7 @@ Yeah, well it's sort of a dark record. It started with "Dark and Bloody Ground" 
 
 Yeah. I tried to lighten it up a little bit. I didn't want people slitting their wrists listening to the record, but "Only Lovers Left Alive," I was sitting on that title for years and years. I actually had a book called *Only Lovers Left Alive* when I was in high school, because I read that the Rolling Stones had licensed that book to make a movie. This is back when I was… this is early, like when the Stones first hit. I had the book for years and years. It probably just fell apart, it was a little paperback, and I always liked the title of it: *Only Lovers Left Alive*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_JGAd81f--4)
+[Watch on Youtube: Only Lovers Left Alive](https://www.youtube.com/watch?v=_JGAd81f--4)
 
 **That's a great title.**<br>
 
@@ -348,7 +348,7 @@ Oh, it's a great album. I mean I can still… on any given night we play a ton o
 
 Bruce has a version of it. You heard that, right, on E Street Radio?
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qmmxYCR52rY)
+[Watch on Youtube: Bruce Springsteen - HOMESTEAD Rare Studio Recording Joe Grushecky 2013](https://www.youtube.com/watch?v=qmmxYCR52rY)
 
 **I *have* heard it, but live, I mean–you guys have done it live together, but I don't think he's played it on his own without you, or with the band at all.**<br>
 
@@ -356,7 +356,7 @@ Did you hear the "Idiot's Delight" he did?
 
 **[Blogger's Note: Bruce and Joe wrote "Idiot's Delight" together.] I did! I did, when he played it on his radio show recently. I was like, hello! Where did *you* come from?**<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oiQ5QgBUUAg)
+[Watch on Youtube: Bruce Springsteen - Idiot's Delight](https://www.youtube.com/watch?v=oiQ5QgBUUAg)
 
 **So the last question I have… well, you emailed me a month or so back and asked if I knew how many times you and Bruce had played together, and I sent you a list of 53 times. Did you even realize that it had been that many times?**<br>
 
@@ -378,13 +378,13 @@ You can send me anything you want. [laughs] I'd be glad to have it.
 
 Well I try to… I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he'll say, "Well, let's do *this* one." That's why we started to do [singing] [*save my love for you*](../2019-07-16_roll-of-the-dice-save-my-love/post.md). We started doing that one.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dptZn4uH4iA)
+[Watch on Youtube: Bruce Springsteen with Joe Grushecky and the Houserockers-Save My Love](https://www.youtube.com/watch?v=dptZn4uH4iA)
 
 **Yeah. And you guys did "Frankie Fell in Love." I think you guys were the first ones to play both of those.**<br>
 
 Yeah. We were the first ones. I think I suggested that because it had that Stones vibe. I'm a big Stones fan.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V7Uvg3flrrU)
+[Watch on Youtube: "Frankie Fell In Love" Bruce Springsteen ~ LOD 14 ~ Video by Rose A Montana](https://www.youtube.com/watch?v=V7Uvg3flrrU)
 
 **That's such a great song. I was wondering what the dynamic was there. It's funny because he blends right into your band.**<br>
 
@@ -406,7 +406,7 @@ I got some really good songs that I was excited about, and this pandemic just br
 
 "Everything's Going to Work Out Right."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n_T7nRC7puI)
+[Watch on Youtube: Joe Grushecky Everythings Gonna Work Out Right](https://www.youtube.com/watch?v=n_T7nRC7puI)
 
 We're going to put up "Have a Good Time (But Get Out Alive)" today.
 
@@ -432,7 +432,7 @@ Well, I saw you at the last Light of Day, right? You were on stage.
 
 **I was. I'm so glad I did that, too, because that was *this year*, 2020.**<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
+[Watch on Youtube: Grushecky & Houserockers Bruce Springsteen “Talking to the King” ~ Rose A Montana Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
 
 **It's *crazy* that was this year. It just seems like it was *forever* ago.**<br>
 

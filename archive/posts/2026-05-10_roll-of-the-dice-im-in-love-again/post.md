@@ -26,7 +26,7 @@ But wait, there's more: a horn section (Harvey Cherlin on trumpet and Bobby Feig
 
 The late Dee Holmes (she passed away in 2010) was more than a backing vocalist though. An accomplished gospel singer and staple of the Jersey Shore music scene, Holmes shared the stage with Bruce as recently as 2008 and appeared with him on television when Bruce performed "My City of Ruins" shortly after September 11, 2001. (That's her standing in the middle of the background singers.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UpUv6ptY8xw)
+[Watch on Youtube: Bruce Springsteen - My City of Ruins (from "America: A Tribute to Heroes")](https://www.youtube.com/watch?v=UpUv6ptY8xw)
 
 Holmes had a tremendous voice, so upon occasion she would step forward and take the lead vocal for The Bruce Springsteen Band, which gave Bruce a chance to write lyrics for a female singer.
 

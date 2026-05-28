@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/unrpW2it)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nLlqA4vik0E)
+[Watch on Youtube: Racing in the Street (Live at Capitol Theatre, Passaic, NJ - 9/19/1978)](https://www.youtube.com/watch?v=nLlqA4vik0E)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YaOo3packk0)
 
@@ -52,7 +52,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 **1988:** The Human Rights Now! Tour finally arrives in the United States, kicking off a three-show American stand with a show at JFK Stadium in Philadelphia. Joan Baez makes a guest appearance, and Bruce tour premieres “Jungleland” for Philly, its first appearance since the Born in the U.S.A. Tour.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Yg2FAUT6GY4)
+[Watch on Youtube: Springsteen - Amnesty-Philadelphia - 9/20/88](https://www.youtube.com/watch?v=Yg2FAUT6GY4)
 
 [Watch Video Highlight](https://videopress.com/embed/PXkEsOr2)
 

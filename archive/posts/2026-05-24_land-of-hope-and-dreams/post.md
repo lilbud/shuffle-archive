@@ -68,7 +68,7 @@ While mostly absent from his set lists in recent years, “Land of Hope and Drea
 
 Following a bitter election and a last-minute insurrection attempt–all during a worsening pandemic–America was on edge heading into the inauguration of President Biden. But all went smoothly on Inauguration Day, and when it was time for the traditional evening festivities, Bruce kicked off the evening alone on the steps of the Lincoln Memorial with perhaps his strongest acoustic performance to date of “Land of Hope and Dreams.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fW_Vny_aXNM)
+[Watch on Youtube: Bruce Springsteen Performs "Land of Hope and Dreams"| Biden-Harris Inauguration 2021](https://www.youtube.com/watch?v=fW_Vny_aXNM)
 
 And since 2025, Springsteen has anchored his sets and named his tour after his ever-vital and hopeful song.
 

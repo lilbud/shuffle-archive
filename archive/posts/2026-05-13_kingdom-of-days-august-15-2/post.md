@@ -30,7 +30,7 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 **1985:** Bruce and the E Street Band play their second of two nights at Philadelphia's Veterans Stadium on the Born in the U.S.A. Tour.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m8p5z71YIrY)
+[Watch on Youtube: Bruce Springsteen August 15, 1985 Philadelphia](https://www.youtube.com/watch?v=m8p5z71YIrY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-15a.png.webp)
 
@@ -46,7 +46,7 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 [Watch Video Highlight](https://videopress.com/embed/oc0WivO0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c7R8BLSvYEQ)
+[Watch on Youtube: Springsteen Fans](https://www.youtube.com/watch?v=c7R8BLSvYEQ)
 
 **2012:** Night Two at Boston's Fenway Park brings an embarrassment of riches, from an opening "Thunder Road" with just Bruce and Roy, to an almost completely audibled opening pack, to the first "Knock on Wood" in 36 years, to the first "Prove It '78" in the U.S.A. since '78, a guest-spot by Ken Casey, and so much more. This show is available as part of Bruce's official archive series.<br>
 
@@ -54,15 +54,15 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 [Watch Video Highlight](https://videopress.com/embed/b3Y5W7XT)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=z3u8-LpUISk)
+[Watch on Youtube: Bruce Springsteen - Girls in their Summer Clothes - Fenway Park - 8-15-12 - Night 2](https://www.youtube.com/watch?v=z3u8-LpUISk)
 
 [Watch Video Highlight](https://videopress.com/embed/zkaKIjie)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n8kIjzIZL5g)
+[Watch on Youtube: Bruce Springsteen - Prove It All Night (3cam mix with dubbed audio) 2012-08-15 Fenway Park, Boston](https://www.youtube.com/watch?v=n8kIjzIZL5g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xkYYNPzRljs)
+[Watch on Youtube: Bruce Springsteen and the E Street Band "Prove It All Night '78" 8/15/2012](https://www.youtube.com/watch?v=xkYYNPzRljs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oCixUwho8mw)
+[Watch on Youtube: Bruce Springsteen Backstreets Fenway Park 8-15-2012](https://www.youtube.com/watch?v=oCixUwho8mw)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gloria Steinem.<br>
 
@@ -72,6 +72,6 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 **2024:** Almost a year after their originally scheduled date, Bruce and the E Street Band perform their first of two shows at PPG Paints Arena in Pittsburgh.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9Mk_nzE6UzQ)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + “Seeds” - Pittsburgh, PA - August 15, 2024](https://www.youtube.com/watch?v=9Mk_nzE6UzQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_tTe-WKKKow)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - “Letter to You” - Pittsburgh, PA - August 15, 2024](https://www.youtube.com/watch?v=_tTe-WKKKow)

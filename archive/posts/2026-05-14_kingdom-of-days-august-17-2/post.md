@@ -12,7 +12,7 @@ post_id: 59369
 
 **1975:** Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce's career and the remainder of the Born to Run Tour.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4Y-7c4n2eaE)
+[Watch on Youtube: Bruce Springsteen - 1975-08-17 Bottom Line (The), New York City, NY (Early Show)](https://www.youtube.com/watch?v=4Y-7c4n2eaE)
 
 **1981:** Bruce and the boys play their second night at Red Rocks Amphitheater on the River Tour, but on this night the weather cooperates.<br>
 
@@ -20,13 +20,13 @@ post_id: 59369
 
 **1984:** The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of "I'm Goin' Down" and the tour premiere of "Follow That Dream."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_PJFou1o1JE)
+[Watch on Youtube: Bruce Springsteen - first ever "I'm Goin' Down" - 1984-08-17](https://www.youtube.com/watch?v=_PJFou1o1JE)
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to the Detroit area for their first of two shows at The Palace of Auburn Hills. Watch the soundcheck, pre-show interview, and concert footage below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/XxssRVjw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cVLXiCqsTpY)
+[Watch on Youtube: Bruce Springsteen - Red Headed Woman](https://www.youtube.com/watch?v=cVLXiCqsTpY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-08-17a.png.webp)
 

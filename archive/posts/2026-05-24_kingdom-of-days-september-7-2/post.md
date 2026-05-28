@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Pshj7jaGkck)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OuvujTkRiDE)
+[Watch on Youtube: Bruce Springsteen-None But The Brave-Wrigley Field, Chicago-9-7-2012.MTS](https://www.youtube.com/watch?v=OuvujTkRiDE)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LVgK3DNGIHc)
 
@@ -40,9 +40,9 @@
 
 **2016:** A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04, it remains Bruce’s longest show in the U.S. and his second longest show ever. The setlist continues the chronological “autobiography” theme of the victory lap, opening once again with a string-accompanied “New York City Serenade” and a stunning *eleven* pre-1974 songs. Philly specials abound: “The Fever” “Thundercrack,” and “Streets of Philadelphia” all make their tour debut.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HdiC-K2O06Y)
+[Watch on Youtube: The Fever - Springsteen - Philadelphia Sept 7, 2016](https://www.youtube.com/watch?v=HdiC-K2O06Y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tWAWaM4B2Qk)
+[Watch on Youtube: Thundercrack - Springsteen - Philadelphia Sept 7, 2016](https://www.youtube.com/watch?v=tWAWaM4B2Qk)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aJW7C2o__gY)
 
@@ -60,7 +60,7 @@
 
 **2021:** On the 20th anniversary of the September 11th terror attacks, a new documentary film is released featuring Bruce’s narration. (Skip to the five-minute mark to hear Bruce’s contribution.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=atrdaj1mmLU)
+[Watch on Youtube: 9/11 20 Years Later](https://www.youtube.com/watch?v=atrdaj1mmLU)
 
 **2023:** Bruce postpones his scheduled show in Syracuse to the following April due to his peptic ulcer disease.
 

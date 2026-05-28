@@ -16,7 +16,7 @@ However, by the end of the second verse, "Richfield Whistle" establishes itself 
 
 Let's take a listen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5ss92tx_B6s)
+[Watch on Youtube: Bruce Springsteen - Richfield Whistle (Official Audio)](https://www.youtube.com/watch?v=5ss92tx_B6s)
 
 The early verses are very similar to "Jim Deer," but the few changes are significant. James is still Remington-born, and he still does a stint in Richfield Prison. But whereas in "Jim Deer" our protagonist ends up behind bars for the cruel crime he commits, in "Richfield Whistle," James Lucas has already served his sentence.
 

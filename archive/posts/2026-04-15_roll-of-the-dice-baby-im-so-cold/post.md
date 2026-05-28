@@ -18,7 +18,7 @@ There are too many examples of this across Bruce's catalog to fully recount, but
 
 Bruce recorded "Loose Ends" with the E Street Band in July 1979; he premiered "Follow That Dream" on stage in Paris in April 1981. So it's remarkable that in early 1982 (with *Nebraska* likely very much on his mind), he sat down at home in Colt's Neck, pressed the record button on a cassette recorder, and played this:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZRt53xaHyYQ)
+[Watch on Youtube: Bruce Springsteen Baby I'm So Cold Turn The Lights Down Low](https://www.youtube.com/watch?v=ZRt53xaHyYQ)
 
 Since the lyrics are so close to those of "Loose Ends," I'll save my detailed analysis for when I someday profile that classic from *Tracks.* But even though the lyrics are strikingly similar, the subtle differences make for an entirely different song.
 

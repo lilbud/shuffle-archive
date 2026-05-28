@@ -18,7 +18,7 @@ The tightest backing band in the land, Booker T. and the MGs? Check.
 
 And the secret ingredient that elevates "Knock on Wood" to the top of the Stax: Al Jackson's improvised *knock-knock-knock-knock* in the chorus.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Kceiks__PsE)
+[Watch on Youtube: Eddie Floyd - Knock On Wood](https://www.youtube.com/watch?v=Kceiks__PsE)
 
 "Knock on Wood" was a hit for Floyd in 1966, peaking at #28 on the Billboard Hot 100, and #1 on the Soul Singles chart. (Amii Stewart's disco version was a monster hit a dozen years later, but it hasn't aged well.)
 

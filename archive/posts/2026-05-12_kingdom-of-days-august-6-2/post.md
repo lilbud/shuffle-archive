@@ -16,7 +16,7 @@ post_id: 57911
 
 **1974:** Bruce records the final take of his signature song, "Born to Run."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Wu4_zVxmufY)
+[Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=Wu4_zVxmufY)
 
 **1976:** Bruce and the E Street Band play their fifth of a six-night stand at the Monmouth Arts Center in Red Bank.<br>
 
@@ -36,31 +36,31 @@ post_id: 57911
 
 **1984:** At Night Two of ten at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour, "Spirit in the Night" makes its tour debut, and "No Surrender" is played in its third arrangement of the tour. This one will stick, and this specific performance (along with "Nebraska" from this show) will appear on the *Live 1975-85* box set. Additionally Bruce's performance of "Trapped" from this show will be released the following year on the *We Are the World* album, as well as on *The Essential Bruce Springsteen* in 2003. The entire show is available as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QB3KnqP7ee4)
+[Watch on Youtube: Bruce Springsteen and the E Street Band "Street Fighting Man" E. Rutherford, NJ 8/6/84](https://www.youtube.com/watch?v=QB3KnqP7ee4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Bq2-frOfTnk)
+[Watch on Youtube: Bruce Springsteen & The E Street Band Live 1975 85 NO SURRENDER.wmv](https://www.youtube.com/watch?v=Bq2-frOfTnk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Pu1t_CdBpw4)
+[Watch on Youtube: Used Cars (Live at Brendan Byrne Arena, E. Rutherford, NJ - 8/6/1984)](https://www.youtube.com/watch?v=Pu1t_CdBpw4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hPQ_LwBDs_U)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Nebraska (Live)](https://www.youtube.com/watch?v=hPQ_LwBDs_U)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-IjAQtMZl8M)
+[Watch on Youtube: Trapped (Live at Meadowlands Arena, E. Rutherford, NJ - August 1984)](https://www.youtube.com/watch?v=-IjAQtMZl8M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rZU8BySmjRw)
+[Watch on Youtube: The Promised Land (Live at Brendan Byrne Arena, E. Rutherford, NJ - 8/6/1984)](https://www.youtube.com/watch?v=rZU8BySmjRw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Dtp_kCpA8kY)
+[Watch on Youtube: Out in the Street (Live at Brendan Byrne Arena, E. Rutherford, NJ - 8/6/1984)](https://www.youtube.com/watch?v=Dtp_kCpA8kY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fz3aDOBCpLc)
+[Watch on Youtube: Prove It All Night (Live at Brendan Byrne Arena, E. Rutherford, NJ - 8/6/1984)](https://www.youtube.com/watch?v=fz3aDOBCpLc)
 
 **1992:** It's Night Nine of eleven at the Brendan Byrne Arena in East Rutherford on World Tour 1992. Bruce dedicates "Human Touch" to Jeff Porcaro of Toto, who played drums on most of the *Human Touch* album and who passed away the previous day. The official video for "Leap of Faith" is filmed at this show, and the audio is released on the CD single.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ouWEZPkbznQ)
+[Watch on Youtube: Bruce Springsteen - Leap Of Faith](https://www.youtube.com/watch?v=ouWEZPkbznQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=coxsX4WjiNc)
+[Watch on Youtube: Leap of Faith (Live at Brendan Byrne Arena, E. Rutherford, NJ - August 1992)](https://www.youtube.com/watch?v=coxsX4WjiNc)
 
 Also on this day, Entertainment Tonight airs a segment on Bruce's new *Rolling Stone* cover story, on sale today. (If you have the Album Collection Volume 2, you have that cover story in your bonus book.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Z_Yn_n6QRWI)
+[Watch on Youtube: Bruce Springsteen - Entertainment Tonight, 1992-08-06](https://www.youtube.com/watch?v=Z_Yn_n6QRWI)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/RS636.jpg.webp)
 
@@ -78,9 +78,9 @@ Also on this day, Entertainment Tonight airs a segment on Bruce's new *Rolling S
 
 **2005:** At his solo acoustic show at the Fox Theater in St. Louis, Bruce plays "County Fair" for only the second (and final) time to date. Another surprise: the very first solo piano version of "Backstreets."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pR8iJlVO-P0)
+[Watch on Youtube: Bruce Springsteen "County Fair" solo on Electric Piano; St. Louis, MO August 6, 2005](https://www.youtube.com/watch?v=pR8iJlVO-P0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NLmxhx4Zo0o)
+[Watch on Youtube: Bruce Springsteen - Backstreets (Live 2005 solo piano)](https://www.youtube.com/watch?v=NLmxhx4Zo0o)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2005-08-06.png.webp)
 

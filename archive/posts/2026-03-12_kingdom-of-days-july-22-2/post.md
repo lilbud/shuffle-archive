@@ -16,7 +16,7 @@ post_id: 57795
 
 **1975:** It's Night Two on the Born to Run Tour, and the band continues developing the show at the Geneva Theater in Geneva, New York, where "She's the One" makes its tour debut. At soundcheck, Bruce and the band cover "Needles and Pins" and "You Really Got Me."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zaANhuBBSzc)
+[Watch on Youtube: Bruce Springsteen - "Needles and Pins" - Soundcheck in Geneva , 1975-07-22](https://www.youtube.com/watch?v=zaANhuBBSzc)
 
 [https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3)
 
@@ -60,10 +60,10 @@ post_id: 57795
 
 **2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play "We Shall Overcome" at the memorial concert for the victims in Oslo.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LTrgNSlCkKY)
+[Watch on Youtube: July 22- 2012 Bruce Springsteen NORWAY Memorial Concert For Victims on Utøya and Oslo](https://www.youtube.com/watch?v=LTrgNSlCkKY)
 
 **2013:** Director Baillie Walsh and producer Ridley Scott release *Springsteen & I*, a documentary about the relationship between Bruce and his fans. The film airs in more than 2,000 theaters in over fifty countries.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HVQUeCi9V0s)
+[Watch on Youtube: SPRINGSTEEN & I (Official Trailer) - Coming this July](https://www.youtube.com/watch?v=HVQUeCi9V0s)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7j3cXGr1Ono)
+[Watch on Youtube: Springsteen & I - Extended Clip](https://www.youtube.com/watch?v=7j3cXGr1Ono)

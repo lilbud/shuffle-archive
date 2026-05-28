@@ -12,11 +12,11 @@ post_id: 57665
 
 **1971:** The Bruce Springsteen Band makes its debut, headlining at Brookdale Community College's 2nd Annual "Nothing's Festival" in Lincroft, New Jersey. (There wasn't a first annual festival, and the show is free and unpaid–but a gig's a gig.)<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AqnlX8oq-2g)
+[Watch on Youtube: Bruce Springsteen Band playing "CC Rider-Down The Road Apiece"1971-07-10](https://www.youtube.com/watch?v=AqnlX8oq-2g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zWURsgK_-4M)
+[Watch on Youtube: Bruce Springsteen Band playing "You Mean So Much To Me" 1971-07-10](https://www.youtube.com/watch?v=zWURsgK_-4M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=r6all5hMCWY)
+[Watch on Youtube: Bruce Springsteen Band playing "Nothing Can Stop Me" 1971-07-10](https://www.youtube.com/watch?v=r6all5hMCWY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1971-07-10.jpg.webp)
 
@@ -24,7 +24,7 @@ post_id: 57665
 
 **1987:** Columbia Records producer, executive, and Bruce Springsteen-signer John Hammond passes away at the age of 76. Here's Bruce talking about his admiration for Hammond in an early interview.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C3OJKnbSQb0)
+[Watch on Youtube: Springsteen - 1976 Hammond Interview](https://www.youtube.com/watch?v=C3OJKnbSQb0)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1987-07-10.jpg.webp)
 
@@ -42,9 +42,9 @@ post_id: 57665
 
 **1992:** Night Three of five at Wembley Arena on World Tour 1992 features an acoustic "Dancing in the Dark."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=a-SPT1ZR_Eo)
+[Watch on Youtube: Bruce Springsteen - Dancing In The Dark (live 1992)](https://www.youtube.com/watch?v=a-SPT1ZR_Eo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EvQUeL841A0)
+[Watch on Youtube: Bruce Springsteen - WITH EVERY WISH](https://www.youtube.com/watch?v=EvQUeL841A0)
 
 **2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after a nine-day break. Patti is absent tonight, so Bruce drops their duets and instead substitutes "Long Time Comin'" in their place. To make up for playing one fewer song than usual, Bruce adds an encore of sorts: "This Hard Land."<br>
 

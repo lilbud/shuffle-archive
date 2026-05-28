@@ -26,11 +26,11 @@ post_id: 57812
 
 **1999:** Night Four of fifteen at the Meadowlands at the opening stand of the U.S. Reunion Tour features the tour premiere of "Point Blank," its first performance in 14 years, recast in a new contemplative arrangement.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HPdJWh3R5x8)
+[Watch on Youtube: Bruce Springsteen "Point Blank" - tour premiere, July 24, 1999](https://www.youtube.com/watch?v=HPdJWh3R5x8)
 
 **2002:** Bruce takes Matt Lauer on a tour of Asbury Park for an upcoming segment of *The Today Show*. They end their tour at Sonny's Southern Cuisine, where Bruce plays "I've Got a Feeling (Everything's Gonna Be Alright" and "My City of Ruins" on his acoustic guitar. The segment will air on July 29th.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W5A6P8r3emk)
+[Watch on Youtube: Bruce Springsteen   Besuch in Asbury Park](https://www.youtube.com/watch?v=W5A6P8r3emk)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2002-07-24.png.webp)
 
@@ -48,25 +48,25 @@ post_id: 57812
 
 **2012:** Bruce opens Night Two in Bergen with an acoustic "Long Walk Home" (a Wrecking Ball tour premiere). The show features four additional tour premieres, including the live debut of "You've Got It," the first full-band "This Depression," and rare outings for "My Lucky Day" and "Red Headed Woman."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=U1TUxEH0Gyw)
+[Watch on Youtube: Long Walk Home (solo acoustic) Bruce Springsteen Bergen, Norway July 24, 2012](https://www.youtube.com/watch?v=U1TUxEH0Gyw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5SvhxN-ifKY)
+[Watch on Youtube: You've got it - Bruce Springsteen Bergen, Norway 2012-07-24 (World Premiere)](https://www.youtube.com/watch?v=5SvhxN-ifKY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=90JKjWbuNDY)
+[Watch on Youtube: This Depression Bruce Springsteen Bergen, Norway July 24, 2012 (FULL VIDEO)](https://www.youtube.com/watch?v=90JKjWbuNDY)
 
 **2013:** As the Wrecking Ball Tour nears its end, the tour premieres continue to delight and astound. At this show in Leeds, Bruce pulls out back-to-back-to-back premieres of "Local Hero," "Gotta Get That Feeling" and "Bad Moon Rising," and an ultra-rare "Secret Garden" opens the encores, accompanied by Bruce's heartfelt dedication to travelling fans. This show is available for purchase as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ELEGhf7dMJw)
+[Watch on Youtube: Local Hero (Leeds 07/24/13)](https://www.youtube.com/watch?v=ELEGhf7dMJw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9TTcrhfRjjM)
+[Watch on Youtube: Bruce Springsteen - 2013-07-24 Leeds - Bad Moon Rising (UK debut)](https://www.youtube.com/watch?v=9TTcrhfRjjM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dMriDhHDB1E)
+[Watch on Youtube: Bruce Springsteen - Secret Garden (Leeds 7/24/13)](https://www.youtube.com/watch?v=dMriDhHDB1E)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3rWAygcoOsI)
+[Watch on Youtube: Bruce Springsteen "Gotta Get That Feeling" Live in Leeds from July 24, 2013](https://www.youtube.com/watch?v=3rWAygcoOsI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JxN53Liuxe4)
+[Watch on Youtube: Bruce Springsteen - 2013-07-24 Leeds - 10th Avenue Freeze Out (the important part)](https://www.youtube.com/watch?v=JxN53Liuxe4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cZbPnO2jyBY)
+[Watch on Youtube: Bruce Springsteen - 2013-07-24 Leeds - Dancing In The Dark (dances to end)](https://www.youtube.com/watch?v=cZbPnO2jyBY)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Beck is in attendance tonight.<br>
 

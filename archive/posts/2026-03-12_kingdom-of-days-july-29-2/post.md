@@ -20,7 +20,7 @@ post_id: 57873
 
 **1971:** The Bruce Springsteen Band plays two shows at D'Scene in South Amboy, New Jersey. The setlist includes "Natural Magic," "Goin' Back to Georgia," "Dance Dance Dance," and more.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ok630L5Z9D8)
+[Watch on Youtube: The Bruce Springsteen Band - MY BABY'S NATURAL MAGIC  1971 (audio)](https://www.youtube.com/watch?v=Ok630L5Z9D8)
 
 **1975:** Before their gig that evening at the Carter Barron Amphitheater in Washington, DC's Rock Creek Park, Bruce stops by a local radio station for an on-air interview.<br>
 
@@ -30,7 +30,7 @@ post_id: 57873
 
 **1978:** At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour show with his debut of "Oh Boy" and adds a second cover debut later in the show: Chuck Berry's "Around and Around."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LOhgVbjnd84)
+[Watch on Youtube: Bruce Springsteen - AROUND AND AROUND 1978 (audio)](https://www.youtube.com/watch?v=LOhgVbjnd84)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-29.png.webp)
 

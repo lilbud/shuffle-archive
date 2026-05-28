@@ -20,13 +20,13 @@ post_id: 59420
 
 **1979:** Bruce and the band record "Point Blank" and an early arrangement of "You Can Look (Buy You Better Not Touch)" during a recording session at the Power Station in New York City.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=69Gz0eCDtXs)
+[Watch on Youtube: You Can Look (But You Better Not Touch)](https://www.youtube.com/watch?v=69Gz0eCDtXs)
 
 **1981:** At the fourth night of a six-night River Tour stand at the L.A. Sports Arena, Tom Waits makes a guest appearance for (what else?) "Jersey Girl."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1MXX0Y81eDI)
+[Watch on Youtube: Tom and Bruce - Jersey Girl - Full Version - 1981](https://www.youtube.com/watch?v=1MXX0Y81eDI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EL0CFhgBhz8)
+[Watch on Youtube: Bruce Springsteen - Badlands (Los Angeles, August 24 1981)](https://www.youtube.com/watch?v=EL0CFhgBhz8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/Simi_Valley_Star_1981_08_26_34.jpg.webp)
 
@@ -38,7 +38,7 @@ post_id: 59420
 
 **1999:** Bruce and the reunited E Street Band play their third of five shows at Boston's Fleet Center.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qSXQWyuKEV0)
+[Watch on Youtube: Bruce Springsteen - "Sherry Darling" - Boston 1999-08-24](https://www.youtube.com/watch?v=qSXQWyuKEV0)
 
 **2002:** The Rising Tour's barnstorming leg continues with a show at The Forum in Inglewood, California.<br>
 
@@ -54,11 +54,11 @@ post_id: 59420
 
 **2008:** The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring *six* tour premieres (and two world debuts, including the first-ever "Ricky Wants a Man of Her Own"), Max on lead vocals on "Boys", a Soozie and Bruce duet on "It's All Over Now," and more.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=CTGny12oHMo)
+[Watch on Youtube: Bruce Springsteen - Ricky Wants A Man Of Her Own (2008-08-24)](https://www.youtube.com/watch?v=CTGny12oHMo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kjt-wwl4B1w)
+[Watch on Youtube: Bruce Springsteen Max Sings & Cadillac Ranch Kansas City, MO Aug 24/08](https://www.youtube.com/watch?v=kjt-wwl4B1w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=h7k2dlprYhU)
+[Watch on Youtube: Rosalita - Bruce Springsteen & The E Street Band - Kansas City, MO, Aug. 24, 2008](https://www.youtube.com/watch?v=h7k2dlprYhU)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2008-08-24a.jpg.webp)
 
@@ -66,7 +66,7 @@ post_id: 59420
 
 **2012:** The Wrecking Ball Tour heads north to Canada, starting with a show at the Rogers Center in Toronto, where an undisputed highlight is a rare solo piano "Incident on 57th Street."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mIiL3kvbi34)
+[Watch on Youtube: Incident On 57th Street Bruce Springsteen Toronto 24/8/12 Good quality!](https://www.youtube.com/watch?v=mIiL3kvbi34)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/The_Toronto_Star_2012_08_25_3-1.jpg.webp)
 
@@ -76,6 +76,6 @@ post_id: 59420
 
 **2023:** Bruce returns to the stage in Foxboro following two postponed Philadelphia shows, his voice clearly straining at times.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DGF0RrTTBII)
+[Watch on Youtube: Bruce Springsteen "Promised Land" Gillette Stadium, Foxborough, MA 8-24-23](https://www.youtube.com/watch?v=DGF0RrTTBII)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=06UzcRmqcx4)
+[Watch on Youtube: Bruce Springsteen "Nightshift" Gillette Stadium, Foxborough, MA 8-24-23 with GREAT AUDIO](https://www.youtube.com/watch?v=06UzcRmqcx4)

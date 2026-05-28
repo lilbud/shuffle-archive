@@ -14,6 +14,6 @@ Unlike the original's defiant anthem arrangement, Holly's version is wistful and
 
 This one sticks with you long after you hear it.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uZga5ozv4uA)
+[Watch on Youtube: Holly Williams - No Surrender (Official Audio)](https://www.youtube.com/watch?v=uZga5ozv4uA)
 
 © May 24, 2018

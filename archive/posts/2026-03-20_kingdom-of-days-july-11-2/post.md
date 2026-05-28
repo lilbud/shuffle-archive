@@ -30,56 +30,56 @@ post_id: 57666
 
 **2008:** It's Christmas in July when Bruce honors one last sign request when the Magic Tour stops in Helsinki: "Santa Claus is Comin' to Town" is the second to last song of the night.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0stcLuNJlIQ)
+[Watch on Youtube: Bruce Springsteen: Helsinki '08 - Santa Claus Is Coming To Town](https://www.youtube.com/watch?v=0stcLuNJlIQ)
 
 **2009:** Jake Clemons makes his debut on an E Street Band stage when he guest-stars on sax during "Tenth Avenue Freeze-Out" as the Working on a Dream Tour stops for the first of two nights at RDS Arena in Dublin. (How strange to see him next to Clarence–the intersection of E Street Past and Present!) Bruce's son Evan joins the band as well, playing acoustic guitar on "American Land." Tour debuting tonight: "You Can Look (But You Better Not Touch)."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BLQMbiz0mYE)
+[Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out - Dublin 2009-07-11 CLOSEUP](https://www.youtube.com/watch?v=BLQMbiz0mYE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_mlMGhN5lkQ)
+[Watch on Youtube: Bruce Springsteen - American Land (The Ass Breaker) - Dublin 2009-07-11 CLOSEUP](https://www.youtube.com/watch?v=_mlMGhN5lkQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xxhkJeqnbIE)
+[Watch on Youtube: Bruce Springsteen - The Ghost of Tom Joad (Dublin 11-07-2009)](https://www.youtube.com/watch?v=xxhkJeqnbIE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xcdkrSAr_sQ)
+[Watch on Youtube: Bruce Springsteen - Kingdom Of Days - Dublin 2009-07-11 CLOSEUP](https://www.youtube.com/watch?v=xcdkrSAr_sQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mxXPSPYziAA)
+[Watch on Youtube: Bruce Springsteen - The River - Dublin 2009-07-11 CLOSEUP](https://www.youtube.com/watch?v=mxXPSPYziAA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kfVHI3RGLVI)
+[Watch on Youtube: Bruce Springsteen - Ramrod - Dublin 2009-07-11 CLOSEUP](https://www.youtube.com/watch?v=kfVHI3RGLVI)
 
 **2012:** Bruce opens with an acoustic "The Ghost of Tom Joad" at his second show ever in Prague, and his first with the E Street Band. The tour premiere of "This Hard Land" is a set list highlight.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ywd8HRiIDCQ)
+[Watch on Youtube: Bruce Springsteen - The Ghost of Tom Joad (Live in Prague, 11 July 2012, Synot Tip Arena)](https://www.youtube.com/watch?v=ywd8HRiIDCQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1cJTdhdiXiw)
+[Watch on Youtube: Bruce Springsteen - Working On The Highway (Live in Prague, 11 July 2012, Synot Tip Arena)](https://www.youtube.com/watch?v=1cJTdhdiXiw)
 
 **2013:** A stunning night in Rome on the Wrecking Ball Tour: the set list is full of gems but the gleaming highlight is the unexpected complete second album side of the *Wild & Innocent* album, including a full string section on "New York City Serenade." Watch that pro-shot clip below. This show is also available as part of the official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=T-IZWISZ8CY)
+[Watch on Youtube: Bruce Springsteen - New York City Serenade (Rome 7/11/13)](https://www.youtube.com/watch?v=T-IZWISZ8CY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2-ap3TvDWXk)
+[Watch on Youtube: Bruce Springsteen & the E Street band - Incident on 57th street - Rome 11 07 2013 - Capannelle](https://www.youtube.com/watch?v=2-ap3TvDWXk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SxVeIcOx8Nc)
+[Watch on Youtube: Lucky Town (Live at Ippodromo delle Capannelle, Rome, Italy - 07/11/13 - Official Audio)](https://www.youtube.com/watch?v=SxVeIcOx8Nc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oLvxQ10RMHQ)
+[Watch on Youtube: Working On The Highway (Live at Ippodromo delle Capannelle, Rome, Italy - 07/11/13 - Official Audio)](https://www.youtube.com/watch?v=oLvxQ10RMHQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aI8k7Njkaww)
+[Watch on Youtube: Incident on 57th Street (Live at Ippodromo delle Capannelle, Rome, Italy - 07/11/2013 - Of...](https://www.youtube.com/watch?v=aI8k7Njkaww)
 
 **2016:** A wild night in Paris for the first of two shows on the River Tour (2016 Edition). Bruce opens with a solo piano "Incident on 57th Street" followed by the tour premiere of "Reason to Believe." "Into the Fire" and "Nebraska" receive tour premieres as well. Elliott and Gaspard Murphy make a customary guest appearance during the encores, but during "Ramrod," the power goes out and Bruce finishes the song mic-less before taking a break until the power is restored.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7_MB4ABloko)
+[Watch on Youtube: Bruce Springsteen - Paris, AccorHotels Arena - 2016-07-11 - Incident on 57th Street  - incomplete](https://www.youtube.com/watch?v=7_MB4ABloko)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=k9JN66DWcF4)
+[Watch on Youtube: Bruce Springsteen - Ramrod Power Outtage Part 1 - Paris - July 11, 2016](https://www.youtube.com/watch?v=k9JN66DWcF4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=J7nCcRa0UhY)
+[Watch on Youtube: Bruce Springsteen - Ramrod Power Outtage Part 2 - Paris - July 11, 2016](https://www.youtube.com/watch?v=J7nCcRa0UhY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0sj9frOE6oQ)
+[Watch on Youtube: Bruce Springsteen - Paris, AccorHotels Arena - 2016-07-11 - Nebraska (solo acoustic)](https://www.youtube.com/watch?v=0sj9frOE6oQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HjxRYm8gvjo)
+[Watch on Youtube: Bruce Springsteen - Paris, AccorHotels Arena - 2016-07-11 - Thunder Road](https://www.youtube.com/watch?v=HjxRYm8gvjo)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2023:** Bruce and the E Street Band take the stage at Parken Stadium in Copenhagen, their first of two shows in Denmark.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cqXj_l793u0)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - “Out in the Street” - Copenhagen, Denmark - July 11, 2023](https://www.youtube.com/watch?v=cqXj_l793u0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2ZXtbJg6vQA)
+[Watch on Youtube: Bruce Springsteen- My Hometown Copenhagen 7/11/23](https://www.youtube.com/watch?v=2ZXtbJg6vQA)

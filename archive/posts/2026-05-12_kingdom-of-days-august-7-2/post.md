@@ -20,7 +20,7 @@ post_id: 57927
 
 **1976:** Bruce and the E Street Band wrap up their six-night stand at the Monmouth Arts Center in Red Bank, New Jersey. Clips from the show can be seen in the box set and documentary, *The Promise: The Making of Darkness on the Edge of Town*.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ioQ2eF1XbYY)
+[Watch on Youtube: Something In The Night (Red Bank, NJ 76) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=ioQ2eF1XbYY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/08/1976-0807.jpg.webp)
 
@@ -74,22 +74,22 @@ post_id: 57927
 
 **2005:** Bruce opens his solo acoustic show at Milwaukee's Bradley Center with the tour premiere (and tour one-off) of "Shut Out the Light" and follow up shortly thereafter with the tour premiere of "Frankie."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xbni_yrA3EE)
+[Watch on Youtube: Bruce Springsteen performs  "Shut Out the Light" 2005](https://www.youtube.com/watch?v=Xbni_yrA3EE)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2005-08-07b.png.webp)
 
 **2019:** Bruce attends the premiere of *Blinded by the Light* at Convention Hall in Asbury Park. Following the show, Bruce, Patti, and Lisa Lowell join Southside Johnny and The Asbury Jukes on stage at the after-party for four songs, including "Talk to Me" and "Sherry Darling."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=F-k1OtyJF5Y)
+[Watch on Youtube: Bruce Springsteen and Southside. 634-5789](https://www.youtube.com/watch?v=F-k1OtyJF5Y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iexyDRCL_lo)
+[Watch on Youtube: Bruce Springsteen and Southside Johnny Sherry Darling](https://www.youtube.com/watch?v=iexyDRCL_lo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=P1Gz36sjf_8)
+[Watch on Youtube: Bruce Springsteen and Southside Johnny. Havin A Party](https://www.youtube.com/watch?v=P1Gz36sjf_8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2019-08-07.png.webp)
 
 **2024:** Bruce makes a surprise guest appearance at Zach Bryan's show at Philadelphia's Lincoln Financial Field.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NldH9Lk5nv0)
+[Watch on Youtube: Zach Bryan and Bruce Springsteen playing Atlantic City in Philadelphia 8/7/24](https://www.youtube.com/watch?v=NldH9Lk5nv0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2gFnARIk5qE)
+[Watch on Youtube: Sandpaper (with Bruce Springsteen) - Zach Bryan - Live - 8/7/2024 - Philadelphia, PA - HQ Audio](https://www.youtube.com/watch?v=2gFnARIk5qE)

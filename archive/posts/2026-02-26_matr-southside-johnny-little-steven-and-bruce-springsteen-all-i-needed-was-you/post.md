@@ -14,7 +14,7 @@ Little Steven may have written it, but on the evening of December 17, 2000, it b
 
 "All I Needed Was You" sounds like classic Southside Johnny, which is to say it sounds like classic Steve Van Zandt, who wrote most of the tracks on *Better Days* ("All the Way Home" was a notable exception) as well as many of Southside's greatest songs throughout his career.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ueh1z_w4umk)
+[Watch on Youtube: All I Needed Was You](https://www.youtube.com/watch?v=ueh1z_w4umk)
 
 But despite the close bond between Southside, Steve, and Bruce (who wrote his fair share of Southside hits as well), the three lifelong amigos have only performed "All I Needed Was You" twice–on back-to-back nights–during Bruce's original Asbury Park holiday benefit shows in December 2000.
 
@@ -22,7 +22,7 @@ The song choice came as a surprise (one of many during those nights), capping of
 
 But it was the third selection that raised eyebrows at that first holiday show: "All I Needed Was You" was much more than a first-time Springsteen performance–it was a true team-up, with all three vocalists taking a turn at the lead.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oDeiR7JsZUA)
+[Watch on Youtube: Southside Johnny, Bruce Springsteen, Miami Steve Van Zandt - All I Needed Was You 2000](https://www.youtube.com/watch?v=oDeiR7JsZUA)
 
 And if the final minute-and-a-half–with Southside, Steve, and Bruce weaving a coda effortlessly as only musicians with a lifetime of performing together can do–doesn't bring joy to your ears, I don't know what will.
 

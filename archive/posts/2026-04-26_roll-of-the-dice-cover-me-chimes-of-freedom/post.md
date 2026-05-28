@@ -16,15 +16,15 @@ Bruce punctuated the announcement with a gorgeous cover of Bob Dylan's "Chimes o
 
 Originally released in 1964, "Chimes of Freedom" is the tale of a thunderstorm, one that strikes with rage and ferocity before fading into the distance. As the singer waits out the storm, he imagines that the thunderclaps are the chiming bells of freedom, ushered in by the bolts of lightning representing the untold struggle for freedom in places both close to home and far-flung.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LVIWA9VTiN8)
+[Watch on Youtube: Chimes of Freedom](https://www.youtube.com/watch?v=LVIWA9VTiN8)
 
 "Chimes of Freedom" isn't a protest song–it's a song of solidarity, of brotherhood and sisterhood. It was a perfect anthem for a tour celebrating Human Rights, and it's fitting that Bruce chose to record this performance and release it as the title track of an EP a month later to promote and support the upcoming tour. Performed in a bold, assertive arrangement, Bruce abbreviated (cutting two verses) and transformed the song into more of an anthem than a musing. Never released as a single, it nevertheless made it to #16 on the Billboard Hot Mainstream Rock Tracks chart.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WhvpFX63JGw)
+[Watch on Youtube: Chimes of Freedom (Live at Stockholms Olympiastadion, Stockholm, SE - July 1988)](https://www.youtube.com/watch?v=WhvpFX63JGw)
 
 Bruce continued to perform "Chimes of Freedom" for the duration of the Tunnel of Love Tour, and when that tour segued into the Amnesty International Tour, he led the assembled artists in an all-star rendition.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TbEr240Tfsk)
+[Watch on Youtube: Bruce Springsteen, Sting, Tracy Chapman, Peter Gabriel, Youssou N´Dour - Chimes Of Freedom](https://www.youtube.com/watch?v=TbEr240Tfsk)
 
 Bruce wouldn't perform "Chimes of Freedom" again until long after 1988, but he actually did perform it once long *before*–on the Darkness Tour, way back in 1978. Take a listen–it's not anywhere near as strong or as confident as Bruce's later arrangement, but it's notable for Bruce's comments (he cites this as one of his favorite songs from high school), his embarrassment and unease in performing such an idealistic song in such a setting (my, how he'd change in a decade!), and the more classic E Street-sounding arrangement.
 
@@ -32,7 +32,7 @@ Bruce wouldn't perform "Chimes of Freedom" again until long after 1988, but he a
 
 In 2025, Springsteen re-introduced "Chimes of Freedom" to his set list, this time as the final song every night on the Land of Hope and Dreams Tour (both legs).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HK1WMIHRsQM)
+[Watch on Youtube: Bruce Springsteen - Chimes of Freedom (Manchester May 14, 2025 [Official Live Video])](https://www.youtube.com/watch?v=HK1WMIHRsQM)
 
 This time, Bruce didn't let the music speak for itself. On opening night in Minneapolis in 2026, before launching into the first verse, Bruce hushed the band and reminded the audience about the importance of adhering to our American values and our duty to each other and to our country:
 

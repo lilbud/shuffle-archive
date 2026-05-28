@@ -12,43 +12,43 @@ post_id: 57814
 
 **1975:** Bruce and the E Street Band play their second of back-to-back nights at Kutztown State College, where Bruce debuts his cover of "Carol."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rZt6J4vYmHw)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Kutztown, PA 1975-07-26 (Joe Kivak Master)](https://www.youtube.com/watch?v=rZt6J4vYmHw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fmrbPsTI8Pw)
+[Watch on Youtube: Bruce Springsteen - CAROL  1975 (audio)](https://www.youtube.com/watch?v=fmrbPsTI8Pw)
 
 **1981:** Bruce is sick, causing his scheduled River Tour show in Cincinnati to be postponed.<br>
 
 **1984:** Bruce's third and final night in Toronto on the Born in the U.S.A. Tour is a great one, featuring the live debut of "My Father's House," the tour premiere of "Who'll Stop the Rain," and a rare (on this tour, at least) "Ramrod." The entire second half of the show plus encores is professionally filmed.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gHMliZEuQk0)
+[Watch on Youtube: Bruce Springsteen - Fire - 1984-07-26 - Toronto, ON - 4K AI Upscale](https://www.youtube.com/watch?v=gHMliZEuQk0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2qExWoSEyg8)
+[Watch on Youtube: Bruce Springsteen - Dancing in the Dark - 1984-07-26 - Toronto, ON - 4K AI Upscale](https://www.youtube.com/watch?v=2qExWoSEyg8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=txqSkn996J8)
+[Watch on Youtube: Bruce Springsteen - No Surrender - 1984-07-26 - Toronto, ON - 4K AI Upscale](https://www.youtube.com/watch?v=txqSkn996J8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=w6C5U3pHtqg)
+[Watch on Youtube: Bruce Springsteen - Bobby Jean - 1984-07-26 - Toronto, ON - 4K AI Upscale](https://www.youtube.com/watch?v=w6C5U3pHtqg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W64OapCpnN4)
+[Watch on Youtube: Bruce Springsteen - Backstreets - 1984-07-26 - Toronto, ON - 4K AI Upscale](https://www.youtube.com/watch?v=W64OapCpnN4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=56qib3oWvhA)
+[Watch on Youtube: Bruce Springsteen - Jungleland - 1984-07-26 - Toronto, ON - 4K AI Upscale](https://www.youtube.com/watch?v=56qib3oWvhA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=z3WKifIG5yM)
+[Watch on Youtube: Bruce Springsteen - Detroit Medley - 1984-07-26 - Toronto, ON - 4K AI Upscale](https://www.youtube.com/watch?v=z3WKifIG5yM)
 
 [Watch Video Highlight](https://videopress.com/embed/J5MtQW5J)
 
 **1992:** At the third of eleven Meadowlands shows on World Tour 1992, Bruce closes the evening with the tour premiere of "Jersey Girl," the first performance of that song in almost seven years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=08AOp1JK6cQ)
+[Watch on Youtube: Bruce Springsteen & His Mother - Working on the Highway (rare)](https://www.youtube.com/watch?v=08AOp1JK6cQ)
 
 [Watch Video Highlight](https://videopress.com/embed/q1Gx2eoy)
 
 **1999:** The opening stand of the U.S. leg of the Reunion Tour reaches Night Five (of fifteen) at the Continental Airlines Arena in East Rutherford.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pjnIjTCfg-s)
+[Watch on Youtube: Bruce Springsteen - POINT BLANK 1999 - live](https://www.youtube.com/watch?v=pjnIjTCfg-s)
 
 [Watch Video Highlight](https://videopress.com/embed/axOeGGb5)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UmEDu3P5AtY)
+[Watch on Youtube: Bruce Springsteen - LIGHT OF DAY 1999 - live](https://www.youtube.com/watch?v=UmEDu3P5AtY)
 
 **2002:** Bruce and the E Street Band play an afternoon Rising Tour rehearsal show at Asbury Park's Convention Hall before an audience of contest winners. Bruce plays "Countin' on a Miracle" for the first time, and "Into the Fire" features Clarence on bagpipes (that arrangement will not make it to the tour itself). "Glory Days" also makes its return, which surprisingly was not played at all during the Reunion Tour. That evening, Bruce surprises the concert winners when he shows up at Sonny's Southern Cuisine and takes requests.<br>
 
@@ -62,30 +62,30 @@ post_id: 57814
 
 **2005:** At his solo acoustic show at the Greensboro Coliseum, Bruce tour debuts "Two Hearts" and plays "If I Should Fall Behind" on the pump organ for the first time.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ttl4D69Tvx8)
+[Watch on Youtube: Bruce Springsteen - If I Should Fall Behind - Greensboro-7/26/05 [Slideshow]](https://www.youtube.com/watch?v=Ttl4D69Tvx8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xtxymKvlhsQ)
+[Watch on Youtube: Bruce Springsteen - Leah (Live-Greensboro 2005)](https://www.youtube.com/watch?v=xtxymKvlhsQ)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2025/07/News_and_Record_2005_07_28_46.jpg.webp)
 
 **2009:** Bruce and the E Street Band take the Working on a Dream Tour into its European home stretch, winding up the leg with a five-show mini-tour of Spain, starting with this first show in Bilbao. "Does This Bus Stop at 82nd Street" and "You Never Can Tell" both get the tour premiere treatment.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6pJmgGAePro)
+[Watch on Youtube: Bruce Springsteen & The E Street Band Live Bilbao 2009 Working On A Dream Tour](https://www.youtube.com/watch?v=6pJmgGAePro)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3wmW2AVO2AI)
+[Watch on Youtube: BRUCE SPRINGSTEEN - YOU NEVER CAN TELL (BILBAO 2009)](https://www.youtube.com/watch?v=3wmW2AVO2AI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Um5dq7Dbi2s)
+[Watch on Youtube: Bruce Springteen en Bilbao 2009 Informativos](https://www.youtube.com/watch?v=Um5dq7Dbi2s)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1B2bsJf7qah0yopao7siyQf)
 
 **2016:** Bruce continues his Scandinavian mini-tour with a show in Trondheim, opening with the tour premiere of "Who'll Stop the Rain" and adding a mid-set tour premiere of "Radio Nowhere."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Q3Wm6zeA__Y)
+[Watch on Youtube: Bruce Springsteen Who'll Stop The Rain Trondheim](https://www.youtube.com/watch?v=Q3Wm6zeA__Y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zD73Su3rAcI)
+[Watch on Youtube: Bruce Springsteen | Granåsen Arena - Trondheim 2016 (Pro-Shot)](https://www.youtube.com/watch?v=zD73Su3rAcI)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2022:** Bruce surprises Bleachers fans when he joins the band for "Chinatown" at their Radio City Music Hall show in New York City.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pRkOjCufff8)
+[Watch on Youtube: Bleachers & Bruce Springsteen - Chinatown (Live at Radio City Music Hall)](https://www.youtube.com/watch?v=pRkOjCufff8)

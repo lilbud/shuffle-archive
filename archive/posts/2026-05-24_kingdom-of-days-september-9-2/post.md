@@ -62,10 +62,10 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yPk_tcXVVSs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DQc_HLYh_NI)
+[Watch on Youtube: Racing In The Street - Philadelphia (Best Version) - 9/9/16](https://www.youtube.com/watch?v=DQc_HLYh_NI)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qmqYhkmaCIE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YCuYw5OTxgg)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Backstreets - 09/09/16 - Citizens Bank Park](https://www.youtube.com/watch?v=YCuYw5OTxgg)
 
 **2023:** Bruce postpones his scheduled show in Baltimore to more than a full year later due to his peptic ulcer disease.

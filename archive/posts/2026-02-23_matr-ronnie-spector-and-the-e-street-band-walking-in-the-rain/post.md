@@ -24,7 +24,7 @@ When she returned home to record what would prove to be The Ronettes' last hit s
 
 The song went on to win a Grammy (for Best Sound Effects), and *Rolling Stone* enshrined it as one of their 500 Greatest Songs of All Time.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PbSQf9RkVSU)
+[Watch on Youtube: The Ronettes "Walking In The Rain" LIVE on U.S. TV 1973](https://www.youtube.com/watch?v=PbSQf9RkVSU)
 
 That terrific clip above was from 1973. Almost a decade had already gone by since that last big hit single crested on the charts, and within a year, Ronnie left her abusive husband, who did his best to prevent his ex-wife from ever again attaining mainstream success.
 
@@ -36,7 +36,7 @@ Bruce was so taken with Ronnie that he insisted that she sing "You Mean So Much 
 
 Her most memorable E Street stage appearance may have been the evening of November 4, 1976, when she fronted the E Street Band for a mini-set of Ronettes classics, including her beautiful, soaring take on "Walking in the Rain," her first of five performances of that song with Bruce and the band over the coming months.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0wRNLYykgBk)
+[Watch on Youtube: Bruce Springsteen Walking in the Rain New York 04/11/1976](https://www.youtube.com/watch?v=0wRNLYykgBk)
 
 "What Bruce and Steven did (along with Johnny)," Ronnie told *Mojo, "* was give me an opportunity to get out and sing on the road with a rock band and that was important to me then. My ex-husband was trying to break me and working with those guys saved me. They looked out for me, they wanted me to know I meant something to them and to music."
 

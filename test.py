@@ -24,8 +24,8 @@ ydl_opts = {
     },
     "verbose": False,
     "sleep_interval": 5,
-    "max_sleep_interval": 10,
-    "sleep_requests": 1.5,
+    "max_sleep_interval": 15,
+    "sleep_requests": 2,
 }
 
 # toedit = []
@@ -90,6 +90,9 @@ jekyll_dir = Path(
 with load_db() as conn, conn.cursor() as cur:  # noqa: SIM117
     with yt_dlp.YoutubeDL(ydl_opts) as ydl:
         for post in posts_dir.glob("**/*.md"):
+            if "2026" not in post.parent.name:
+                continue
+
             print(post.parent.name)
             content = post.read_text(encoding="utf-8")
 
@@ -107,9 +110,9 @@ with load_db() as conn, conn.cursor() as cur:  # noqa: SIM117
                     old = f"[Watch on Youtube: Watch Video]({i})"
                     new = f"[Watch on Youtube: {video_title}]({i})"
                     content = content.replace(old, new)
-                    time.sleep(1)
+                    time.sleep(2)
                 except DownloadError:
-                    pass
+                    time.sleep(2)
 
             post.write_text(content, encoding="utf-8")
 

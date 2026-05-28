@@ -14,7 +14,7 @@ post_id: 57605
 
 **1978:** Quite the Independence Day for Bruce in Los Angeles: the day starts off with a trip to KMET-FM, where local DJ Mary Turner interviews an infatuated, talkative Bruce. The interview is loose, rambling, and funny–well worth a listen–with some great stories, including one about the time Bruce played at a mental hospital, where a patient introduced him for twenty minutes, and another about his gig at Sing Sing prison, which has to be heard to be believed. (Bruce refers to both of these gigs during his Broadway show, but here's where you'll get the details.)<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=38Z52NrRFb4)
+[Watch on Youtube: Bruce Springsteen - Radio Interview, KMET-FM, July 4 1978](https://www.youtube.com/watch?v=38Z52NrRFb4)
 
 After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sweeten the offer with a song dedication. But in the meantime, a loose Bruce, Clarence and Garry hit the town and leave their mark–literally–on a Sunset Strip billboard:
 
@@ -22,7 +22,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 **1979:** Bruce and the E Street Band complete "The Man Who Got Away" at the Power Station in New York City. It will languish in the vault for 36 years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xqc_s3sOOUE)
+[Watch on Youtube: The Man Who Got Away (Studio Outtake - 1979)](https://www.youtube.com/watch?v=Xqc_s3sOOUE)
 
 **1983:** Bruce spends the holiday on the water: friend and fan Obie Dziedzic charters the 70-foot *Atlantis* for a three hour cruise for Bruce, the band, and members of Bruce's gym. After watching the fireworks over Asbury Park, Bruce and company head to The Stone Pony.<br>
 
@@ -30,11 +30,11 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 **1985:** At a rare July 4th concert, Bruce opens his second of three nights at London's Wembley Stadium with an acoustic "Independence Day," and Little Steven once again joins the band during the encore.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VT8tSFZ8QWs)
+[Watch on Youtube: Bruce Springsteen - news coverage from 1985 Wembley concerts](https://www.youtube.com/watch?v=VT8tSFZ8QWs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2Epn-TJSqIM)
+[Watch on Youtube: Bruce Springsteen - Wembley Stadium July 4th and 6th 1985](https://www.youtube.com/watch?v=2Epn-TJSqIM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Tw-KDhmlE5k)
+[Watch on Youtube: Bruce Springsteen London 4/7/1985 Full Concert](https://www.youtube.com/watch?v=Tw-KDhmlE5k)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1985-07-04.jpg.webp)
 
@@ -52,14 +52,14 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 [Watch Video Highlight](https://videopress.com/embed/dkSKEfXZ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VtTZ8V7czFg)
+[Watch on Youtube: Bruce Springsteen live in Gothenburg 2008](https://www.youtube.com/watch?v=VtTZ8V7czFg)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBF2CkbbRvghJhqt8OJ1AhD)
 
 **2012:** Bruce plays an Independence Day-themed set at Bercy in Paris, featuring the tour premieres of "4th of July, Asbury Park (Sandy)" and "Independence Day," along with "Darlington County" and "American Land." This show is available as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c_vd5ZTMpNw)
+[Watch on Youtube: Bruce Springsteen - 4th of July, Asbury Park (Sandy) - 04-07-12 Paris](https://www.youtube.com/watch?v=c_vd5ZTMpNw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SKzOHemAFPw)
+[Watch on Youtube: Independence Day (Live - Paris, 07/04/12)](https://www.youtube.com/watch?v=SKzOHemAFPw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=u_BdarUIwz4)
+[Watch on Youtube: "We Take Care Of Our Own" Bruce Springsteen Paris Bercy 4th Of July Wrecking Ball Tour](https://www.youtube.com/watch?v=u_BdarUIwz4)

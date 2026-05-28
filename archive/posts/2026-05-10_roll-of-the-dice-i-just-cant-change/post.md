@@ -12,7 +12,7 @@ Here's our second pre-ESB song this week. Unlike "Funk Song," however, "I Just C
 
 Although the song itself wouldn't survive 1972, its melody was resurrected in 1975. See if you recognize it.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nFDwVSrgf-Q)
+[Watch on Youtube: I Just Can't Change - Bruce Springsteen Band](https://www.youtube.com/watch?v=nFDwVSrgf-Q)
 
 Lyrically, "I Just Can't Change" couldn't be any more straightforward:
 

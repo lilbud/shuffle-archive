@@ -14,7 +14,7 @@ Case in point: "The Ballad of Jesse James," released in 2016 on *Chapter and Ver
 
 In fact, "The Ballad of Jesse James" is the *only* Bruce Springsteen Band recording to ever see an official release, which is almost criminal–not just because the all-too-brief Bruce Springsteen Band era sparked some of Bruce's best early songwriting, but also because… well, let's just say "The Ballad of Jesse James" ranks pretty low on that list.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4ULWawkDDdA)
+[Watch on Youtube: The Ballad of Jesse James](https://www.youtube.com/watch?v=4ULWawkDDdA)
 
 "The Ballad of Jesse James" sounds more like a Steel Mill holdover than a song written for the bluesier Bruce Springsteen Band. (There may be a reason for that: Bruce's first known performance of the song comes only weeks into his eponymous band's existence, so he may have had that one at the ready prior to his new group's formation.
 
@@ -22,7 +22,7 @@ It certainly follows the Steel Mill formula, though: light on lyrics, heavy on g
 
 (We're not missing anything though, because those three verses are actually repeated in full after the mid-song jam. Bruce left the second occurrences in the song, so while it's significantly shorter, it's still content complete. Compare with the unedited bootleg version below and see for yourself.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=myE7hMcbpNg)
+[Watch on Youtube: Ballad of Jeese James - The Bruce Springsteen Band aka Don´t you want to be an outlaw?](https://www.youtube.com/watch?v=myE7hMcbpNg)
 
 As for those lyrics, there's not much to analyze. "The Ballad of Jesse James" is the credo of a young rocker, an exhortation to rebel, revel, and relish all that life has to offer while you're young enough to appreciate it.
 
@@ -64,7 +64,7 @@ This mighty one-time-only "Upstage Jam Band" tore through a set list of classic 
 
 Here's that performance–its first in 46 years–performed by the original Bruce Springsteen Band line-up of Bruce, David Sancious, Garry Tallent, Steve Van Zandt, and (in a curve ball) Vini Lopez on lead vocals.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IJ-MMNnX_AE)
+[Watch on Youtube: Ballad of Jesse James](https://www.youtube.com/watch?v=IJ-MMNnX_AE)
 
 **The Ballad of Jesse James**<br>
 **Recorded:** March 14, 1972<br>

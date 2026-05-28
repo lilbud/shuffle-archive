@@ -18,7 +18,7 @@ In 1993, Ely was touring behind his new album *Love and Danger*, and Bruce was a
 
 "Settle For Love" was the lead-off track from Joe's 1988 album, *Dig All Night*, and it lifted Joe and his band to the height of their popularity.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=w7MaIGryb8g)
+[Watch on Youtube: Settle For Love](https://www.youtube.com/watch?v=w7MaIGryb8g)
 
 Bruce liked the song so much that immediately after playing it with Joe's band at Joe's show that night, he invited Joe to join him on his own stage the very next night to play it again.
 
@@ -26,7 +26,7 @@ Bruce's 1992-1993 World Tour was virtually over by that point–he had only a fe
 
 That Meadowlands benefit show is now available as one of Bruce's official archive releases (get it [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html)). It's largely remembered for the E Street Band's almost-reunion (Clarence, Steve, Max, and Patti made guest appearances that night), but Joe Ely was there, too. And while Bruce and Joe's performance of "Settle For Love" didn't ignite the crowd the way the old-school classics would that immediately followed, Bruce did his best to encourage his fans to check out Joe's music.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=buPufOHpAwM)
+[Watch on Youtube: 3-05 Settle For Love-Bruce Springsteen (NJ, 1993)](https://www.youtube.com/watch?v=buPufOHpAwM)
 
 Three years later, Bruce was back in Dublin to play a solo acoustic show on his Ghost of Tom Joad Tour, and by a full-circle coincidence, Joe Ely was back in town, too. So once again, Bruce graced Joe's stage, and once again, they played "Settle For Love."
 

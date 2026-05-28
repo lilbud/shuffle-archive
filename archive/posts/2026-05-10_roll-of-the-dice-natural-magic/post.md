@@ -14,11 +14,11 @@ I'm far too young to have caught The Bruce Springsteen Band live in concert (I w
 
 Today, we'll take a listen to one of my favorite original songs from this period: "Natural Magic," performed on at least three occasions but captured on tape only once–on July 29, 1971 at D'Scene in South Amboy, New Jersey.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=H9OhTpz87sc)
+[Watch on Youtube: My Baby's Natural Magic Bruce Springsteen Band 1971 08 07, Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=H9OhTpz87sc)
 
 "Natural Magic" may be an original Springsteen song, but it clearly owes a debt of influence to Van Morrison. We can clearly hear the similarities with "Crazy Love," released the year prior.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OIaKy1vM9hs)
+[Watch on Youtube: Crazy Love (2013 Remaster)](https://www.youtube.com/watch?v=OIaKy1vM9hs)
 
 "Natural Magic" doesn't tread any new lyrical ground either–mountain high/water wide pairings weren't exactly original ideas by that time.
 

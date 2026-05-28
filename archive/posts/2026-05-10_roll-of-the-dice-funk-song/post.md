@@ -18,7 +18,7 @@ Yup. (Sort of.)
 
 Bruce wrote "Funk Song" in 1971. The earliest known recording of it is from a 1972 band rehearsal. It's essentially an instrumental jam with a few "Right on!" contributions from Garry (plus some banter that's fun to listen to):
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=exYtsG-EqBQ)
+[Watch on Youtube: Bruce Springsteen Band - Funk Song - 1972](https://www.youtube.com/watch?v=exYtsG-EqBQ)
 
 Other than that rehearsal take, there's no record of Bruce and the band actually performing the song. But then it suddenly showed up as a mid-set showpiece for three shows in the summer of 1975, this time with Clarence on "vocals."
 

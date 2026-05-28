@@ -14,11 +14,11 @@ post_id: 59398
 
 **1979:** Bruce records "Dollhouse" with the E Street Band at The Power Station in New York City. It will remain in the vault for almost two decades.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HpF_i71cqVQ)
+[Watch on Youtube: Dollhouse (Studio Outtake - 1979)](https://www.youtube.com/watch?v=HpF_i71cqVQ)
 
 **1981:** Bruce and the boys play one of their most legendary, emotional and impassioned shows: a benefit for the Vietnam Veterans of America Foundation at the Sports Arena in Los Angeles, the first show of a six-night stand. Opening with "Who'll Stop the Rain" (played here because of its actual content rather than its literal title), this show also features Bruce's only known performance of "Ballad of Easy Rider" and a beautiful, emotional rendition of "The River."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KYg_CB7AElA)
+[Watch on Youtube: Bruce Springsteen - BALLAD OF EASY RIDER  (audio)](https://www.youtube.com/watch?v=KYg_CB7AElA)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeXblEifwMxIN_rVQmHg3JDY)
 
@@ -30,19 +30,19 @@ post_id: 59398
 
 **1984:** Yet another of the all-time great shows performed on this date–this time across the country at the Meadowlands, where Bruce and the band wrap up their ten-night Born in the U.S.A. stand. Steve Van Zandt makes his triumphant return to the E Street Band stage for the tour premiere of "Two Hearts" and the live debut of a powerful "Drift Away." The show is available as part of Bruce's official archive series, where you can hear the strength of the bond between Bruce and Steve across the years. The Miami Horns also guest-star at this show, and the horn-fueled "Tenth Avenue Freeze-Out" will be released in the *Live 1975-85* box set.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wh94fFrW9pI)
+[Watch on Youtube: Spirit In The Night (Live at Brendan Byrne Arena, East Rutherford, NJ - 08/20/1984 - Official Audio)](https://www.youtube.com/watch?v=wh94fFrW9pI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EN-YMk9oi1g)
+[Watch on Youtube: I'm Goin' Down (Live at Brendan Byrne Arena, E. Rutherford, NJ - 8/20/1984)](https://www.youtube.com/watch?v=EN-YMk9oi1g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Eic-jyO0hbs)
+[Watch on Youtube: My Hometown (Live at Brendan Byrne Arena, E. Rutherford, NJ - 8/20/1984)](https://www.youtube.com/watch?v=Eic-jyO0hbs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=quVN35CdjTs)
+[Watch on Youtube: Tenth Avenue Freeze-Out (Live at Meadowlands Arena, E. Rutherford, NJ - August 1984)](https://www.youtube.com/watch?v=quVN35CdjTs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wwjzfLqmY64)
+[Watch on Youtube: Pink Cadillac (Live at Brendan Byrne Arena, E. Rutherford, NJ - 8/20/1984)](https://www.youtube.com/watch?v=wwjzfLqmY64)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G5-yWPJynjo)
+[Watch on Youtube: Growin' Up (Live at the Brendan Byrne Arena, East Rutherford, NJ - 08/20/84 - Official Audio)](https://www.youtube.com/watch?v=G5-yWPJynjo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9h8p8op0vgg)
+[Watch on Youtube: Drift Away (Live at Brendan Byrne Arena, East Rutherford, NJ - 08/20/84 - Official Audio)](https://www.youtube.com/watch?v=9h8p8op0vgg)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1984-08-20.jpg.webp)
 
@@ -62,7 +62,7 @@ post_id: 59398
 
 [Watch Video Highlight](https://videopress.com/embed/POy7Bo4x)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2IHntRdm9B8)
+[Watch on Youtube: Bruce Springsteen : Mary's Place (with a snippet of Bobby 'Blue' Bland 's TURN ON YOUR LOVE LIGHT)](https://www.youtube.com/watch?v=2IHntRdm9B8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2002-08-20a.png.webp)
 

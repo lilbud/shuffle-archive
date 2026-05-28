@@ -34,15 +34,15 @@ post_id: 57929
 
 **1978:** Bruce and the E Street Band play one of their best shows of the Darkness Tour at The Agora in Cleveland, a free anniversary show for local radio station WMMS, with tickets awarded by lottery. The show is broadcast live on WMMS and affiliate stations, and it is available today as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C0B_oQVd4X4)
+[Watch on Youtube: Summertime Blues (Live at The Agora, Cleveland, OH - 08/09/78 - Official Audio)](https://www.youtube.com/watch?v=C0B_oQVd4X4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Jic6a-PYQJU)
+[Watch on Youtube: Bruce Springsteen - Badlands (Live at the Agora, Cleveland, OH - 08/09/78 - Official Audio)](https://www.youtube.com/watch?v=Jic6a-PYQJU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C1Qbfo56_Dw)
+[Watch on Youtube: Darkness On The Edge Of Town (Live at The Agora, Cleveland, OH - 8/9/1978)](https://www.youtube.com/watch?v=C1Qbfo56_Dw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IY9Y8aPrmR4)
+[Watch on Youtube: Racing In the Steet (Live at the Agora, Cleveland, OH - 08/09/78 - Official Audio)](https://www.youtube.com/watch?v=IY9Y8aPrmR4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aam-TrgtCWI)
+[Watch on Youtube: Henry LoConti on unreleased Springsteen concert](https://www.youtube.com/watch?v=aam-TrgtCWI)
 
 **1981:** Bruce's scheduled River Tour gig in Detroit is postponed by three days.<br>
 
@@ -54,7 +54,7 @@ post_id: 57929
 
 **1985:** The Born in the U.S.A. stadium tour lands at Soldier Field in Chicago, and the show is captured in stellar quality.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l-IRmIGFCnc)
+[Watch on Youtube: WMAQ 10 PM News clip (August 9, 1985)](https://www.youtube.com/watch?v=l-IRmIGFCnc)
 
 [Watch Video Highlight](https://videopress.com/embed/MKWi66OU)
 
@@ -84,7 +84,7 @@ post_id: 57929
 
 [Watch Video Highlight](https://videopress.com/embed/R5VjRrxz)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zJN-z0HPSFk)
+[Watch on Youtube: Frankie Bruce Springsteen New Jersey August 9, 1999](https://www.youtube.com/watch?v=zJN-z0HPSFk)
 
 [Watch Video Highlight](https://videopress.com/embed/tPOid8Zg)
 
@@ -110,8 +110,8 @@ post_id: 57929
 
 **2023:** Bruce and E Street Band kick off the second domestic leg of their 2023 World Tour at Wrigley Field in Chicago.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1hI3bwtVBYg)
+[Watch on Youtube: Bruce Springsteen soundchecks at Wrigley Field before Chicago concerts](https://www.youtube.com/watch?v=1hI3bwtVBYg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xPWHcaFm_Eg)
+[Watch on Youtube: Bruce Spingsteen Thunder Road August 9 2023 Wrigley Field Chicago nunupics](https://www.youtube.com/watch?v=xPWHcaFm_Eg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XACFAhXviyQ)
+[Watch on Youtube: Bruce Springsteen kicks of 2-show run at Chicago's Wrigley Field](https://www.youtube.com/watch?v=XACFAhXviyQ)

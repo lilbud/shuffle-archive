@@ -10,7 +10,7 @@ post_id: 59508
 ---
 **1968:** Bruce catches The Doors' concert at Asbury Park's Convention Hall. Watch actual footage of Jim Morrison from that day below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Z3DElGznXIE)
+[Watch on Youtube: The Doors at Convention Hall in Asbury Park](https://www.youtube.com/watch?v=Z3DElGznXIE)
 
 **1973:** Bruce and his band play two shows at Fat City in Seaside Heights, New Jersey.<br>
 

@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/homefree.jpg
 post_id: 28469
 ---
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D-OkZBtgmS8)
+[Watch on Youtube: Home Free - Born In The USA](https://www.youtube.com/watch?v=D-OkZBtgmS8)
 
 If you're not familiar with Home Free, they're an American a capella group that won Season 4 of *The Sing-Off* on NBC back in 2013. That feat led to a recording contract with Columbia Records, where they became label-mates with Bruce.
 

@@ -11,11 +11,11 @@ To include all the covers of "I'm on Fire" I've featured on the blog over the ye
 
 Let's start with one of my favorites by two legends, John Mayer and Keith Urban, from their concert at the Gorge Amphitheater in George, Washington in 2010. Check out the exquisite guitar interplay in this one.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RMMD891A7V4)
+[Watch on Youtube: Mayer / Urban - I'm On Fire - The Gorge - 8/28/2010](https://www.youtube.com/watch?v=RMMD891A7V4)
 
 This next one is lovely: a quiet, brooding performance by indie-folk trio The Staves out of the UK. Their harmonies lift the song up without losing it's simmering subtext. And that coda… hauntingly powerful.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yYHfBWOzzUw)
+[Watch on Youtube: I'm on Fire](https://www.youtube.com/watch?v=yYHfBWOzzUw)
 
 What do Bruce Springsteen and Tori Amos have in common?
 
@@ -29,7 +29,7 @@ Quite a bit, actually:
 
 Like, Efrain and David, the hosts of the "Drive All Night: The Songs of Tori Amos" podcast, who once invited me to be a guest on their show during a two-hour(!) episode devoted entirely to Tori's cover of "I'm on Fire."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3k83xsEAFig)
+[Watch on Youtube: Tori Amos - "I'm On Fire" (cover)](https://www.youtube.com/watch?v=3k83xsEAFig)
 
 You read that right: a two-hour podcast devoted to a Tori Amos cover of a Bruce Springsteen song. How could I pass that up?
 
@@ -49,61 +49,61 @@ Life Size Models leaves the album arrangement way, way off in its rear view mirr
 
 Trust me on this–take a listen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=X16M1G5TWwE)
+[Watch on Youtube: Life Size Models - I'm on Fire [Bruce Springsteen Cover]](https://www.youtube.com/watch?v=X16M1G5TWwE)
 
 Here's a creative take: Dan Patrick Fulton mashes up "I'm on Fire" with "Sex on Fire" by Kings of Leon–a neat pairing that works both musically and thematically.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_Ak4uHuUPK4)
+[Watch on Youtube: (I'm/Sex) On Fire (Bruce Springsteen Kings Of Leon Mashup Cover) YIS 14](https://www.youtube.com/watch?v=_Ak4uHuUPK4)
 
 Dan gets bonus points for going all in with full costume dress and some fantastic editing, too.
 
 Now let's take a trip around the world and meet some artists you might not have heard before. We'll start in Canada with a cool, bass-centric arrangement by Jake McIntyre-Paul and vocalist Jessica Heaven, who perform together under the name Descartes.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vSHM2SOJKIo)
+[Watch on Youtube: I'm On Fire -- Descartes (Bruce Springsteen Cover)](https://www.youtube.com/watch?v=vSHM2SOJKIo)
 
 Their version of "I'm on Fire" is actually the second single off their album *Descartes for Sheila*, which features inventive arrangements of classic songs by Billy Joel, The Beatles, Paul Simon, and more.
 
 "I'm on Fire" is a seduction song at heart, and Canadian singer-songwriter Sanjay Seran found a way to turn up the heat with his late-night, lights-out version.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M3vmceGw_go)
+[Watch on Youtube: SNJÜ - "I’m On Fire" [Cover]](https://www.youtube.com/watch?v=M3vmceGw_go)
 
 Harry Manx's music has a unique sound, a marriage of the blues with classic ragas. His cover of "I'm on Fire" is a perfect example, the lead track from his 2007 album with Kevin Breit, *In Good We Trust.* The Indian instrumentation shades Bruce's song with tones both bright and brooding, resulting in one of the best covers of "I'm on Fire" and certainly one of the freshest.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iVBhmab70PA)
+[Watch on Youtube: Harry Manx & Kevin Breit - I'm on Fire ( Album / Studio Version )](https://www.youtube.com/watch?v=iVBhmab70PA)
 
 Moving over to the European continent, let's make a stop in Berlin and watch The Unknown Neighbour translate Bruce's song from guitar to solo piano and harmonica in this 2015 video.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Nlh1nehX3xI)
+[Watch on Youtube: Unknown Neighbour – I'm on Fire (Piano Cover)](https://www.youtube.com/watch?v=Nlh1nehX3xI)
 
 His cover of "I'm on Fire" grew on me throughout its three minutes, and by the bridge I'd realized that his arrangement sounds very much like what I'd expect a Springsteen-arranged piano version to sound like. And oh, that coda… perfection.
 
 Next stop: The Netherlands, with a great in-studio performance brought to us by NPO Radio 2. Turn your volume up for this one, an awesomely crunchy roadhouse version by Mick Stender. You've never heard "I'm on Fire" rock like this before!
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ylaCGSoAGGo)
+[Watch on Youtube: Mick Stender - I'm On Fire (Bruce Springsteen cover) | NPO Radio 2](https://www.youtube.com/watch?v=ylaCGSoAGGo)
 
 Next up: Irish singer-songwriter Megan O'Neill's lovely duet with Mark Caplice, recorded at the Moat Theater in Naas.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jZjLpBM84Qg)
+[Watch on Youtube: I'm on Fire - Bruce Springsteen - Acoustic live performance - Megan O'Neill](https://www.youtube.com/watch?v=jZjLpBM84Qg)
 
 Megan and Mark's vocals work beautifully together, and those moments between verses are just sublime.
 
 Here's Vanilla Swing, [https://vanilaswing.com/](https://vanilaswing.com/)a rockabilly/swing band from Athens, Greece. After a moody first verse, the band cuts loose with a 1950s-style rockabilly arrangement that'll get you on the dance floor. It might lose the tension in Bruce's original version but it certainly retains the heat.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iRFG-K4ahLA)
+[Watch on Youtube: I'm on fire- Vanila swing cover](https://www.youtube.com/watch?v=iRFG-K4ahLA)
 
 And as long as we're in a moody mood, let's check out French musician Halem's stunning bluesy cover of "I'm on Fire" from his upcoming EP. This one is best listened to with the lights out!
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hPNnB7wVtkI)
+[Watch on Youtube: I'm On Fire - Halem (Bruce Springsteen Cover)](https://www.youtube.com/watch?v=hPNnB7wVtkI)
 
 Back in the U.S., Philly-based Sharon Little and Tim Sonnefeld show us what Bruce's song might have sounded like if he'd released it in the mid-nineties instead of the mid-eighties. Sonnefeld's backing track is moody, broody, and intense–and Little's vocals will blow you away, particularly when the song bursts open about halfway through.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=t3aoZZpAoAw)
+[Watch on Youtube: I'm On Fire - Bruce Springsteen [Sharon Little Cover]](https://www.youtube.com/watch?v=t3aoZZpAoAw)
 
 If Sharon's name and voice sound familiar, you might have seen her at Light of Day in 2017 or opening for Robert Plant, Alison Krauss and T Bone Burnett before that.
 
 We'll finish our world tour in Hawaii, with Honolulu-based singer-songwriter and multi-instrumentalist (guitar, banjo, lap steel, and ukelele) whose music incorporates rock, blues, and island influences. And we can definitely hear all three in his live version of "I'm on Fire."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=38D3xP0rRhk)
+[Watch on Youtube: Tavana "I'm on Fire" Live at Salt](https://www.youtube.com/watch?v=38D3xP0rRhk)
 
 "This song is such a great example of how Bruce can take the emotions of an average everyday man and turn it into poetry," Tavana wrote on his Facebook page. "I also just love the way it feels to play it on the lap steel. It brings out another layer of grit that I think is very fitting."
 

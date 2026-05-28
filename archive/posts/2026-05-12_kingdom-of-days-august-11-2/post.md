@@ -36,11 +36,11 @@ post_id: 58368
 
 **1989:** Bruce makes a surprise guest appearance at the Garden State Arts Center in Holmdel, joining Ringo Starr and His All Starr Band (including Nils and Clarence) for the encores of "Get Back," "Long Tall Sally," "Photograph" and "With a Little Help From My Friends."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OK-lSq3vVZ0)
+[Watch on Youtube: Ringo Starr and His All Starr Band / Bruce Springsteen: Get Back](https://www.youtube.com/watch?v=OK-lSq3vVZ0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EzxoTbt0FRU)
+[Watch on Youtube: PHOTOGRAPH ( Ringo Star cover )](https://www.youtube.com/watch?v=EzxoTbt0FRU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vqMxTWqVoYM)
+[Watch on Youtube: Ringo Starr's All Starr Band and Bruce Springsteen - "With a Little Help From My Friends"](https://www.youtube.com/watch?v=vqMxTWqVoYM)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1989-08-11a.png.webp)
 
@@ -50,32 +50,32 @@ post_id: 58368
 
 [Watch Video Highlight](https://videopress.com/embed/a9oVxoDc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=O5iFPH6aig0)
+[Watch on Youtube: Bruce Springsteen: NEW YORK CITY SERENADE](https://www.youtube.com/watch?v=O5iFPH6aig0)
 
 [Watch Video Highlight](https://videopress.com/embed/bAJmbbez)
 
 **2003:** Bruce and the E Street Band wrap up their three-show Rising stand at Philadelphia's Lincoln Financial Field in peak form, opening with "From Small Things (Big Things One Day Come)," and tour premiering "I'm Goin' Down" and "Pretty Flamingo" (the latter of which hadn't been played in 25 years). Throw in a rare "Incident on 57th Street" "Be True," and a show-closing "I'm a Rocker," and you've got the makings of a killer setlist. And then there's that "Ramrod" under a full moon…<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DyPmTlgg180)
+[Watch on Youtube: From Small Things, Philadelphia 2003](https://www.youtube.com/watch?v=DyPmTlgg180)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wgoIynLqGT8)
+[Watch on Youtube: Full Band Incident On 57th Street Philly 03 "oh my gaaaaad"](https://www.youtube.com/watch?v=wgoIynLqGT8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RieYi5kFOeE)
+[Watch on Youtube: I'm Going Down, Philly 2003](https://www.youtube.com/watch?v=RieYi5kFOeE)
 
 [Watch Video Highlight](https://videopress.com/embed/BhBwRNao)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ItDtlDPy-nE)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Pretty Flamingo/Rosalita | Philly, 2003](https://www.youtube.com/watch?v=ItDtlDPy-nE)
 
 **2005:** Bruce continues his solo acoustic swing through the Pacific Northwest with a show at Seattle's Key Arena, where Bruce tour premieres "Be True" and plays a one-off guitar version of "For You."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DOr0YpxkVtI)
+[Watch on Youtube: Bruce Springsteen - Living Proof - Seattle - 8/11/05](https://www.youtube.com/watch?v=DOr0YpxkVtI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ee2uF3Sun5c)
+[Watch on Youtube: Bruce Springsteen - Be True [TP] - Seattle - 8/11/05](https://www.youtube.com/watch?v=Ee2uF3Sun5c)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WUMuta55JIg)
+[Watch on Youtube: Bruce Springsteen - For You (Acoustic) - Seattle - 8/11/05](https://www.youtube.com/watch?v=WUMuta55JIg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2023:** Bruce and the E Street Band play their second of two shows at Wrigley Field in Chicago.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tDV7mychhkw)
+[Watch on Youtube: Bruce Springsteen & the E Street Band, Wrigley Field night 2 (Night / No Surrender), Chicago 8/11/23](https://www.youtube.com/watch?v=tDV7mychhkw)

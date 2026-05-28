@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IbV8A6Ruqa0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7DpvSXc02qg)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Detroit Medley (21/09/1979)](https://www.youtube.com/watch?v=7DpvSXc02qg)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=i1UohYHXvGo)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mQgG1zUtbw0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BbFm2uxNrUc)
+[Watch on Youtube: Stay (Live at Madison Square Garden, New York, NY - 09/21/79 - Official Audio)](https://www.youtube.com/watch?v=BbFm2uxNrUc)
 
 **1982:** Bruce makes a guest appearance with Dave Edmunds at the Peppermint Lounge in New York City.
 
@@ -120,7 +120,7 @@ Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards
 
 **2017:** Bruce makes a surprise guest appearance at the Laid Back Festival in Holmdel, New Jersey, joining both Little Steven and Jackson Browne in their respective sets.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m_ZiEZTQNtY)
+[Watch on Youtube: Van Zandt, Wolf, Springsteen, "Freeze Frame" + "It's Been A Long Time", Laid Back Festival, 9/21/17](https://www.youtube.com/watch?v=m_ZiEZTQNtY)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2EGhc8DJFz0)
 

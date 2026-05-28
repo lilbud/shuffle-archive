@@ -16,7 +16,7 @@ That night, he essentially joined The Patti Smith Group, playing guitar or piano
 
 One of those songs was Patti's "Free Money," a poem born on a late-night walk, set to music by Lenny Kaye, and released on *Horses.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=U-ZJGfA0UxY)
+[Watch on Youtube: Free Money](https://www.youtube.com/watch?v=U-ZJGfA0UxY)
 
 While we know that Bruce played both piano and guitar that November night, we don't know which instrument he played during "Free Money" — that information has been lost to time.
 

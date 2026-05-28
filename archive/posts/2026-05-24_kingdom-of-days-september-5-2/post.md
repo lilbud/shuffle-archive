@@ -42,7 +42,7 @@
 
 **2016:** Bruce and the E Street Band make up for an earlier hurricane-induced rainout in Virginia Beach, playing an amazing chronological set for a reduced crowd in an already intimate outdoor venue. (The show was originally scheduled for a Saturday night on a holiday weekend–when the show was rescheduled for Labor Day, many fans already had their return trip booked for that day, as school started for many the following morning.) Apparently the string section couldn’t make it either, so Bruce opens the show with an acoustic “For You” on piano instead. “The E Street Shuffle” and “Factory” are tour premieres tonight.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=f_O0mnDPRfQ)
+[Watch on Youtube: Bruce Springsteen - For You (live in Virginia Beach 2016)](https://www.youtube.com/watch?v=f_O0mnDPRfQ)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rQybR3FLbVI)
 

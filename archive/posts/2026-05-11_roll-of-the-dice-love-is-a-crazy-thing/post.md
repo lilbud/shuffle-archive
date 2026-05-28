@@ -16,7 +16,7 @@ By that time, The Bruce Springsteen Band had virtually taken up residency at The
 
 Most of Bruce's set lists from those shows are undocumented, so we can't be certain whether "Love Is a Crazy Thing" was a one-off or a set list habitue, but if we listen closely to the track below, we might sense something familiar about the mid-song tempo changes.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=S9Ho0oWDDB8)
+[Watch on Youtube: Love Is A Crazy Thing - Bruce Springsteen Band](https://www.youtube.com/watch?v=S9Ho0oWDDB8)
 
 To my ears, "Love Is a Crazy Thing" sounds like a predecessor to "Kitty's Back," which Bruce would record a little more than a year later. Both the tempo change and mid-song instrumental break were devices that Bruce would use upon occasion in those early years, but here he seems to be clearly reaching toward something specific.
 

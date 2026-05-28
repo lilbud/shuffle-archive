@@ -83,7 +83,7 @@ Bruce clearly has a fondness for it, though, because he not only featured it reg
 
 Bruce also issued “Rocky Ground” as the second single from *Wrecking Ball*, in digital audio, video, and vinyl forms, even though other tracks had far more obvious commercial potential. (He did have it remixed and shortened, though–the resulting “modern mix” is relatively unknown even to fans.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Id2Rss2RfgQ)
+[Watch on Youtube: Bruce Springsteen - Rocky Ground (Modern Mix Video)](https://www.youtube.com/watch?v=Id2Rss2RfgQ)
 
 *Rolling Stone* liked “Rocky Ground,” too. They named it the seventh best song (by anyone) of 2012.
 

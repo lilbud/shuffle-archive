@@ -14,11 +14,11 @@ Garland and Bruce have performed it together on four occasions, and one of those
 
 Here's that performance from Garland and Bruce, backed by the Max Weinberg 7.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ANXGNWHni9w)
+[Watch on Youtube: Garland Jeffreys and Bruce Springsteen - "Wild in the Streets - December 7, 2003](https://www.youtube.com/watch?v=ANXGNWHni9w)
 
 Not bad, but IMO, it doesn't hold a candle to the original:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3RzBZsOeqOQ)
+[Watch on Youtube: Garland Jeffreys - Wild in the Streets (Official Music Video)](https://www.youtube.com/watch?v=3RzBZsOeqOQ)
 
 **Wild in the Streets**<br>
 **First performed:** November 2, 2002 (Sea Bright, NJ)<br>

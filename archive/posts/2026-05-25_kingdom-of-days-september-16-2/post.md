@@ -16,7 +16,7 @@
 
 **1977:** Bruce completes work on “Prove It All Night” at The Record Plant in New York City.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UzjkWdRqWFo)
+[Watch on Youtube: Prove It All Night](https://www.youtube.com/watch?v=UzjkWdRqWFo)
 
 **1978:** Bruce and the E Street Band continue their three-night Darkness Tour stand at the Palladium in New York City. This show features the first full-band “Independence Day,” a work-in-progress “Point Blank,” and the tour debut of “Incident on 57th Street” — a pretty great combination for those lucky enough to be there. After the show, the band sits down for an interview with local WNEW DJ Vin Scelsa, which will be broadcast three days later.
 
@@ -34,7 +34,7 @@
 
 **1996:** The Ghost of Tom Joad Tour resumes after a four-month break, kicking off the fall leg with a show at Benedum Center in Pittsburgh, where Joe Grushecky makes an appearance during the encores. Bruce and Joe perform “Homestead” together.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RCBrzGqEGQY)
+[Watch on Youtube: Bruce Springsteen and Joe Grushecky, "Homestead" 1996-09-16, Pittsburgh](https://www.youtube.com/watch?v=RCBrzGqEGQY)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2021/09/1996-09-16a.jpg' alt='' title='' width='758' height='1327' />
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5CGaNPu29ds)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wawtqYSdCPM)
+[Watch on Youtube: Bruce Springsteen - LET'S BE FRIENDS (SKIN TO SKIN) 2003 live](https://www.youtube.com/watch?v=wawtqYSdCPM)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/2003-09-16.jpg' alt='' title='' width='758' height='683' />
 

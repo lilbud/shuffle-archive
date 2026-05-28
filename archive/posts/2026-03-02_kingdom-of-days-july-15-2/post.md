@@ -18,7 +18,7 @@ post_id: 57723
 
 (Note: Brucebase says that the interview is with Ed Beauchamp, but unless Ed developed a British accent for the occasion, I don't believe that's him doing the interviewing. If anyone knows who it is, please let me know.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MBpirgl2Uds)
+[Watch on Youtube: Bruce Springsteen - Rare interview from July 15, 1978 - Houston KILT-FM](https://www.youtube.com/watch?v=MBpirgl2Uds)
 
 That evening, Bruce and the E Street Band perform "The Promise" during their show. It won't be performed again for more than two decades.
 
@@ -32,7 +32,7 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 **1984:** Bruce and the E Street Band kick off a three-night Born in the U.S.A. Tour stand at the Rosemont Horizon near Chicago.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s4tI02srR48)
+[Watch on Youtube: Springsteen - Nebraska (Synth version-Chicago)](https://www.youtube.com/watch?v=s4tI02srR48)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/1984-07-15.jpg.webp)
 
@@ -42,11 +42,11 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 **1999:** Bruce and the E Street Band kick off the U.S. leg of the Reunion Tour with the first of fifteen(!) shows at the Continental Airlines Arena in East Rutherford. The anticipation and build-up to this show is intense, and VH1 broadcasts the first couple of songs. Kicking off the encores, Bruce plays "Freehold" for only the second time in the U.S. This show is available to stream or purchase as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MtoJDzSPpyE)
+[Watch on Youtube: My Love Will Not Let You Down / Promised Land - Bruce Springsteen - Meadowlands - 1999](https://www.youtube.com/watch?v=MtoJDzSPpyE)
 
 [Watch Video Highlight](https://videopress.com/embed/lVjPwEeE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-L6c3RKKVXk)
+[Watch on Youtube: My Love Will Not Let You Down (1999/07/15 Continental Airlines Arena, East Rutherford, NJ)](https://www.youtube.com/watch?v=-L6c3RKKVXk)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1999-07-15a.jpg.webp)
 
@@ -56,19 +56,19 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 **2003:** Bruce and the E Street Band kick off the final leg of the Rising Tour with the first of a ten-night stand at Giants Stadium in East Rutherford. The sets will be relatively standard at first, legendary by the end. Similar to the kick-off of the U.S. Reunion Tour exactly four years prior to the day, public attention and news coverage is intense. Check out some of it below, including a special episode of *Tailgate Party* marking the occasion.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HtzXYYVVCcw)
+[Watch on Youtube: Bruce Springsteen - Local news coverage - July 15, 2003](https://www.youtube.com/watch?v=HtzXYYVVCcw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=McAOQZ0l9hQ)
+[Watch on Youtube: Bruce Springsteen "Tailgate Party"  Pt. 1  2003](https://www.youtube.com/watch?v=McAOQZ0l9hQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Vfb21J915-w)
+[Watch on Youtube: Bruce Springsteen "Tailgate Party"  Pt. 2  2003](https://www.youtube.com/watch?v=Vfb21J915-w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9HICkNqhkJ0)
+[Watch on Youtube: Bruce Springsteen - Giants Stadium - July 15th 2003 (Pro-Shot)](https://www.youtube.com/watch?v=9HICkNqhkJ0)
 
 **2008:** The final European leg of the Magic Tour enters the home stretch with a final run of shows in Spain, starting with a night in San Sebastian. Bruce opens with "Tunnel of Love," and the set list features a rare "Incident on 57th Street" as well.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=h6Rfl6Esl1g)
+[Watch on Youtube: THE BOSS IN DONOSTI](https://www.youtube.com/watch?v=h6Rfl6Esl1g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rrlRp0EfqhQ)
+[Watch on Youtube: BRUCE SPRINGSTEEN --- INCIDENT --- SAN SEBASTIAN SPAIN 2008](https://www.youtube.com/watch?v=rrlRp0EfqhQ)
 
 Meanwhile, Bruce releases a new live EP entitled *Magic Tour Highlights*, featuring notable guest appearances and Danny Federici's final performance with the band. The EP is a benefit fund-raiser for the Danny Federici Melanoma Fund.
 
@@ -82,10 +82,10 @@ Meanwhile, Bruce releases a new live EP entitled *Magic Tour Highlights*, featur
 
 **2023:** Bruce and the E Street Band bring their World Tour to Hamburg, Germany.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dIhZWKYWtaA)
+[Watch on Youtube: Bruce Springsteen - Hamburg Volksparkstadion, 15.07.2023 - 1/6](https://www.youtube.com/watch?v=dIhZWKYWtaA)
 
 **2024:** Bruce opens with "Into the Fire" in Solna on World Tour '24.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=10E9X8EF2VA)
+[Watch on Youtube: INTO THE FIRE Bruce Springsteen E Street Band Stockholm 2024/07/15](https://www.youtube.com/watch?v=10E9X8EF2VA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Cr-Gwoc2myE)
+[Watch on Youtube: 2024-07-15 Bruce Springsteen - Land Of Hope And Dreams](https://www.youtube.com/watch?v=Cr-Gwoc2myE)

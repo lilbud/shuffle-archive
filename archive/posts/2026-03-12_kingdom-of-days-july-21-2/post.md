@@ -12,7 +12,7 @@ post_id: 57794
 
 **1978:** Bruce brings the Darkness Tour to Nashville and plays the earliest known performance of "Factory."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VRKoRUCKFH8)
+[Watch on Youtube: Bruce Springsteen - "Factory" - Nashville, 1978-07-21](https://www.youtube.com/watch?v=VRKoRUCKFH8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-21.png.webp)
 
@@ -28,7 +28,7 @@ post_id: 57794
 
 **2003:** Night Three of ten at the Rising Tour's Giants Stadium stand features a special guest star: original E Street Band drummer Vini Lopez takes the drums on "Spirit in the Night."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SE9VhyFLlCY)
+[Watch on Youtube: Bruce Springsteen and the E Street Band at Giants Stadium, 2003](https://www.youtube.com/watch?v=SE9VhyFLlCY)
 
 [Watch Video Highlight](https://videopress.com/embed/YhPvxRZh)
 
@@ -36,23 +36,23 @@ post_id: 57794
 
 [Watch Video Highlight](https://videopress.com/embed/rh2cqQ7y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PpuUmRgn8-Q)
+[Watch on Youtube: Bruce Springsteen & the E Street Band - Drive All Night, Torino 21st July 2009](https://www.youtube.com/watch?v=PpuUmRgn8-Q)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB01lb7dEjsgb_Lj1bmvwyA)
 
 **2012:** The Wrecking Ball Tour starts a Scandinavian swing with a show at Valle Hovin Stadion in Oslo. Bruce opens with an acoustic "The Promised Land," tour premieres "Ain't Good Enough for You" and "Streets of Fire," and ends the show with a surprise bonus encore of "Night."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fSB2ZPD8Tow)
+[Watch on Youtube: Bruce Springsteen (live) - Wrecking Ball - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=fSB2ZPD8Tow)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8hR7blLrfOQ)
+[Watch on Youtube: Bruce Springsteen (live) - Working On The Highway - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=8hR7blLrfOQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rpBU-GLkiio)
+[Watch on Youtube: Bruce Springsteen (live) - We Are Alive - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=rpBU-GLkiio)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oJ6mVqCqIxQ)
+[Watch on Youtube: Bruce Springsteen (live) - Glory Days - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=oJ6mVqCqIxQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Wej5bdoR1VI)
+[Watch on Youtube: Bruce Springsteen (live) - Night - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=Wej5bdoR1VI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=buBNGQcuSHE)
+[Watch on Youtube: Bruce Springsteen (live) -  Rocky Ground - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=buBNGQcuSHE)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -64,14 +64,14 @@ post_id: 57794
 
 **2023:** Bruce and the E Street Band play the same setlist for the third consecutive night when World Tour 2023 arrives in Hockenheim, Germany. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,31095/Bruce-Springsteen-mp3-flac-download-7-21-2023-Hockenheimring-Hockenheim-GERMANY.html).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2M-hUo_g-W4)
+[Watch on Youtube: Bruce Springsteen - NO SURRENDER (full version) - July 21th, 2023 Hockenheim](https://www.youtube.com/watch?v=2M-hUo_g-W4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gYkyuVWG85Y)
+[Watch on Youtube: Bruce Springsteen – Working on the Highway – Live at Hockenheimring 2023](https://www.youtube.com/watch?v=gYkyuVWG85Y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0R944uPLF8M)
+[Watch on Youtube: Bruce Springsteen - NIGHTSHIFT (excerpt) - July 21th, 2023 Hockenheim](https://www.youtube.com/watch?v=0R944uPLF8M)
 
 **2024:** On a rainy eve in Bergen, Bruce opens his show with "Waitin' on a Sunny Day."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vkClE_ZkDPY)
+[Watch on Youtube: Bruce Springsteen Bergen Live - Dokken 21 juli 2024 - timelapse and drone shots!](https://www.youtube.com/watch?v=vkClE_ZkDPY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wEwGSEVAzDo)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - “Waitin’ On A Sunny Day” - Bergen, Norway - July 21, 2024](https://www.youtube.com/watch?v=wEwGSEVAzDo)

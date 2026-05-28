@@ -36,15 +36,15 @@ post_id: 57750
 
 **1988:** Bruce and the band play a historic show in East Berlin, their first in East Germany. The show is broadcast across East Germany, but as many as 300,000 fans still flocked to the concert grounds for the show, where Bruce greets them in German, "It's nice to be in East Berlin. I want to tell you that I'm not here for or against any government. I have come to play rock and roll for the East Berliners in the hope that one day all barriers will be torn down." It's believed that this show galvanized East Germany's youth and contributed to the accelerated reunification of the country. The show also featured the tour premieres of "Out in the Street" and "The Promised Land."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WBIcfPBVxxQ)
+[Watch on Youtube: Bruce Springsteen - Chimes of Freedom (East Berlin 1988, with speech)](https://www.youtube.com/watch?v=WBIcfPBVxxQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Zpj8vu6sRfQ)
+[Watch on Youtube: Bruce Springsteen - The River & Promised Land 1988](https://www.youtube.com/watch?v=Zpj8vu6sRfQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fkNvDxIzuhk)
+[Watch on Youtube: Bruce Springsteen -I´m A Coward - East Berlin 1988](https://www.youtube.com/watch?v=fkNvDxIzuhk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sfk0uMLhXqY)
+[Watch on Youtube: Dancing in the dark ( 88 live ) bruce springsteen](https://www.youtube.com/watch?v=sfk0uMLhXqY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=u3iWwqqrQbo)
+[Watch on Youtube: Bruce Springsteen Twist and shout - East Berlin 1988](https://www.youtube.com/watch?v=u3iWwqqrQbo)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDUxGp0m4wdLXYYfsgxm_Cb)
 
@@ -54,12 +54,12 @@ post_id: 57750
 
 [Watch Video Highlight](https://videopress.com/embed/1Uvx6IoY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
+[Watch on Youtube: Bruce Springsteen   Empty Sky live nightline 080102](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
 
 **2008:** The final European stand of the Magic Tour begins at Camp Nou in Barcelona.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=w6hAS6cFAmM)
+[Watch on Youtube: Bruce Springsteen Barcelona 19-07-2008 Brilliant Disguise-The River-Janey Don't You Lose Heart](https://www.youtube.com/watch?v=w6hAS6cFAmM)
 
 **2009:** "My City of Ruins" comes out for the first and only time on the Working on a Dream Tour when Bruce and the band play a show at Stadio Olimpico in Rome, a dedication to the town of L'Aquila that was devastated by an earthquake that spring.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OrRBwm29ONU)
+[Watch on Youtube: Bruce Springsteen Live in Rome 19/07/2009 surprise surprise](https://www.youtube.com/watch?v=OrRBwm29ONU)

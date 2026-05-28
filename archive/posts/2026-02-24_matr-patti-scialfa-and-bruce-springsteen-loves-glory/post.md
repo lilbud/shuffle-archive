@@ -18,7 +18,7 @@ And while I realize that some Springsteen fans don't particularly take to her vo
 
 Originally released on her debut *Rumble Doll* album (her second best, in my opinion), "Loves Glory" features what may be Patti's finest-ever vocal performance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zgAouJJZZiM)
+[Watch on Youtube: Loves Glory](https://www.youtube.com/watch?v=zgAouJJZZiM)
 
 Beautiful, resolute, and unabashedly romantic, Patti takes flight just past the two-minute mark with soaring vocals that still give me goosebumps every time I listen.
 

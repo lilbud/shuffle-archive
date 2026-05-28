@@ -12,9 +12,9 @@ Why, why, *why* did Patti Scialfa not release "Rainy Day Man" as the lead single
 
 She was robbed, I tell you, *robbed.* "Rainy Day Man" has hit single written all over it: it's breezily funky, confidently sexy, and probably my favorite track from her three wonderful albums. How can anyone resist that "sugar sugar sugar baby bang bang touch"? That's pure pop brilliance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xSszvYkUNSM)
+[Watch on Youtube: Rainy Day Man (Album Version)](https://www.youtube.com/watch?v=xSszvYkUNSM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lqw_FlMbIzg)
+[Watch on Youtube: PATTI SCIALFA - Rainy Day Man (HQ, 2007)](https://www.youtube.com/watch?v=Lqw_FlMbIzg)
 
 (I've said it before, and I'll say it more: *Play It As It Lays* is the better of the two albums released by the Springsteen/Scialfa household that year, and I say that as a big fan of *Magic.* If you haven't given Patti's last album a listen, you really should.)
 

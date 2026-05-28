@@ -11,7 +11,7 @@ This one is both.
 
 Written in early 1971 and performed at least four times that summer, "Come On Billy, Break Out the Wine" is both a wonderfully captured recording of the full Bruce Springsteen Band (including horn section and backup singers) at their brassy best and also a fascinating sneak peak at themes and tropes Springsteen would explore over the next few years.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xfWi8p5wbIk)
+[Watch on Youtube: Bruce Springsteen Band: "Come On Billy (Break Out The Wine)" (Lincoln Center, NYC, July 23rd, 1971)](https://www.youtube.com/watch?v=xfWi8p5wbIk)
 
 Sometimes referred to on bootlegs as "Nothing Can Stop Me Now," "Come On Billy, Break Out the Wine" features a narrator desperate to escape his one-horse town with his friend Billy.
 

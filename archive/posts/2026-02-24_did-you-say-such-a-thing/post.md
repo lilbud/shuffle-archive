@@ -8,7 +8,7 @@ post_id: 67963
 ---
 One of three Mellencamp/Springsteen collaborations on John's 2022 album *Strictly a One-Eyed Jack*, "Did You Say Such a Thing" is the only one that truly rocks the way we'd imagine their inevitable team-up to sound.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_C2OaGmqQpw)
+[Watch on Youtube: John Mellencamp, Bruce Springsteen - Did You Say Such A Thing](https://www.youtube.com/watch?v=_C2OaGmqQpw)
 
 Except it wasn't really inevitable.
 

@@ -10,7 +10,7 @@ post_id: 20933
 ---
 Forty years ago tonight, Bruce Springsteen said goodbye to 1980 with an appropriate cover for its final minutes.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tvQIxIQMB0g)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Midnight Hour](https://www.youtube.com/watch?v=tvQIxIQMB0g)
 
 "In the Midnight Hour" might have been a well-timed audible, but it would be hard to believe that Bruce didn't at least have it in the back of his mind that evening. After all, the E Street Band had already played it twice in recent months, starting with their first-ever performance in Milwaukee on October 14th.
 
@@ -24,7 +24,7 @@ The E Street Band may not have played it before that night, but Bruce certainly 
 
 "In the Midnight Hour" was still a fairly new song at that point, released by the great Wilson Pickett only four years earlier in the summer of 1965.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rixhkdO_IdU)
+[Watch on Youtube: Wilson Pickett -  In The Midnight Hour (1965)](https://www.youtube.com/watch?v=rixhkdO_IdU)
 
 "In the Midnight Hour" was Pickett's greatest hit to date, topping the Billboard R&B chart and crossing over to the Hot 100 to peak at #21. It's considered one of the greatest Stax recordings and ranks #134 on *Rolling Stone's* 500 Greatest Songs of All Time.
 
@@ -42,7 +42,7 @@ The evening would undoubtedly have culminated in an all-star jam with Pickett th
 
 Instead, John Fogerty, Chaka Khan, and Phoebe Snow traded lead vocals with Bruce (backed by Jackson Browne, Bonnie Raitt, Don Henley, and more) on "In the Midnight Hour."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=S3eEz680qYg)
+[Watch on Youtube: Bruce Springsteen, Chaka Khan, John Fogerty & More - "In the Midnight Hour" | 1991 Induction](https://www.youtube.com/watch?v=S3eEz680qYg)
 
 It was a great performance, but it couldn't match the experience of Bruce and Wilson sharing a stage together. Bruce would have to wait another eight years, but that moment finally came at his own Hall of Fame inauguration in 1999.
 
@@ -50,7 +50,7 @@ It was worth the wait.
 
 With no one else to share the spotlight but Wilson and Bruce (although Billy Joel joined Roy Bittan at the keyboards), the two legendary bandleaders tore up the stage with their trademark growls and provided one of the more memorable highlights of an evening that introduced to the public the reunited E Street Band).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=K4w0kyYmYVo)
+[Watch on Youtube: Wilson Pickett and Bruce Springsteen Perform "In the Midnight Hour" at the 1999 Induction Ceremony](https://www.youtube.com/watch?v=K4w0kyYmYVo)
 
 The next time Bruce performed "In the Midnight Hour," it would be in memory of Pickett, who passed away in January 2006.
 

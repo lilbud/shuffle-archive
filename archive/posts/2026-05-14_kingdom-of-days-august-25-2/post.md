@@ -28,7 +28,7 @@ post_id: 59421
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to New Haven for a show at the Veterans Memorial Coliseum, where they play a tour one-off of "It's Gonna Work Out Fine." After the show, Bruce sits down for an interview with Bob Harris for the UK television show, *Old Grey Whistle Test*.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8jvarthD60U)
+[Watch on Youtube: Bruce Springsteen - Old Grey Whistle Test 1978 Interview - 1978-08-25](https://www.youtube.com/watch?v=8jvarthD60U)
 
 [Watch Video Highlight](https://videopress.com/embed/MtTTMnWz)
 
@@ -36,11 +36,11 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's
 
 **1979:** Bruce and the band record "Point Blank" and an early arrangement of "You Can Look (Buy You Better Not Touch)" during a recording session at the Power Station in New York City.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aQcxrt9-6ZI)
+[Watch on Youtube: Point Blank](https://www.youtube.com/watch?v=aQcxrt9-6ZI)
 
 **1984:** Bruce and the E Street Band kick off a four-night stand at the Capital Center in Largo, Maryland. In attendance tonight: conservative political columnist George Will, who is moved enough by the show to write a column about Bruce for publication the following month.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_jg4X4qcZq0)
+[Watch on Youtube: Bruce Springsteen:  CBS News Capital Centre, Largo, MD 8-25-84](https://www.youtube.com/watch?v=_jg4X4qcZq0)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1984-08-25a.png.webp)
 
@@ -84,13 +84,13 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's
 
 **2016:** Bruce flirts with the four-hour mark at Night Two at MetLife Stadium, stopping just short of it but setting a new American record for show length just the same. "New York City Serenade" with strings is once again the opener, and "Jersey Girl" with fireworks is once again the closer (this time with a marriage proposal that ends the evening on a wonderfully loose and romantic note). Tom Morello makes his final E Street Band appearance to date, on stage for four songs.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=odKf_k4x0iI)
+[Watch on Youtube: Bruce Springsteen - Waiting on a Sunny Day - MetLife stadium 08/25/16](https://www.youtube.com/watch?v=odKf_k4x0iI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BUu6klm2_BI)
+[Watch on Youtube: Tougher than the Rest - Springsteen - MetLife#2 Aug 25, 2016](https://www.youtube.com/watch?v=BUu6klm2_BI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DW5O0Or-7WI)
+[Watch on Youtube: Backstreets - Springsteen - MetLife#2 Aug 25, 2016](https://www.youtube.com/watch?v=DW5O0Or-7WI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qc7xSXUgiSA)
+[Watch on Youtube: Bruce Springsteen - Jersey Girl - MetLife Stadium New Jersey August 25, 2016](https://www.youtube.com/watch?v=qc7xSXUgiSA)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2016-08-25.png.webp)
 

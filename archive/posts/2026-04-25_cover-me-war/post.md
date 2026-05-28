@@ -14,17 +14,17 @@ post_id: 9987
 >
 > Tonight we ask all of you to join with us in choosing hope over fear, democracy over authoritarianism. the rule of law over lawlessness. ethics over unbridled corruption. resistance over complacency, unity over division and peace over…"
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G_R8lwvtrzc)
+[Watch on Youtube: Live From Minneapolis (Chiller Mix)](https://www.youtube.com/watch?v=G_R8lwvtrzc)
 
 "War" was a Top 10 hit–*twice–*but never for its original recording artists.
 
 That's because The Temptations never released it as a single, despite fan requests to do so, for fear of angering a fan base that didn't all share the song's sentiment.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D0K3LJq9KnU)
+[Watch on Youtube: The Temptations - War](https://www.youtube.com/watch?v=D0K3LJq9KnU)
 
 Perhaps that's for the best, because The Temptations' original 1970 recording never quite mustered the visceral power that Edwin Starr would bring to bear in his now-legendary single released just a few months later.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dQHUAJTZqF0)
+[Watch on Youtube: Edwin Starr- War (HQ)](https://www.youtube.com/watch?v=dQHUAJTZqF0)
 
 Starr was a relative unknown at the time, which is exactly what Motown was looking for. Starr gave them a way to release the song under the radar, and if the song kicked up controversy, at least it couldn't threaten a revenue stream from an artist who lacked one altogether.
 
@@ -34,7 +34,7 @@ In 1985, as the Born in the U.S.A. Tour was winding down, Bruce introduced a few
 
 The song went over well, and Bruce kept it in the set for the remainder of the tour, recording it on September 30 for release in his *Live 1975-85* box set the following year. Not only was it prominently featured in the set (leading off Side Eight), it was even released as the lead single on the same day as the box set itself, supported by a music video.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mn91L9goKfQ)
+[Watch on Youtube: Bruce Springsteen - War](https://www.youtube.com/watch?v=mn91L9goKfQ)
 
 Bruce's single peaked at #8, making it the second time "War" cracked the Top Ten.
 
@@ -44,7 +44,7 @@ In June of that year, when the tour reached Birmingham, England, Bruce was final
 
 That performance flies under the radar, but it deserves much wider exposure. Starr's vocals are more powerful than ever, and his delivery–combined with Bruce's intense performance and that incredible horn section–takes the song to the next level. Watch it below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=w7GBMX0rTEc)
+[Watch on Youtube: Bruce Springsteen with Edwin Starr - War](https://www.youtube.com/watch?v=w7GBMX0rTEc)
 
 Bruce had two more chances to sing "War" with Starr–once just a few days later, and then again on the Reunion Tour.
 

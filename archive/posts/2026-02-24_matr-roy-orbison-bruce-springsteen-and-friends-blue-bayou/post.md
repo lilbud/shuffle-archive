@@ -12,11 +12,11 @@ It's time for another trip back to *Black and White Night*, a one-time-only Roy 
 
 This time, we take a look at "Blue Bayou," Orbison's 1963 hit single that peaked at #29 in the U.S. but made it all the way to #3 in the U.K. and #1 in Australia.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kri4VH_Mdd4)
+[Watch on Youtube: Blue Bayou](https://www.youtube.com/watch?v=kri4VH_Mdd4)
 
 And if the U.S. didn't reward "Blue Bayou" with the chart success it deserved on its original release, it made up for it in 1977 when Linda Ronstadt took her cover of it all the way to #3 on the Billboard Hot 100.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Kp9G0zkorio)
+[Watch on Youtube: Linda Ronstadt - Blue Bayou (Official Music Video)](https://www.youtube.com/watch?v=Kp9G0zkorio)
 
 "Blue Bayou" was part of Roy's set on that Black and White Night in the autumn of 1987, but the show ran long, so when Cinemax broadcast the event on January 3, 1988, "Blue Bayou" was one of three songs edited out of the special.
 
@@ -24,7 +24,7 @@ When the concert was released on VHS, "Blue Bayou" was still missing in action, 
 
 Here it is: Roy Orbison backed by Elvis Costello, Tom Waits, Bonnie Raitt, Bruce Springsteen (of course), and more, in a sublime rendition of "Blue Bayou."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fGB9cvWdn04)
+[Watch on Youtube: Roy Orbison - "Blue Bayou" from Black and White Night](https://www.youtube.com/watch?v=fGB9cvWdn04)
 
 That was Bruce's one and only performance of the song, but that's may be for the best. This one would be hard to top.
 

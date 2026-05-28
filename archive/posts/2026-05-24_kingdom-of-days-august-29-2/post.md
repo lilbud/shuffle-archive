@@ -20,13 +20,13 @@
 
 **1978:** Bruce and the E Street Band play their second of two nights at the Stanley Theater in Pittsburgh, where Bruce tour premieres “It’s My Life” and plays “(I Heard That) Lonesome Whistle” for the first and only time to date. The TV show *PM Magazine* airs a segment shortly afterward, featuring footage from this show–check it out below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eScrQVnfB34)
+[Watch on Youtube: Bruce Springsteen - I HEARD THAT LONESOME WHISTLE  1978 (audio)](https://www.youtube.com/watch?v=eScrQVnfB34)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NuJ-g62ekzc)
+[Watch on Youtube: Bruce Springsteen, PM Magazine 1978](https://www.youtube.com/watch?v=NuJ-g62ekzc)
 
 **1979:** Bruce and the E Street Band record an alternate version of “The River” at The Power Station in New York City.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BjSsFvrrh7g)
+[Watch on Youtube: The River](https://www.youtube.com/watch?v=BjSsFvrrh7g)
 
 **1984:** Bruce and the boys wrap up their four-night stand at the Capital Center in Largo, Maryland.
 
@@ -52,13 +52,13 @@
 
 **2012:** Bruce and the band play an unusual venue: the Vernon Downs Raceway, a horse racing track in central New York State. Bruce delivers a great set list, tour premiering “Stand On It” and “Human Touch” and giving rare outings to “Frankie,” “I’m a Rocker,” the 1978 version of “Prove It All Night” and “Open All Night.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1nsW3dQSPAY)
+[Watch on Youtube: Bruce Springsteen plays concert at Vernon Downs](https://www.youtube.com/watch?v=1nsW3dQSPAY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HNUWGvC-dvk)
+[Watch on Youtube: BRUCE SPRINGSTEEN "HUNGRY HEART" VERNON DOWNS 08/29/12](https://www.youtube.com/watch?v=HNUWGvC-dvk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Brdh8HS4M_w)
+[Watch on Youtube: MULTICAM HD-I'm a rocker-Bruce Springsteen -Vernon 2012.flv](https://www.youtube.com/watch?v=Brdh8HS4M_w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=S6GTb8JIfzU)
+[Watch on Youtube: Born to Run- Bruce Springsteen- Vernon Downs- 8/29/12](https://www.youtube.com/watch?v=S6GTb8JIfzU)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2024/08/The_Buffalo_News_2012_09_01_31.jpg' alt='' title='' width='758' height='695' />
 
@@ -66,6 +66,6 @@
 
 **2025:** At the Telluride Film Festival, audiences are treated to the world premiere of *Springsteen: Deliver Me From Nowhere.* Bruce and Patti are in attendance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bpbbnqPgcUU)
+[Watch on Youtube: Springsteen: Deliver Me From Nowhere | Telluride Film Festival 2025](https://www.youtube.com/watch?v=bpbbnqPgcUU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oir-WZ43vhE)
+[Watch on Youtube: Bruce Springsteen - 1st Screening @ Telluride Film Festival](https://www.youtube.com/watch?v=oir-WZ43vhE)

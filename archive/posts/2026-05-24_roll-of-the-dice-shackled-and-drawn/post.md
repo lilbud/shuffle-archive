@@ -30,7 +30,7 @@ He didn’t, of course, but that doesn’t diminish my admiration for “Shackle
 
 Let’s take a listen to the album track–itself a fascinating melánge of vintage and modern styles. sounding for all the world like a cross between a carnival, a revival, and a shanty.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GGLRj-OFWaw)
+[Watch on Youtube: Shackled And Drawn](https://www.youtube.com/watch?v=GGLRj-OFWaw)
 
 If we’re looking for a song that exemplifies Bruce’s reputation as a bard for the working man, we need look no farther than “Shackled and Drawn.”
 

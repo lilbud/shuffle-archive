@@ -23,19 +23,19 @@ Everyone knows Manfred Mann's cover of Bruce's "Blinded by the Light." True Spri
 
 But the band's most obscure Springsteen adaptation is a brilliant live mash-up of "Dancing in the Dark" with "House of the Rising Sun" by The Animals.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oNYTkebVDrc)
+[Watch on Youtube: Manfred Mann´s Earth Band  - Dancing In The Dark [Live]](https://www.youtube.com/watch?v=oNYTkebVDrc)
 
 In 1985, Bruce and Tina Turner were both at the height of their superstar popularity.
 
 So it must have been a thrill if you were one of the lucky ones to see Tina cover "Dancing in the Dark," still fresh and new on the radio. From her Tokyo concert on December 28, 1985, here's Tina's version.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=INKwtDSC2gY)
+[Watch on Youtube: Tina Turner  Dancing In The Dark](https://www.youtube.com/watch?v=INKwtDSC2gY)
 
 Even before the release of his debut album, Fender was already being labelled as "the new Springsteen" because of the strength of his songwriting and the profound influence the old Springsteen had on him growing up.
 
 Here's his smoking rendition "Dancing in the Dark."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mwpMYm92Mos)
+[Watch on Youtube: The Tunnel — Sam Fender - Dancing in the dark (Bruce Springsteen cover)](https://www.youtube.com/watch?v=mwpMYm92Mos)
 
 Los Angeles-based funk band Scary Pockets releases new music videos regularly, usually a reinterpretation of a classic song featuring some phenomenal guest vocalists.
 
@@ -43,19 +43,19 @@ This release features the multi-talented Darren Criss at the microphone, with wh
 
 Wait for it…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=b5rySSphFO0)
+[Watch on Youtube: Dancing in the Dark | Bruce Springsteen | funk cover ft. Darren Criss](https://www.youtube.com/watch?v=b5rySSphFO0)
 
 Speaking of funk, BOOM a LOON bills themselves as "the next step in funk." Like Scary Pockets, they release a new song weekly, featuring a core combo and a rotating cast of guest artists.
 
 Featuring guest artists Robert J. Hunter on vocals and Eddy Smith on keys, BOOM a LOON reinvents Bruce's greatest hit and gives it an irresistible groove.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BprPZ4f3JAw)
+[Watch on Youtube: DANCING IN THE DARK | Bruce Springsteen | Funk Cover ft. ROBERT J. HUNTER & EDDY SMITH](https://www.youtube.com/watch?v=BprPZ4f3JAw)
 
 Molly Healey is a multi-talented looping violinist, cellist, and guitarist, and she puts two of those talents (along with a terrific voice) to use on her cover.
 
 Make sure you watch all the way through–the final three minutes are a stunning example of what Molly calls "rock-inspired orchestral looping."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Dz4yH_pqVfM)
+[Watch on Youtube: Dancing in the Dark: a cover by Molly Healey](https://www.youtube.com/watch?v=Dz4yH_pqVfM)
 
 Wow, do I love this next version.
 
@@ -63,7 +63,7 @@ It's both different and great–and arguably an even better arrangement than Bru
 
 The video's fantastic, too: appropriately, it features Sara McLeod home alone, trying to start a fire without a spark. She eventually hits the streets, but the only connection she find is to the rhythmic, pounding drums and a backing track that sounds like it would have been right at home in an eighties dance club.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uuOb6VaLBQQ)
+[Watch on Youtube: Sarah McLeod - Dancing in the Dark](https://www.youtube.com/watch?v=uuOb6VaLBQQ)
 
 Just in case Bruce's original video for "Dancing in the Dark" isn't eighties enough for you… well, sometimes its better to just let a clip speak for itself.
 
@@ -71,32 +71,32 @@ Here's indie-EDM band Hot Chip's take on Bruce's greatest hit (with a little bit
 
 (Warning: Don't be surprised if this sneaks up on you around two minute mark–and if you're not dancing by the three minute mark, you're probably not playing it loud enough.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PyN_d28-sfw)
+[Watch on Youtube: Hot Chip - Dancing In The Dark (Official Video)](https://www.youtube.com/watch?v=PyN_d28-sfw)
 
 If you're not familiar with Scott Bradlee's Postmodern Jukebox, you need to be. Just be prepared to lose countless hour of your life when you get sucked into their vault of hundreds of modern songs re-arranged in classic styles.
 
 For instance: this retro take on Bruce's biggest hit. It may or may not be your cup of tea, but you gotta give them style points. Oh and keep your eye on Tambourine Guy. He's a hoot whenever he shows up in a video.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=X-Ziw_TwXrM)
+[Watch on Youtube: Dancing in the Dark - Retro '50s Style Bruce Springsteen Cover ft. Von Smith](https://www.youtube.com/watch?v=X-Ziw_TwXrM)
 
 Now here's an unlikely cover: when her Speak Now World Tour made a stop in Newark on July 20, 2011, superstar (not yet mega-star) Taylor Swift paid homage to her New Jersey songwriting influencers.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-qinVezgFAI)
+[Watch on Youtube: Dancing in the Dark (Cover) / Livin' on a Prayer (Cover) - Taylor Swift 7/20/11](https://www.youtube.com/watch?v=-qinVezgFAI)
 
 And lest you think that she's pandering to the locals, T-Swizzle is indeed a B-Sprizzle fan. And it seems like Bruce reciprocates–watch Bruce delight Taylor by playing "Dancing in the Dark" on her guitar backstage at her show in Raleigh a few months later.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fOpbhV-aLew)
+[Watch on Youtube: Exclusive! Taylor Swift's Springsteen Story on Ellen show](https://www.youtube.com/watch?v=fOpbhV-aLew)
 
 And now for something completely different. I don't think I could have ever come up with a Bruce Springsteen/Whitney Houston pairing that would work well, but Michael Petrella sure did.
 
 Check out his clever cover mash-up of "Dancing in the Dark" with "I Wanna Dance With Somebody." Not only do they blend well musically, the lyrics match hand-in-glove, too
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_eTxdpFlKv0)
+[Watch on Youtube: Dancing in the Dark x Dance with Somebody (Mashup Cover) - Bruce Springsteen // Whitney Houston](https://www.youtube.com/watch?v=_eTxdpFlKv0)
 
 …and finally, one of my favorite covers of a Springsteen song ever, by another one of my heroes.
 
 Courtney Cox, eat your heart out.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8mNyZVbSv5g)
+[Watch on Youtube: Muppets Tonight - Dancin' in the Dark](https://www.youtube.com/watch?v=8mNyZVbSv5g)
 
 © 2018 – 2026

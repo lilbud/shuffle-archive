@@ -20,7 +20,7 @@ The result: "Drop on Down and Cover Me," which I'd rank at or very near the top 
 
 Take a listen:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4iQh-UzJiH4)
+[Watch on Youtube: Bruce Springstenn - Drop On Down And Cover Me](https://www.youtube.com/watch?v=4iQh-UzJiH4)
 
 I'm not sure there's a better example of how subtle changes can dramatically alter a song than "Drop on Down and Cover Me." The lyrics undoubtedly sound very familiar–most of them are virtually identical.
 

@@ -18,7 +18,7 @@ I knew that Bruce and Italy have a long-time mutual love affair, and that Bruce 
 
 "New York City Serenade" is one of my absolute all-time favorite songs–although my top five vary from time to time, NYC Serenade is never absent from it. I'd long ago resigned myself to never hearing it performed live, because Bruce had only performed it a handful of times (you could literally count them on your fingers) in the last 40 years. It's one of his earliest songs, ambitiously orchestral with evocative, cinematic, stream-of-conscious lyrics, and not at all what most people would think of as a Bruce Springsteen song. It was the song that was destined to be my unicorn. And then:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=R-1v8w69IWo)
+[Watch on Youtube: Bruce Springsteen - New York City Serenade - Roma 2016 - multicam mix](https://www.youtube.com/watch?v=R-1v8w69IWo)
 
 It took a minute to understand what was happening when activity started on the stage. From my vantage point in the pit, I'd already noticed the additional music stands, so I figured Bruce had invited some special guests, potentially the string section he'd used a few years prior on his last visit to Rome. But i was still a little surprised when musicians started to appear and take their positions, and they weren't E Street Band members. And they carried violins and violas. It turns out they were indeed the Rome Symphony Orchestra, and when Bruce and the band followed them on-stage, it was clear something unexpected and amazing was about to happen.
 
@@ -32,26 +32,26 @@ There were other highlights during the evening, to be sure. But this was the big
 
 When the band ripped into "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" after bidding goodbye to the strings, I was jolted back to reality–i'd almost forgotten there was an entire show still to come! Three songs in, Bruce took his first request of the evening: a couldn't-be-more-appropriate "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," and both the band and the crowd were off to the races:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_Gp1O7VJEaE)
+[Watch on Youtube: Bruce Springsteen - Summer Time Blues](https://www.youtube.com/watch?v=_Gp1O7VJEaE)
 
 A healthy River eight-pack followed, interrupted only by a pair of sign requests to jolt the crowd with spontaneity: "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[Detroit Medley.](../1976-01-02_cover-me-detroit-medley/post.md/)"
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2HpoJRElaJ4)
+[Watch on Youtube: Bruce Springsteen - Boom Boom](https://www.youtube.com/watch?v=2HpoJRElaJ4)
 
 But if there were highlights to rival the opener in power, one would have to be Bruce's gorgeous solo acoustic performance of "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)," dedicated to Italian social workers. It was perhaps the most beautiful performance of the song I'd ever witnessed.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_CpGADrcmNU)
+[Watch on Youtube: Bruce Springsteen & The E Street Band The Ghost of Tom Joad Rome Circus Maximus July 16 2016](https://www.youtube.com/watch?v=_CpGADrcmNU)
 
 …and the other would be "[Independence Day.](../2022-03-14_roll-of-the-dice-independence-day/post.md)" Always an emotional ride, tonight it was even more poignant, with the crowd singing the melody in unison from the first notes. Watch the magic:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lBEIyTqlKXQ)
+[Watch on Youtube: Bruce Springsteen - Independence Day   16- 07- 2016 Roma](https://www.youtube.com/watch?v=lBEIyTqlKXQ)
 
 Even the standards had exceptional power on this night–for instance, check out "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" below. Bruce pauses after the introduction–reflecting while Nils continues to play quietly, eventually dedicating his performance to the victims of the recent Nice terrorist attack, holding the quiet for just a few moments more, and then launching into the song, played with exceptional passion.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JGILByvPlNk)
+[Watch on Youtube: Land Of Hope And Dreams](https://www.youtube.com/watch?v=JGILByvPlNk)
 
 After Bruce closed with a lovely acoustic "Thunder Road," my friend Steve and I were convinced we'd seen one of the best shows of our lives, one that was well worth the long trip from Seattle from the moment Roy played those first "New York City Serenade" notes.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uh_QQl1Xm_o)
+[Watch on Youtube: Bruce Springsteen Thunder Road Live in Roma 16.07.2016](https://www.youtube.com/watch?v=uh_QQl1Xm_o)
 
 If you told me I'd hear Bruce and the band play that song *five more times* in the next two months, I'd never have believed you. But those are stories for other days.

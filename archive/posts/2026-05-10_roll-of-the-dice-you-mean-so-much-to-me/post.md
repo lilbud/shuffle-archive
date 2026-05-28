@@ -18,7 +18,7 @@ What's most fascinating about "You Mean So Much to Me," however, isn't just that
 
 Take a listen to one of its earliest outings, from a Bruce Springsteen Band concert at Damrosch Park in New York City:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cs135_WI1MA)
+[Watch on Youtube: You Mean So Much to Me Bruce Springsteen Band 1971 07 23, New York, NY](https://www.youtube.com/watch?v=cs135_WI1MA)
 
 There's a lot to take in here.
 
@@ -36,7 +36,7 @@ We do know that the song made several appearances throughout the summer and fall
 
 In any case, their acoustic arrangement is tender and warm and Bruce's vocals are pure, allowing for the romance in Bruce's lyrics to shine through more passionately than in the original Bruce Springsteen Band's arrangement.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0MJaE39m5ak)
+[Watch on Youtube: Bruce Springsteen   You Mean So Much To Me 1973 05 31 Audio](https://www.youtube.com/watch?v=0MJaE39m5ak)
 
 By January 1974, "You Mean So Much to Me" had evolved into a showcase for Bruce's unnamed band (They were still months away from E Street.) The clip below (which is mis-attributed in its captioning–it actually hails from Bruce's January 29th show in Nashville) captures the band's final known performance of the song (other than a few guest appearances at Southside Johnny shows), and it's a marvel.
 
@@ -69,11 +69,11 @@ In February 1976, Ronnie Spector visited the Record Plant during recording sessi
 
 He gifted the song to Southside, who recorded it with Spector as a duet, with Steve Van Zandt producing. The result was the definitive version of the song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4JabbiFhBAE)
+[Watch on Youtube: You Mean So Much to Me](https://www.youtube.com/watch?v=4JabbiFhBAE)
 
 Or perhaps I should've said: the definitive *studio* version, because Southside and Ronnie take the song to the next level in their live performance on Ronnie's *Very Best of Ronnie Spector* album.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xERh3DH3x_4)
+[Watch on Youtube: Southside Johnny & The Asbury Jukes with Ronnie Spector - 12 You Mean So Much to Me (live) (HQ)](https://www.youtube.com/watch?v=xERh3DH3x_4)
 
 But there's still one more page to the story.
 

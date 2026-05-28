@@ -12,6 +12,6 @@ When it comes to covering Bruce's songs, I often say: you either need to out-per
 
 Bassist Stanley Clarke and his band definitely took the latter route. From their 1985 *Find Out!* album, check out their unique take on "Born in the U.S.A."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zgGtViqj-ps)
+[Watch on Youtube: Stanley Clarke Band - Born In The U.S.A.](https://www.youtube.com/watch?v=zgGtViqj-ps)
 
 © April 21, 2018

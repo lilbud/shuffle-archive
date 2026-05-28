@@ -16,7 +16,7 @@ It originated as a rock song, but when Bruce couldn't figure out a way to make i
 
 The result was the most widely known version of the song, the one that appeared as the title track of Bruce's eleventh studio album.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fkv9UpDZPXk)
+[Watch on Youtube: The Ghost of Tom Joad](https://www.youtube.com/watch?v=fkv9UpDZPXk)
 
 For a song that wears its lyrical influences on its sleeves, "The Ghost of Tom Joad" is surprisingly elusive to pin down. On first listen, it seems straightforward: the song is nothing more (or less) than a painted street scene, the way Bruce used to do frequently in his earliest work. But the people in this painting have nowhere else to go. But go they must–because they have no place to stay, and nowhere to return.
 
@@ -80,7 +80,7 @@ Bruce's allusions to *The Grapes of Wrath* are many–and the most important one
 
 In the book and the film, it's Casy's murder that sparks Joad to vengeful action and dooms Tom to a life on the run. Joad decides to spend his days working for the betterment of his fellow citizens, in a speech that became one of the most memorable moments of the film (certainly to Bruce, who cried when he first saw it):
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=i2JR3FmvVAw)
+[Watch on Youtube: Grapes of Wrath - I'll Be There Speech (Tom Joad)](https://www.youtube.com/watch?v=i2JR3FmvVAw)
 
 Bruce's decision to cast a preacher in his song serves two purposes: first, it's an opportunity for redemption–if we are possessed by the spirit of Tom Joad, what could galvanize us to action more than the opportunity to save a latter-day Casy?
 
@@ -102,29 +102,29 @@ Once the album was released (two days before Thanksgiving), it seemed that "The 
 
 He also conducted an uncharacteristic media tour starting from the song's release in 1995, never seeming to pass up an opportunity to perform the song on television in various countries.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hOoidHRP2bo)
+[Watch on Youtube: The Ghost of Tom Joad - Bruce Springsteen (live on The Tonight Show 1995)](https://www.youtube.com/watch?v=hOoidHRP2bo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WBMRmPmHkdA)
+[Watch on Youtube: The Ghost of Tom Joad - Bruce Springsteen (live on Nulle part ailleurs 1996)](https://www.youtube.com/watch?v=WBMRmPmHkdA)
 
 Even as Bruce's tour wound down in 1997, Bruce could be found performing "The Ghost of Tom Joad" on the award circuit, from Madison Square Garden (where he was introduced by Pete Seeger)…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=55q3F2XGiDk)
+[Watch on Youtube: Bruce Springsteen - The Ghost of Tom Joad [1997]](https://www.youtube.com/watch?v=55q3F2XGiDk)
 
 …to Stockholm, where he received Sweden's prestigious Polar Music Prize.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RiWk31Q9lxs)
+[Watch on Youtube: Bruce Springsteen - THE GHOST OF TOM JOAD (1997)](https://www.youtube.com/watch?v=RiWk31Q9lxs)
 
 As the calendar turned to 1998, now well more than two years since the song's release, it seemed as if "The Ghost of Tom Joad" had become the song Bruce wanted to be most associated with. On a television special celebrating the 30th anniversary of *Rolling Stone*, it was "The Ghost of Tom Joad" (performed live for the first time with the original backing band from the album) that Bruce chose to contribute.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NKKpmbcSe5E)
+[Watch on Youtube: Bruce Springsteen The Ghost of Tom Joad live in Studio](https://www.youtube.com/watch?v=NKKpmbcSe5E)
 
 That *Rolling Stone* performance was also the first time Bruce had ever performed the song with any band at all; perhaps that inspired him to give it a try with the E Street Band on their Reunion Tour the following year. It quickly became a setlist staple throughout the tour, in a gentle arrangement reminiscent (but not imitative) of the original studio version.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4E6jbHNhAa0)
+[Watch on Youtube: Bruce Springsteen Live Ghost Of Tom Joad DC 99-16](https://www.youtube.com/watch?v=4E6jbHNhAa0)
 
 In the meantime, though, the song had come to the attention of the band Rage Against the Machine, who heard in it the rock arrangement that Bruce had never been able to summon. The band recorded their hard rocking version in 1997, and it quickly became a highlight of their live shows.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Rz6GtLBR6sY)
+[Watch on Youtube: Rage Against the Machine - The Ghost Of Tom Joad | Live at Woodstock 99 (East Stage)](https://www.youtube.com/watch?v=Rz6GtLBR6sY)
 
 That arrangement would shortly catch the attention of the songwriter, along with the astonishing guitar playing of band member Tom Morello. But we'll get to that in a bit.
 
@@ -132,51 +132,51 @@ Remember back at the top of this essay when I mentioned that "The Ghost of Tom J
 
 But in the summer of 2006, during a break on the Seeger Sessions Tour, Bruce recorded his second version of the song–this one, a duet with Pete Seeger himself. Featuring new Springsteen vocals, spoken-word Seeger vocals, a Seeger Sessions-esque arrangement, and an entirely different backing band than any other version of the song, this new version of "The Ghost of Tom Joad" was featured on an anniversary CD compilation for Appleseed Records. It's a rarely heard recording, but it's very worth a listen.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Mzz-FrHc5e4)
+[Watch on Youtube: The Ghost of Tom Joad (Live at the Point Theatre, Dublin, Ireland - November 2006)](https://www.youtube.com/watch?v=Mzz-FrHc5e4)
 
 When the Seeger Sessions Tour resumed that fall, "The Ghost of Tom Joad" was newly top-of-mind for Bruce, and it wasn't long before he started featuring it in his shows, performed as a duet with Frank Bruno.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AS2ODXkCzfw)
+[Watch on Youtube: The Ghost of Tom Joad - Bruce Springsteen and The Sessions band](https://www.youtube.com/watch?v=AS2ODXkCzfw)
 
 Emboldened by the successful translation of the song to a duet and full-band format, Bruce decided to give "The Ghost of Tom Joad" the full E Street Band treatment. But he waited for the right moment, which finally came midway through the Magic Tour, when Bruce invited Tom Morello to join him on stage for the song.
 
 The story is now legendary–with little time to prepare and a little liquid courage, Morello not only rose to the occasion, he stole the freaking show. By the time Bruce and Tom traded off their first guitar solos, it was already clear the new arrangement was a galvanizing success. But watch what happens when Tom steps up for the second solo around the six-minute mark–in an unrehearsed moment of inspiration, Morello takes the song into the stratosphere, much to Bruce's surprise and delight. Bruce never even tries to take the song back.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=B-c6GphpAeY)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - The Ghost of Tom Joad (Live ft. Tom Morello)](https://www.youtube.com/watch?v=B-c6GphpAeY)
 
 In the years since, we've become used to Morello's frequent guest-turns with the E Street Band, and we now have a studio version of that arrangement as well. But it's remarkable to watch that clip above and remember that at the time, no one had ever heard that particular rendition before–not even the musicians playing it.
 
 It was such a success that Bruce and Tom reprised their alchemistic duet the following year at the Rock and Roll Hall of Fame 25th Anniversary Concert.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mzRbeHyIomk)
+[Watch on Youtube: Bruce Springsteen & Tom Morello - The ghost of Tom Joad (Rock and Roll Hall of Fame, 2009)](https://www.youtube.com/watch?v=mzRbeHyIomk)
 
 But in the meantime, the acoustic version of "The Ghost of Tom Joad" never really went away. Bruce recorded yet *another* studio version of it in 2009 for the soundtrack to *The People Speak*, a documentary based on Howard Zinn's *A People's History of the United States*, one of Bruce's long-time favorite books.
 
 This one is also a rare recording, and it's the only one of the four studio versions that feature Bruce in a solo performance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=avDyB0B02jo)
+[Watch on Youtube: The Ghost of Tom Joad](https://www.youtube.com/watch?v=avDyB0B02jo)
 
 In the years since, Bruce frequently featured "The Ghost of Tom Joad" in his live sets. The song that seemed to defy re-arrangement in its original version now seemed to epitomize versatility and pliability. The E Street Band performed it several times on their own, with Nils ably stepping up for the guitar solos, but once Morello's genie was out of the bottle, it was hard for fans (at least this one) to hear the song with anyone other than Morello in that role. In 2014, Bruce released the fourth studio version of the song on his *High Hopes* album, this time featuring Morello on both vocals and guitar.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qUhtdAOn4k0)
+[Watch on Youtube: The Ghost of Tom Joad (Electric Version)](https://www.youtube.com/watch?v=qUhtdAOn4k0)
 
 With Tom along for the ride throughout the High Hopes Tour, "The Ghost of Tom Joad" once again became a reliable nightly staple and showcase.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pZkBZ8-w0RA)
+[Watch on Youtube: The Ghost of Tom Joad - Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=pZkBZ8-w0RA)
 
 My personal favorite version, though, was Bruce's solo performance from Rome in 2016. Dedicated to Italian social workers, featuring a particularly heartfelt reading and a unique acoustic arrangement for that night, this is easily the most beautiful version of the song that I've personally witnessed.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_CpGADrcmNU)
+[Watch on Youtube: Bruce Springsteen & The E Street Band The Ghost of Tom Joad Rome Circus Maximus July 16 2016](https://www.youtube.com/watch?v=_CpGADrcmNU)
 
 Even after that tour ended, "The Ghost of Tom Joad" refused to retire. Bruce re-released the original studio version on his career retrospective *Chapter and Verse*, and the song became an important keystone of *Springsteen on Broadway*, anchoring the part of the show where Bruce shared the importance of social activism as one of his core values
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y2IeNmbhHjs)
+[Watch on Youtube: Bruce Springsteen - The Ghost of Tom Joad (Introduction) (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=y2IeNmbhHjs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=arVF3L8K1CY)
+[Watch on Youtube: Bruce Springsteen - The Ghost of Tom Joad (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=arVF3L8K1CY)
 
 As of this writing, "The Ghost of Tom Joad" serves as the emotional climax of the main set on the Land of Hope and Dreams American Tour, once more elevated nightly by Tom Morello.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Qyt3nMFN-Ec)
+[Watch on Youtube: Bruce Springsteen w/Tom Morello - The Ghost of Tom Joad - Minneapolis, MN - 3/31/2026](https://www.youtube.com/watch?v=Qyt3nMFN-Ec)
 
 By now, it should be clear just how central "The Ghost of Tom Joad" has been to the beating heart of Springsteen's work since its debut in 1995. It's never gone away, it's never missed a tour (except, ironically, for the brief Vote for Change Tour in 2004), and it never fails to resonate.
 

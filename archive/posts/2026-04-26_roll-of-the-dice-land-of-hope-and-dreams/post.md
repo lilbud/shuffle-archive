@@ -10,7 +10,7 @@ post_id: 52
 ---
 In a better world, "Land of Hope and Dreams" would be our national anthem. It's certainly my personal one.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KHpJhS99Q60)
+[Watch on Youtube: Land of Hope and Dreams](https://www.youtube.com/watch?v=KHpJhS99Q60)
 
 I remember hearing it for the first time, in the Tacoma Dome in April, 2000. I was immediately electrified by it. "Land of Hope and Dreams" was immediately, and remains to this day, my favorite Bruce Springsteen song.
 
@@ -18,7 +18,7 @@ Like many great Springsteen songs, "Land of Hope and Dreams" resonates different
 
 It can be celebratory and foreboding at the same time. Watch the conclusion of President Obama's farewell address, and try not to choke up when "Land of Hope and Dreams" swells at the conclusion… and shiver at the lines "You don't know where you're going now, but you know you won't be back."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=R2Zo8vHOgaM)
+[Watch on Youtube: Obama Farewell Speech FULL Event | ABC News](https://www.youtube.com/watch?v=R2Zo8vHOgaM)
 
 Like many Springsteen songs, "Land of Hope and Dreams" had its genesis in another song. Two, actually.
 
@@ -28,13 +28,13 @@ Original: "This train don't carry no gamblers, liars, thieves, nor big shot ramb
 
 Bruce's reply: "This train carries saints and sinners. This train carries losers and winners. This train carries whores and gamblers. This train carries lost souls."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jOrhjgt-_Qc)
+[Watch on Youtube: Sister Rosetta Tharpe - This Train](https://www.youtube.com/watch?v=jOrhjgt-_Qc)
 
 …but, musically, "Land of Hope and Dreams" began with a little-known guest appearance by Bruce with a little-known artist on what I believe is the finest album released by anyone during the 1990s.
 
 Give a listen to "Labor of Love" by Joe Grushecky, and keep an ear out for Bruce's mandolin (yes, that's Bruce playing mandolin). You can hear echoes of "Land of Hope and Dreams" from the opening bars, but you'll hear it note for note following the chorus at around 1:20.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DSdpmShd7e4)
+[Watch on Youtube: Labor of Love](https://www.youtube.com/watch?v=DSdpmShd7e4)
 
 Bruce took that mandolin riff and built a song of his own around it.
 
@@ -64,19 +64,19 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 While mostly absent from his set lists in recent years, "Land of Hope and Dreams" makes regular reappearances when times are dire–whether during the original Trump presidential years where liberty and our social contract started to fray…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L50sqx9fYjg)
+[Watch on Youtube: Bruce Springsteen - "Dancing In The Dark"/"Land of Hope and Dreams" - Theater a MSG - 11/4/19](https://www.youtube.com/watch?v=L50sqx9fYjg)
 
 …or the COVID-19 pandemic years, short on live performances by anyone, let alone Bruce. But when we needed him, he was there. Early in the great shutdown of 2020, Bruce played a telethon to support the New Jersey pandemic relied fund, and the first song he played was, of course, "Land of Hope and Dreams."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vXkauUI_AU4)
+[Watch on Youtube: Land of Hope and Dreams - Bruce Springsteen and Patti Scialfa (Jersey 4 Jersey Benefit Show 2020)](https://www.youtube.com/watch?v=vXkauUI_AU4)
 
 Following a bitter election and a last-minute insurrection attempt–all during a worsening pandemic–America was on edge heading into the inauguration of President Biden. But all went smoothly on Inauguration Day, and when it was time for the traditional evening festivities, Bruce kicked off the evening alone on the steps of the Lincoln Memorial with perhaps his strongest acoustic performance to date of "Land of Hope and Dreams."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fW_Vny_aXNM)
+[Watch on Youtube: Bruce Springsteen Performs "Land of Hope and Dreams"| Biden-Harris Inauguration 2021](https://www.youtube.com/watch?v=fW_Vny_aXNM)
 
 And since 2025, Springsteen has anchored his sets and named his tour after his ever-vital and hopeful song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RBNMXLDhxDs)
+[Watch on Youtube: The Boss in Portland - Land of Hope and Dreams - Bruce Springsteen, April 3, 2026](https://www.youtube.com/watch?v=RBNMXLDhxDs)
 
 Now more than ever, "Land of Hope and Dreams" is (in my opinion, at least) the most important song in Bruce Springsteen's catalog. It's a reminder of our American social contract, our duties to each other–to everyone who resides in our land regardless of station, origin, religion, or status.
 

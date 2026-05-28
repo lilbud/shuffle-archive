@@ -24,7 +24,7 @@ Even the shows that go on sometimes aren't always hitch-less: in Amsterdam, Bruc
 
 And in Kilkenny, he had to stop the show when he realized he was physically incapable of escaping the pit.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kVyG3Lf_Fvg)
+[Watch on Youtube: Bruce Springsteen Watches his own Show in Kilkenny Ireland and gets stuck! ;) may 12th 2024](https://www.youtube.com/watch?v=kVyG3Lf_Fvg)
 
 It's been a decade since Bruce last scheduled his shows on back-to-back nights; now he needs at least three days to recover between shows.
 
@@ -34,11 +34,11 @@ And yet each night, at the end of a setlist laced with loss and remembrance, Bru
 
 Or does it?
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6vQpW9XRiyM)
+[Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 
 "Glory Days" is of course associated with Bruce's *Born in the U.S.A.* period, reaching #5 on the Billboard Hot 100 at the peak of his glory days in the summer of 1985. But it actually dates back to the *Nebraska* era. That might surprise, given the song's lyrical lightness and unmistakably eighties pop sound, but Springsteen's original 1981 acoustic home demo reveals a much darker origin.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HAMpifa4sko)
+[Watch on Youtube: Bruce Springsteen Rare Version Acoustic Of Glory Days Outtakes 1982/1983](https://www.youtube.com/watch?v=HAMpifa4sko)
 
 We can only guess (until we get a chance to ask him) that "Glory Days" wasn't the song's original title, and nostalgia certainly wasn't its central conceit.
 
@@ -57,7 +57,7 @@ Mostly anyway. Although he wisely dropped the song's location, allowing it to re
 
 It actually made it to the final recording–you can hear it below, before it was edited out of the released track.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kOiJXGPZ80Y)
+[Watch on Youtube: Bruce Springsteen - Glory Days (contains an extra verse)](https://www.youtube.com/watch?v=kOiJXGPZ80Y)
 
 Even though it was dropped from the final cut, that verse featured one of three true (or "mostly true") vignettes that inspired the song.
 
@@ -99,7 +99,7 @@ Author Clinton Heylin has a theory, and to my mind it's a plausible one.
 
 In town a day early for his St. Louis show on the original River Tour, Bruce went out driving and ended up at a movie theater, where he saw *Stardust Memories.* In what has become a well chronicled and often told encounter, Bruce struck up a conversation with a fellow theater-goer and ended up following him home for a late-night dinner.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ezPRW1wt0NE)
+[Watch on Youtube: Springsteen - The Satanovskys & St. Louis Movie - 1/27/81](https://www.youtube.com/watch?v=ezPRW1wt0NE)
 
 Bruce's post-movie evening with the Satanovskys is well-known among his fans, but less so the impression the film made on Springsteen and (possibly) one of his greatest hits. Midway through the film, Woody Allen's character, a famous film director, has a chance encounter with an old childhood friend. Only one of them had found success in life, and Allen is awkwardly apologetic for his good fortune.
 
@@ -122,7 +122,7 @@ So we can forgive Bruce for wondering at the ripe age of 31 how many glory days 
 
 That first line is often misunderstood by fans who in their mind's eye picture the narrator at a local bar, already looking back on his better days. (In their defense, it doesn't help that the heavy-rotation MTV video sets that verse in a bar.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NeJrkyzmyS0)
+[Watch on Youtube: Bruce Springsteen: Making of Glory Days video at Maxwell's, Hoboken, NJ 5-28-85](https://www.youtube.com/watch?v=NeJrkyzmyS0)
 
 But while the "well" is indeed metaphorical, it's not a stand-in for a bottle. To its world-famous author, the well is the concert stage, and to this day each time Bruce steps on it he drinks until he gets his fill, determined to make this day better than the last time he stood here.
 
@@ -135,7 +135,7 @@ Maybe so. But what the singer suspected then and surely knows now, is that if yo
 
 When it makes its nightly appearance, "Glory Days" is a shared moment for the tens of thousands in attendance, many of whom are well past their own glory days, many yet to reach them.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iYYl09XNVik)
+[Watch on Youtube: Bruce Springsteen - "Glory Days" - (Live) - Phoenix, AZ 2024](https://www.youtube.com/watch?v=iYYl09XNVik)
 
 For Springsteen, who can't possibly help but remember the moments he stood on each stage over the decades, it's not just a "remember when" moment. It's a "remember *now* " moment.
 
@@ -143,7 +143,7 @@ And if we're wise, fully present with phones firmly pocketed, it is for us too.
 
 During the early years following the song's release, Bruce leaned into the irony of a 35-year-old waxing nostalgic, fully aware of the Peter Pan life he'd led up to that point.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qMUxvDBFQYs)
+[Watch on Youtube: Glory Days - Bruce Springsteen - Paris 85](https://www.youtube.com/watch?v=qMUxvDBFQYs)
 
 But as the story goes, all boys grow up. Today Bruce plays a Peter who refuses to acknowledge it, winking at us all the while. And it works: in the pit, with backs aching and legs throbbing, the lost boys dance with one swollen foot on either side of the fourth wall.
 

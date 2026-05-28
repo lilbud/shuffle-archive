@@ -26,7 +26,7 @@ Maharidge and Williamson titled their book *Journey to Nowhere*, knowing full we
 
 The pair persisted, believing in the importance of both their story and their approach. **"**I did something that was very rare in America now," Maharidge said in a 2011 *Democracy Now!* interview. "I listened. I like listening to people's stories. And when you listen, and you really care, which I do… you can't fake that. And that's what I try to do in the book: I try to show America to Americans, because we've got to start a conversation now about what kind of country we want to be, because it's not going well."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iPVW89AtCAo)
+[Watch on Youtube: 1985-publication of Journey to Nowhere](https://www.youtube.com/watch?v=iPVW89AtCAo)
 
 Their instincts proved correct on all counts: when it was published, *Journey to Nowhere* marked the beginning of America's awareness of its emerging underclass and garnered rave reviews. It also bombed commercially, selling only around ten thousand copies in total.
 
@@ -43,7 +43,7 @@ He may have been one of the book's original 10,000 purchasers, but *Journey to N
 
 "I had completed most of the [*Ghost of Tom Joad*] record," Bruce recalled in the introduction he would end up writing for the book's second edition, "when one night, unable to sleep, I pulled this book down off my living room shelf. I read it in one sitting and lay awake that night disturbed by its power and frightened by its implication."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HN6z96fJq44)
+[Watch on Youtube: BRUCE SPRINGSTEEN--RAW INTERVIEW FOOTAGE](https://www.youtube.com/watch?v=HN6z96fJq44)
 
 Within a week, Springsteen had written two new songs based on the stories told in *Journey to Nowhere*, and he wanted them on the album he thought was otherwise complete. Both songs drew heavily from Marharidge's text, however, and Bruce felt he needed the author's permission before releasing them.
 
@@ -53,7 +53,7 @@ With the author's permission, Bruce added the two songs to his now-complete albu
 
 The second song went on to become the album's most popular song besides its title track, and along with "The Ghost of Tom Joad," it's one of the album's only two tracks to be performed in both contemplative acoustic and ferocious rock arrangements.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=p-zs4lohmYc)
+[Watch on Youtube: Youngstown](https://www.youtube.com/watch?v=p-zs4lohmYc)
 
 "Youngstown" is based on the story of Joe Marshall, a World War II veteran that Maharidge and Williamson met and interviewed during their two-year odyssey, and his son who followed in his footsteps in Vietnam. Wounded in battle in Normandy, the elder Marshall returned to his Ohio home and found work at the Ohio Steel Works.
 
@@ -82,7 +82,7 @@ When we realize that Bruce's narrator is singing to a blast furnace rather than 
 
 The Jenny furnace was demolished on January 29, 1997. Bruce got to see it in person shortly before its demise, although not by official invitation. On January 12, 1996, Bruce brought his solo acoustic tour to Youngstown itself, and he invited Maharidge to the show.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Smddcs5n0H0)
+[Watch on Youtube: Bruce Springsteen: YOUNGSTOWN (live in Youngstown!)](https://www.youtube.com/watch?v=Smddcs5n0H0)
 
 Bruce told Dale he really wanted to see Jenny with his own eyes, but Maharidge wasn't sure that was wise. "I said, ‘Look, Cargill owns it. They're arresting everybody.' I knew somebody who was arrested a month before, sneaking in. He said, ‘Let's go.' So we snuck into the Jenny blast furnace, spent an hour and a half in there talking about politics and life. And we made it out without getting arrested."
 
@@ -95,7 +95,7 @@ Bruce told Dale he really wanted to see Jenny with his own eyes, but Maharidge w
 
 In his song, the son is a scarfer. If you're unfamiliar with the job, let's just say Bruce doesn't exaggerate much when he described it as a job that would suit the devil. Scarfers remove defects and imperfections from slabs of steel using an oxyacetylene torch. It's fiery, dangerous work.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y1wdxWNuJus)
+[Watch on Youtube: Scarfer](https://www.youtube.com/watch?v=y1wdxWNuJus)
 
 Although Youngstown steel found its way into all sorts of products and places, it was particularly in demand for military vehicles, arms, and ammunition. When the Vietnam war finally ended, demand softened and foreign competition increased. Unable to withstand the economic headwinds, thousands of Youngstown steelworkers were laid off when the Campbell Steel Works closed on September 19, 1977, a day that became known locally as Black Monday. The Jenny blast furnace was permanently decommissioned that year, too.
 
@@ -146,13 +146,13 @@ Bruce met Maharidge and Williamson for the first time at Neil and Pegi Young's B
 
 The book was re-published in the spring of 1996, when Bruce was in the middle of his marathon, worldwide solo acoustic tour. He'd been performing "Youngstown" at every stop, doing his best through lengthy introductory comments to draw attention to the book and the people who inspired him. He even performed the song on *The Late Show with David Letterman*, an unusual song selection for a late night television appearance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=InaLZEgy9r4)
+[Watch on Youtube: Youngstown - Bruce Springsteen (live on the Late Show with David Letterman 1995)](https://www.youtube.com/watch?v=InaLZEgy9r4)
 
 When the E Street Band reunited a few years later, "Youngstown" became the only song from *The Ghost of Tom Joad* to be performed every single night of the Reunion Tour as the first song of a five-pack that contained the heart of Bruce's nightly message.
 
 If the original album version is defeated and tragic, this new arrangement of "Youngstown" was fierce and defiant–angry, even. It also featured a scorching Nils Lofgren solo that brought the audience to its feet nightly.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=w038TQyWRN8)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Youngstown (Live in New York City)](https://www.youtube.com/watch?v=w038TQyWRN8)
 
 As for the Marshalls, after the steelworks closed, Marshall Jr. struggled for years. Forced to live with his parents again, he kept his industrial license continually renewed at his father's urging. "My dad told me right after the mill shut down, ‘Joe, keep the license up. You never know.'" Marshall told Maharidge in 2020. "I said ‘Screw it, I'll never be an engineer again.' But he said ‘Never say never.' And he was right."
 
@@ -164,7 +164,7 @@ But when Maharidge asked Marshall if he'd ever consider returning to the Democra
 
 Joe Marshall Jr. passed away a year later. Youngstown still waits for those jobs.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jmpBkoXfpww)
+[Watch on Youtube: Bruce Springsteen - Youngstown - 4/3/26 Moda Center Portland](https://www.youtube.com/watch?v=jmpBkoXfpww)
 
 **Youngstown**<br>
 **Recorded** June 16, 1995<br>

@@ -16,9 +16,9 @@ post_id: 58377
 
 **1970:** Steel Mill plays an outdoor show under the stars, on the parking deck at 7th and Marshall Streets in Richmond. Mercy Flight, a local band that includes future Steel Mill bandmate Robbin Thompson, plays just before Steel Mill, impressing Bruce enough that he will shortly extend Robbin an offer to join Steel Mill. Audio circulates of this show, including "The War is Over" and rare instrumental performances of "Sherlock Goes Home" and "KT-88."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7-AMJV5EDRI)
+[Watch on Youtube: Bruce Springsteen's band Steel Mill performs "Come On"; 8-14-70](https://www.youtube.com/watch?v=7-AMJV5EDRI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lc9sXe0tCyQ)
+[Watch on Youtube: All Man The Guns- Steel Mill, featuring Bruce Springsteen](https://www.youtube.com/watch?v=lc9sXe0tCyQ)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/08/1970-08-14.jpg.webp)
 
@@ -58,7 +58,7 @@ post_id: 58377
 
 **1985:** In the U.S., there's arguably no city more fervent in their Bruce fandom than Philadelphia. Bruce and the band play their first of two shows at Veterans Stadium today, and anticipation has been high since the moment tickets went on-sale:<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vnhG9efJc_Q)
+[Watch on Youtube: Bruce Springsteen - Philly ticket onsale for 8/14/85 show](https://www.youtube.com/watch?v=vnhG9efJc_Q)
 
 The show itself is a scorcher–literally, with the temperature topping 100 degrees–and it's captured on video for bootleg posterity.
 
@@ -74,7 +74,7 @@ The show itself is a scorcher–literally, with the temperature topping 100 degr
 
 You'd be forgiven for thinking nothing else happened in the news today–here's almost a half hour of newly uploaded news footage covering the event.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BfvMvjikgJM)
+[Watch on Youtube: Bruce Springsteen - Local News covers Philly shows - 1985-08-14](https://www.youtube.com/watch?v=BfvMvjikgJM)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1985-08-14a.png.webp)
 
@@ -90,7 +90,7 @@ You'd be forgiven for thinking nothing else happened in the news today–here's 
 
 **1992:** Bruce and his new touring band play their second of two World Tour 1992 shows at the Centrum in Worcester. Watch the extensive news coverage below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=os7f3vSxQrY)
+[Watch on Youtube: Bruce Springsteen - News coverage from 8/14/92 Boston concert](https://www.youtube.com/watch?v=os7f3vSxQrY)
 
 [Watch Video Highlight](https://videopress.com/embed/1XXRtozr)
 
@@ -106,23 +106,23 @@ You'd be forgiven for thinking nothing else happened in the news today–here's 
 
 **2004:** Bruce attends Little Steven's International Underground Garage Festival in New York City, He doesn't perform, but he does introduce two bands, The Fuzztones and The Chesterfield Kings.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9CdgAf-_MQU)
+[Watch on Youtube: The Chesterfield Kings introduced by Springsteen 1](https://www.youtube.com/watch?v=9CdgAf-_MQU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tTu4jTzl_pI)
+[Watch on Youtube: Chesterfield Kings Festival: Short](https://www.youtube.com/watch?v=tTu4jTzl_pI)
 
 **2012:** Bruce and the E Street Band return to Boston's Fenway Park to kick off the final American leg of the Wrecking Ball Tour. While Bruce tour premieres "Boom Boom" mid-set and "Dirty Water" in the encores, the set is otherwise fairly standard. The following night would more than make up for it.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-PW-ajAH9Ik)
+[Watch on Youtube: Wrecking Ball Tour Coming to Boston's Fenway Park on August 14](https://www.youtube.com/watch?v=-PW-ajAH9Ik)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Jgs3AJF9c34)
+[Watch on Youtube: BRUCE SPRINGSTEEN OPENS UP AT FENWAY PARK 8-14-2012](https://www.youtube.com/watch?v=Jgs3AJF9c34)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pgM-bobESpU)
+[Watch on Youtube: Bruce Springsteen - Boom Boom Boom - Fenway Park - 8-14-12 - Night 1](https://www.youtube.com/watch?v=pgM-bobESpU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=R9HzQNV_Cz8)
+[Watch on Youtube: Bruce Springsteen - Drive All Night - Fenway Park - 8-14-12 - Night 1](https://www.youtube.com/watch?v=R9HzQNV_Cz8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YGyGU8Hc9Cw)
+[Watch on Youtube: BRUCE SPRINGSTEEN FENWAY PARK "Dirty Water" 8/14/12](https://www.youtube.com/watch?v=YGyGU8Hc9Cw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iZzV_oV--Y8)
+[Watch on Youtube: The Boss rocks Fenway for thousands  - Bruce Springsteen](https://www.youtube.com/watch?v=iZzV_oV--Y8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2012-08-14.png.webp)
 

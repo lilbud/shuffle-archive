@@ -16,6 +16,6 @@ But this version redeems it and then some. Brilliantly mashing it up with Edwin 
 
 Take a listen and enjoy–and then do yourself a favor and check out the rest of the album as well. Brilliant stuff.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_McOJMwhSAk)
+[Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=_McOJMwhSAk)
 
 © April 22, 2019

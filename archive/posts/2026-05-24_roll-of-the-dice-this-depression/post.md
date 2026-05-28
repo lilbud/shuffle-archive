@@ -78,7 +78,7 @@ Fortunately, Tom made more than a few guest appearances on the Wrecking Ball Tou
 
 “This Depression” made only one more appearance after that Anaheim performance above. On July 24, 2013 (a year to the day from its full-band debut), Bruce played “This Depression” for the last time to date.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KyC8LVPVTj0)
+[Watch on Youtube: Bruce Springsteen - 2013-07-24 Leeds - This Depression (UK debut)](https://www.youtube.com/watch?v=KyC8LVPVTj0)
 
 Despite a momentary lyrical lapse and some audio difficulties during Nils’ solo, it’s a powerful performance and a reminder that “This Depression” deserves more frequent outings in the future.
 

@@ -18,7 +18,7 @@ But whereas Prince's song dials up the melodrama, "Chain Smokin'" takes a much s
 
 Joe used "Chain Smokin'" as the springboard for his next album, enlisting his friend Bruce to help him create it. They recorded it in Bruce's studio in Los Angeles in late 1993, with Bruce contributing his guitar and prominent backing vocals throughout–their very first studio collaboration.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8wQfzwQSSAU)
+[Watch on Youtube: Chain Smokin'](https://www.youtube.com/watch?v=8wQfzwQSSAU)
 
 Joe and Bruce have played "Chain Smokin'" together several times over the years, including a half-dozen performances during Joe's legendary October Assault mini-tour in the autumn of 1995, which featured Bruce as an honorary Houserocker.
 
@@ -30,7 +30,7 @@ Bruce and Joe have only played it together twice more since their 1995 tour toge
 
 **Update 9/20/2021:** In advance of the 25th anniversary reissue of *American Babylon*, Joe released the original demo he and Bruce made for "Chain Smokin'." Take a listen to the track that kicked off years of collaboration:<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TTjzF7dHCHI)
+[Watch on Youtube: Chain Smoking' (Demo)](https://www.youtube.com/watch?v=TTjzF7dHCHI)
 
 **Chain Smokin'**<br>
 **Recorded:** October-November 1993<br>

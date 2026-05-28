@@ -18,13 +18,13 @@ post_id: 58379
 
 **1975:** On the fourth of five legendary nights at New York City's Bottom Line club on the Born to Run Tour, Bruce debuts his cover of "It's Gonna Work Out Fine" at the first of two shows that night.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HaJpi_x1zaU)
+[Watch on Youtube: Bruce Springsteen - IT'S GONNA WORK OUT FINE 1975  (audio)](https://www.youtube.com/watch?v=HaJpi_x1zaU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BQKT-okc3G8)
+[Watch on Youtube: Bruce Springsteen - UP ON THE ROOF  1975  (audio)](https://www.youtube.com/watch?v=BQKT-okc3G8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7UbGdcMX00I)
+[Watch on Youtube: Bruce Springsteen "Wings For Wheels" documentary - the "vault" edit](https://www.youtube.com/watch?v=7UbGdcMX00I)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C2GEQ7jm7oQ)
+[Watch on Youtube: Bruce Springsteen - 1975-08-16, The Bottom Line, New York City, NY (Early)](https://www.youtube.com/watch?v=C2GEQ7jm7oQ)
 
 **1980:** Bruce joins Jackson Browne on stage for "Sweet Little Sixteen" and "Stay" at The Forum in Inglewood, California. (Photo credit: Carlo)<br>
 
@@ -34,11 +34,11 @@ post_id: 58379
 
 **1981:** Bruce and the E Street Band return to Red Rocks on the River Tour, debuting their cover of Frankie Ford's "Sea Cruise" and opening with "Who'll Stop the Rain" — both inspired by the heavy rain that night.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yMelZDKYN28)
+[Watch on Youtube: Bruce Springsteen - SEA CRUISE 1981  (audio)](https://www.youtube.com/watch?v=yMelZDKYN28)
 
 **1984:** At Night Seven of their ten-night Meadowlands stand on the Born in the U.S.A. Tour, Bruce and the band tour debut "Johnny Bye-Bye," played here in a new, faster arrangement than on the River Tour.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VTU3sV309Y8)
+[Watch on Youtube: Bruce Springsteen - "Johnny Bye-Bye" 1984-08-16](https://www.youtube.com/watch?v=VTU3sV309Y8)
 
 **1987:** Bruce attends (but does not perform at) the 12th annual Clearwater Festival for the environment at Sandy Hook, New Jersey, along with former E Street Band drummer Vini Lopez.<br>
 
@@ -50,17 +50,17 @@ post_id: 58379
 
 **2003:** The Rising Tour stadium leg makes its too-brief (only two shows!) west coast swing, starting with a beautiful evening at Pacific Bell Park in San Francisco, where Bruce plays the first-ever full-band "Across the Border."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_uGfbByFzcw)
+[Watch on Youtube: Bruce Springsteen - Full-band premiere of "Across the Border" - 2003-08-16](https://www.youtube.com/watch?v=_uGfbByFzcw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=178DZwY1Bio)
+[Watch on Youtube: Bruce Springsteen and the E Street Band -  Pac Bell Park,  San Francisco, CA  August 16, 2003](https://www.youtube.com/watch?v=178DZwY1Bio)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2003-08-16.png.webp)
 
 **2008:** The Magic Tour is in its home stretch, as Bruce kicks off his Charleston, South Carolina show with a cover of "Double Shot (of My Baby's Love)," played here for the first time in 27 years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=r8RsI7CYIEs)
+[Watch on Youtube: BRUCE SPRINGSTEEN - tv news clip of DOUBLESHOT OF MY BABYS LOVE --- CHARLESTON SOUTH CAROLINA 2008](https://www.youtube.com/watch?v=r8RsI7CYIEs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tqc9Vjhota4)
+[Watch on Youtube: Bruce Springsteen - Charleston, SC - Aug 16, 2008](https://www.youtube.com/watch?v=tqc9Vjhota4)
 
 [Watch Video Highlight](https://videopress.com/embed/ivRkIzGk)
 
@@ -68,6 +68,6 @@ post_id: 58379
 
 **2023:** Minutes before the GA gates are due to open, Bruce postpones his show (and the one following) at Citizen Bank Park in Philadelphia.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KYl9eW0dLBM)
+[Watch on Youtube: Bruce Springsteen last minute cancellation in Philly](https://www.youtube.com/watch?v=KYl9eW0dLBM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fClMZLuzb0U)
+[Watch on Youtube: Bruce Springsteen postpones 2 Philadelphia shows due to illness](https://www.youtube.com/watch?v=fClMZLuzb0U)

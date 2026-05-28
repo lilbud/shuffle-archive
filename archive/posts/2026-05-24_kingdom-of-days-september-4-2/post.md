@@ -34,7 +34,7 @@ Bruce is keeping busy on stage, because he’s unable to record. Billboard publi
 
 Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” contest, where fans can win an opportunity to join Bruce on tour for a week. Check out the commercial and imagine what it would have been like to win this contest:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XaCEUW0FNYA)
+[Watch on Youtube: Bruce Springsteen - BUSA Roadie Contest](https://www.youtube.com/watch?v=XaCEUW0FNYA)
 
 …and then check out the experience the winner actually had. MTV and Bruce more than lived up to their promise!
 
@@ -82,7 +82,7 @@ Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” 
 
 [Watch Video Highlight](https://videopress.com/embed/vJr4PWnD)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HoXlDETxC7Y)
+[Watch on Youtube: Bruce Springsteen to Make Acting Debut in Netflix's Lilyhammer](https://www.youtube.com/watch?v=HoXlDETxC7Y)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

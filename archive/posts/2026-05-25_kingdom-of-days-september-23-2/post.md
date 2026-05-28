@@ -46,9 +46,9 @@
 
 **1988:** A special Human Rights Now! show in Oakland on the occasion of Bruce’s 39th birthday: Roy Orbison surprises Bruce backstage and leads the crowd in singing “Happy Birthday,” as does Joan Baez, who also performs “Blowin’ in the Wind” with Bruce. During Bruce’s set, he tour premieres “Tunnel of Love” and plays his very first “I Ain’t Got No Home.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-nGfxpXnuBQ)
+[Watch on Youtube: Bruce springsteen at the amnesty international concert oakland california](https://www.youtube.com/watch?v=-nGfxpXnuBQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pZ-8l_MjUlU)
+[Watch on Youtube: BRUCE SPRINGSTEEN and The E STREET BAND -  Human Rights Now, Oakland, CA.  September 23, 1988](https://www.youtube.com/watch?v=pZ-8l_MjUlU)
 
 [Watch Video Highlight](https://videopress.com/embed/ObIM11p3)
 

@@ -22,7 +22,7 @@ The date was May 20, 1993, and Bruce was on tour in Dublin with his new touring 
 
 Jerry Lee came out four songs later, which must have felt like quite the missed opportunity for Ely. The Boss gave deference to The Killer, who was nearing sixty at the time, dropping into the background to support Lewis on his signature 1957 hit single, "Great Balls of Fire."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=i7grEaOtKG4)
+[Watch on Youtube: JERRY LEE LEWIS on THE STEVE ALLEN SHOW 1957 Great Balls Of Fire](https://www.youtube.com/watch?v=i7grEaOtKG4)
 
 "Great Balls of Fire" was a smash hit upon release, selling over one million copies in ten days and stopping just one spot shy of the top of Billboard Hot 100. (It would reach #1 in the U.K and on the U.S. country chart, though). It remains one of the most well-known and most instantly recognizable rock songs ever, ranking #96 on *Rolling Stone's* Greatest Songs of All Time list.
 
@@ -32,7 +32,7 @@ It was also one of the most electrifying songs ever, certainly at the time of it
 
 By 1993, though, Lewis had slowed down, and while the crowd was enthusiastic in their response, the performance itself was plodding at times and uneven throughout.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dnKoh7CrHHs)
+[Watch on Youtube: Bruce Springsteen Great Balls of Fire Dublin 20/05/1993](https://www.youtube.com/watch?v=dnKoh7CrHHs)
 
 They made up for it (barely) in Cleveland two years later.
 
@@ -42,7 +42,7 @@ On this night, Lewis was not pleased to learn that Berry and the E Streeters wou
 
 Watching that performance below, it's hard to pick out any tension on the stage. But while their performance is certainly more polished than the last time Bruce and Jerry Lee shared a stage, there's nothing particularly remarkable about it, either.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ATmsCFg1Rdw)
+[Watch on Youtube: Jerry Lee Lewis with Bruce Springsteen & The E Street Band - Great Balls Of Fire, Whole Lotta Shakin](https://www.youtube.com/watch?v=ATmsCFg1Rdw)
 
 Bruce took another crack at "Great Balls of Fire" with Joe Grushecky in 2004, and another with the E Street Band in 2009, but it took until 2014 for his definitive performance.
 
@@ -54,11 +54,11 @@ Joe took lead vocals on the former, channeling The Killer in his peak glory. Tha
 
 Watch Bruce spontaneously decide to keep it going when Joe tries to end it at around the 1:50 mark. From that point forward, they fly by the seat of their pants.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kz8TjdmOSuw)
+[Watch on Youtube: BRUCE SPRINGSTEEN & THE E STREET BAND / JOE ELY "Great Balls of Fire" and "Lucille"  Houston 5-6-14](https://www.youtube.com/watch?v=kz8TjdmOSuw)
 
 **Update 1/3/2024:** At the Rock and Roll Hall of Fame induction ceremony in 2022, attendees (including this blogger) were delighted by a surprise encore performance at the ceremony's conclusion: a loose, seemingly unplanned team-up on "Great Balls of Fire" by Bruce and John Mellencamp.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IgNDpFCzDvA)
+[Watch on Youtube: Bruce Springsteen & John Mellencamp ☜❤️☞ High School Confidential ∫ Great Balls of Fire  HD](https://www.youtube.com/watch?v=IgNDpFCzDvA)
 
 **Great Balls of Fire**<br>
 **First performed:** October 29, 1990 (San Fernando Valley, CA)<br>

@@ -28,7 +28,7 @@ Bruce wrote "Talking About My Baby" for the Bruce Springsteen Band, but to the b
 
 Bruce has long lifted his song titles from popular music and films, but in this case he borrowed more than a title. His version of "Talking About My Baby" is essentially a re-write of Curtis Mayfield's 1964 hit single. The melody and lyrics are all Bruce's, but its theme is as direct an homage as its title.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tyhQrjN2jaI)
+[Watch on Youtube: The Impressions  Talking About My Baby](https://www.youtube.com/watch?v=tyhQrjN2jaI)
 
 Musically, Springsteen took a completely different path than Mayfield, opting for a quiet, contemplatively worshipful arrangement rather than the bouncy, carefree paean of the original.
 
@@ -75,13 +75,13 @@ Lyrically, he made his baby a femme fatale–ultimately no more substantial than
 
 Some months after that one-and-only documented performance of "Talking About My Baby," Bruce lifted and adapted his melody for a new song called "Janey Needs a Shooter." You can hear it most obviously in the opening couplets of the latter song's verses.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AuoD-d0jblk)
+[Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter](https://www.youtube.com/watch?v=AuoD-d0jblk)
 
 Bruce recorded "Janey" in the early days of 1973, and it was a candidate for inclusion on his next four albums. By the time he finally abandoned it, the song had evolved from its original acoustic form into a heavier full-band arrangement. For years, it was considered one of his lost classics, with rehearsals and outtakes circulating amongst collectors.
 
 And then of course, in late 2020, we were finally gifted with a modern, completed version of "Janey Needs a Shooter." And if we listen to it, we can clearly hear the strains of the Bruce Springsteen Band's original one-time wonder, almost a half-century later.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=A_BRCRkAkAE)
+[Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter (Official Audio)](https://www.youtube.com/watch?v=A_BRCRkAkAE)
 
 **Talking About My Baby**<br>
 **Never recorded**<br>

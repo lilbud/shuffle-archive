@@ -32,7 +32,7 @@ post_id: 57909
 
 **1999:** There are still five more nights to go in the opening U.S. stand of the Reunion Tour, but Night Ten will be hard to top: Bruce opens the show with the tour premiere of "No Surrender" ("For You" gets a tour premiere as well), and "Back in Your Arms" is played for the first time ever.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jzSBtKAjMYw)
+[Watch on Youtube: Bruce Springsteen - For You @ East Rutherford 1999-08-04](https://www.youtube.com/watch?v=jzSBtKAjMYw)
 
 [Watch Video Highlight](https://videopress.com/embed/jX93hZxu)
 

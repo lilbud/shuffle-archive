@@ -14,7 +14,7 @@ Let's just call it a reunion album, because eight of the eleven tracks on Souths
 
 *Better Days* is one of Southside's best albums, and one of its standout tracks is Steve's "I've Been Working Too Hard," a rave-up tailor-made for Southside that featured Little Steven on backing vocals, and none other than Jon Bon Jovi on duet vocals.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UmzsOcF5f7k)
+[Watch on Youtube: I've Been Working Too Hard](https://www.youtube.com/watch?v=UmzsOcF5f7k)
 
 The song became a minor, regional hit for Southside, and a crowd-pleaser in concert.
 

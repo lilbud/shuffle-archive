@@ -12,7 +12,7 @@ post_id: 57558
 
 **1973:** Bruce, David Sancious, Richard Blackwell, and Suki Lahav layer overdubs onto "Santa Ana" at 914 Sound Studios in Blauvelt, completing the song. It will remain unreleased for another 25 years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M0V18vfvQh8)
+[Watch on Youtube: Santa Ana (Studio Outtake - 1973)](https://www.youtube.com/watch?v=M0V18vfvQh8)
 
 **1977:** Bruce and the E Street Band hold a recording session for *Darkness on the Edge of Town* at Atlantic Studios in New York City.<br>
 
@@ -20,11 +20,11 @@ post_id: 57558
 
 [Watch Video Highlight](https://videopress.com/embed/PDRS9yN0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=62WAhkKMMr0)
+[Watch on Youtube: Adam Raised a Cain (Live at Berkeley Community Theatre, Berkeley, CA - 7/1/1978)](https://www.youtube.com/watch?v=62WAhkKMMr0)
 
 [Watch on Youtube: The Promise (Live at Berkeley Community Theatre, Berkeley, CA - 7/1/1978)](https://www.youtube.com/watch?v=iIzMmWWYRhA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vaF4di5aPHc)
+[Watch on Youtube: Bruce Springsteen and the E Street Band "Because The Night", Berkeley, CA 7/1/1978](https://www.youtube.com/watch?v=vaF4di5aPHc)
 
 **1984:** It's Night Two on the Born in the U.S.A. Tour in St. Paul, and Bruce is still a bit rusty, forgetting the lyrics to both "Jungleland" and "Open All Night." The latter is understandable, as it's the very first E Street Band performance of the song, along with the live premiere of "Reason to Believe," "Nebraska," and "Pink Cadillac."<br>
 
@@ -38,27 +38,27 @@ post_id: 57558
 
 **1989:** Bruce hops on stage with La Bamba at The Stone Pony in Asbury Park to perform "Long Tall Sally."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4bQCj1S5ino)
+[Watch on Youtube: La Bamba and Bruce Springsteen - "Long Tall Sally" - July 1 1989](https://www.youtube.com/watch?v=4bQCj1S5ino)
 
 **2000:** The Reunion Tour comes to a deeply satisfying close at the legendary tenth night at Madison Square Garden. Bruce plays "Lost in the Flood" for the first time in 22 years and closes the show with a re-written "Blood Brothers" summarizing Bruce's feelings about the occasion. According to the *Asbury Park Press*, Bruce also debuts a new song at this show, "Ugo Hearts," but strangely it will not appear on any of the bootleg recordings. This show is available as part of Bruce's official archive series, and much of it is featured in *Live in New York City* on both audio and video formats.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=r1twvwbB_cU)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Tenth Avenue Freeze-Out (Live in New York City)](https://www.youtube.com/watch?v=r1twvwbB_cU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j5-QMHFiIA4)
+[Watch on Youtube: Bruce Springsteen - Blood Brothers (NYC, 1/07/2000)](https://www.youtube.com/watch?v=j5-QMHFiIA4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Wtuw-srPL5Y)
+[Watch on Youtube: Further On (Up the Road) (Live at Madison Square Garden, New York, NY - 07/01/00 - Official Audio)](https://www.youtube.com/watch?v=Wtuw-srPL5Y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PH_UFot7XuM)
+[Watch on Youtube: Two Hearts (Live at Madison Square Garden, New York, NY - 07/01/00 - Official Audio)](https://www.youtube.com/watch?v=PH_UFot7XuM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VBLPALRXrTA)
+[Watch on Youtube: Bruce Springsteen - The Promise (Live in New York City, 07-01-2000)](https://www.youtube.com/watch?v=VBLPALRXrTA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rllkvMtVRQk)
+[Watch on Youtube: Blood Brothers (Live at Madison Square Garden, New York, NY - 07/01/00 - Official Audio)](https://www.youtube.com/watch?v=rllkvMtVRQk)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/07/2000-07-01.jpg.webp)
 
 **2015:** Bruce joins Brian Wilson at the PNC Banks Arts Center in Holmdel, New Jersey, for "Barbara Ann" and "Surfin' U.S.A."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rL6wd3OgUrY)
+[Watch on Youtube: Bruce Springsteen surprise visit with Brian Wilson in NJ](https://www.youtube.com/watch?v=rL6wd3OgUrY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/Asbury_Park_Press_2015_07_03_Page_A3.jpg.webp)
 

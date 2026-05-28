@@ -14,7 +14,7 @@ So why haven't I featured it before now? I guess because it's so darn good that 
 
 But I had the privilege of catching Jason Isbell and Amanda Shires in an acoustic show in New Jersey this week, and it brought their remarkable cover of "Born in the U.S.A." back to the top of my mind.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5AEqTSwtmms)
+[Watch on Youtube: Amanda Shires & Jason Isbell "Born in the USA"](https://www.youtube.com/watch?v=5AEqTSwtmms)
 
 Jason and Amanda's cover is the lead track on a 2014 alt-country reimagining of Bruce's landmark album, entitled *Dead Man's Town*. If you ever wondered what *Born in the U.S.A.* would have sounded like if it had been given the *Nebraska* treatment on its original release, this album is for you.
 

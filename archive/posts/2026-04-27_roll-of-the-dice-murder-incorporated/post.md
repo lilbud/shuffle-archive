@@ -24,13 +24,13 @@ While the crowd's anticipation built to a fever pitch, Bruce and the band rehear
 
 And with that, Bruce Springsteen and the E Street Band launched into their first song, ushering in the Reunion era with the world debut of a song that would someday serve as a centerpiece for every single show of their comeback tour: "Murder Incorporated."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Jj7hvKQ6Uhc)
+[Watch on Youtube: Bruce Springsteen - Murder Incorporated](https://www.youtube.com/watch?v=Jj7hvKQ6Uhc)
 
 Ferocious and crunchy, "Murder Incorporated" was the perfect song to re-introduce the new, more muscular E Street Band. (Now with more guitars!)
 
 The intervening years and additional life experience served the song well, making the original 1982 outtake cum *Greatest Hits* album track seem tame by comparison.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oshU-C5zTWE)
+[Watch on Youtube: Murder Incorporated](https://www.youtube.com/watch?v=oshU-C5zTWE)
 
 The only downside from that night: the crowd's excitement over the band's reunion was so high and the song's arrangement so fierce, that even though Bruce and the band played "Murder Incorporated" a full six times start-to-finish, the song's message almost certainly went completely unnoticed.
 
@@ -38,13 +38,13 @@ And that's too bad, because "Murder Incorporated" was as timely in 1995 as it wa
 
 Bruce and the E Street Band performed "Murder Incorporated" a couple more high-profile times that spring, and each time the focus was more on the band than on the song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KLtihzJ6gdw)
+[Watch on Youtube: Bruce Springsteen & E Street Band on Letterman, April 5, 1995](https://www.youtube.com/watch?v=KLtihzJ6gdw)
 
 So when Bruce embarked on solo acoustic tour later in the year (that would stretch on for over a year-and-a-half, delaying the long-wished-for Reunion Tour), he made sure to feature "Murder Incorporated" in a setting and arrangement where its lyrical content couldn't be ignored.
 
 Bruce played "Murder Incorporated" over fifty times solo acoustic before he ever played it in a proper concert with the E Street Band, and fortunately one of those performances is available as part of Bruce's official archive series.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UEf8P4jNB7E)
+[Watch on Youtube: Murder Incorporated (Live at King's Hall, Belfast, UK - 3/19/1996)](https://www.youtube.com/watch?v=UEf8P4jNB7E)
 
 Stripped down to its mournful essence, "Murder Incorporated" reveals itself as song not of anger but of hopelessness. The song takes its name from the real-life organization of the same name–well, unofficially at least, because the real Murder, Inc. never had a true name. It was simply an enforcement organization for the mob, killing and maiming for a price.
 
@@ -102,19 +102,19 @@ And yet, when I turn on the TV, talking heads debate the morality of dismantling
 
 It's enough to make us all frustrated.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YQ-M3rOUh9c)
+[Watch on Youtube: Murder Incorporated, Bruce Springsteen & The E Street Band, April 7, 2026, Kia Forum, Pit Shot](https://www.youtube.com/watch?v=YQ-M3rOUh9c)
 
 ---
 
 **Bonus #1:** No essay on "Murder Incorporated" could be complete without the spectacular *Live in New York City* performance. Recorded at the very end of the Reunion Tour with the E Street Band at the peak of their powers, after performing the song every single night of the tour without exception, "Murder Incorporated" is a tour de force, one of Bruce's most exciting performances on official video.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hJhULVsCctI)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Murder Incorporated (Live in New York City)](https://www.youtube.com/watch?v=hJhULVsCctI)
 
 **Bonus #2:** "Murder Incorporated" actually made its proper public concert debut not with the E Street Band or even solo but with Joe Grushecky and the Houserockers. Bruce, Joe, and the band played it several times during the 1995 mini-tour for *American Babylon*, which featured Bruce as an honorary Houserocker.<br>
 
 Bruce would continue to perform "Murder Incorporated" many times with the Houserockers over the years that followed. Here's one such great performance from Light of Day 2010.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L6rjiJmDymU)
+[Watch on Youtube: Murder Inc.  - Springsteen with Joe Grushecky & the Houserockers - Jan 16 2010](https://www.youtube.com/watch?v=L6rjiJmDymU)
 
 **Bonus #3:** Here's an alternate unreleased mix of the same recording used for the official release. It's most notable for its very different introduction and much more prominent piano and organ. Bruce made the right choice for the album.<br>
 
@@ -122,7 +122,7 @@ Bruce would continue to perform "Murder Incorporated" many times with the Houser
 
 **Bonus #4:** Here's three minutes of Patti and Nils rehearsing their backing vocals in 1995. Just because.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nJPDVsqagF0)
+[Watch on Youtube: Patti Scialfa and Nils Lofgren rehearsing Murder Incorporated 1996](https://www.youtube.com/watch?v=nJPDVsqagF0)
 
 **Murder Incorporated**<br>
 **Recorded** May 3-4, 1982<br>

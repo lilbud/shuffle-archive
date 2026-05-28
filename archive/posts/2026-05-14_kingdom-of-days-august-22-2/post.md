@@ -28,25 +28,25 @@ post_id: 59400
 
 **1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for "Travelin' Band" and "I'm Bad, I'm Nationwide."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OvXIhNv4tKE)
+[Watch on Youtube: Bruce Springsteen - Travelin' Band (1984-08-22)](https://www.youtube.com/watch?v=OvXIhNv4tKE)
 
 [Watch Video Highlight](https://videopress.com/embed/UrcFPCOo)
 
 **1985:** At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven makes a guest appearance during the encores. This show is available as part of Bruce's official archive series–get it [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s-K4f0YDhsg)
+[Watch on Youtube: Seeds (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=s-K4f0YDhsg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xozx1HvRfSw)
+[Watch on Youtube: My Hometown (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=xozx1HvRfSw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0IsEuB8Kyl0)
+[Watch on Youtube: Downbound Train (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=0IsEuB8Kyl0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=i3V0udViB9M)
+[Watch on Youtube: Bruce Springsteen and the E Street Band "Pink Cadillac", Giants Stadium, NJ 8/22/1985](https://www.youtube.com/watch?v=i3V0udViB9M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yA8MbhJiQ6s)
+[Watch on Youtube: Bobby Jean (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=yA8MbhJiQ6s)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xIcfmcHRIwo)
+[Watch on Youtube: Jersey Girl (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=xIcfmcHRIwo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5heubw6GS9Y)
+[Watch on Youtube: Sherry Darling (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=5heubw6GS9Y)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-22.png.webp)
 
@@ -62,7 +62,7 @@ post_id: 59400
 
 **1999:** Bruce and the E Street Band play their second of five Reunion shows at Boston's Fleet Center.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bMDI9tdyfbc)
+[Watch on Youtube: Adam Raised A Cain Boston 22-8-99](https://www.youtube.com/watch?v=bMDI9tdyfbc)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCEh2K-yqI1PAzBZnCXjDzJ)
 
@@ -74,15 +74,15 @@ post_id: 59400
 
 **2009:** Bruce brings the Working on a Dream Tour to Mansfield, Massachusetts, for the first of two shows. Jay Weinberg takes the drums for the encores.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2SFTcZoypdw)
+[Watch on Youtube: Springsteen 8-22-09 Burnin Love @ Mansfield MA](https://www.youtube.com/watch?v=2SFTcZoypdw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M-_BQjxbtGc)
+[Watch on Youtube: Bruce Springsteen "Trapped" Mansfield 8-22-09](https://www.youtube.com/watch?v=M-_BQjxbtGc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KbPlU7926Gk)
+[Watch on Youtube: Bruce Springsteen "Jackson Cage" and " She's the One" Mansfield 8-22-09](https://www.youtube.com/watch?v=KbPlU7926Gk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wVgcUfk7-Ak)
+[Watch on Youtube: Bruce Springsteen Mansfield, MA 8/22/09 Detroit Medley with Blow-up Doll](https://www.youtube.com/watch?v=wVgcUfk7-Ak)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uZmlxapGWww)
+[Watch on Youtube: Bruce Springsteen "American Land" Band Intros  Mansfield  8-22-09](https://www.youtube.com/watch?v=uZmlxapGWww)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2009-08-22.png.webp)
 

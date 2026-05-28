@@ -20,7 +20,7 @@ And once I realized that, the entire meaning of the song changed on me. I'll nev
 
 I'll explain, but let's take a listen first to get us in the mood:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=azQY2YBUMQc)
+[Watch on Youtube: The Promised Land](https://www.youtube.com/watch?v=azQY2YBUMQc)
 
 If you really pay attention to it, "The Promised Land" is a pretty dark song, befitting its home on a dark album:
 
@@ -112,7 +112,7 @@ You might argue that the rousing music belies this interpretation; I'd counter b
 
 And just like the acoustic blues version of "Born in the U.S.A." brings out the deep meaning and inner pain of that song, so too does the acoustic version of "The Promised Land" from the 1995-1997 and 2005 tours practically beg a darker reading:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QJhsH1TlB8Y)
+[Watch on Youtube: Bruce Springsteen - The Promised Land - Düsseldorf 2005-06-16 CLOSEUP](https://www.youtube.com/watch?v=QJhsH1TlB8Y)
 
 That's not a song of defiance–that's a song of submission and surrender, that percussive heartbeat the sound of a dream dying.
 
@@ -122,7 +122,7 @@ To my ears, "The Promised Land" is a deeply, deeply unsettling song.
 
 Am I able to still enjoy the anthemic arrangement at an E Street Band show? Sure. I'm well aware that Bruce sees "The Promised Land" (at least in some contexts) as a lesson to the importance of community, as a metaphor for the American dream–especially on the Land of Hope and Dreams American Tour in 2026.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aDS4bU5W9HE)
+[Watch on Youtube: Promised Land, Bruce Springsteen & The E Street Band, April 7, 2026, Kia Forum, Pit Shot](https://www.youtube.com/watch?v=aDS4bU5W9HE)
 
 And I can accept that–he's the songwriter after all–in much the same way that I can accept Bruce and Patti singing "Brilliant Disguise" as a love song despite its origin as something else.
 
@@ -134,11 +134,11 @@ And whether you see the song through that lens or not–whether "The Promised La
 
 Here's an alternate mix of "The Promised Land," minus Bruce's guitar solo. More of a curiosity than anything else.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9mdT74Vmm4g)
+[Watch on Youtube: Bruce Springsteen - "The Promised Land" alternate (no guitar solo)](https://www.youtube.com/watch?v=9mdT74Vmm4g)
 
 …and one of my favorite performances, from 2013 at Camden Lock in North London:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KxY7CiPQa_g)
+[Watch on Youtube: Bruce Springsteen The Promised Land London 2013](https://www.youtube.com/watch?v=KxY7CiPQa_g)
 
 **The Promised Land**<br>
 **Recorded** December 1977**Released:** *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)* (1978), *The Essential Bruce Springsteen* (2003)<br>

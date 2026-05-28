@@ -14,7 +14,7 @@ In 2015, the album was Bruce's *Born in the U.S.A.*, and special guest Joan Osbo
 
 If you're a fan of how Bruce reinvented "Reason to Believe" on the Magic Tour, you'll dig this:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ADVk3_gwJf8)
+[Watch on Youtube: I'm Goin' Down](https://www.youtube.com/watch?v=ADVk3_gwJf8)
 
 Here are the clues that led up to the reveal of *Born in the U.S.A.* as 2015's featured album. Can you solve the clues?
 
@@ -24,7 +24,7 @@ Clue #3: "Myrtle Grant, his ex, wanted nightly bar romance."
 
 While you puzzle those out, here's another of their reinventions of a classic Springsteen song. *This* is how you put your own spin on another artist's song. Check out their version of "Born in the U.S.A."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m5SHAY3nAjE)
+[Watch on Youtube: Born in the USA](https://www.youtube.com/watch?v=m5SHAY3nAjE)
 
 Joan Osborne and The Waybacks just absolutely knock every single *Born in the U.S.A.* track out of the park. Some are relatively faithful, some are dramatic re-imaginings, some are clever mash-ups, but all of them are great, and this is an album very much worth having.
 
@@ -34,7 +34,7 @@ But this version redeems it and then some. Brilliantly mashing it up with Edwin 
 
 Take a listen and enjoy–and then do yourself a favor and check out the rest of the album as well. Brilliant stuff.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_McOJMwhSAk)
+[Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=_McOJMwhSAk)
 
 Oh and about those puzzles, #3 is an anagram, #1 is a song lyric, and the answers to each of them are E Street Band members.
 

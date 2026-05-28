@@ -28,7 +28,7 @@ post_id: 59498
 
 **1999:** Bruce and the reunited E Street Band wrap their five-night stand at Boston's Fleet Center, tour debuting "Raise Your Hand" in the encores with Peter Wolf.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8D06CtXE5y4)
+[Watch on Youtube: Bruce Springsteen - Boston, 1999-08-27](https://www.youtube.com/watch?v=8D06CtXE5y4)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1999-08-27a.png.webp)
 
@@ -36,12 +36,12 @@ post_id: 59498
 
 **2002:** Bruce and the E Street Band wrap their west coast Rising Tour swing with a show at San Jose's Compaq Center.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=z33OKND7IA8)
+[Watch on Youtube: Bruce Springsteen - Born in the U.S.A. (San Jose 2002)](https://www.youtube.com/watch?v=z33OKND7IA8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2002-08-27.png.webp)
 
 **2021:** Bruce calls into *The Wild and the Innocent* on E Street Radio to mark the show's tenth anniversary, broadcast live from Asbury Park.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aQfLYn64y40)
+[Watch on Youtube: Bruce calling in to ESR 10th anniversary show](https://www.youtube.com/watch?v=aQfLYn64y40)
 
 That evening, *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.

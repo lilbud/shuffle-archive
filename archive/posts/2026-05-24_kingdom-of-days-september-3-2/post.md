@@ -4,7 +4,7 @@
 
 **1978:** Bruce debuts his cover of “Hang Up My Rock and Roll Shoes” at his Darkness show in Saginaw.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m38R-VSgAVc)
+[Watch on Youtube: Bruce Springsteen- I Don't Wanna Hang Up My Rock and Roll Shoes Live 1978](https://www.youtube.com/watch?v=m38R-VSgAVc)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2024/09/Detroit_Free_Press_1978_09_21_Page_23.jpg' alt='' title='' width='758' height='412' />
 
@@ -30,39 +30,39 @@
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1992-09-03b.jpg' alt='' title='' width='758' height='300' />
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=CKFRHpzkMtI)
+[Watch on Youtube: Bruce Springsteen - CNN Report on 1992 Summer Concert Season](https://www.youtube.com/watch?v=CKFRHpzkMtI)
 
 **1999:** Bruce and the reunited E Street Band wrap up their three-night stand at the MCI Center in Washington, DC with an all-star guest-star line-up: Bonnie Raitt, Bruce Hornsby, Jackson Browne, Shawn Colvin, Mary Chapin Carpenter and Frank Bruno join the band for the encores.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1eA8nibwxSQ)
+[Watch on Youtube: Bruce Springsteen Prove It All Night DC 99-02](https://www.youtube.com/watch?v=1eA8nibwxSQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3VAxruZRXeA)
+[Watch on Youtube: Bruce Springsteen Live Bobby Jean DC 99-21](https://www.youtube.com/watch?v=3VAxruZRXeA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JfdqRwZKXcs)
+[Watch on Youtube: Bruce Springsteen Live Hungry Heart DC 99-23](https://www.youtube.com/watch?v=JfdqRwZKXcs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wrRb4fwLwwU)
+[Watch on Youtube: Bruce Springsteen Live Ramrod DC 99-28](https://www.youtube.com/watch?v=wrRb4fwLwwU)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2021/09/1999-09-03.jpg' alt='' title='' width='758' height='1348' />
 
 **2001:** In their last public appearance before the nation changes forever, Bruce and Patti join Brian Kirk and the Jirks on-stage for four songs at Donovan’s Reef in Sea Bright, New Jersey. (The Jirks are the house band at the club.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VcpMgWrmhUE)
+[Watch on Youtube: Bruce Springsteen with Brian Kirk and the Jirks- "Rosalita"](https://www.youtube.com/watch?v=VcpMgWrmhUE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2Xphm6-kpIA)
+[Watch on Youtube: Bruce Springsteen with Brian Kirk and the Jirks- "Jersey Girl"](https://www.youtube.com/watch?v=2Xphm6-kpIA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=g-cAs0PgBd0)
+[Watch on Youtube: Bruce Springsteen with Brian Kirk and the Jirks- "Tenth Avenue Freeze Out"](https://www.youtube.com/watch?v=g-cAs0PgBd0)
 
 **2012:** Night Two at Philadelphia’s Citizens Bank Park was a Labor Day special, opening with an acoustic tour premiere of “Factory” as part of a five-song *Darkness on the Edge of Town* mini-set. The show stayed intense all the way through, which may be why Bruce omitted setlisted gems like “Ain’t Good Enough for You,” “Love Train,” “(Your Love Keeps Lifting Me) Higher and Higher,” “Incident on 57th Street,” and “My Love Will Not Let You Down.” What a show *that* would have been!
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9BaJ4KRkFcA)
+[Watch on Youtube: Factory - Citizens Bank Park - Sept 3, 2012 - Bruce Springsteen](https://www.youtube.com/watch?v=9BaJ4KRkFcA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qK7u0savC5M)
+[Watch on Youtube: Streets of Fire - Citizens Bank Park - Sept 3, 2012 - Bruce Springsteen](https://www.youtube.com/watch?v=qK7u0savC5M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=68J67HjpNEc)
+[Watch on Youtube: Bruce Springsteen - My City of Ruins, Philadelphia PA, September 3 2012](https://www.youtube.com/watch?v=68J67HjpNEc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DS_p_Pv2LsM)
+[Watch on Youtube: Bruce Springsteen - Atlantic City (2012-09-03 Philadelphia)](https://www.youtube.com/watch?v=DS_p_Pv2LsM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fn1p6tuLd6E)
+[Watch on Youtube: Shackled and Drawn - Citizens Bank Park - Sept 3, 2012 - Bruce Springsteen](https://www.youtube.com/watch?v=fn1p6tuLd6E)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/08/2012-09-03a.jpg' alt='' title='' width='758' height='884' />
 
@@ -76,7 +76,7 @@
 
 **2022:** Bruce records “Addicted to Romance” in his home studio in Colts Neck.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FPM0gG2ueV8)
+[Watch on Youtube: Addicted to Romance  (Bruce Springsteen)](https://www.youtube.com/watch?v=FPM0gG2ueV8)
 
 **2023:** Featuring the tour premiere of “Two Hearts” and rarities like “Jungleland” and “Jersey Girl,” the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band’s last show of the year.
 

@@ -22,7 +22,7 @@ Oh, and he didn't sing, either–Bruce was purely an instrumentalist that night,
 
 At the late show, their first song was Patti's nine-and-a-half-minute opus, "Land." With an opening movement called "Horses," it's the closest the album has to a title track–a melange of punk, poetry, and even a classic rock cover ("Land of 1,000 Dances.")
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cSk6jfln84A)
+[Watch on Youtube: Land: Horses / Land of a Thousand Dances / La Mer (de)](https://www.youtube.com/watch?v=cSk6jfln84A)
 
 "Land" was already one of Patti's most popular live numbers, but you can hear the crowd react in astonished excitement when Patti introduces Bruce at about the 1:30 mark below. Take a listen to The Patti Smith Group, featuring Bruce Springsteen on guitar.
 

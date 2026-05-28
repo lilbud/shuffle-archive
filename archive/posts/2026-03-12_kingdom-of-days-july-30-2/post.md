@@ -12,7 +12,7 @@ post_id: 57850
 
 **1975:** Bruce wraps up a three-night stand at the Carter Barron Amphitheater in Washington DC's Rock Creek Park, where he debuts his cover of The Drifters' "Up on the Roof."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eYu78f4lNvs)
+[Watch on Youtube: Bruce Springsteen - "Up on the Roof" - Washington DC, 1975-07-30](https://www.youtube.com/watch?v=eYu78f4lNvs)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/07/1975-0730.jpg.webp)
 
@@ -30,7 +30,7 @@ post_id: 57850
 
 [Watch Video Highlight](https://videopress.com/embed/1Tbv8N9O)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dLdutnQxZUI)
+[Watch on Youtube: Bruce Springsteen Born in the USA Concert - 7/30/84](https://www.youtube.com/watch?v=dLdutnQxZUI)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1984-07-30a-scaled.jpg.webp)
 
@@ -42,7 +42,7 @@ post_id: 57850
 
 [Watch Video Highlight](https://videopress.com/embed/r1cTI473)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xVV5FTnI4FM)
+[Watch on Youtube: Bruce Springsteen  - My hometown (reggae version)](https://www.youtube.com/watch?v=xVV5FTnI4FM)
 
 **1988:** The Tunnel of Love Tour nears its end with this final German show in Bremen, where "Working on the Highway" makes its tour debut.<br>
 
@@ -50,29 +50,29 @@ post_id: 57850
 
 **1992:** At Night Five of eleven at World Tour 1992's opening stand in the Meadowlands, Bruce performs "All the Way Home" for the first time, and "4th of July, Asbury Park (Sandy)" comes out as well, accompanied by only Bruce and Roy.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_FhpvZT3dks)
+[Watch on Youtube: Bruce Springsteen All the way home meadowlands 1992](https://www.youtube.com/watch?v=_FhpvZT3dks)
 
 **2002:** Finally! After 18 years, Bruce releases a new E Street Band album. *The Rising* is an instant success, the darling of music reviewers and critics, and the catalyst for a new era that lasts to this day, cementing the return of the E Street Band. To celebrate the occasion, Bruce and the band get up early to appear on NBC's *Today Show* for a mini-concert. Katie Couric interviews virtually the entire band (poor Garry!) before the show. Watch that fun interview below, followed by the songs performed that morning.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ar-qvX1F0t4)
+[Watch on Youtube: Bruce Springsteen - Today Show Interview and "The Rising" - 7/30/02](https://www.youtube.com/watch?v=ar-qvX1F0t4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-Nv6q-7zj-c)
+[Watch on Youtube: Bruce Springsteen Lonesome Day Today Show](https://www.youtube.com/watch?v=-Nv6q-7zj-c)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OiMBq3xASts)
+[Watch on Youtube: Bruce Springsteen & ESB   03   Glory Days Today Show 7 30 02](https://www.youtube.com/watch?v=OiMBq3xASts)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=CBFOdcaPAI0)
+[Watch on Youtube: Bruce Springsteen - "Into the Fire" - Today Show 7/30/02](https://www.youtube.com/watch?v=CBFOdcaPAI0)
 
 That night, Bruce and the band play a public warm-up show, where "Paradise" debuts and "Cover Me" returns after a decade of absence. "Into the Fire" features a stunning introduction that features Clarence on bagpipes, but it will be gone when the tour begins in proper.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YdsNXmNw1PI)
+[Watch on Youtube: Bruce Springsteen Convention Hall Asbury Park 30/07/2002 Full Concert](https://www.youtube.com/watch?v=YdsNXmNw1PI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5Oh6eapJuPI)
+[Watch on Youtube: Bruce Springsteen - Paradise (Live 2002, Audio)](https://www.youtube.com/watch?v=5Oh6eapJuPI)
 
 [Watch Video Highlight](https://videopress.com/embed/u6r6AnpC)
 
 Finally, ABC's *Nightline* airs Bruce's performance of "Empty Sky" recorded a few days earlier.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
+[Watch on Youtube: Bruce Springsteen   Empty Sky live nightline 080102](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2002-07-30a.png.webp)
 
@@ -86,12 +86,12 @@ Finally, ABC's *Nightline* airs Bruce's performance of "Empty Sky" recorded a fe
 
 **2009:** A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as "Janey, Don't You Lose Heart," "Girls in Their Summer Clothes," and "If I Should Fall Behind" receive their tour debuts and "Be True" gets a rare outing.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mZw8n91G2nY)
+[Watch on Youtube: Bruce Springsteen - Prove It All Night - 30 07 09](https://www.youtube.com/watch?v=mZw8n91G2nY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Ye-LtocznFQ)
+[Watch on Youtube: Bruce Springsteen, Janey Don't You Lose Heart, Benidorm, 30/07/09](https://www.youtube.com/watch?v=Ye-LtocznFQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TsAkWxv8AdA)
+[Watch on Youtube: Bruce Springsteen Benidorm 30 -7- 2009 tv canal 9](https://www.youtube.com/watch?v=TsAkWxv8AdA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G5AgJr1q0b4)
+[Watch on Youtube: Bruce Springsteen, Girls in Their Summer Clothes, Benidorm, 30th July 2009](https://www.youtube.com/watch?v=G5AgJr1q0b4)
 
 **2012:** As the Wrecking Ball Tour prepares to wrap up its European leg and return to America, *The New Yorker* publishes an extensive piece on Bruce and the E Street Band.<br>

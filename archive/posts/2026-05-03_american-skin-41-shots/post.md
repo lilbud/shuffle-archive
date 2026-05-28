@@ -48,13 +48,13 @@ Forty-one shots found their target nineteen times.
 
 Amadou Diallo died that night, February 4 1999, at the age of twenty-three.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vmugfX5FlHg)
+[Watch on Youtube: 20 years ago: Amadou Diallo killed in police-involved shooting](https://www.youtube.com/watch?v=vmugfX5FlHg)
 
 Although Diallo was clearly innocent and unarmed, the NYPD internal investigation cleared the officers of wrongdoing. Nevertheless, a grand jury indicted all four officers on charges of second degree murder and reckless endangerment.
 
 On February 25, 2000, a jury acquitted the officers of all charges. The case became a national story, sparking protests, calls for federal action, and national conversations about racial profiling, officer training, and police brutality.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=49O77fHIKVY)
+[Watch on Youtube: The Amadou Diallo Verdict (2/25/2000) | #AmadouDiallo #RIP](https://www.youtube.com/watch?v=49O77fHIKVY)
 
 In March, the United States Department of Justice found that the NYPD had engaged in racial profiling.
 
@@ -64,7 +64,7 @@ And on April 22, Bruce Springsteen and the E Street Band started rehearsing a ne
 
 They debuted it six weeks later on June 4th in Atlanta. Springsteen introduced it simply: "This is a new song called ‘American Skin (41 Shots)'."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BtNY-D3rzsY)
+[Watch on Youtube: Bruce Springsteen American Skin (41 Shots) Atlanta 04/06/2000](https://www.youtube.com/watch?v=BtNY-D3rzsY)
 
 That first performance was a bit rough. The arrangement hadn't quite gelled, and the band sounds noticeably unsure about their parts. And although the title and lyrics made the song's inspiration clear, fans familiar with the case might have scratched their heads at the way Bruce de-aged Amadou and changed his name to "Charles" (and his mother's from Kadiatou to "Lena").
 
@@ -148,7 +148,7 @@ Bruce stayed silent to the press, but he invited Diallo's parents to attend the 
 
 Bruce Springsteen and the E Street Band played "American Skin (41 Shots)" that night and every other night of the closing stand of their Reunion Tour. They'd slowed down the song a bit since Atlanta, letting it breathe more. Bruce's vocals were more vulnerable, and Clarence Clemons now had a mournful saxophone solo to usher the song to a burial-like close.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aQMqWAiWPMs)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - American Skin (41 Shots) (Live in New York City)](https://www.youtube.com/watch?v=aQMqWAiWPMs)
 
 And yes, there were some boos. Some officers or sympathizers declined to boycott but nevertheless flashed a badge, turned their backs, or gave Bruce the finger. A few rushed the stage before being removed by security.
 
@@ -166,13 +166,13 @@ In the meantime, the song continued to make appearances in every E Street Band t
 
 By then, Bruce had finally released a studio version, on his 2014 *High Hopes* album.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UDtwcpRdMmw)
+[Watch on Youtube: American Skin (41 Shots) (Studio Version)](https://www.youtube.com/watch?v=UDtwcpRdMmw)
 
 It was worth the wait. Bruce invited legendary guitarist Tom Morello into the studio with him (Morello was touring with the E Street Band at the time), and Morello's pair of exquisite guitar solos elevated the song to new emotional, cathartic heights. For those who believe Springsteen's studio recordings can't hold a candle to his live performances, this new version proved a welcome exception.
 
 When Morello continued on with the band for the High Hopes Tour, "American Skin (41 Shots)" became a nightly highlight, stretching to almost ten minutes in length.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vO1ks62Fnig)
+[Watch on Youtube: American Skin (41 Shots) (Live at Mohegan Sun Arena, Uncasville, CT - 5/17/2014)](https://www.youtube.com/watch?v=vO1ks62Fnig)
 
 When George Floyd was murdered by police at the height of the great pandemic, live performances weren't possible. So Bruce took to the airwaves, opening his *From My Home to Yours* radio show with the studio version of "American Skin (41 Shots)" and following it with some pointed commentary:
 
@@ -180,7 +180,7 @@ When George Floyd was murdered by police at the height of the great pandemic, li
 
 It was still on Bruce's mind at the tail end of the pandemic, so he added "American Skin (41 Shots)" to his reworked Broadway setlist as well.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QPguVESdvD4)
+[Watch on Youtube: Bruce Springsteen American Skin Live on Broadway 14/07/2021](https://www.youtube.com/watch?v=QPguVESdvD4)
 
 It's now 2026, more than a quarter-century after Bruce wrote a song that at the time felt instantly fixed in time and place.
 
@@ -188,7 +188,7 @@ Sadly, "American Skin (41 Shots)" remains as relevant as ever. America has regre
 
 As of this writing, it serves as an mid-set highlight of the Land of Hope and Dreams American Tour, once more lifted by the contributions of Tom Morello.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cODCpEG-6Bc)
+[Watch on Youtube: Bruce Springsteen - American Skin (41 Shots) - Minneapolis, MN - 3/31/2026](https://www.youtube.com/watch?v=cODCpEG-6Bc)
 
 It's one of the few songs in Bruce's catalog that moves me to tears every time I hear it. Every single time. Both from its message and the sheer tragic beauty of the song. I'm not sure I would ever call it the finest song he ever wrote (although it would always be in my top five), but it's without question the most powerful.
 

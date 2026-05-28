@@ -16,7 +16,7 @@ Not coincidentally, it was one of the first songs recorded for the album, but ir
 
 It's fascinating to listen to that first cut of "Darkness," recorded in June of 1977. It's much slower, and the lyrics aren't complete, but if you consider how much was fully formed and which parts weren't, you can gain a lot of insight into the theme that was already forming in Bruce's mind.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nVDmZnZqF3c)
+[Watch on Youtube: Bruce Springsteen, "Darkness on the Edge of Town" (early demo, June 1977)](https://www.youtube.com/watch?v=nVDmZnZqF3c)
 
 There are some minor differences, to be sure: "the speedway" hadn't yet become "the trestles," for example. And the entire second "secret" verse is absent–instead, Bruce moves the key final verse earlier in the song and adds a chorus that sheds some interesting light on the song:
 
@@ -28,7 +28,7 @@ There are some minor differences, to be sure: "the speedway" hadn't yet become "
 
 That strikes me as a significant passage, and it's somewhat surprising to me that Bruce dropped it from the final version. "Darkness" is at heart a song about an inner paradox: the inability to accept defeat paired with an addiction to the things that ensure it. In this early version, that passage makes it clear that it's the narrator's own fears, his inability to muster the courage to "make a big move" that keeps him rooted in place rather than some conspiracy of place and fortune. And perhaps that's the reason he dropped it; listen to the final version without that key passage. The sense of being trapped, chained is pervasive, and perhaps more powerful if the narrator is unaware of his own ability to escape.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0LpdEyGhNxM)
+[Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/watch?v=0LpdEyGhNxM)
 
 Regardless of version, this is a difficult protagonist to sympathize with. His wife has moved on without him, and while he clearly misses her, he's steadfast in his refusal to move forward. He's bitter, maybe even resentful, and believes his lot in life is pre-destined.
 
@@ -50,7 +50,7 @@ In concert, "Darkness on the Edge of Town" remains a setlist standard, never abs
 
 On the Land of Hope and Dreams American Tour, Springsteen once again seized on that key lyric to recontextualize the song as an early show of solidarity and an invitation for his fans to join him in a chorus of resistance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0JcimHw-I2g)
+[Watch on Youtube: Bruce Springsteen - Darkness on the Edge of Town, 3/31/2026 - Target Center, Minneapolis, MN](https://www.youtube.com/watch?v=0JcimHw-I2g)
 
 But I've never heard a full-band rendition that can equal the perfection of the studio track–in concert, the song comes off with too much power, and the subtle underlining is missing in action. Most egregiously, losing the shuffling-off-in-chains fadeout in favor of a clean, definitive ending robs the song of much of its lasting emotional power. IMHO, anyway.
 
@@ -58,7 +58,7 @@ Interestingly, Bruce made one subtle but perhaps significant lyrical change when
 
 The only arrangements I've cared for in concert have been acoustic–and my favorite is from the Christic shows in 1990. Bruce's vocals are at their peak, and there's a vulnerability in his voice that makes the song particularly heartbreaking:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6hEVa2aA7h0)
+[Watch on Youtube: Bruce Springsteen - Darknes on the Edge of Town (Acounstic, 1990)](https://www.youtube.com/watch?v=6hEVa2aA7h0)
 
 I realize that I have a somewhat contrary view of this song than most fans do, but that's one of the best things about great art: it's open to interpretation. So that's mine.
 

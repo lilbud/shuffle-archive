@@ -22,7 +22,7 @@ Perhaps I'm reaching. But let me explain before you decide for yourself.
 
 Let's start with the unreleased outtake.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=syZB1xaNo0s)
+[Watch on Youtube: Bruce Springsteen - "None But the Brave" original outtake](https://www.youtube.com/watch?v=syZB1xaNo0s)
 
 So let's just lay this out first and foremost: whichever version we're listening to, "None But the Brave" is magnificent. It's heartfelt and heartbreaking, and it captures the E Street Band sound at perhaps its most quintessential. Why in the world Bruce chose to leave it off of *Born in the U.S.A.* is beyond me. Perhaps he felt the central conceit of the song–the left-behind friend/lover singing to his gone-to-greener-pastures girl–was essentially the same one used for "Bobby Jean" on that album, but in my opinion "None But the Brave" is the superior song.
 
@@ -101,7 +101,7 @@ Or was it?
 
 Like I wrote earlier, the released version is clearly not the same one that had been floating around bootlegger's circles for years. Give a listen, and see for yourself:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j6Z2l9iBMkQ)
+[Watch on Youtube: None But the Brave (Studio Outtake - 1983)](https://www.youtube.com/watch?v=j6Z2l9iBMkQ)
 
 Again, I'm pretty sure the instrumental track is the same–perhaps sped up just a touch, and certainly a more delicate mix (particularly after the bridge) but that's all.
 
@@ -157,11 +157,11 @@ I'll add this one to that club. Either way, in either incarnation, it remains on
 
 "None But the Brave" made its live debut shortly after its album releases, at Bruce's Asbury Park holiday shows in December 2003. Here's the second-ever performance, from the December 7th show.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=quCBpLQ0ogY)
+[Watch on Youtube: Bruce Springsteen: NONE BUT THE BRAVE](https://www.youtube.com/watch?v=quCBpLQ0ogY)
 
 The first E Street Band performance was more than four years later, in Vancouver on the Magic tour, and I was lucky enough to be there for it. Bruce has played it a mere handful of times since (usually and comically checking with the band to make sure they know how to start it); here's one of the more recent performances from Zurich in 2016:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GCagzhoVko4)
+[Watch on Youtube: None But the Brave (Live at Stadion Letzigrund, Zürich, Switzerland - 7/31/2016)](https://www.youtube.com/watch?v=GCagzhoVko4)
 
 But whether I was in the house or listening on CD or YouTube, in my opinion, none of Bruce's live performances have measured up to that wonderful 1983/2003 recording. It's part of a small subset of Bruce's catalog that can't be improved (or at least hasn't been yet) when performed live.
 

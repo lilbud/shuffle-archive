@@ -16,7 +16,7 @@ Springsteen had no shortage of songs to full all four buckets, but only one coul
 
 Watch and see:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PGO_iE-UL9c)
+[Watch on Youtube: My City of Ruins - Bruce Springsteen & The E Street Band - Moda Center, Portland, April 3, 2026](https://www.youtube.com/watch?v=PGO_iE-UL9c)
 
 The city in "My City of Ruins" is a metaphor for the death of the American experiment, the American dream, and the American ideal. Its lyrics paint a grim scene of a post-apocalyptic country deserted by its defenders and turned against its own citizens.
 
@@ -62,7 +62,7 @@ But ultimately, it's up to us to rebuild. And we start by standing up.
 
 Bruce wrote "My City of Ruins" as a gospel song, very obviously modeled after Curtis Mayfield's "People Get Ready." (Mayfield's melody threads throughout Bruce's live arrangement.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NdKEbnS1eBE)
+[Watch on Youtube: Curtis Mayfield & The Impressions - People Get Ready (1965)](https://www.youtube.com/watch?v=NdKEbnS1eBE)
 
 The E Street Choir lends their powerful voices to the final chorus, reminding us that we're not alone, and that strength lies not in just in number but in unity. By the end of the song, we've shed our grief though shared catharsis and are ready to do the hard work.
 
@@ -100,23 +100,23 @@ In actuality, "My City of Ruins" was originally meant far more literally. Bruce 
 
 He performed it for the city in 2006 with the Sessions Band, and he continued to play it frequently throughout the tour.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0Irenk0E1R4)
+[Watch on Youtube: My City of Ruins (Live at the New Orleans Jazz & Heritage Festival, 2006)](https://www.youtube.com/watch?v=0Irenk0E1R4)
 
 Except, of course, it isn't about that at all.
 
 While Bruce did write the song about a literal city, it wasn't New Orleans. Or for Christchurch, New Zealand or L'Aquila, Italy, even though he played it for both following destructive earthquakes.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ecGjzvx0o7s)
+[Watch on Youtube: My City of Ruins - Bruce Springsteen - Live Including tribute to Christchurch 21st February 2017. HD](https://www.youtube.com/watch?v=ecGjzvx0o7s)
 
 No, he actually wrote "My City of Ruins" for New York City, following the terror attacks of September 11, 2001 that changed life in America forever.
 
 That's why we'll find the studio version on *The Rising*, where it closes the album on a note of resilience and determination.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fk-ORaoDJQI)
+[Watch on Youtube: My City of Ruins](https://www.youtube.com/watch?v=fk-ORaoDJQI)
 
 *The Rising* didn't reach our ears until almost a year after the attacks, with the exception of "My City of Ruins." Most of us first heard that one not even three weeks after 9/11, when Bruce helped a grieving nation pick themselves up in one of his most moving and memorable performances ever. Clearly he must have written it in the immediate aftermath of the attacks.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6WBWH4pj9v4)
+[Watch on Youtube: Bruce Springsteen My City of Ruins  9-11-01](https://www.youtube.com/watch?v=6WBWH4pj9v4)
 
 Except, of course, he didn't.
 
@@ -130,7 +130,7 @@ Once a tourist destination and a local seaside favorite, the rise of interstates
 
 When Palace Amusements closed in 1988 and the carousel was sold two years later, many took it as a symbol that Asbury Park was indeed now a city of ruins.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1agMJmtdJL8)
+[Watch on Youtube: The Rise and Fall of Asbury Park New Jersey (a tale of urban decay) - IT'S HISTORY](https://www.youtube.com/watch?v=1agMJmtdJL8)
 
 That changed after the turn of the 21st century, thanks to an influx of artists and musicians, a growing LGBTQ+ community, and a surge of real estate development that continues to this day.
 
@@ -146,7 +146,7 @@ On the first night, following a star-studded main set full of rare treasures and
 
 And then he debuted the song he'd written for the occasion, performed alone on piano.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Y6_G4IW6krA)
+[Watch on Youtube: Bruce Springsteen - MY CITY OF RUINS 2000 (audio)](https://www.youtube.com/watch?v=Y6_G4IW6krA)
 
 That original version of "My City of Ruins" is virtually identical to the song Bruce is playing on tour as I write this, despite some very minor lyrical changes.
 

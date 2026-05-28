@@ -34,7 +34,7 @@ It wasn't the first time Mellencamp praised Bruce's melodic talents. While most 
 
 "A Life Full of Rain" is a moody and contemplative closing track, featuring gruff solo vocals from Mellencamp and an emotive Springsteen guitar solo unlike anything we've heard from him on his own albums.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lDckyH_EAM8)
+[Watch on Youtube: John Mellencamp, Bruce Springsteen - A Life Full Of Rain (Visualizer)](https://www.youtube.com/watch?v=lDckyH_EAM8)
 
 It's not the kind of track one would expect from either John or Bruce (let alone together), but it's one that sticks with you long after the first listen.
 

@@ -14,7 +14,7 @@ In the spring of 1981, Bruce and the E Street Band performed a cover of John Fog
 
 There was something odd about those performances, though, something fans of the original song almost certainly noticed: Bruce added verses that weren't in the original song. You'll hear them shortly after the 2:30 mark in the video below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3XZjhZWbB34)
+[Watch on Youtube: Bruce Springsteen - RUN THROUGH THE JUNGLE  1981 (audio)](https://www.youtube.com/watch?v=3XZjhZWbB34)
 
 The new verses begin with the lines:
 

@@ -12,7 +12,7 @@ post_id: 3900
 
 So said Adam Sandler at the 1997 MTV Video Music Awards, shortly after Bruce and The Wallflowers teamed up to rock the house on "One Headlight," the first song to hit Number One on the Alternative, Adult Alternative, and Mainstream Rock charts.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xY3q69KWqb4)
+[Watch on Youtube: Wallflowers & Bruce Springsteen   One Headlight](https://www.youtube.com/watch?v=xY3q69KWqb4)
 
 The Wallflowers' hit was nominated for four VMAs that night (it didn't win any, though), and it would go on to win the Grammy for Best Rock Song and Best Group Rock Performance a year later.
 
@@ -22,7 +22,7 @@ For the band, it was a endorsement of their legitimacy by rock royalty; for Bruc
 
 But most importantly, it was a killer performance, one that still holds up today.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Zzyfcys1aLM)
+[Watch on Youtube: The Wallflowers - One Headlight (Official Music Video)](https://www.youtube.com/watch?v=Zzyfcys1aLM)
 
 **One Headlight**<br>
 **First performed:** September 4, 1997 (New York City, NY)<br>

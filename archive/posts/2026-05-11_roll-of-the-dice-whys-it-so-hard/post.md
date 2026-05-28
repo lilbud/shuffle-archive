@@ -18,7 +18,7 @@ But although Bruce is present on the track, it's actually Steve Van Zandt provid
 
 Take a listen, and you'll see what I mean:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xa69gujpD7g)
+[Watch on Youtube: Sundance Blues Band, "Why’s It So Hard"  1972-  01-21](https://www.youtube.com/watch?v=Xa69gujpD7g)
 
 But if "Why's It So Hard" is musically mesmerizing, lyrically it's rather forgettable.
 

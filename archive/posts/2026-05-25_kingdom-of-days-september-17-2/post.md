@@ -30,7 +30,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/XS7nF1a4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1uR3dMy0YlM)
+[Watch on Youtube: Human Rights now! North America1988](https://www.youtube.com/watch?v=1uR3dMy0YlM)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-17.jpg' alt='' title='' width='758' height='617' />
 

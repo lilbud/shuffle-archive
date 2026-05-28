@@ -50,23 +50,23 @@ post_id: 57895
 
 **1988:** Bruce and the E Street Band play their penultimate Tunnel of Love show when the tour arrives in Madrid. Watch local news coverage below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1bN5Y_YsW1Q)
+[Watch on Youtube: bruce springsteen informe semanal TVE 1988 reportaje 2ªPART](https://www.youtube.com/watch?v=1bN5Y_YsW1Q)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-6h3Ap7ai3A)
+[Watch on Youtube: Bruce Springsteen - Noticias de Televisión del Concierto Madrid 2/8/1988](https://www.youtube.com/watch?v=-6h3Ap7ai3A)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=710WeFetFS0)
+[Watch on Youtube: Bruce Springsteen madrid 1988](https://www.youtube.com/watch?v=710WeFetFS0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Q94J4oGGTEU)
+[Watch on Youtube: Bruce Springsteen - Downbound Train - Madrid 8/2/1988](https://www.youtube.com/watch?v=Q94J4oGGTEU)
 
 **1989:** Bruce joins Bobby Bandiera on stage at Cheers in Long Branch, New Jersey, for "Willie and the Hand Jive."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V0bdSzmU4jI)
+[Watch on Youtube: Willy and the hand jive (Johnny Otis cover )](https://www.youtube.com/watch?v=V0bdSzmU4jI)
 
 **1992:** Night Seven of eleven at the Brendan Byrne Arena in East Rutherford sees the live debut of the very rarely performed "Book of Dreams."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pOZX8CqaEp4)
+[Watch on Youtube: Bruce Springsteen - BOOK OF DREAMS 1992 live](https://www.youtube.com/watch?v=pOZX8CqaEp4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vdK1JoYDc9w)
+[Watch on Youtube: Bruce Springsteen - Glory Days - 8/2/92 Meadowlands, NJ](https://www.youtube.com/watch?v=vdK1JoYDc9w)
 
 **1999:** At Night Nine of fifteen on the opening U.S. stand of the Reunion Tour, fans at the Meadowlands are treated to the return of "Something in the Night," last played more than two decades prior, and the U.S. premiere of "Take ‘Em as They Come," which opens the show. During "Tenth Avenue Freeze-Out" Bruce tells his "River of Life" story for the first time.<br>
 
@@ -78,11 +78,11 @@ post_id: 57895
 
 **2002:** Bruce and the E Street Band play a third rehearsal show at Asbury Park's Convention Hall, featuring the first "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" in over twenty years. That night, *The Late Show With David Letterman* airs an interview with Bruce and a full-band performance of "Lonesome Day" (recorded the day prior).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GPdPi8srX1Q)
+[Watch on Youtube: Bruce Springsteen Video clip from 2002](https://www.youtube.com/watch?v=GPdPi8srX1Q)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kJ5JII8CMig)
+[Watch on Youtube: Bruce Springsteen   Lonesome Day Live 08 02 02 On Letterman](https://www.youtube.com/watch?v=kJ5JII8CMig)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SmFobkkukLc)
+[Watch on Youtube: Bruce Springsteen Convention Hall Asbury Park 02/08/2002 Full Concert](https://www.youtube.com/watch?v=SmFobkkukLc)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/2002-08-02.png.webp)
 
@@ -94,9 +94,9 @@ post_id: 57895
 
 **2008:** On a rainy night in Foxboro, Boston fans at Gillette Stadium enjoy two Magic Tour premieres: "Who'll Stop the Rain" and "Little Latin Lupe Lu," last played in 1995.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DU2LzvOjhjc)
+[Watch on Youtube: Bruce Springsteen- Latin Lupe Lu](https://www.youtube.com/watch?v=DU2LzvOjhjc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fue6SpKUTpQ)
+[Watch on Youtube: Bruce Springsteen Gilette Stadium 8/2/08 I'm Going Down](https://www.youtube.com/watch?v=fue6SpKUTpQ)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB2BnAQQ6qKH0PzoGGavgjU)
 
@@ -104,8 +104,8 @@ post_id: 57895
 
 **2009:** The European leg of the Working on a Dream Tour comes to an end with this last show in Santiago de Compostela, Spain. Highlights include back-to-back tour premieres of "Burning Love" and "Born to Be Wild" and an ultra-rare "This Life."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uTfSLImSU8w)
+[Watch on Youtube: Bruce Springsteen - This Life -  Santiago de Compostela 2009](https://www.youtube.com/watch?v=uTfSLImSU8w)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9Gv8zSnFrLI)
+[Watch on Youtube: Bruce Springsteen - Burnin' Love, Santiago de Compostela 2009](https://www.youtube.com/watch?v=9Gv8zSnFrLI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3H_i1RPXhG8)
+[Watch on Youtube: Bruce Springsteen - "Born To Be Wild" - Santiago de Compostela 2009](https://www.youtube.com/watch?v=3H_i1RPXhG8)

@@ -14,15 +14,15 @@ post_id: 59507
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to the Richfield Coliseum. After the show, WNEW-TV interviews Bruce for *PM Magazine*.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NuJ-g62ekzc)
+[Watch on Youtube: Bruce Springsteen, PM Magazine 1978](https://www.youtube.com/watch?v=NuJ-g62ekzc)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1978-08-30.png.webp)
 
 Later that night–so late that it's technically the following day, August 31–Bruce makes a surprise appearance at The Agora in Cleveland. Even though they've already turned in a full show, Bruce, Steve, Clarence, Roy, and Garry join Southside Johnny and the Asbury Jukes on-stage for absolutely fantastic performances of "The Fever," "I Don't Want to Go Home," "Having a Party," and "Stagger Lee." Must-watch pro-shot video below, featuring the definitive version of "The Fever" — it may never be topped.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eBhlLGi3lRI)
+[Watch on Youtube: Southside Johnny & The Asbury Jukes - Stagger Lee - Cleveland-8/31/78](https://www.youtube.com/watch?v=eBhlLGi3lRI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4OllWaG9HZQ)
+[Watch on Youtube: Southside Johnny & Bruce Springsteen   The Agora, Cleveland, OH 1978-08-31](https://www.youtube.com/watch?v=4OllWaG9HZQ)
 
 **1982:** Bruce joins Cats on a Smooth Surface on stage at a private event at Jon Jon's in Wall, New Jersey.<br>
 
@@ -44,25 +44,25 @@ Later that night–so late that it's technically the following day, August 31–
 
 **2003:** An outstanding Night Nine (of ten) at Giants Stadium on the Rising Tour opens with the tour premiere of "Janey, Don't You Lose Heart." Later in the show, Emmylou Harris makes a guest appearance on "Across the Border," Dave and Serge Bielanko of Marah guest-star on the tour premiere of "Raise Your Hand," and "Pretty Flamingo" makes a rare appearance in the encore. Enjoy highlights from the show below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JWgi0SwOr0I)
+[Watch on Youtube: Bruce Springsteen Janey Don't You Lose Heart Giants Stadium New Jersey 30/08/2003](https://www.youtube.com/watch?v=JWgi0SwOr0I)
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yi7DO6uBlXM)
+[Watch on Youtube: Across The Border Bruce Springsteen 8/30/2003 Giants Stadium NJ](https://www.youtube.com/watch?v=yi7DO6uBlXM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=35gqbd3yZ3A)
+[Watch on Youtube: Pretty Flamingo Bruce Springsteen 8/30/2003 Giants Stadium NJ](https://www.youtube.com/watch?v=35gqbd3yZ3A)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9ITR7lyaCPE)
+[Watch on Youtube: Roll Of The Dice Bruce Springsteen 8/30/2003 NJ Giants Stadium](https://www.youtube.com/watch?v=9ITR7lyaCPE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jGOuUpIBAwk)
+[Watch on Youtube: Bruce Springsteen Across The Border (with Emmylou Harris) Giants Stadium New Jersey 30/08/2003](https://www.youtube.com/watch?v=jGOuUpIBAwk)
 
 **2008:** An epilogue for the Magic Tour: Bruce and the E Street Band headline the Harley Davidson 105th Anniversary Festival at The Roadhouse at The Lakefront in Milwaukee. "Gypsy Biker" is a fitting opener, and "Born to Be Wild" bookends it as the final encore. "Wooly Bully" is a mid-set tour premiere (its first appearance in 23 years), and Danny Federici's son Jason plays his dad's part on "4th of July, Asbury Park (Sandy)."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WdPr0MDd9kE)
+[Watch on Youtube: BRUCE SPRINGSTEEN "Wooly Bully" HQ 8-30-08 Harley Fest Milwaukee, WI 2008](https://www.youtube.com/watch?v=WdPr0MDd9kE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=F5qtnWWbDDk)
+[Watch on Youtube: BRUCE SPRINGSTEEN "Born To Be Wild" HQ 8-30-08 Harley Fest Milwaukee WI 2008](https://www.youtube.com/watch?v=F5qtnWWbDDk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KFe9i8x4x6w)
+[Watch on Youtube: Bruce Springsteen ~ Racing In the Street (8-30-08)](https://www.youtube.com/watch?v=KFe9i8x4x6w)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2008-08-30.png.webp)
 
@@ -74,17 +74,17 @@ Later that night–so late that it's technically the following day, August 31–
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLrNIMOwexdz95YpVOZNuDZ_qAqPt2D4Vj)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SMc8jc1kgXs)
+[Watch on Youtube: Summertime Blues - Springsteen - MetLife#3 Aug 30, 2016](https://www.youtube.com/watch?v=SMc8jc1kgXs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l-CpUBixLEs)
+[Watch on Youtube: I'm Goin' Down - Springsteen - MetLife#3 Aug 30, 2016](https://www.youtube.com/watch?v=l-CpUBixLEs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_wGnI0Us_N0)
+[Watch on Youtube: Living Proof - Springsteen - MetLife#3 Aug 30, 2016](https://www.youtube.com/watch?v=_wGnI0Us_N0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OryAFEYMjIc)
+[Watch on Youtube: Bruce Springsteen Secret Garden 8/30/16 MetLife Stadium, NJ](https://www.youtube.com/watch?v=OryAFEYMjIc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ISH9xghWpqs)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Jungleland 8/30/16 MetLife Stadium East Rutherford NJ](https://www.youtube.com/watch?v=ISH9xghWpqs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qoAPf-6_x_8)
+[Watch on Youtube: Bruce Springsteen Glory Days 8/30/16 MetLife Stadium, NJ](https://www.youtube.com/watch?v=qoAPf-6_x_8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2016-08-30a.png.webp)
 
@@ -96,15 +96,15 @@ Later that night–so late that it's technically the following day, August 31–
 
 **2023:** "Sherry Darling" makes its tour premiere when Bruce and the E Street Band open their three-night stand at MetLife Stadium in East Rutherford.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Bz-h5JY74j0)
+[Watch on Youtube: Bruce Springsteen & E Street Band - Atlantic City-Soundcheck-MetLife Stadium-E Rutherford,NJ 8.30.23](https://www.youtube.com/watch?v=Bz-h5JY74j0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PYWjyw-gAxE)
+[Watch on Youtube: Bruce Springsteen and the E Street Band: First 30 minutes from East Rutherford, NJ 8/30/23](https://www.youtube.com/watch?v=PYWjyw-gAxE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3mOJNndwYRg)
+[Watch on Youtube: Bruce Springsteen & the E Street Band - Sherry Darling - Live East Rutherford NJ 8/30/23](https://www.youtube.com/watch?v=3mOJNndwYRg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FxPO8u0C39I)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Mary's Place - East Rutherford, NJ - 30/08/2023](https://www.youtube.com/watch?v=FxPO8u0C39I)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rIIxe2KojjA)
+[Watch on Youtube: Bruce Springsteen plays 1st of 3 concerts at MetLife Stadium](https://www.youtube.com/watch?v=rIIxe2KojjA)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/Asbury_Park_Press_2023_09_01_A1.jpg.webp)
 

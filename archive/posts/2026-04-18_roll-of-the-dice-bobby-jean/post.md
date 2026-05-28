@@ -22,7 +22,7 @@ Enter "Bobby Jean." Exit Steve Van Zandt.
 
 Bruce has never confirmed or even commented on whether "Bobby Jean" is about Steve, but he doesn't really need to. It's enough to know that Steve left around the time Bruce wrote and recorded "Bobby Jean," that Bruce and Steve were and are lifelong boon companions, and that Bruce's dedication to Steve in the liner notes of *Born in the U.S.A.* were written in the same selfless spirit of "Bobby Jean:" *buon viaggio, mio fratello.* That's all the insight we need into the song.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iGR_Rk74tOk)
+[Watch on Youtube: Bobby Jean](https://www.youtube.com/watch?v=iGR_Rk74tOk)
 
 > *Well I came by your house the other day, your mother said you went away*<br>
 > *She said there was nothing that I could have done, there was nothing nobody could say*<br>
@@ -63,19 +63,19 @@ And can we talk about that sax solo for a minute? In much the same way that Clar
 
 Luckily, there are a ton to choose from, starting with its very first live performance, from St. Paul in 1984 (which extends Clarence's solo too long–almost a false ending):
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oC7PTi0aJ-A)
+[Watch on Youtube: Bruce Springsteen - Bobby Jean 1984](https://www.youtube.com/watch?v=oC7PTi0aJ-A)
 
 …or this Tunnel of Love-era performance, with Clarence at the height of his powers:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oRaVXXVsqZk)
+[Watch on Youtube: Bobby Jean - Bruce Springsteen & The E Street Band (Live 1988)](https://www.youtube.com/watch?v=oRaVXXVsqZk)
 
 Bruce has performed the song acoustically as well, but it never packs quite the same emotional power.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=p9g20AKyaaA)
+[Watch on Youtube: Bruce Springsteen - Bobby Jean (Acoustic) Schottenstein Center, Columbus Ohio July 31, 2005](https://www.youtube.com/watch?v=p9g20AKyaaA)
 
 He also gave it the Seeger Sessions treatment on the *Bruce Springsteen with the Sessions Band PBS Exclusive* EP, but again it lacked the nostalgic sentiment of the original arrangement. Here's a clip of the new arrangement:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=119NFk_yofo)
+[Watch on Youtube: Bruce Springsteen with The SSB - Bobby Jean](https://www.youtube.com/watch?v=119NFk_yofo)
 
 "Bobby Jean" is simply one of those songs born perfect. Played in its original arrangement (but with less synth), it's a powerful encore statement of eternal friendship and community that will probably never leave Bruce's setlist for long. It's one of the few songs that has never missed a tour since its debut.
 

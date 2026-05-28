@@ -26,7 +26,7 @@ Jeff Stevens and the Bullets recorded "Darlington County" as their debut single 
 
 The single was successful enough to earn Stevens a live television performance on The Nashville Network in 1987.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cO6_vEfNGHg)
+[Watch on Youtube: Jeff Stevens and the Bullets - Darlington County](https://www.youtube.com/watch?v=cO6_vEfNGHg)
 
 That success led the way to their 1987 debut album, *Bolt Out of the Blue*, which featured their Springsteen cover, advertise prominently on the album cover.
 

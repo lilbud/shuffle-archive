@@ -24,7 +24,7 @@ Find me a stronger while still thematically cohesive opening five-pack anywhere 
 
 I don’t think you’ll find it, because these are songs that could only be written by an artist exhausted from decades of calling out social and economic inequality and exasperated by a perennial lack of accountability.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cEdX2IT41eE)
+[Watch on Youtube: Bruce Springsteen discusses "Wrecking Ball"](https://www.youtube.com/watch?v=cEdX2IT41eE)
 
 Although he’d hinted at it in songs like “Two Faces” and “Something in the Night,” *Wrecking Ball* also features Springsteen’s most intimate insights into his as-yet-unrevealed lifelong struggle with chronic depression.
 
@@ -53,7 +53,7 @@ The album finishes as strongly as it opens, with a run of four songs that rank n
 
 And it wasn’t just the album–the tour was a smash success, too. Featuring a stellar array of backing vocalists and the welcome return of a full horn section–including Jake Clemons ably stepping into his uncle’s oversized shoes in this first tour since The Big Man’s passing–the super-sized E Street Band sounded brighter, bolder, and more nimble than ever.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dsi9Gr70hLg)
+[Watch on Youtube: Bruce Springsteen Wrecking Ball Tour](https://www.youtube.com/watch?v=dsi9Gr70hLg)
 
 As the tour progressed over two years (morphing along the way into the High Hopes Tour), Bruce took fans on a career-spanning tour of reinvented classics, never-played deep cuts, and daringly inventive covers–all interwoven with *Wrecking Ball* material that sounded both as fresh and as timeless as anything in Bruce’s catalog.
 

@@ -10,9 +10,9 @@ post_id: 59371
 ---
 **1978:** Bruce debuts his cover of "Good Rockin' Tonight" to open Night Two at the Philadelphia Spectrum on the Darkness Tour. Gary Busey guest stars on "Rave On."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XRS3x3_mdys)
+[Watch on Youtube: Bruce Springsteen_ Good Rockin' Tonight/Badlands (YouTube Unpublished Remastered 1978 Live)](https://www.youtube.com/watch?v=XRS3x3_mdys)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oSNz8UoUD4s)
+[Watch on Youtube: Bruce Springsteen - HEARTBREAK HOTEL (live 1978)](https://www.youtube.com/watch?v=oSNz8UoUD4s)
 
 **1983:** Bruce guest stars with John Eddie at the Brighton Bar in Long Branch, New Jersey, for a mini-set of covers, including "Blue Suede Shoes" and "Ain't That Lovin' You Baby."<br>
 
@@ -20,35 +20,35 @@ post_id: 59371
 
 **1984:** The penultimate night of Bruce's ten-night Born in the U.S.A. Tour stand at East Rutherford's Brendan Byrne Arena brings the U.S. debut of "My Father's House" and the return of the Miami Horns for "Tenth Avenue Freeze-Out," "Detroit Medley" and "Twist and Shout." "Reason to Believe" is recorded and released on the *Live 1975-85* box set. This show is available as part of Bruce's official archive series.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-k2QcB6bV9o)
+[Watch on Youtube: Reason To Believe (Live at Meadowlands Arena, E. Rutherford, NJ - August 1984)](https://www.youtube.com/watch?v=-k2QcB6bV9o)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FevxkHIymKc)
+[Watch on Youtube: "Atlantic City" - Bruce Springsteen and the E Street Band 8/19/1984](https://www.youtube.com/watch?v=FevxkHIymKc)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1984-08-19.jpg.webp)
 
 **1985:** Bruce and the E Street Band play their second of a four-night stand at Giants Stadium (they will return later that summer). The show is notable for its performances of "Johnny 99," "Working on the Highway," "I'm on Fire," and "Born to Run," all of which are recorded and will be released on the *Live 1975-85* box set. Their "Born to Run" performance will become the audio for the official video for the song.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IxuThNgl3YA)
+[Watch on Youtube: Bruce Springsteen - Born to Run (Official Video)](https://www.youtube.com/watch?v=IxuThNgl3YA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0tc6rMoyKks)
+[Watch on Youtube: I'm On Fire (Live at Giants Stadium, E. Rutherford, NJ - August 1985)](https://www.youtube.com/watch?v=0tc6rMoyKks)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rJVx6Ti8sJw)
+[Watch on Youtube: Working On The Highway (Live at Giants Stadium, E. Rutherford, NJ - August 1985)](https://www.youtube.com/watch?v=rJVx6Ti8sJw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ESfYchsHGQI)
+[Watch on Youtube: Springsteen News Clip CBS NY 1985](https://www.youtube.com/watch?v=ESfYchsHGQI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6-PpxJyL-xI)
+[Watch on Youtube: Bruce Springsteen - Johnny 99 (live)](https://www.youtube.com/watch?v=6-PpxJyL-xI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Yl845kNMzmA)
+[Watch on Youtube: Bruce Springsteen - Giants Stadium, August 18-19, 1985 news coverage](https://www.youtube.com/watch?v=Yl845kNMzmA)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-08-19.png.webp)
 
 **2008:** The Magic Tour's victory lap includes a show at Hersheypark Stadium, where Bruce brings back two Tunnel of Love tour staples, both played for the first time in 20 years: "Boom Boom" and "Part Man, Part Monkey." The show closes with another tour premiere: "Gloria," featuring Joe and Johnny Grushecky (although somehow, the local paper misidentifies Joe for Tommy James).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zWfjakEMncA)
+[Watch on Youtube: Bruce Springsteen - Boom Boom](https://www.youtube.com/watch?v=zWfjakEMncA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EpiOChmvH7A)
+[Watch on Youtube: Bruce Springsteen Gloria](https://www.youtube.com/watch?v=EpiOChmvH7A)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GklDiFt151Q)
+[Watch on Youtube: Bruce Springsteen Part Man Part Monkey Hershey 19/08/2008](https://www.youtube.com/watch?v=GklDiFt151Q)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2008-08-19a.png.webp)
 
@@ -60,9 +60,9 @@ post_id: 59371
 
 **2009:** Bruce and the E Street Band kick off the final leg of the Working on a Dream Tour at the Comcast Theater in Hartford, where Bruce plays the first "Sha La La" in 34 years.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8ReVAWH1rlc)
+[Watch on Youtube: Springsteen Sha la la la 8/19/09](https://www.youtube.com/watch?v=8ReVAWH1rlc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DLNbE1fRHdU)
+[Watch on Youtube: Bruce Springsteen Hartford "Be True" 8/19/09](https://www.youtube.com/watch?v=DLNbE1fRHdU)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2009-08-19.png.webp)
 

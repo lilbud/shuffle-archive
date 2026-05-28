@@ -22,13 +22,13 @@ post_id: 57910
 
 [Watch Video Highlight](https://videopress.com/embed/2zQ6Z7Uq)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=q8rw9izpMaY)
+[Watch on Youtube: Bruce Springsteen Prove It All Night Live At Louisville 05 Aout 1978](https://www.youtube.com/watch?v=q8rw9izpMaY)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1978-08-05.png.webp)
 
 After the show, Bruce sits down for an interview with Australian journalist David White. Listen to the interview below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kHJ0u70kAf8)
+[Watch on Youtube: Bruce Springsteen - Rare Interview from 1978-08-05](https://www.youtube.com/watch?v=kHJ0u70kAf8)
 
 **1981:** Night Two at the Capital Center in Largo on the original River Tour.<br>
 
@@ -36,13 +36,13 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 **1984:** Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of "Jersey Girl" and is available as part of Bruce's official archive series. Watch the pro-shot opening of the show below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xQWHgkEPO6M)
+[Watch on Youtube: Bruce Springsteen Born In The USA , New Jersey 1984](https://www.youtube.com/watch?v=xQWHgkEPO6M)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vovP_ZecZQI)
+[Watch on Youtube: Glory Days (Live at the Brendan Byrne Arena, East Rutherford, NJ - 08/05/84 - Official Audio)](https://www.youtube.com/watch?v=vovP_ZecZQI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XE-IIrD8fq8)
+[Watch on Youtube: Dancing In the Dark (Live at the Brendan Byrne Arena, East Rutherford, NJ - 08/05/84 - Off...](https://www.youtube.com/watch?v=XE-IIrD8fq8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=whX8b364K64)
+[Watch on Youtube: Born to Run (Live at the Brendan Byrne Arena, East Rutherford, NJ - 08/05/84 - Official Audio)](https://www.youtube.com/watch?v=whX8b364K64)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1984-08-05a.png.webp)
 
@@ -52,13 +52,13 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 **1985:** Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of "Man at the Top," the first U.S. performance of "Seeds," and the first time Bruce closes a show with "Sherry Darling."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rm49wginqwo)
+[Watch on Youtube: Bruce Springsteen - Man At The Top](https://www.youtube.com/watch?v=rm49wginqwo)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAXbmVg0HYXLrk7xUqMNmCE)
 
 Because this show marks Bruce's return to the U.S. and the first time playing to stadiums only, the kick-off show draws a lot of media attention. Watch the news coverage (a lot of it!) below.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n54Xk96HALs)
+[Watch on Youtube: Bruce Springsteen at RFK Stadium news coverage - 1985-08-04](https://www.youtube.com/watch?v=n54Xk96HALs)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1985-08-05a.png.webp)
 

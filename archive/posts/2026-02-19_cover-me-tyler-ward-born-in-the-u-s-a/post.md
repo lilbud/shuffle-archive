@@ -20,7 +20,7 @@ On Independence Day, Tyler released a cover of "Born in the U.S.A.," and with as
 
 But holy moly, this is a *damn* good cover–vibrant yet poignant, simmering and seething with carefully contained emotion until it just explodes with anguish and protest.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=We1BzUZCeJQ)
+[Watch on Youtube: Born in the U.S.A. - Bruce Springsteen (Cover By Tyler Ward) - AUDIO ONLY](https://www.youtube.com/watch?v=We1BzUZCeJQ)
 
 Ordinarily, I'd say that Ward doesn't need promotion from a little blog like mine. But I suspect Springsteen fans aren't in his target demographic, because compared with his most popular videos, Ward's version of "Born in the U.S.A." is an absolute sleeper with only 8,000 or so views.
 
