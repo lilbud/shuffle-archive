@@ -70,7 +70,7 @@ post_id: 57560
 
 [Watch on Youtube: Bruce Springsteen - Jungleland  - Frankfurt 2009-07-03 CLOSEUP](https://www.youtube.com/watch?v=jjteQ_ItYTs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zA5jVor-QCBO_Hmp98LQS7m)
+[Watch on Youtube: Frankfurt 03/07/2009](https://www.youtube.com/playlist?list=PLJTyL9twk3zA5jVor-QCBO_Hmp98LQS7m)
 
 **2013:** Bruce brings the Wrecking Ball Tour to Geneva for a night, where a solo piano "The Promise" is an encore highlight.<br>
 

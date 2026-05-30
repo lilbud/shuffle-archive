@@ -1,6 +1,6 @@
 **1969:** Child plays a Labor Day gig at Freak Beach in East Long Branch, New Jersey.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1969-0901.jpg' alt='' title='' width='610' height='573' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1969-0901.jpg.webp)
 
 **1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of “It’s Time to Go Home,” covers of “Little Queenie,” “(Get Your Kicks On) Route 66” and “The Night They Drove Old Dixie Down,” the fun “Dance Dance Dance” and more.
 
@@ -8,7 +8,7 @@
 
 [Watch on Youtube: The Bruce Springsteen Band - The Night They Drove Old Dixie Down (Live) 1971](https://www.youtube.com/watch?v=SsY7TiOjVfM)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1971-09-01.jpg' alt='' title='' width='758' height='821' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1971-09-01.jpg.webp)
 
 **1973:** Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.
 
@@ -24,7 +24,7 @@
 
 **1984:** Bruce takes in the Jacksons’ Victory Tour at JFK Stadium in Philadelphia. Had he let the tour organizers know a bit earlier in the day, the audience might have been treated to a Springsteen guest appearance.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2021/09/1984-09-01.jpg' alt='' title='' width='758' height='1070' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1984-09-01.jpg.webp)
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce’s latest hit single “Cover Me” with the story behind Springsteen’s new and improved physique.
 
@@ -38,7 +38,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s latest hit s
 
 [Watch Video Highlight](https://videopress.com/embed/vQFwNj9F)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-01.jpg' alt='' title='' width='758' height='320' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1985-09-01.jpg.webp)
 
 **1988:** Bruce and the E Street Band hold their last rehearsal before the kick-off of the Amnesty International – Human Rights Now Tourat Wembley Stadium in London. Of particular note: the band starts their warm-up by covering Sting’s “King of Pain,” which Bruce has never performed live.
 
@@ -62,9 +62,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s latest hit s
 
 [Watch on Youtube: Bruce Springsteen in Boston Public Gardens](https://www.youtube.com/watch?v=CwmHLXh-Gow)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/2011-09-01a.jpg' alt='' title='' width='758' height='950' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2011-09-01a.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/2011-09-01b.jpg' alt='' title='' width='758' height='908' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2011-09-01b.jpg.webp)
 
 **2016:** Bruce sends a message at Washington DC’s Nationals Park: that last show in East Rutherford was no one-off. The River Tour is now the Autobiography Tour, as Bruce turns in another mostly-chronological set, once again opening with a string-laden “New York City Serenade” and featuring generous helpings of pre-*Born to Run* material. “Better Days” makes its tour debut representing the 1992-1993 years, and “Secret Garden” makes another appearance in the encores. In attendance tonight: Olympic gold medalist Katie Ledecky.
 
@@ -76,7 +76,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s latest hit s
 
 [Watch on Youtube: 6/7 Bruce Springsteen - Jungleland @ Nationals Park, Washington, DC 9/01/16](https://www.youtube.com/watch?v=RkelC62hx3U)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2021/09/2016-09-01.jpg' alt='' title='' width='685' height='1650' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2016-09-01.jpg.webp)
 
 **2021:** Bruce releases Episode 27 (“Going to the Chapel”) of *From My Home to Yours* on E Street Radio.
 

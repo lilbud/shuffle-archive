@@ -33,7 +33,7 @@ After all, Springsteen had long been outspoken on social causes and civic contro
 
 He'd headlined the Musicians United for Safe Energy (MUSE) concerts in 1979…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJ3gKh8Ty5pZZf4bVvd1BpxUBpf0g4sXl)
+[Watch on Youtube: The Legendary 1979 No Nukes Concerts Setlist](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZZf4bVvd1BpxUBpf0g4sXl)
 
 …the Amnesty International Human Rights Now! Tour in 1988…
 

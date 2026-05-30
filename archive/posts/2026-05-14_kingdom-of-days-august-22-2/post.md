@@ -24,7 +24,7 @@ post_id: 59400
 
 **1978:** At Night Two of a three-night Darkness Tour stand at Madison Square Garden, Bruce brings his sixteen-year-old kid sister Pam on stage during the final encore.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1D4drCKmEeRRz7nBqEGW0pV)
+[Watch on Youtube: Madison Square Garden (8/22/1978)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1D4drCKmEeRRz7nBqEGW0pV)
 
 **1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for "Travelin' Band" and "I'm Bad, I'm Nationwide."<br>
 
@@ -64,7 +64,7 @@ post_id: 59400
 
 [Watch on Youtube: Adam Raised A Cain Boston 22-8-99](https://www.youtube.com/watch?v=bMDI9tdyfbc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCEh2K-yqI1PAzBZnCXjDzJ)
+[Watch on Youtube: Boston 22/08/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zCEh2K-yqI1PAzBZnCXjDzJ)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1999-08-22.png.webp)
 

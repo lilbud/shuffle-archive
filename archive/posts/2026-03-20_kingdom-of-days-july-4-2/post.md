@@ -54,7 +54,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 [Watch on Youtube: Bruce Springsteen live in Gothenburg 2008](https://www.youtube.com/watch?v=VtTZ8V7czFg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBF2CkbbRvghJhqt8OJ1AhD)
+[Watch on Youtube: Gothenburg 04/07/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zBF2CkbbRvghJhqt8OJ1AhD)
 
 **2012:** Bruce plays an Independence Day-themed set at Bercy in Paris, featuring the tour premieres of "4th of July, Asbury Park (Sandy)" and "Independence Day," along with "Darlington County" and "American Land." This show is available as part of Bruce's official archive series.<br>
 

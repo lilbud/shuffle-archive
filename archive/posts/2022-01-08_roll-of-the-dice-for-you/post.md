@@ -135,7 +135,9 @@ In recent years, the arrangement seems to be a toss-up depending on Bruce's mood
 
 "For You" even turned up on the Seeger Sessions Tour, although I'm not convinced that was a wise decision. While most of Bruce's song's translated gracefully to the Sessions Band's sound and style, "For You" sounded unwieldy and awkward.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W0IjK-WT6lA)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=W0IjK-WT6lA) deleted, replaced***
+
+[Watch On Youtube: For You (Live at the Point Theatre, Dublin, Ireland - November 2006)](https://www.youtube.com/watch?v=mDA9O9s8DXY)
 
 That misstep aside, "For You" is one of Bruce's oldest fan-favorites, and one almost guaranteed to make an appearance or three on any given tour. That's not likely to change anytime soon; when Bruce finally gets back out on the road someday, we're likely to hear him play "For You" for us.
 

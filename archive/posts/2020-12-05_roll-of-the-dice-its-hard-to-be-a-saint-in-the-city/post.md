@@ -113,7 +113,9 @@ As the years passed, it evolved into a guitar duel between Bruce and Steve, whic
 
 For my money the song still works best acoustically. I haven't been lucky enough to be there when Bruce performed it that way, but I still hold out hope.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_q3BRl9M9Zg)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=_q3BRl9M9Zg) deleted, replaced with archive.org audio link***
+
+[https://archive.org/details/bs1997-05-21.aud.biccio59.hrubesh.flac16/bs1997-05-21d1t09.flac](https://archive.org/details/bs1997-05-21.aud.biccio59.hrubesh.flac16/bs1997-05-21d1t09.flac)
 
 **It's Hard to Be a Saint in the City**<br>
 **Recorded:** June-October 1972<br>

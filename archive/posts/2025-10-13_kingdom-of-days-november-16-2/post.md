@@ -70,7 +70,7 @@ post_id: 61368
 
 **2007:** Bruce hits the beach in Ocean Grove, New Jersey to record the official video for "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)." (Thanks to Stan Goldstein for the pointer to the "behind the scenes" video!)<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I7J8UZ_Z23s?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: Video Shoot Main](https://www.youtube.com/watch?v=I7J8UZ_Z23s)
 
 [Watch Video Highlight](https://videopress.com/embed/MjILokkm)
 

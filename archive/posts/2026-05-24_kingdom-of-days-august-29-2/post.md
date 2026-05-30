@@ -40,7 +40,7 @@
 
 **1995:** Bruce and Joe Grushecky sit down for an interview at Cheers in Long Branch to promote Joe’s upcoming Bruce-produced album, *American Babylon*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Joe Grushecky and Bruce Springsteen in conversation](https://www.youtube.com/playlist?list=PL39D3CD52696EBA54)
 
 **2002:** On a rainy night, Bruce and the E Street Band kick off the MTV Video Music Awards, performing “The Rising” outside Hayden Planetarium in New York City for the cameras followed by a private 75-minute concert in the rain.
 

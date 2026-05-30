@@ -10,7 +10,7 @@ Although it may seem like anathema to those of us who grew up on classics like *
 
 And then there is *Wrecking Ball*, by far the best and most summational E Street Band album. If you want to introduce Bruce’s music to someone who’s never heard it before, there’s no better and stronger document of his lifelong themes than his seventeenth studio album.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Wrecking Ball](https://www.youtube.com/playlist?list=OLAK5uy_m9imIkWn-NTaCynnLiLR9Xsrfnhth8sx0)
 
 Released in late 2011*, Wrecking Ball* represented a turning point in Bruce’s songwriting. After four decades of penning intimate profiles of characters struggling to survive–let alone rise above–the economic wreckage of the American dream, Springsteen closed that chapter with a mic-drop of an opening run unparalleled in its thematic cohesion:
 

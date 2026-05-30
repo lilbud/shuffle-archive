@@ -14,7 +14,9 @@ Bruce has played "I Saw Her Standing There" three times on stage (documented, at
 
 Everyone's seen Bruce's 2012 Hyde Park performance with Paul McCartney… it was the infamous show where the power got pulled immediately after when Bruce and Paul broke the local curfew by playing "Twist and Shout."
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kDAMRMQr48g)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=kDAMRMQr48g) deleted, replaced***
+
+[Watch On Youtube: Sir Paul McCartney and Bruce Springsteen Live At Hyde Park 2012](https://www.youtube.com/watch?v=sRPYhUUySz4)
 
 …and you may have caught the encore almost a year ago today, when Bruce and Steve turned up at Paul's 2017 Madison Square Garden gig to reprise it.
 

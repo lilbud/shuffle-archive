@@ -23,7 +23,9 @@ And a year later, The Rolling Stones recorded it for their debut album (and rele
 
 Berry's stamp was all over Bruce Springsteen's Born to Run Tour too, with "Carol" making no less than sixteen appearances during the summer and fall of 1975, including a raucous performance at The Roxy in Los Angeles on Berry's 49th birthday.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JTh5bktcvv4)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=JTh5bktcvv4) deleted, replaced***
+
+[Watch On Youtube: Carol (Live at The Roxy, West Hollywood, CA - 10/18/1975)](https://www.youtube.com/watch?v=kDnTDJjMi1s)
 
 According to Bruce, he'd been playing "Carol" on stage in bars long before that night, since right about the time The Stones released their version. No record of him covering it that early survives, but there are certainly many surviving recordings from post-*Born to Run* bar gigs–no less than twenty known performances between 1977 and 1989, with artists like former Steel Mill bandmate Robbin Thompson….
 

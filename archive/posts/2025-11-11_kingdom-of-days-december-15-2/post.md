@@ -54,9 +54,9 @@ post_id: 63007
 
 **2007:** Bruce and the E Street Band bring the Magic Tour to the Odyssey Arena in Belfast.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lgj-Bn7CHv0?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: Springsteen, Belfast 15 Dec 2007 - Born To Run](https://www.youtube.com/watch?v=Lgj-Bn7CHv0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XEc1X1toJxM?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: Springsteen, Belfast 15 Dec 2007 - Santa Claus](https://www.youtube.com/watch?v=XEc1X1toJxM)
 
 [Watch on Youtube: Bruce Springsteen Belfast 15/12/2007 Full Concert](https://www.youtube.com/watch?v=SglU5VBOpR8)
 

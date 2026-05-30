@@ -95,7 +95,9 @@ Over the years, Nils has become as inseparable from "Darlington County" as Wayne
 
 One of my favorite Bruce-and-Nils "Darlington County" performances, though, is the most obscure one: check out this acoustic performance from 1986. Danny Federici accompanies on accordion as well, but it's clear that the song belongs to Bruce and Nils.
 
-[Watch on Youtube: Bruce Springsteen - Darlington County (Mountain View, October 13, 1986) [with dubbed audio]](https://www.youtube.com/watch?v=w8AY-FaLwZY)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=w8AY-FaLwZY) deleted, replaced***
+
+[Watch on Youtube: Bruce Springsteen - DARLINGTON COUNTY 1986 - live](https://www.youtube.com/watch?v=bJjXGHKog04)
 
 "Darlington County" became an instant and perennial favorite for fans and artist alike. Other than the thematically misfitting Tunnel of Love, Ghost of Tom Joad Tours, and Seeger Sessions Tour, it's made appearances on every tour for the past 35 years.
 

@@ -22,7 +22,7 @@ And yet, *Tunnel of Love* is truly one of Bruce Springsteen's most thematically 
 
 *Tunnel of Love* is about choices.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
+[Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 
 It's about the choices we make in life. Have we made the right ones? What do we do when we realize we've made the wrong ones? What if we never know? What if we simply refuse to choose?
 

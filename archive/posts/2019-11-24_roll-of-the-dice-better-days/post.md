@@ -48,9 +48,9 @@ That coupling of rhyming metaphors–"eating caviar and dirt" and "a rich man in
 The runners up:
 
 > *Now a life of leisure and a pirate's treasure don't make much for tragedy*
-***It's a sad man my friend who's living in his own skin and can't stand the company***<br>
+> ***It's a sad man my friend who's living in his own skin and can't stand the company***<br>
 > *Every fool's got a reason to feeling sorry for himself and turning his heart to stone*
-***Tonight this fool's halfway to heaven and just a mile outta hell and I feel like I'm coming home***<br>
+> ***Tonight this fool's halfway to heaven and just a mile outta hell and I feel like I'm coming home***<br>
 
 Those lines in bold–that's just some killer imagery. But look past them, and realize what Bruce is saying. Decades before he shared his bouts with depression in his autobiography, here's Bruce confessing that he's not comfortable in his own skin, and that he realizes that he can't share that fact with anyone–because who would understand? Who would feel sorry for the rich, talented, admired, and fabulously successful rock star?
 
@@ -58,11 +58,13 @@ In Patti, Bruce found someone who understood him, who he could open up to, who v
 
 *Now* here's the album track for comparison. (Fun fact: that's Randy Jackson from American Idol on bass, and Soozie Tyrell contributes backing vocals, a full decade before she joined the E Street Band (in spirit if not in legal fact)).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DKVrVAA7E7I)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=DKVrVAA7E7I) deleted, replaced***
+
+[Watch On Youtube: Better Days](https://www.youtube.com/watch?v=SM3pM8HZ5fE)
 
 In concert, "Better Days" was a staple of the 1992 and 1993 tours, but it's only been seen fourteen times since. One of those times was acoustic–a lovely guitar-and-harmonica arrangement, and a duet with Elliot Murphy in Paris from 2005:
 
-[Watch Video Highlight](https://videopress.com/embed/OBaFOsgK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0)
+[Watch Video Highlight](https://videopress.com/embed/OBaFOsgK)
 
 **Better Days**<br>
 **Recorded:** 1991-1992<br>

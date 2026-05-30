@@ -3,15 +3,15 @@
 
 In 2026, Bruce Springsteen sang something.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GDaPdpwA4Iw)
+[Watch on Youtube: Bruce Springsteen - Streets Of Minneapolis (Official Lyric Video)](https://www.youtube.com/watch?v=GDaPdpwA4Iw)
 
 And when that song caught fire, he *did* something.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VU0T_bRbMRQ)
+[Watch on Youtube: Land Of Hope And Dreams American Tour](https://www.youtube.com/watch?v=VU0T_bRbMRQ)
 
 And when he held an audience in thrall for three hours each night, he *said* something.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G_R8lwvtrzc)
+[Watch on Youtube: Live From Minneapolis (Chiller Mix)](https://www.youtube.com/watch?v=G_R8lwvtrzc)
 
 And if you, like me, attended at least one of the twenty shows on the Land of Hope and Dreams American Tour, we sang something.
 
@@ -19,7 +19,7 @@ This book exists because I wanted to *say* something.
 
 If you bought this book, a donation equal to fifteen percent of the cover price has been made to the Northwest Immigrant Rights Project, because i wanted to *do* something.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Vs3_midSvqs)
+[Watch on Youtube: Get to Know Northwest Immigrant Rights Project](https://www.youtube.com/watch?v=Vs3_midSvqs)
 
 And if your name appears below, that means you did something too.
 
@@ -69,4 +69,4 @@ This book is for you.
 
 © May 23, 2026
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2016/01/Screenshot-2026-05-23-170539.jpg' alt='' title='' width='758' height='845' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2016/01/Screenshot-2026-05-23-170539.jpg.webp)

@@ -38,7 +38,7 @@ post_id: 57927
 
 **1984:** *Born in the U.S.A.* is certified platinum by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
+[Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
 **1985:** The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Municipal Stadium, where Bruce tour debuts "This Land is Your Land."<br>
 

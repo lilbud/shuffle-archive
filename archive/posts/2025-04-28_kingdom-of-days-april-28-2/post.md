@@ -84,7 +84,7 @@ post_id: 56632
 
 [Watch on Youtube: Bruce Springsteen - Fire - Live from Philadelphia - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=0kTnyP33fbM)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bSuR98jW88c?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: Bruce Springsteen - The Fever - Philadelphia, April 28th, 2009](https://www.youtube.com/watch?v=bSuR98jW88c)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/04/2009-04-28a.jpg.webp)
 

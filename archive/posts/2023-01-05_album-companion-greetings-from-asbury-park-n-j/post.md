@@ -18,7 +18,7 @@ Fifty years ago today, Columbia Records introduced their hot new up-and-coming s
 
 Or to 25,000 people at least. That's how many people (at most) bought *Greetings From Asbury Park, N.J.* in 1973. As debuts go, it wasn't the most auspicious.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
+[Watch on Youtube: Greetings from Asbury Park, N.J.](https://www.youtube.com/playlist?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
 
 For an artist who still insists on thematic cohesion for his albums, *Greetings* features a mélange of styles and genres that piqued the interest of critics and listeners but didn't quite win them over… yet.
 

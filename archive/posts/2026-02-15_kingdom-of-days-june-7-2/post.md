@@ -40,7 +40,7 @@ post_id: 57022
 
 [Watch on Youtube: bruce springsteen  madrid la peineta 1999 TVE, canal plus, a](https://www.youtube.com/watch?v=95dOlNZgJoQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAwq7zti4JD-pLTNdxeooQ8)
+[Watch on Youtube: Madrid 07/06/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zAwq7zti4JD-pLTNdxeooQ8)
 
 [Watch on Youtube: Light of day with a snippet of 'Wipe out' of The surfaris](https://www.youtube.com/watch?v=D5qUFPcnuJU)
 

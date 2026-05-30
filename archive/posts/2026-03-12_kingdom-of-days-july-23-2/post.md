@@ -160,7 +160,7 @@ Meanwhile, Mike Appel's and Marc Eliot's new tell-all *Down Thunder Road* garner
 
 [Watch on Youtube: Bruce Springsteen - 2013-07-23 Cardiff - Janey Don't You Lose Heart (solo acoustic)](https://www.youtube.com/watch?v=OqXBeezz6T4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zC_XLSn6E7NJDE7JblIZVEf)
+[Watch on Youtube: Cardiff 23/07/2013](https://www.youtube.com/playlist?list=PLJTyL9twk3zC_XLSn6E7NJDE7JblIZVEf)
 
 **2016:** Gothenburg finally gets the full River album at their third night on the reprised River Tour.<br>
 

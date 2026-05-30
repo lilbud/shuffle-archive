@@ -54,7 +54,7 @@ post_id: 57649
 
 **2012:** Bruce and the E Street Band headline at the Roskilde Festival in Denmark, and The Roots make a guest appearance on "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" and "Twist and Shout." Captain Kirk reminisces about it in the clip below.<br>
 
-[Watch on Youtube: Guitar Stories w/ Captain Kirk – Episode 1: Bruce Springsteen](https://www.youtube.com/watch?v=VgTHuDy5E7Y?start=206)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=VgTHuDy5E7Y) made private. Was titled "Guitar Stories w/ Captain Kirk – Episode 1: Bruce Springsteen". Not archived anywhere.***
 
 [Watch on Youtube: Bruce Springsteen & The E-Street Band - 2012-07-07 - Roskilde Festival - Wrecking Ball](https://www.youtube.com/watch?v=rgmM7bAbMkw)
 

@@ -40,7 +40,9 @@ To understand (let alone appreciate) "Johnny Bye Bye," we first have to understa
 
 One of the most recognizable and most covered songs in rock history, "Johnny B. Goode" was the story of a country boy with uncanny musical talent who (with his mother's encouragement) dreams of making it big.
 
-[Watch on Youtube: Johnny B. Goode](https://www.youtube.com/watch?v=Uf4rxCB4lys)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=Uf4rxCB4lys) deleted, replaced***
+
+[Watch On Youtube: Johnny B. Goode](https://www.youtube.com/watch?v=TReqmJ7iX2M)
 
 "Bye Bye Johnny" picks up the story. Still unflagging in her support for her son's dreams, Johnny's mother empties her life savings to send her boy out west to become not just a pop star, but a movie star too (not unlike a certain boy from Memphis).
 

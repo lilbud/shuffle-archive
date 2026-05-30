@@ -134,10 +134,13 @@ Here's an alternate mix of "The Promised Land," minus Bruce's guitar solo. More 
 
 …and my favorite recent performance, from 2013 at Camden Lock in North London:
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=K8UjZczqJ7I)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=K8UjZczqJ7I) deleted, replaced***
+
+[Watch On Youtube: Bruce Springsteen - The Promised Land - Live at the Camden Lock, London (06/09/2013)](https://www.youtube.com/watch?v=NGAYSs64vKQ)
 
 **The Promised Land**<br>
-**Recorded:** December 1977**Released:** *Darkness on the Edge of Town* (1978), *The Essential Bruce Springsteen* (2003)<br>
+**Recorded:** December 1977<br>
+**Released:** *Darkness on the Edge of Town* (1978), *The Essential Bruce Springsteen* (2003)<br>
 **First performed:** May 23, 1978 (Buffalo, NY)<br>
 **Last performed:** January 18, 2020 (Asbury Park, NJ)<br>
 

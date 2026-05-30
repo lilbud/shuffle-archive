@@ -1,16 +1,16 @@
 **1966:** The Castiles play the Surf ‘n’ See Club in Sea Bright, New Jersey.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1966-0917.jpg' alt='' title='' width='712' height='611' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1966-0917.jpg.webp)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1975:** *Born to Run* hits #1 on the charts; Bruce and the boys celebrate at their tour stop in Oklahoma City, their first-ever show in that state.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2019/09/1975-09-17.jpg' alt='' title='' width='494' height='301' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/09/1975-09-17.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1975-09-17.jpg' alt='' title='' width='758' height='499' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1975-09-17.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2024/09/The_Daily_Oklahoman_1975_09_17_20.jpg' alt='' title='' width='758' height='301' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/The_Daily_Oklahoman_1975_09_17_20.jpg.webp)
 
 **1978:** Bruce and the E Street Band close out their three-night Darkness Tour stand at the Palladium in New York City, tour premiering “Meeting Across the River.”
 
@@ -18,7 +18,7 @@
 
 <https://estreetshuffle.com/wp-content/uploads/2023/09/201-Meeting-Across-the-River.flac>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E-5_5ft-rR8)
+[Watch on Youtube: Bruce Springsteen - Prove It All Night - The Palladium, New York City, NY September 17, 1978 (SBD)](https://www.youtube.com/watch?v=E-5_5ft-rR8)
 
 **1984:** Bruce and the band play their fifth of six nights at the Philadelphia Spectrum. During the soundcheck, Bruce plays an original yet unreleased-to-this-day composition, “Beneath the Floodline.”
 
@@ -32,12 +32,12 @@
 
 [Watch on Youtube: Human Rights now! North America1988](https://www.youtube.com/watch?v=1uR3dMy0YlM)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-17.jpg' alt='' title='' width='758' height='617' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/1988-09-17.jpg.webp)
 
 **2003:** On an off-day between shows in Hartford, Bruce and Patti take a private tour of the Mark Twain House.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2021/09/2003-09-17.jpg' alt='' title='' width='758' height='1651' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/2003-09-17.jpg.webp)
 
 **2006:** Bruce, Southside, Patti, and Bobby Bandiera and his band play a benefit at The Stone Pony for the Ranney School (which Bruce’s kids attended).
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/2006-0917.jpg' alt='' title='' width='756' height='497' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/2006-0917.jpg.webp)

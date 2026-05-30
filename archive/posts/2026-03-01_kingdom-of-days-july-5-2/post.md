@@ -30,7 +30,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch Video Highlight](https://videopress.com/embed/AGs1wjb4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeXLxXErlUAz5L0HrcE8Ahab)
+[Watch on Youtube: July 5th, 1978 - Inglewood, CA](https://www.youtube.com/playlist?list=PLsxNBNx2akeXLxXErlUAz5L0HrcE8Ahab)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1978-07-05a.jpg.webp)
 

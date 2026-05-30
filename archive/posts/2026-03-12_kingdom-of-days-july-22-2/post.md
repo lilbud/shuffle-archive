@@ -20,7 +20,7 @@ post_id: 57795
 
 [https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBU71zy1szdg9oirFfoyzMi)
+[Watch on Youtube: New York 22/07/1975](https://www.youtube.com/playlist?list=PLJTyL9twk3zBU71zy1szdg9oirFfoyzMi)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/1975-07-22.jpg.webp)
 
@@ -36,7 +36,7 @@ post_id: 57795
 
 **1988:** Fresh off of his history-making East Berlin show, Bruce crosses the border to West Berlin and plays one show at Waldbühne.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1Ap7bmpnYqLbgqSwEfAqmhn)
+[Watch on Youtube: West Germany (7/22/1988)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1Ap7bmpnYqLbgqSwEfAqmhn)
 
 **1989:** Bruce joins Peter Hartung & The Remakes on stage at McLoone's Rum Runner in Sea Bright, New Jersey.<br>
 

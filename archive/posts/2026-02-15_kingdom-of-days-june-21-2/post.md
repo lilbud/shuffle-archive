@@ -62,7 +62,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Springsteen fans breakfast news clip - 'Boom Boom' clip - Villa Park 1988](https://www.youtube.com/watch?v=eJEVlVlXDPw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCgA3ja676YD_rnoFLX9Rh4)
+[Watch on Youtube: Birmingham 21/06/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zCgA3ja676YD_rnoFLX9Rh4)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1988-06-21.jpg.webp)
 

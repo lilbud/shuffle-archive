@@ -12,7 +12,7 @@ Also on or about this night, Bonnie Raitt plays across the street at the Gasligh
 
 **1976:** Bruce and Steve make a guest appearance for “I Don’t Want to Go Home” and “Having a Party” with Southside Johnny and the Asbury Jukes at The Stone Pony.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WXSDFvmvpVA)
+[Watch on Youtube: Southside Johnny, Bruce Springsteen, Steve Van Zandt - "We're Havin' a Party" 1976-09-04](https://www.youtube.com/watch?v=WXSDFvmvpVA)
 
 Bruce is keeping busy on stage, because he’s unable to record. Billboard publishes an article today explaining Bruce’s legal predicament.
 
@@ -22,7 +22,7 @@ Bruce is keeping busy on stage, because he’s unable to record. Billboard publi
 
 [Watch Video Highlight](https://videopress.com/embed/KXWUSmka)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Jp0sUB4Kc_Q)
+[Watch on Youtube: Funky broadway ( Dyke & the Blazers / Wilson Picket cover )](https://www.youtube.com/watch?v=Jp0sUB4Kc_Q)
 
 **1982:** Bruce makes a guest appearance with Beaver Brown at Big Man’s West in Red Bank.
 
@@ -56,9 +56,9 @@ Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” 
 
 **1988:** The Human Rights Now! Tour moves on to Paris for the first of two nights. Sting joins Bruce on “The River” for the first time; he will continue to do so for the rest of the tour.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0hSynMKLJ2Y)
+[Watch on Youtube: Bruce Springsteen w/ Sting The River (Live 1988 09 04)](https://www.youtube.com/watch?v=0hSynMKLJ2Y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=u4C05fBc4PQ)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Brilliant Disguise.(Live) Paris Sep 4 1988](https://www.youtube.com/watch?v=u4C05fBc4PQ)
 
 [Watch Video Highlight](https://videopress.com/embed/ERsioDJ7)
 
@@ -66,13 +66,13 @@ Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” 
 
 **1997:** Bruce performs with The Wallflowers on the MTV Video Music Awards, playing the band’s nominated “One Headlight” live on stage at Radio City Music Hall. Bruce is nominated himself, for Best Video from a Film, for “Secret Garden,” but he loses to “Men in Black.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xY3q69KWqb4)
+[Watch on Youtube: Wallflowers & Bruce Springsteen   One Headlight](https://www.youtube.com/watch?v=xY3q69KWqb4)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2021/09/1997-09-04.jpg' alt='' title='' width='758' height='1543' />
 
 **2007:** Patti Scialfa releases her third CD, *Play It As It Lays.* Bruce appears as a backing musician on the album but does not contribute vocals.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Play It As It Lays](https://www.youtube.com/playlist?list=OLAK5uy_kY9GEfsEZ40gndh2NhD6zfrFoD9zOkxnA)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/2007-09-04a.jpg' alt='' title='' width='389' height='1646' />
 
@@ -88,4 +88,4 @@ Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” 
 
 **2021:** *Springsteen on Broadway* closes its run at the St. James Theater in New York City.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=czQL-LMZBWQ)
+[Watch on Youtube: Final Performance of Springsteen On Broadway 2021 (Full Show) September 4, 2021](https://www.youtube.com/watch?v=czQL-LMZBWQ)

@@ -50,7 +50,7 @@ post_id: 57650
 
 **1985:** Barely a year after its release, *Born in the U.S.A.* is certified 7x multi-platinum by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
+[Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
 **1992:** The Recording Industry Association of America certifies *Live 1975-85* as 12x multi-platinum.<br>
 
@@ -58,7 +58,7 @@ post_id: 57650
 
 [Watch Video Highlight](https://videopress.com/embed/jglWnfIg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAhg1pDC7ytrIdtUd3PfUFf)
+[Watch on Youtube: Oslo 08/07/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zAhg1pDC7ytrIdtUd3PfUFf)
 
 **2009:** Bruce brings the Working on a Dream Tour to MCH Arena Herning when the tour makes a brief stop in Denmark.<br>
 

@@ -14,7 +14,7 @@ post_id: 59421
 
 **1975:** Finally! After fourteen months of recording and production, Bruce releases *Born to Run*, his third studio album, to radio stations. (It will reach record store shelves next week.) Reviews are mostly positive.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_nZs0gvllzGn7y9-5OuorN7W37HPrPGrn8)
+[Watch on Youtube: Born To Run](https://www.youtube.com/playlist?list=OLAK5uy_nZs0gvllzGn7y9-5OuorN7W37HPrPGrn8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/Philadelphia_Daily_News_1975_09_05_Page_32-scaled.jpg.webp)
 

@@ -68,11 +68,11 @@ post_id: 57929
 
 **1989:** *Born in the U.S.A.* is certified 11x multi-platinum by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
+[Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
 **1991:** *Greetings From Asbury Park, N.J.* is certified platinum by the Recording Industry Association of America, eighteen years after its initial release.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
+[Watch on Youtube: Greetings from Asbury Park, N.J.](https://www.youtube.com/playlist?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
 
 **1996:** Bruce stops by the Great Northern Bar and Grill in Whitefish, Montana–a state in which he has never played before–and joins the house band on stage for two songs. The Fanatics have been hired for the wedding of Toby Scott, Bruce's long-time sound man and archivist, so Bruce puts them through their paces.<br>
 
@@ -98,7 +98,7 @@ post_id: 57929
 
 **2005:** *Devils & Dust* is certified gold by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_ljJkvfatynKRT3tSQqRz4KwELqrCKqlE8)
+[Watch on Youtube: Devils & Dust](https://www.youtube.com/playlist?list=OLAK5uy_ljJkvfatynKRT3tSQqRz4KwELqrCKqlE8)
 
 **2017:** It's official: Bruce Inc. confirms months of rumors and announces *Springsteen on Broadway* will debut in the fall. Fans worldwide immediately convulse with anxiety over ticket prices (as much as $850) and the new Verified Fan system, which promises to dampen secondary market resales.<br>
 

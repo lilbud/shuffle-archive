@@ -18,7 +18,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/4EmmyA9O)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: September 9th, 1978 - South Bend, IN](https://www.youtube.com/playlist?list=PLsxNBNx2akeU-CBriNeY0gCYICDijG95i)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1978-09-09.jpg' alt='' title='' width='758' height='595' />
 
@@ -38,7 +38,7 @@
 
 **1992:** “Human Touch” is nominated for Best Male Video at the MTV Video Music Awards but loses to Eric Clapton’s “Tears in Heaven.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=85cNRQo1m3A)
+[Watch on Youtube: Bruce Springsteen - Human Touch (Official HD Video)](https://www.youtube.com/watch?v=85cNRQo1m3A)
 
 **1999:** Bruce and the reunited E Street Band play their second of two shows at The Palace of Auburn Hills, opening with a Motown special snippet of “Dancing in the Street” before launching into “Don’t Look Back.”
 
@@ -52,19 +52,19 @@
 
 **2016:** Night Two in Philadelphia on the “Autobiography Tour” can’t quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from *Greetings from Asbury Park, N.J.*, and “From Small Things (Big Things One Day Come)” and “Lucky Town” make rare appearances. The amazing two-night stand is capped off by a show-closing “Jersey Girl” complete with fireworks. But for my money, the highlight of the show is one of the best-ever versions of “Racing in the Street.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cl3fbXl_Dxc)
+[Watch on Youtube: Bruce Springsteen - "It's Hard to Be a Saint in the City" Philadelphia 2016-09-09](https://www.youtube.com/watch?v=cl3fbXl_Dxc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=A98iOTcGFGA)
+[Watch on Youtube: Out in the Street - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=A98iOTcGFGA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=76_gIYl2woo)
+[Watch on Youtube: Bruce Springsteen & Matthew Aucoin - No Surrender (Multi Cam) - Philadelphia (9/9/16)](https://www.youtube.com/watch?v=76_gIYl2woo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SNKOQzAgFac)
+[Watch on Youtube: From Small Things / I'm Goin' Down  - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=SNKOQzAgFac)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yPk_tcXVVSs)
+[Watch on Youtube: Bruce Springsteen Lucky Town Philadelphia September 9, 2016 Citizens Bank Park](https://www.youtube.com/watch?v=yPk_tcXVVSs)
 
 [Watch on Youtube: Racing In The Street - Philadelphia (Best Version) - 9/9/16](https://www.youtube.com/watch?v=DQc_HLYh_NI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qmqYhkmaCIE)
+[Watch on Youtube: Streets of Philadelphia - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=qmqYhkmaCIE)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Backstreets - 09/09/16 - Citizens Bank Park](https://www.youtube.com/watch?v=YCuYw5OTxgg)
 

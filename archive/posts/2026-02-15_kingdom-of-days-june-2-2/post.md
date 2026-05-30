@@ -24,7 +24,7 @@ Listen to Bruce recall his memory of this show 36 years later:
 
 **1978:** A year and a day after recording sessions begin, Bruce releases his fourth studio album, *Darkness on the Edge of Town*. (Thanks to friend of the blog Andy Swanson for the *Billboard* scan!)<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
+[Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/playlist?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/1978-06-02a.jpg.webp)
 

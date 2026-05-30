@@ -28,7 +28,9 @@ That's probably because it was made *by* him. Steve wrote, arranged, and produce
 
 As for Southside, he was back in action pretty quickly. Here he is back where he belongs two months after that All-Star Revue rescue mission, leading his band through "She Got Me Where She Wants Me" in Asbury Park.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_cZJDioMsOg)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=_cZJDioMsOg) deleted, replaced***
+
+[Watch On Youtube: Southside Johnny & the Asbury Jukes - She Got Me Where She Wants Me (Live at Paramount Theatre...](https://www.youtube.com/watch?v=FB74BsUOnFE)
 
 **Bonus:** Here's another chance to hear Steve sing "She Got Me Where She Wants Me," from a rehearsal session at the Stone Pony sometime that same year.<br>
 

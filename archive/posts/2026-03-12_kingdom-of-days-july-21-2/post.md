@@ -38,7 +38,7 @@ post_id: 57794
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Drive All Night, Torino 21st July 2009](https://www.youtube.com/watch?v=PpuUmRgn8-Q)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB01lb7dEjsgb_Lj1bmvwyA)
+[Watch on Youtube: Turin 21/07/2009](https://www.youtube.com/playlist?list=PLJTyL9twk3zB01lb7dEjsgb_Lj1bmvwyA)
 
 **2012:** The Wrecking Ball Tour starts a Scandinavian swing with a show at Valle Hovin Stadion in Oslo. Bruce opens with an acoustic "The Promised Land," tour premieres "Ain't Good Enough for You" and "Streets of Fire," and ends the show with a surprise bonus encore of "Night."<br>
 

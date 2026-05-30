@@ -66,7 +66,9 @@ Musically, "All That Heaven Will Allow" is a solo number. With the exception of 
 
 "All That Heaven Will Allow" made its next proper tour appearance in 2005, showing up frequently in the set list throughout the summer and fall–this time a true solo performance on the electric piano.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sEzQ1BR7-Io)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=sEzQ1BR7-Io) deleted, replaced with archive.org link***
+
+[https://archive.org/details/bs2005-07-20.aud.bakerstuff.flac16/1-08.+All+That+Heaven+Will+Allow.flac](https://archive.org/details/bs2005-07-20.aud.bakerstuff.flac16/1-08.+All+That+Heaven+Will+Allow.flac)
 
 "All That Heaven Will Allow" showed up a few more times since then, the most recent of which was a 2013 pre-show performance in Oslo…
 

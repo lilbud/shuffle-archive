@@ -22,7 +22,7 @@ It may indeed be the most powerful song of the 20th century, but it's origins tr
 
 Beyond that, like many popular folk songs (although it seems somehow diminishing to call it that), the history and evolution of "We Shall Overcome" is hard to trace. But its popularity is widely attributed to Pete Seeger, who adopted and shaped it in the 1950s, and to Guy Carawan, who shares a copyright with Seeger and who introduced it to the Civil Rights movement and the SNCC in 1960.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M_Ld8JGv56E)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=M_Ld8JGv56E) deleted, replaced***
 
 Here's a great interview with Pete Seeger a few years before his death, where he discusses the song's origins:
 
@@ -60,7 +60,9 @@ But there were two other performances that stand out for me, both long after the
 
 The other was remarkable for both the location–Cape Town, South Africa, where the song carried special resonance–and the date: January 28, 2014, mere hours after the passing of Pete Seeger. [I was lucky enough to be present for it](../2018-01-28_where-the-band-was-cape-town-january-28-2014/post.md), and it remains to this day one of the most powerful concert moments I've ever experienced.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=36p9_u3enos)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=36p9_u3enos) deleted, replaced with different video***
+
+[Watch on Youtube: Bruce Springsteen - We Shall Overcome - Cape Town - Bellville - 2014-01-26](https://www.youtube.com/watch?v=PE2lhLHeDBw)
 
 **We Shall Overcome**<br>
 **Recorded:** November 2, 1997<br>

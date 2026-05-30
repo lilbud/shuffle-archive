@@ -18,17 +18,17 @@
 
 **1978:** Another stellar show from the Darkness Tour’s homecoming stand at the Capitol Theater in Passaic, available as part of Bruce’s official archive series. Not only do we have yet another fully pro-shot video of this show, we also have a recording of the soundcheck, which has some fascinating covers and the earliest known version of a prototypical “The Ties That Bind.” The show itself features the tour premiere of “Santa Claus is Comin’ to Town” and a continually evolving “Point Blank,” played here with its instrumental introduction for the first time.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Sj6CyZFOwkw)
+[Watch on Youtube: Bruce Springsteen - Go Away (Come Close) - Capitol Theatre, Passaic, NJ (September 20, 1978)](https://www.youtube.com/watch?v=Sj6CyZFOwkw)
 
 [Watch Video Highlight](https://videopress.com/embed/PTgkEwYj)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l7EAGg8zdrE)
+[Watch on Youtube: Bruce Springsteen - Jungleland - Passaic - 9/20/78](https://www.youtube.com/watch?v=l7EAGg8zdrE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uzgpF_ANDSU)
+[Watch on Youtube: Bruce Springsteen - Wedding Bells (Soundcheck) (1978-09-20)](https://www.youtube.com/watch?v=uzgpF_ANDSU)
 
 **1982:** Bruce releases his sixth studio album, *Nebraska.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Nebraska](https://www.youtube.com/playlist?list=OLAK5uy_mP8T22kYL-tavvs0Mrd9UeFWZK2kUH1_Y)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1982-09-20.jpg' alt='' title='' width='758' height='500' />
 
@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/cbcMa6fr)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qZAGW7nUGXM)
+[Watch on Youtube: 1/3 Bruce Springsteen Live Philadelphia 20/09/1999](https://www.youtube.com/watch?v=qZAGW7nUGXM)
 
  
 
@@ -56,11 +56,11 @@
 
 **2002:** Bruce films the official video for “Lonesome Day” in Asbury Park with director Mark Pellington, performing the lead vocals live on every take–*for sixteen hours*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SAMkFVJ-ews)
+[Watch on Youtube: Bruce Springsteen - Lonesome Day](https://www.youtube.com/watch?v=SAMkFVJ-ews)
 
 **2003:** Buffalo gets one of the best and certainly the most surprising shows from the Rising Tour stadium leg at the Darien Lake Performing Arts Center. Bruce opens with the tour premiere of “Tunnel of Love” and debuts the as-yet-unreleased outtake, “County Fair.” “Mansion on the Hill” is also tour premiered, and “Leap of Faith” makes a return appearance. By now, it’s apparent to all that Bruce is deliberately unearthing material he hasn’t touched in years (if at all), and when his upcoming compilation album, *The Essential Bruce Springsteen* track list is announced, it becomes clear why.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I21wWMXEvjw)
+[Watch on Youtube: Focus On: Federici (3-05) County Fair -- Darien Lake PAC - Buffalo, NY (9-20-2003)](https://www.youtube.com/watch?v=I21wWMXEvjw)
 
 **2006:** Bruce rehearses with the Sessions Band for their upcoming European tour.
 
@@ -68,11 +68,11 @@
 
 **2009:** Bruce premieres a new concept, playing a full album start-to-finish in select shows. Kicking off at the United Center in Chicago, Bruce and the band play *Born to Run* in full, with Richard Davis and Curt Ramm as guest musicians. The encores are pretty great too, featuring tour premieres of “Da Doo Ron Ron” and “Rockin’ Robin,” and a rare “I’m Goin’ Down.” In the soundcheck, Bruce works on a new song to be debuted later in the month at Giants Stadium.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0Vk6rblSo_4)
+[Watch on Youtube: Bruce Springsteen Wrecking Ball 2009-09-20 Chicago Soundcheck](https://www.youtube.com/watch?v=0Vk6rblSo_4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qlIbQ_X-MK8)
+[Watch on Youtube: 092009 Bruce Springsteen @ Chicago United Center: Da Doo Run Run](https://www.youtube.com/watch?v=qlIbQ_X-MK8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YkFBFFEUPQo)
+[Watch on Youtube: Rockin' Robin - Bruce Springsteen United Center, Chicago - 9/20/09](https://www.youtube.com/watch?v=YkFBFFEUPQo)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2021/09/2009-09-20a.jpg' alt='' title='' width='651' height='1890' />
 

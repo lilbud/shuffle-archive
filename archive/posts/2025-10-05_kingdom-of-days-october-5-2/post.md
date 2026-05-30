@@ -60,7 +60,7 @@ post_id: 61048
 
 **2006:** One of the best shows from the Seeger Sessions Tour, at the ancient Arena di Verona: Bruce tour premieres "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," along with Patti's "[Valerie](../2020-12-13_matr-patti-scialfa-and-bruce-springsteen-valerie/post.md)" (played in honor of her final appearance on the tour until its final stand) and Bruce's first-ever performance of "[Samson and Delilah.](../2020-09-25_cover-me-samson-and-delilah/post.md)" For more highlights from this show, see my [*Where the Band Was* report](../2018-10-05_where-the-band-was-verona-october-5-2006/post.md).<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y2JOWKSyUA4?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&start=2342&wmode=transparent)
+[Watch on Youtube: Bruce Springsteen & The Seeger Sessions Band  - Italy 2006 -  excerpts from shows in Verona & Udine](https://www.youtube.com/watch?v=y2JOWKSyUA4)
 
 [Watch on Youtube: Bruce Springsteen - Old Dan Tucker](https://www.youtube.com/watch?v=S-GHbDFrwlU)
 

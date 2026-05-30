@@ -46,7 +46,7 @@ post_id: 59420
 
 [Watch Video Highlight](https://videopress.com/embed/ETN3jmzo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBZFKBVhmGttZWHy11qCyk9)
+[Watch on Youtube: Inglewood 24/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zBZFKBVhmGttZWHy11qCyk9)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2002-08-24a.png.webp)
 

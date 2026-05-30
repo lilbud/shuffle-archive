@@ -1,6 +1,6 @@
 “Rocky Ground” may be wrapped in gospel trappings, but its themes are as Springsteenian as anything on *Darkness on the Edge of Town*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qPmIIXXv0d8)
+[Watch on Youtube: Bruce Springsteen - Rocky Ground (Video)](https://www.youtube.com/watch?v=qPmIIXXv0d8)
 
 A fusion of hymn and hip-hop, with a military cadence and mournful melody, “Rocky Ground” was received by fans and critics in 2012 somewhere on the spectrum of novel experiment to bold departure. Today, it stands as one of Bruce’s best twenty-first century compositions, increasingly resonant with each passing year.
 
@@ -10,11 +10,11 @@ While *Wrecking Ball* is certainly an album of protest and resistance, “Rocky 
 
 That’s not evident at the start, however. The first words we hear over an ominous opening tone are “I’m a soldier!”, reportedly sampled from a 1942 recording of “I’m a Soldier in the Army of the Lord.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L8G4dhY7PaM)
+[Watch on Youtube: I'm A Soldier In The Army Of The Lord](https://www.youtube.com/watch?v=L8G4dhY7PaM)
 
 (Your ears will have to be better than mine to pick the sample out from that dated and distant recording, but you can hear the line more clearly in this better-known version by The Soul Stirrers.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VmizCScGLmY)
+[Watch on Youtube: The Soul Stirrers - "I'm a Soldier"](https://www.youtube.com/watch?v=VmizCScGLmY)
 
 The next voice we hear still isn’t Springsteen’s, but rather his frequent collaborator Michelle Moore, who provides backing vocals on six of Bruce’s studio albums and at more than 200 of his concerts.
 
@@ -24,14 +24,14 @@ Accompanied by a martial drumbeat supplied by either Bruce or Ron Aniello (both 
 
 But then Bruce enters with gentle, almost plaintive vocals against a tender guitar line, and we instantly recognize that this is a song of neither resentment or despair, but of acceptance and persistence.
 
-*Rise up shepherd, rise up*  
-*Your flock has roamed far from the hills*  
-*The stars have faded, the sky is still*  
+> *Rise up shepherd, rise up*<br>
+> *Your flock has roamed far from the hills*<br>
+> *The stars have faded, the sky is still*<br>
 > *The angels are shouting “Glory hallelujah”*
 
-*Forty days and nights of rain have washed this land*  
-*Jesus said the money changers in this temple will not stand*  
-*Find your flock, get them to higher ground*  
+> *Forty days and nights of rain have washed this land*<br>
+> *Jesus said the money changers in this temple will not stand*<br>
+> *Find your flock, get them to higher ground*<br>
 > *The floodwater’s rising, we’re Canaan bound*
 
 The first verse begins with what sounds like a call to arms, one that Bruce has issued before: *Rise up!*
@@ -40,29 +40,29 @@ Here, however, it’s a warning rather than a command. Throughout the song, the 
 
 Bruce’s vocals warn the shepherd: *Get up. Do you know where you children are? Make sure you do, and that they’re on the right path, because judgment is coming. It’s a cold, hard world out there, and it cannot stand.*
 
-*Tend to your flock or they will stray*  
-*We’ll be called for our service come judgment day*  
-*Before we cross that river wide*  
+> *Tend to your flock or they will stray*<br>
+> *We’ll be called for our service come judgment day*<br>
+> *Before we cross that river wide*<br>
 > *The blood on our hands will come back on us twice*
 
 > *They need you*, Bruce tells the shepherd. *Your kids need you, and they need your guidance. The good they do will be rewarded; the bad will be revisited.*
 
-*Rise up shepherd, rise up*  
-*Your flock has roamed far from the hills*  
-*Stars have faded, the sky is still*  
+> *Rise up shepherd, rise up*<br>
+> *Your flock has roamed far from the hills*<br>
+> *Stars have faded, the sky is still*<br>
 > *Sun’s in the heavens and a new day’s rising*
 
 *A new day is rising*. Those sound like words of hope, but they’re not.
 
 Until this point, “Rocky Ground” urges faith and action, but in Moore’s spoken-word bridge (some call it a rap, but I’m not sure it fits the definition), faith falls away along with biblical metaphor. Elegance gives way to prosaicness, and a street-level cadence grounds us in harsh reality.
 
-*You use your muscle and your mind and you pray your best*  
-*That your best is good enough, the Lord will do the rest*  
-*You raise your children and you teach them to walk straight and sure*  
-*You pray that hard times, hard times come no more*  
-*You try to sleep, you toss and turn, the bottom’s dropping out*  
-*Where you once had faith now there’s only doubt*  
-*You pray for guidance, only silence now meets your prayers*  
+> *You use your muscle and your mind and you pray your best*<br>
+> *That your best is good enough, the Lord will do the rest*<br>
+> *You raise your children and you teach them to walk straight and sure*<br>
+> *You pray that hard times, hard times come no more*<br>
+> *You try to sleep, you toss and turn, the bottom’s dropping out*<br>
+> *Where you once had faith now there’s only doubt*<br>
+> *You pray for guidance, only silence now meets your prayers*<br>
 > *The morning breaks, you awake but no one’s there*
 
 *A new day is rising*. There’s no hope here in those words; they’re nothing but an alarm clock.
@@ -79,7 +79,7 @@ In the end, “Rocky Ground” is the dance between faith and reality. We need t
 
 Bruce clearly has a fondness for it, though, because he not only featured it regularly throughout the Wrecking Ball Tour, he often led off the encore set with it, wisely sharing the spotlight with Moore in a simpler, sparer, brass-centric arrangement.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iLuJ65NLMT4)
+[Watch on Youtube: Rocky Ground - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=iLuJ65NLMT4)
 
 Bruce also issued “Rocky Ground” as the second single from *Wrecking Ball*, in digital audio, video, and vinyl forms, even though other tracks had far more obvious commercial potential. (He did have it remixed and shortened, though–the resulting “modern mix” is relatively unknown even to fans.)
 
@@ -89,10 +89,10 @@ Bruce also issued “Rocky Ground” as the second single from *Wrecking Ball*, 
 
 Even so, “Rocky Ground” vanished after the Wrecking Ball Tour (save for a single encore at the very beginning of the High Hopes Tour), too pensive for the celebratory tour that followed. But in the years since the last full E Street Band outing, the world has traveled over some seriously rocky ground, and Bruce’s song seems more timely than ever.
 
-**Rocky Ground  **
-**Recorded:** 2011  
-**Released:** *Wrecking Ball* (2012)  
-**First performed:** March 9, 2012 (New York City, NY)  
+**Rocky Ground**
+**Recorded:** 2011
+**Released:** *Wrecking Ball* (2012)
+**First performed:** March 9, 2012 (New York City, NY)
 **Last performed:** January 29, 2014 (Cape Town, South Africa)
 
 © March 20, 2023

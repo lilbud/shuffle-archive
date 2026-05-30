@@ -80,7 +80,7 @@ post_id: 57180
 
 [Watch on Youtube: Bruce Springsteen - None but the brave live in Milano San Siro 25.06.2008 SUB ita & eng](https://www.youtube.com/watch?v=jmnoREEhFD8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDbjokWJS5Hcw7_zeuswtkM)
+[Watch on Youtube: Milan 25/06/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zDbjokWJS5Hcw7_zeuswtkM)
 
 **2016:** At Night One in Gothenburg on the River Tour sequel, Bruce opens with the tour premiere of "The Promise," played solo on piano. "Tunnel of Love" and "Shackled and Drawn" also make their first appearances of the tour.<br>
 

@@ -102,7 +102,9 @@ Strangely enough, sandwiched into an encore that included "Born to Run," "[Fortu
 
 "Two Faces" returned months later when the Tunnel of Love Express Tour kicked off, and it remained a nightly staple in the set list throughout most of the tour.
 
-[Watch on Youtube: Bruce Springsteen - Two Faces (Live 1988-04-01)](https://www.youtube.com/watch?v=nnYnkeoq0BY)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=nnYnkeoq0BY) deleted, replaced with archive.org link***
+
+[https://archive.org/details/bs1988-04-01.aud.tapemanjoe-21.flac16/bs1988-04-01d1t04.flac](https://archive.org/details/bs1988-04-01.aud.tapemanjoe-21.flac16/bs1988-04-01d1t04.flac)
 
 Following the Tunnel of Love Tour, "Two Faces" disappeared for almost two decades, returning for a handful of appearances during Bruce's solo acoustic tour in support of *Devils & Dust.*
 

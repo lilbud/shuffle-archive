@@ -51,7 +51,7 @@ def insert_post() -> None:
                 "%Y-%m-%dT%H:%M:%S",
             )
 
-            print(post_id, published)
+            # print(post_id, published)
             title = ftfy.fix_text(meta["title"]["rendered"])
             excerpt = html_to_markdown.convert(meta["excerpt"]["rendered"])
 
@@ -61,11 +61,14 @@ def insert_post() -> None:
             if media == 0:
                 media = None
             else:
-                cur.execute(
-                    """insert into featured_media (id) values (%s) on conflict (id) do nothing""",
-                    (media,),
-                )
-                conn.commit()
+                try:
+                    cur.execute(
+                        """insert into featured_media (id) values (%s) on conflict (id) do nothing""",
+                        (media,),
+                    )
+                    conn.commit()
+                except psycopg.errors.InFailedSqlTransaction:
+                    media = None
 
             cur.execute(
                 """INSERT INTO posts (post_id, published, last_modified, title, content, excerpt, featured_media, author_id, slug, url)
@@ -93,22 +96,39 @@ def insert_post() -> None:
             ).fetchone()
 
             for tag in meta["tags"]:
-                cur.execute(
-                    """insert into post_tags (tag_id, post_id) values (%(tag)s, %(post)s) on conflict (tag_id, post_id) do nothing""",
-                    {"tag": tag, "post": db_post_id["id"]},
-                )
+                try:
+                    cur.execute(
+                        """insert into post_tags (tag_id, post_id) values (%(tag)s, %(post)s) on conflict (tag_id, post_id) do nothing""",
+                        {"tag": tag, "post": db_post_id["id"]},
+                    )
+                except (
+                    psycopg.errors.ForeignKeyViolation,
+                    psycopg.errors.InFailedSqlTransaction,
+                ) as e:
+                    print(f"CATEGORY INSERT FAILED: {e}")
+                    continue
 
             for category in meta["categories"]:
-                cur.execute(
-                    """insert into post_categories (category_id, post_id) values (%(category)s, %(post)s) on conflict (category_id, post_id) do nothing""",
-                    {"category": category, "post": db_post_id["id"]},
-                )
+                try:
+                    cur.execute(
+                        """insert into post_categories (category_id, post_id) values (%(category)s, %(post)s) on conflict (category_id, post_id) do nothing""",
+                        {"category": category, "post": db_post_id["id"]},
+                    )
+                except (
+                    psycopg.errors.ForeignKeyViolation,
+                    psycopg.errors.InFailedSqlTransaction,
+                ) as e:
+                    print(f"TAG INSERT FAILED: {e}")
+                    continue
 
             for rp in meta["jetpack-related-posts"]:
-                rel_id = cur.execute(
-                    """select id from posts where post_id = %(id)s order by published asc limit 1""",
-                    {"id": rp["id"]},
-                ).fetchone()
+                try:
+                    rel_id = cur.execute(
+                        """select id from posts where post_id = %(id)s order by published asc limit 1""",
+                        {"id": rp["id"]},
+                    ).fetchone()
+                except Exception:
+                    continue
 
                 try:
                     cur.execute(

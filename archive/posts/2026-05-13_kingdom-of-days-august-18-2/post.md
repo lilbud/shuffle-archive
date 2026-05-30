@@ -64,7 +64,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 [Watch on Youtube: Viva Las Vegas Bruce Springsteen 8/18/2002](https://www.youtube.com/watch?v=CTFBqCPufKI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCBQ5Ubc2UseuhTWCpTHdra)
+[Watch on Youtube: Las Vegas 18/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zCBQ5Ubc2UseuhTWCpTHdra)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/08/The_Province_2002_08_21_27.jpg.webp)
 
@@ -86,7 +86,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - My Love Will Not Let You Down - Gillette Boston 08-18-2012](https://www.youtube.com/watch?v=2n57Eaa7-JA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCcvUAzO5HdDsCOKZGQrZ2G)
+[Watch on Youtube: Foxborough 18/08/2012](https://www.youtube.com/playlist?list=PLJTyL9twk3zCcvUAzO5HdDsCOKZGQrZ2G)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

@@ -70,7 +70,7 @@ post_id: 56667
 
 [Watch on Youtube: Bruce Springsteen "Pay Me My Money Down" Tampa 5-1-14](https://www.youtube.com/watch?v=yhcpTVZqjYI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=d4VUc7ExwWY?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: Bruce Springsteen " Tenth Avenue Freezeout" Mic stand collapse  Tampa, Florida  5-1-14](https://www.youtube.com/watch?v=d4VUc7ExwWY)
 
 [Watch on Youtube: Thunder Road - Springsteen - Tampa, FL - May 1, 2014](https://www.youtube.com/watch?v=cGaKs2WsKs8)
 

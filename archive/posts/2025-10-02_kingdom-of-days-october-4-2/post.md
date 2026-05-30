@@ -84,7 +84,7 @@ That night, Bruce plays the Fleet Center, dedicating "[My Hometown](../1983-01-1
 
 [Watch on Youtube: Bruce Springsteen with The Seeger Sessions Band - The River](https://www.youtube.com/watch?v=rvxYiudnnKk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y2JOWKSyUA4?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&start=2342&wmode=transparent)
+[Watch on Youtube: Bruce Springsteen & The Seeger Sessions Band  - Italy 2006 -  excerpts from shows in Verona & Udine](https://www.youtube.com/watch?v=y2JOWKSyUA4)
 
 [Watch on Youtube: Udine 04/10/2006](https://www.youtube.com/playlist?list=PLJTyL9twk3zDsTpbAzdJWunj3dnF44V9L)
 

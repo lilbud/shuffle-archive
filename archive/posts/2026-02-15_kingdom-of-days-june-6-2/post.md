@@ -48,7 +48,7 @@ post_id: 57021
 
 [Watch Video Highlight](https://videopress.com/embed/RCN0XBJE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDWMIwV0bAuTa5JwEY-txNz)
+[Watch on Youtube: Rome 06/06/2005](https://www.youtube.com/playlist?list=PLJTyL9twk3zDWMIwV0bAuTa5JwEY-txNz)
 
 **2006:** At the Sleep Train Pavilion in Concord, California, Joan Baez joins Bruce and the Sessions Band for "Pay Me My Money Down."<br>
 

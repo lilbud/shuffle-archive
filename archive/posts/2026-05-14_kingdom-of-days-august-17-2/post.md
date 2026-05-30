@@ -16,7 +16,7 @@ post_id: 59369
 
 **1981:** Bruce and the boys play their second night at Red Rocks Amphitheater on the River Tour, but on this night the weather cooperates.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL)
+[Watch on Youtube: August 17th, 1981 - Morrison, CO](https://www.youtube.com/playlist?list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL)
 
 **1984:** The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of "I'm Goin' Down" and the tour premiere of "Follow That Dream."<br>
 

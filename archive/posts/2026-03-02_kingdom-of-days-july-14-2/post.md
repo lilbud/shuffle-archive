@@ -38,7 +38,7 @@ post_id: 57722
 
 [Watch on Youtube: Bruce Springsteen - Sweet Soul Music](https://www.youtube.com/watch?v=DsfZpMugrNk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDetAqZt3KJhnUUiIdH7T8w)
+[Watch on Youtube: Basel 14/07/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zDetAqZt3KJhnUUiIdH7T8w)
 
 **1999:** Bruce and the E Street Band play a warm-up set for the first U.S. leg of the Reunion Tour at Continental Airlines Arena in East Rutherford.<br>
 

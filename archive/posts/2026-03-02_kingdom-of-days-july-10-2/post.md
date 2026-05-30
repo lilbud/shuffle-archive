@@ -32,13 +32,13 @@ post_id: 57665
 
 [Watch Video Highlight](https://videopress.com/embed/EZbUAKue)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zATGqy6HjddIRTztJhrdWsH)
+[Watch on Youtube: Sheffield 10/07/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zATGqy6HjddIRTztJhrdWsH)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/The_Miami_Herald_1988_07_11_9-scaled.jpg.webp)
 
 **1990:** Sixteen years after its original release, *The Wild, The Innocent & The E Street Shuffle* is finally certified platinum by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw)
+[Watch on Youtube: The Wild, the Innocent & The E Street Shuffle](https://www.youtube.com/playlist?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw)
 
 **1992:** Night Three of five at Wembley Arena on World Tour 1992 features an acoustic "Dancing in the Dark."<br>
 

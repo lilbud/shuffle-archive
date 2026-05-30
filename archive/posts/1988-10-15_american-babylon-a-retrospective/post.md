@@ -30,7 +30,7 @@ Joe: Oh, I'm glad you liked it!
 
 It's near the top. I mean, there was *Have a Good Time But Get Out Alive*, the 40th anniversary edition that we're promoting now. That was the record that… my life began to change with *Love's So Tough*, but it *really* hit a different level with *Have a Good Time But Get Out Alive.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_m8XucNiryNwVfJUu1EI206RMqA_KaLTK8)
+[Watch on Youtube: Have a Good Time but... Get out Alive](https://www.youtube.com/playlist?list=OLAK5uy_m8XucNiryNwVfJUu1EI206RMqA_KaLTK8)
 
 But when I made *American Babylon*, I was down about as far as you could go. I mean *nothing* was going right. We couldn't get an agent. We had put out several good records in a row and nothing happened. Nobody was interested in anything that I was doing, and I was working like crazy. I was playing at least two nights a week, sometimes three. I had a day gig working with these really poorly behaved kids, and then I was teaching GED at night. So I basically was working myself to death.
 

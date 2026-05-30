@@ -43,7 +43,9 @@ Regeney and Shayne wrote the song quickly, and The Harry Simeone Chorale recorde
 
 The lyricist who once swore he'd never write a Christmas song suddenly found himself responsible for one of the biggest hits of the holiday season. And when Bing Crosby released a cover of it during the one-year anniversary of the Cuban Missile Crisis, "Do You Hear What I Hear" was cemented as an eternal holiday hit.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FbY_RMZfmsw)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=FbY_RMZfmsw) deleted, replaced***
+
+[Watch On Youtube: Bing Crosby - Do You Hear What I Hear? (Lyric Video)](https://www.youtube.com/watch?v=Vs9FPx3_Slk)
 
 "Do You Hear What I Hear" was still popular during the 2016 holiday season. when Bruce Springsteen made one of his many appearances at Sting and Trudie Styler's annual-ish benefit concert for The Rainforest Foundation.
 

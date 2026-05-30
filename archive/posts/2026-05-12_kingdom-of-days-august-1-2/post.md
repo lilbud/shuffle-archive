@@ -58,7 +58,7 @@ post_id: 57894
 
 **1996:** *The Ghost of Tom Joad* is certified gold by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8)
+[Watch on Youtube: The Ghost Of Tom Joad](https://www.youtube.com/playlist?list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8)
 
 **1999:** It's Night Eight of fifteen on the opening American stand of the Reunion Tour, and this show brings the tour premiere of "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" and the one and only performance to date of "Trouble River."<br>
 

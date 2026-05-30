@@ -1,6 +1,6 @@
 **1973:** A scheduled gig at Syracuse University is cancelled to make room for production work on *The Wild, The Innocent, and the E Street Shuffle* at 914 Sound Studios in Blauvelt, New York. Today Bruce completes “New York City Serenade.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fEQENfRoBgw)
+[Watch on Youtube: New York City Serenade](https://www.youtube.com/watch?v=fEQENfRoBgw)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2021/09/1973-09-14.jpg' alt='' title='' width='149' height='499' />
 
@@ -8,7 +8,7 @@
 
 **1977:** Bruce and the E Street Band record “Ain’t Good Enough for You” at The Record Plant in New York City. It will remain in the vault for 33 years until Bruce unearths, completes, and releases it on *The Promise.*
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kPg6ZZC3AcY)
+[Watch on Youtube: Bruce Springsteen - Ain't Good Enough for You (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=kPg6ZZC3AcY)
 
 **1981:** It’s the end of the River Tour with this final show at Cincinnati’s Riverfront Coliseum, and it’s Steve Van Zandt’s last show as a member of the E Street Band for 18 years. Also saying their goodbyes for a while: “It’s Hard to Be a Saint in the City” (next seen 15 years later) and “The Ties That Bind” (resurfacing 18 years later).
 
@@ -18,25 +18,25 @@
 
 **1983:** Bruce and the E Street Band record “Brothers Under the Bridges (’83)” at The Hit Factory in New York City. It will remain in the vaults for fifteen years before seeing release on *Tracks*.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dthkGZiL1gA)
+[Watch on Youtube: Brothers Under The Bridges ('83) (Studio Outtake - 1983)](https://www.youtube.com/watch?v=dthkGZiL1gA)
 
 **1984:** On Night Three (of six) at the Philadelphia Spectrum on the Born in the U.S.A. Tour, the Miami Horns make a guest appearance.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6QxyksVy-B4)
+[Watch on Youtube: Bruce Springsteen - "10th Avenue Freeze-Out" - Philadelphia, 1984-09-14](https://www.youtube.com/watch?v=6QxyksVy-B4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Philadelphia 14/09/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zARXn4hnEEjOMg9zHewgF_z)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2024/09/Centre_Daily_Times_1984_09_16_10.jpg' alt='' title='' width='758' height='665' />
 
 **1985:** Bruce and the band play their second of two nights at the Cotton Bowl in Dallas.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n88PAnzZHZo)
+[Watch on Youtube: Bruce Springsteen - Ramrod (1985-09-14, Dallas)](https://www.youtube.com/watch?v=n88PAnzZHZo)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1985-0914.jpg' alt='' title='' width='510' height='328' />
 
-**1989**: Bruce records “Viva Las Vegas” at One on One Recording in Los Angeles.**
+**1989**: Bruce records “Viva Las Vegas” at One on One Recording in Los Angeles.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=quWs4rY-ekc)
+[Watch on Youtube: Viva Las Vegas (from 'The Last Temptation of Elvis')](https://www.youtube.com/watch?v=quWs4rY-ekc)
 
 **1995:** Bruce makes a guest appearance with Joe Ely at The Viper Room in West Hollywood, where the two play “All Just to Get to You.”
 
@@ -56,31 +56,31 @@
 
 **2010:** As part of the promotional push for the upcoming box set, *The Promise: The Darkness on the Edge of Town Story*, Bruce attends the Toronto International Film Festival for the premiere of the documentary *The Promise: The Making of the Darkness on the Edge of Town*. Before the screening, actor Ed Norton interviews Bruce on stage.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=61LlUqm9rvc)
+[Watch on Youtube: Bruce Springsteen & Ed Norton - TIFF Mavericks](https://www.youtube.com/watch?v=61LlUqm9rvc)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/2010-09-14.jpg' alt='' title='' width='758' height='648' />
 
 **2012:** Bruce and the E Street Band play a Wrecking Ball show at Nationals Park in Washington, DC, where “Blinded by the Light” makes its tour debut and Ali Weinberg (Max’s daughter) plays the accordion for “American Land.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AW2L4kQ9R7Y)
+[Watch on Youtube: Bruce Springsteen - Washington DC - 14/09/2012 HD: Wrecking Ball](https://www.youtube.com/watch?v=AW2L4kQ9R7Y)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OE5lCqxugZA)
+[Watch on Youtube: Bruce Springsteen - Blinded by the Light - Nationals Park - Wash DC -  9-14-12](https://www.youtube.com/watch?v=OE5lCqxugZA)
 
 **2013:** The Wrecking Ball Tour continues its South American leg with a stop in Buenos Aires, Argentina, where Bruce opens the show with “This Little Light of Mine.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fn9nEbwrAD0)
+[Watch on Youtube: Bruce Springsteen en Argentina 2013 - 1er cancion del recital "This Little Light of Mine" (TN)](https://www.youtube.com/watch?v=fn9nEbwrAD0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=artWSlhvsqs)
+[Watch on Youtube: Bruce Springsteeen, Dancing in the Dark, Argentina, 14 Septiembre GEBA Bs. As.](https://www.youtube.com/watch?v=artWSlhvsqs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HeQyraP6jxo)
+[Watch on Youtube: Bruce Springsteen Argentina Interview 2013](https://www.youtube.com/watch?v=HeQyraP6jxo)
 
 **2016:** The revived River Tour wraps up at Gillette Stadium in Foxborough. The “autobiography” theme continues, but there are surprisingly few surprises. “Rockin’ All Over the World” is the final tour premiere, and Peter Wolf makes his customary Boston appearance. Bruce delivered a special thank you message to his fans via E Street Radio.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8trmabdlJeI)
+[Watch on Youtube: Rockin' All Over The World- Bruce Springsteen & The E Street Band - Gillette](https://www.youtube.com/watch?v=8trmabdlJeI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5YTr7oirRNA)
+[Watch on Youtube: Long Walk Home ( acoustic)](https://www.youtube.com/watch?v=5YTr7oirRNA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4fpAr8l2r4M)
+[Watch on Youtube: Sandy( acoustic) 4th of July AP](https://www.youtube.com/watch?v=4fpAr8l2r4M)
 
 [Watch on Youtube: Bobby Jean (Live at Gillette Stadium, Foxboro, MA - 9/14/16 - Official Audio)](https://www.youtube.com/watch?v=vBYrksfpzBs)
 
@@ -90,10 +90,10 @@
 
 **2024:** Bruce and Jake drop by The Stone Pony, joining Danny Clinch and the Tangiers Blues Band at their Sea Hear Now afterparty.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vRPmTQSksNg)
+[Watch on Youtube: Bruce Springsteen, Danny Clinch, Robert Randolph, etc. - The Stone Pony - 9.14.24 - "Boom Boom"](https://www.youtube.com/watch?v=vRPmTQSksNg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Zs7rNV1FGl0)
+[Watch on Youtube: Bruce Springsteen, Danny Clinch, etc. - The Stone Pony - 9.14.24 - "Down the Road a Piece"](https://www.youtube.com/watch?v=Zs7rNV1FGl0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BSQq6UXFmhg)
+[Watch on Youtube: Bruce Springsteen, Danny Clinch, Robert Randolph, etc. - The Stone Pony - 9.14.24 - "My Babe"](https://www.youtube.com/watch?v=BSQq6UXFmhg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xdm5demkRwo)
+[Watch on Youtube: Bruce Springsteen, Danny Clinch, Jake Clemons, etc. - The Stone Pony - 9.14.24 - "Gloria"](https://www.youtube.com/watch?v=xdm5demkRwo)

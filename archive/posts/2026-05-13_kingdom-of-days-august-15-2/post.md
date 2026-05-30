@@ -12,7 +12,7 @@ post_id: 58378
 
 **1975:** On Night Three of Bruce's legendary stand at New York City's Bottom Line, the early show is broadcast live on WNEW-FM, resulting in one of Bruce's most widely bootlegged shows ever. Listen to that historic broadcast below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLmxwNSnqgfedcTVTpET4evBCavu-lOISm)
+[Watch on Youtube: Bruce Springsteen - "The punk meets the godfather"](https://www.youtube.com/playlist?list=PLmxwNSnqgfedcTVTpET4evBCavu-lOISm)
 
 There's no audio from the late show, and that's too bad: it features the last known performance of "New York City Serenade" for 24 years.
 
@@ -38,7 +38,7 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 **2002:** Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that's about to change.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
+[Watch on Youtube: Auburn Hill 15/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2002-08-15.png.webp)
 

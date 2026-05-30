@@ -4,31 +4,31 @@ Every once in a while, Bruce writes and releases a trifle purely for his own enj
 
 “You’ve Got It” is… okay.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Z5XVGM5VKy8)
+[Watch on Youtube: You've Got It](https://www.youtube.com/watch?v=Z5XVGM5VKy8)
 
 “You’ve Got It” is built around a gimmick: Bruce writes almost entirely in the negative, taking palpable joy in finding ways to describe what the titular “it” isn’t and never even attempting to describe what it actually is. (The song is so light that it would collapse if he did.)
 
-*No one ever found it, ain’t no school ever taught it*  
-*No one ever made it, ain’t no one ever bought it*  
-*Baby you’ve got it, baby you’ve got it*  
-> > > > *Come on and give it to me*
+> *No one ever found it, ain’t no school ever taught it*<br>
+> *No one ever made it, ain’t no one ever bought it*<br>
+> *Baby you’ve got it, baby you’ve got it*<br>
+> *Come on and give it to me*
 
-*Ain’t no one can break it, there ain’t no one can steal it*  
-*Ain’t no one can fake it, you just know it when you feel it*  
-*Baby you’ve got it, baby you’ve got it*  
-> > > > *Come on and give it to me*
+> *Ain’t no one can break it, there ain’t no one can steal it*<br>
+> *Ain’t no one can fake it, you just know it when you feel it*<br>
+> *Baby you’ve got it, baby you’ve got it*<br>
+> *Come on and give it to me*
 
-*Yeah, you can’t read it in a book, and you can’t even dream it*  
-*Honey, it ain’t got a name, you just know it when you see it*  
-*Baby you’ve got it, yeah, baby you’ve got it*  
-> > > > *Come on and give it to me*
+> *Yeah, you can’t read it in a book, and you can’t even dream it*<br>
+> *Honey, it ain’t got a name, you just know it when you see it*<br>
+> *Baby you’ve got it, yeah, baby you’ve got it*<br>
+> *Come on and give it to me*
 
-*Well, now listen up, your reckless love is precious so don’t waste it*  
-*Can’t tell you what they made it of, but I know it when I taste it*  
-*Baby you’ve got it, yeah, baby you’ve got it*  
-*You’ve got it in your bones and blood, yeah, you’re real as real ever was*  
-*Baby you’ve got it, yeah, baby you’ve got it*  
-> > > > *Come on and give it to me*
+> *Well, now listen up, your reckless love is precious so don’t waste it*<br>
+> *Can’t tell you what they made it of, but I know it when I taste it*<br>
+> *Baby you’ve got it, yeah, baby you’ve got it*<br>
+> *You’ve got it in your bones and blood, yeah, you’re real as real ever was*<br>
+> *Baby you’ve got it, yeah, baby you’ve got it*<br>
+> *Come on and give it to me*
 
 So what is it? Charisma, perhaps. Chemistry, maybe. Animal magnetism, sexiness, the power of persuasion, take your pick amongst a spectrum of intangible, invisible, unmeasurable qualities. (Although “come on and give it to me” is such a recognizable come-on that my bet is on sex appeal.)
 
@@ -42,16 +42,16 @@ Far be it from me to understand (let alone explain) what makes a perfect pop son
 
 Bruce tried it live, once. The set up was a bit awkward, as you’ll see in the clip below, but Bruce’s performance was fun.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6XT_bGKGFVs)
+[Watch on Youtube: You've got it - Bruce Springsteen Bergen, Norway 2012-07-24 - New version](https://www.youtube.com/watch?v=6XT_bGKGFVs)
 
 Fun, yes, but that one and only live performance of “You’ve Got It” didn’t get a particularly Springsteenian crowd reaction, and Bruce seemed very aware of that during his performance. I suspect that’s why that Bergen performance remains a one-and-only.
 
 The irony of “You’ve Got It” is that it ain’t got it.
 
-**You’ve Got It  **
-**Recorded:** 2011  
-**Released:** *Wrecking Ball* (2012)  
-**First performed:** July 24, 2012 (Bergen, Norway)  
+**You’ve Got It**
+**Recorded:** 2011
+**Released:** *Wrecking Ball* (2012)
+**First performed:** July 24, 2012 (Bergen, Norway)
 **Last performed:** July 24, 2012 (Bergen, Norway)
 
 © July 30, 2020

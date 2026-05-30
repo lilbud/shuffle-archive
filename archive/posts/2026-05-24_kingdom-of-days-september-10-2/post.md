@@ -42,7 +42,7 @@
 
 [Watch on Youtube: "Get Up, Stand Up" Human Rights Now! Tour. Barcelona (1988).  | Bruno Sokolowicz](https://www.youtube.com/watch?v=TAvd_tjab8U)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Barcelona 10/09/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zDHF8gWirLZ_wHaA6ouaR3F)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-10.jpg' alt='' title='' width='758' height='1006' />
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Bruce Springsteen - My Ride's Here SkyDome 9/10/03](https://www.youtube.com/watch?v=SMKLoE5uUu0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Toronto 10/09/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zBs2htYy9nZP9dIlGLdbpWW)
 
 **2007:** Bruce and the E Street Band begin rehearsing for their upcoming Magic Tour at Convention Hall in Asbury Park.
 

@@ -31,9 +31,10 @@ def video_fixes(soup: bs4) -> bs4:
             if "/embed/" in src and "videoseries" not in src:
                 video_id = src.split("/")[-1].split("?")[0]
                 link_url = f"https://www.youtube.com/watch?v={video_id}"
-            elif "videoseries" in src:
+            elif "videoseries" in src or "list=" in src:
                 video_id = src.split("list=")[-1]
                 link_url = f"https://www.youtube.com/playlist?list={video_id}"
+                print(link_url)
             else:
                 link_url = src.split("?")[0]
 

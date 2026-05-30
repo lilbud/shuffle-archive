@@ -34,7 +34,9 @@ Bruce's reply: "This train carries saints and sinners. This train carries losers
 
 Give a listen to "Labor of Love" by Joe Grushecky, and keep an ear out for Bruce's mandolin (yes, that's Bruce playing mandolin). You can hear echoes of LOHAD from the opening bars, but you'll hear it note for note following the chorus at around 1:20.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Kd--E7RPoZo)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=Kd--E7RPoZo) deleted, replaced***
+
+[Watch On Youtube: Labor of Love](https://www.youtube.com/watch?v=DSdpmShd7e4)
 
 Bruce took that mandolin riff and built a song of his own around it.
 

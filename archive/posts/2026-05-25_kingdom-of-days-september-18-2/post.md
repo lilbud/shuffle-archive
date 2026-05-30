@@ -4,21 +4,21 @@
 
 **1982:** Bruce makes a guest appearance with Dave Edmunds on six songs at Big Man’s West in Red Bank.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0NEVucciGyE)
+[Watch on Youtube: Dave Edmunds (With Bruce Springsteen) - Big Man's West Red Bank NJ (Full Album)](https://www.youtube.com/watch?v=0NEVucciGyE)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dt_MbHAaFdU)
+[Watch on Youtube: Bruce Springsteen & Dave Edmunds - From Small Things (1982-09-18, Red Bank, NJ)](https://www.youtube.com/watch?v=dt_MbHAaFdU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mMw_t8XnCvY)
+[Watch on Youtube: Bruce Springsteen & Dave Edmunds - Johnny B  Goode (1982-09-18, Red Bank, NJ)](https://www.youtube.com/watch?v=mMw_t8XnCvY)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=a_W9UwTVOIM)
+[Watch on Youtube: Bruce Springsteen & Dave Edmunds - Lucille (1982-09-18, Red Bank, NJ)](https://www.youtube.com/watch?v=a_W9UwTVOIM)
 
 [Watch on Youtube: Bruce Springsteen & Dave Edmunds - Let's Talk About Us (1982-09-18, Red Bank, NJ)](https://www.youtube.com/watch?v=zrsRXBErrLU)
 
 **1984:** Bruce and the E Street Band close out their six-night Born in the U.S.A. stand at the Philadelphia Spectrum by tour premiering “I Fought the Law” and “Santa Claus is Comin’ to Town” (the first time they’ve ever played that song earlier than autumn).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DoQJViKqZLs)
+[Watch on Youtube: Bruce Springsteen - Point Blank,I Fought The Law/Badlands (Live in Philly 9-18-1984)](https://www.youtube.com/watch?v=DoQJViKqZLs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Philadelphia (9/18/1984)](https://www.youtube.com/playlist?list=PLA581E2C37BEC82A3)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2024/09/Philadelphia_Daily_News_1984_09_19_Page_6.jpg' alt='' title='' width='758' height='1414' />
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Bruce Springsteen: STOLEN CAR](https://www.youtube.com/watch?v=FPobte6iqSU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PYFmYXI9XII)
+[Watch on Youtube: Bruce Springsteen - 1985 Oakland TV News Report](https://www.youtube.com/watch?v=PYFmYXI9XII)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-18a.jpg' alt='' title='' width='758' height='1395' />
 
@@ -38,7 +38,7 @@
 
 **1996:** At his solo acoustic show in Wallingford, Bruce plays a one-off “My Father’s House” by request.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jTvO_lAqDw8)
+[Watch on Youtube: Bruce Springsteen - "My Father's House" Wallingford, 1996-0918](https://www.youtube.com/watch?v=jTvO_lAqDw8)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1996-09-18.jpg' alt='' title='' width='758' height='329' />
 
@@ -46,7 +46,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/I9toXviI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kWmiEcnQgqE)
+[Watch on Youtube: Bruce Springsteen Living Proof Hartford 18/09/2003](https://www.youtube.com/watch?v=kWmiEcnQgqE)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2024/09/Hartford_Courant_2003_09_19_199.jpg' alt='' title='' width='758' height='713' />
 
@@ -56,18 +56,18 @@
 
 **2013:** The Wrecking Ball Tour enters its last week with the first of two shows in Brazil, this one in Sao Paolo. Bruce opens with the premiere of Raul Seixas’ “Sociedade Alternativa.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OuF6DiDDxWs)
+[Watch on Youtube: Bruce Springsteen - Sociedade Alternativa](https://www.youtube.com/watch?v=OuF6DiDDxWs)
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart - 09/18/2013 - Live in Sao Paulo, Brazil](https://www.youtube.com/watch?v=YfizDCxbBKs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TMRnU-5ndj0)
+[Watch on Youtube: Bruce Springsteen - We Are Alive - 09/18/2013 - Live in Sao Paulo, Brazil](https://www.youtube.com/watch?v=TMRnU-5ndj0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TnkmS9vH1rU)
+[Watch on Youtube: Bruce Springsteen chegando ao show em São Paulo, Espaço das Américas. 18-09-2013.](https://www.youtube.com/watch?v=TnkmS9vH1rU)
 
 **2016:** *CBS Sunday Morning* airs a profile of Bruce as part of the promotional push for his upcoming autobiography.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PHXN2FFEuJU)
+[Watch on Youtube: Sunday Morning 2016 Bruce SpringsteenTalks Autobiography Book 'Born To Run'](https://www.youtube.com/watch?v=PHXN2FFEuJU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TR1L8NYavYM)
+[Watch on Youtube: Bruce Springsteen on writing his autobiography](https://www.youtube.com/watch?v=TR1L8NYavYM)
 
  

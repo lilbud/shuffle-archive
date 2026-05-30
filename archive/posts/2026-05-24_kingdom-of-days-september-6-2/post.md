@@ -26,11 +26,11 @@
 
 **1988:** Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: “Working on the Highway” and “Hungry Heart.” Meanwhile, Bruce's *Chimes of Freedom* EP is released to support the tour.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WhvpFX63JGw)
+[Watch on Youtube: Chimes of Freedom (Live at Stockholms Olympiastadion, Stockholm, SE - July 1988)](https://www.youtube.com/watch?v=WhvpFX63JGw)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WMRVPY-O8Nk)
+[Watch on Youtube: Bruce Springsteen - My Hometown (Live In Budapest)](https://www.youtube.com/watch?v=WMRVPY-O8Nk)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EyPSl7he8FE)
+[Watch on Youtube: Bruce Springsteen - Get Up,Stand Up  (Live In Budapest)](https://www.youtube.com/watch?v=EyPSl7he8FE)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1988-09-06b.jpg' alt='' title='' width='758' height='405' />
 
@@ -40,9 +40,9 @@
 
 **2003:** Bruce and the E Street Band play their first ever show at Boston’s Fenway Park, opening with the E Street Band premiere of “Diddy Wah Diddy” and featuring a rare “Janey, Don’t You Lose Heart” and a show-closing “Dirty Water” with Peter Wolf.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_jfOIVK70kc)
+[Watch on Youtube: Bruce Springsteen & the e street Band,diddy wa diddy](https://www.youtube.com/watch?v=_jfOIVK70kc)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: Boston 06/09/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zDGvjfksOrs7OIKk079MPa3)
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2020/08/2003-09-06a.jpg' alt='' title='' width='306' height='1806' />
 
@@ -52,7 +52,7 @@
 
 **2016:** Gearing up for publicity surrounding the release of *Born to Run* (the book), Bruce tours Freehold with a CBS film crew and sits down for an interview at his home. The footage will air later in the month (look for it in our September 18th installment).
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PHXN2FFEuJU)
+[Watch on Youtube: Sunday Morning 2016 Bruce SpringsteenTalks Autobiography Book 'Born To Run'](https://www.youtube.com/watch?v=PHXN2FFEuJU)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: former first lady Michelle Obama.
 

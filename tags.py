@@ -1,4 +1,5 @@
 import json
+import os
 from pathlib import Path
 
 import httpx
@@ -7,13 +8,11 @@ from psycopg.rows import dict_row
 
 from main import get_client
 
-DATABASE_URL = "postgresql://postgres:password@localhost:5432/shuffle_new"
-
 
 def load_db() -> psycopg.Connection:
     """Load DB and return connection."""
     return psycopg.connect(
-        conninfo=DATABASE_URL,
+        conninfo=os.getenv("DATABASE_URL"),
         row_factory=dict_row,
     )
 

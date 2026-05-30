@@ -12,7 +12,9 @@ post_id: 35373
 
 In 1926, a 23-year-old German ingenue was catapulted from obscurity to stardom when she was cast in the role of Gretchen in the German production of *Faust*, a role originally intended for famous actress Lillian Gish.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hhMiEf15fVo)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=hhMiEf15fVo) deleted, replaced***
+
+[Watch On Youtube: Faust (1926) / Silent Drama, Fantasy, Horror film / Gösta Ekman, Emil Jannings, Camilla Horn](https://www.youtube.com/watch?v=ZXO4a0yjyTU)
 
 Horn received rave reviews for her breakthrough performance. She went on to star in several Hollywood silent films, appearing opposite John Barrymore and befriending Charlie Chaplin, before returning to Germany, where she continued to earn acclaim until her outspoken criticism of the Nazi regime put a premature end to her career in 1939.
 

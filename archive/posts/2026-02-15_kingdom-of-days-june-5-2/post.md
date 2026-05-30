@@ -48,7 +48,7 @@ post_id: 56997
 
 **1992:** Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four days after they first began rehearsing together–broadcast live from Hollywood Center Studios Soundstage.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBcO3EbAZ7HJMtSwA_ZkFXG)
+[Watch on Youtube: Los Angeles 05/06/1992](https://www.youtube.com/playlist?list=PLJTyL9twk3zBcO3EbAZ7HJMtSwA_ZkFXG)
 
 [Watch on Youtube: Bruce Springsteen Roll of the Dice Los Angeles 05/06/1992](https://www.youtube.com/watch?v=KExQodeFrdU)
 
@@ -62,7 +62,7 @@ post_id: 56997
 
 [Watch on Youtube: Bruce Springsteen Zaragoza  1999  antena3 fans](https://www.youtube.com/watch?v=bxlW6oSq5WI)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDNk3-1NLB5Ele9zP7rXXd5)
+[Watch on Youtube: Zaragoza 05/06/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zDNk3-1NLB5Ele9zP7rXXd5)
 
 **2006:** Bruce and the Sessions Band appear on *The Tonight Show with Jay Leno.* Later that night (the Tonight Show tapes during the day), the band plays a show at the Greek Theater in L.A., where Roy Bittan guest-stars on "Pay Me My Money Down." Two videos of "How Can a Poor Man Stand Such Times and Live" below, both pro-shot–one from the Tonight Show and one from the concert.<br>
 
@@ -76,7 +76,7 @@ post_id: 56997
 
 **2007:** Bruce releases his *Live in Dublin* album.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJ3gKh8Ty5pZqlZZkO9kobqgum89LpuQ1)
+[Watch on Youtube: Bruce Springsteen - Live in Dublin](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZqlZZkO9kobqgum89LpuQ1)
 
 **2009:** Swedish fans at the second of three Working on a Dream shows in Stockholm are treated to the tour premiere of "Lost in the Flood" and the first of only three performances ever of "Queen of the Supermarket."<br>
 

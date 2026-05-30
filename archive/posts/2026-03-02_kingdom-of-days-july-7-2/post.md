@@ -50,7 +50,7 @@ post_id: 57649
 
 **2012:** Bruce and the E Street Band headline at the Roskilde Festival in Denmark, and The Roots make a guest appearance on "The E Street Shuffle" and "Twist and Shout." Captain Kirk reminisces about it in the clip below.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VgTHuDy5E7Y)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=VgTHuDy5E7Y) made private. Was titled "Guitar Stories w/ Captain Kirk – Episode 1: Bruce Springsteen". Not archived anywhere.***
 
 [Watch on Youtube: Bruce Springsteen & The E-Street Band - 2012-07-07 - Roskilde Festival - Wrecking Ball](https://www.youtube.com/watch?v=rgmM7bAbMkw)
 
@@ -58,7 +58,7 @@ post_id: 57649
 
 [Watch on Youtube: Bruce Springsteen & The E-Street Band - 2012-07-07 - Roskilde Festival - The River](https://www.youtube.com/watch?v=aFZUqurz3ug)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAIFz8F6FD3RwKrLAqvkdya)
+[Watch on Youtube: Roskilde Denmark 07/07/2012](https://www.youtube.com/playlist?list=PLJTyL9twk3zAIFz8F6FD3RwKrLAqvkdya)
 
 **2013:** Bruce opens Leipzig's Wrecking Ball show with a tour premiere double-header: "Roulette" and "Lucky Town." "You Never Can Tell" makes its tour premiere early in the show as well.<br>
 

@@ -16,7 +16,7 @@ post_id: 58376
 
 **1975:** Bruce's legendary stand at the Bottom Line in New York City begins here, on Night One of a five-night/ten-show residency, during which 25% of all tickets are distributed by Columbia Records to journalists and employees, establishing high stakes for Bruce and the E Street Band throughout the stand. The early show is mostly undocumented but known to feature Bruce's first performance of "When You Walk in the Room" and only the second-ever performance of "Backstreets." The late show features the first ever performance of "Night" and the last recorded "New York City Serenade" until the Reunion Tour almost a quarter-century later.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1CLkG-HsMGH8NAjlqyweKD5)
+[Watch on Youtube: New York (8/13/1975)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CLkG-HsMGH8NAjlqyweKD5)
 
 As for the journalists and critics in attendance, most are won over… but not all.
 

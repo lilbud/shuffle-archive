@@ -1,34 +1,34 @@
 **1971:** The Bruce Springsteen Band kicks off a residency at the Student Prince in Asbury Park that will last the rest of the calendar year.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1971-0903.jpg' alt='' title='' width='758' height='430' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/1971-0903.jpg.webp)
 
 **1978:** Bruce debuts his cover of “Hang Up My Rock and Roll Shoes” at his Darkness show in Saginaw.
 
 [Watch on Youtube: Bruce Springsteen- I Don't Wanna Hang Up My Rock and Roll Shoes Live 1978](https://www.youtube.com/watch?v=m38R-VSgAVc)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2024/09/Detroit_Free_Press_1978_09_21_Page_23.jpg' alt='' title='' width='758' height='412' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/09/Detroit_Free_Press_1978_09_21_Page_23.jpg.webp)
 
 **1984:** Bruce appears in and on the latest issue of *People Magazine*.
 
 [Watch Video Highlight](https://videopress.com/embed/uvGjkjlm)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/People1.jpg' alt='' title='' width='758' height='997' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/People1.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2021/09/People2.jpg' alt='' title='' width='758' height='1090' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/People2.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/People3.jpg' alt='' title='' width='758' height='997' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/People3.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/People4.jpg' alt='' title='' width='758' height='1028' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/People4.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/People5.jpg' alt='' title='' width='758' height='993' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/People5.jpg.webp)
 
 **1992:** Bruce’s World Tour 1992 visits Tinley Park, Illinois for the second of two nights, and CNN airs a segment on the end of the summer concert season.
 
 [Watch Video Highlight](https://videopress.com/embed/JFEIp4vi)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1992-09-03a.jpg' alt='' title='' width='758' height='841' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-09-03a.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/1992-09-03b.jpg' alt='' title='' width='758' height='300' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1992-09-03b.jpg.webp)
 
 [Watch on Youtube: Bruce Springsteen - CNN Report on 1992 Summer Concert Season](https://www.youtube.com/watch?v=CKFRHpzkMtI)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Bruce Springsteen Live Ramrod DC 99-28](https://www.youtube.com/watch?v=wrRb4fwLwwU)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2021/09/1999-09-03.jpg' alt='' title='' width='758' height='1348' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/1999-09-03.jpg.webp)
 
 **2001:** In their last public appearance before the nation changes forever, Bruce and Patti join Brian Kirk and the Jirks on-stage for four songs at Donovan’s Reef in Sea Bright, New Jersey. (The Jirks are the house band at the club.)
 
@@ -64,13 +64,13 @@
 
 [Watch on Youtube: Shackled and Drawn - Citizens Bank Park - Sept 3, 2012 - Bruce Springsteen](https://www.youtube.com/watch?v=fn1p6tuLd6E)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/2012-09-03a.jpg' alt='' title='' width='758' height='884' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2012-09-03a.jpg.webp)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/08/2012-09-03b.jpg' alt='' title='' width='758' height='1456' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2012-09-03b.jpg.webp)
 
 **2016:** A scheduled River Tour show in Virginia Beach is postponed for two days due to Tropical Storm Hermine.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/2016-0903.jpg' alt='' title='' width='500' height='360' />
+![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/2016-0903.jpg.webp)
 
 **2021:** It’s the penultimate night for *Springsteen on Broadway* at the St. James Theater in New York City.
 
@@ -80,8 +80,8 @@
 
 **2023:** Featuring the tour premiere of “Two Hearts” and rarities like “Jungleland” and “Jersey Girl,” the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band’s last show of the year.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=khQVExmECY0)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Two Hearts - East Rutherford, NJ - 03/09/2023](https://www.youtube.com/watch?v=khQVExmECY0)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=k9g51ohyGzA)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Jungleland - East Rutherford, NJ  - 03/09/2023](https://www.youtube.com/watch?v=k9g51ohyGzA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FIC7A_30CuE)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Jersey Girl - East Rutherford, NJ - 03/09/2023](https://www.youtube.com/watch?v=FIC7A_30CuE)

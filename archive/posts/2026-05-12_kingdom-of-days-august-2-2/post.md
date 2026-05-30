@@ -44,7 +44,7 @@ post_id: 57895
 
 **1987:** Bruce and the E Street Band (minus Nils) play a rare bar set at The Stone Pony with members of Cats on a Smooth Surface. Bruce and the band open with only the second-ever performance of "Light of Day."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1BmZaAMHtsFXD8V2iKu4ZNp)
+[Watch on Youtube: Stone Pony (8/2/1987)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1BmZaAMHtsFXD8V2iKu4ZNp)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1987-08-02.png.webp)
 
@@ -98,7 +98,7 @@ post_id: 57895
 
 [Watch on Youtube: Bruce Springsteen Gilette Stadium 8/2/08 I'm Going Down](https://www.youtube.com/watch?v=fue6SpKUTpQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB2BnAQQ6qKH0PzoGGavgjU)
+[Watch on Youtube: Foxborough 02/08/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zB2BnAQQ6qKH0PzoGGavgjU)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/2008-08-02.png.webp)
 

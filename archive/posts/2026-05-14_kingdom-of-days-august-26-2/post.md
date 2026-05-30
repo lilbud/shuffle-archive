@@ -60,7 +60,7 @@ post_id: 59422
 
 **1997:** Five years after its international release, *In Concert/MTV Plugged* is finally released in the United States.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT)
+[Watch on Youtube: In Concert/MTV Plugged](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT)
 
 **1999:** Bruce and the reunited E Street Band play their fourth of five shows at Boston's Fleet Center. Anyone know what was going on during "If I Should Fall Behind?"<br>
 

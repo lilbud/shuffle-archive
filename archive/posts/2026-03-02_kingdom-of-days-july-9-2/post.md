@@ -64,7 +64,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "N
 
 [Watch on Youtube: Bruce Springsteen - Berlin news coverage - July 9, 1995](https://www.youtube.com/watch?v=SGLVwl9JFEg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLmxwNSnqgfefUrF8aoCMV1UO6oh6FA8TM)
+[Watch on Youtube: Bruce Springsteen -  Cafe Eckstein, Berlin, Germany, 1995](https://www.youtube.com/playlist?list=PLmxwNSnqgfefUrF8aoCMV1UO6oh6FA8TM)
 
 **1999:** Bruce guest-stars at Joe Grushecky's acoustic show at Hooligans in Long Branch, New Jersey on three songs: "Never Be Enough Time," "Pumping Iron," and "Brown Eyed Girl."<br>
 

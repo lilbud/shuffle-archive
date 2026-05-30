@@ -22,7 +22,9 @@ It may indeed be the most powerful song of the 20th century, but it's origins tr
 
 Beyond that, like many popular folk songs (although it seems somehow diminishing to call it that), the history and evolution of "We Shall Overcome" is hard to trace. But its popularity is widely attributed to Pete Seeger, who adopted and shaped it in the 1950s, and to Guy Carawan, who shares a copyright with Seeger and who introduced it to the Civil Rights movement and the SNCC in 1960.
 
-[Watch on Youtube: Pete Seeger, We Shall Overcome (Version #02), Berlin, DDR (GDR), 1967](https://www.youtube.com/watch?v=M_Ld8JGv56E)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=M_Ld8JGv56E) deleted, replaced***
+
+[Watch On Youtube: Pete Seeger, We Shall Overcome Version #02, Berlin, DDR GDR, 1967](https://www.youtube.com/watch?v=XtYkvOZYHAw)
 
 Here's a great interview with Pete Seeger a few years before his death, where he discusses the song's origins:
 

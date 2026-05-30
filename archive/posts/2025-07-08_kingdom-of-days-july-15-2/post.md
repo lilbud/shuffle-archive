@@ -70,7 +70,7 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 [Watch on Youtube: THE BOSS IN DONOSTI](https://www.youtube.com/watch?v=h6Rfl6Esl1g)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rrlRp0EfqhQ?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: BRUCE SPRINGSTEEN --- INCIDENT --- SAN SEBASTIAN SPAIN 2008](https://www.youtube.com/watch?v=rrlRp0EfqhQ)
 
 Meanwhile, Bruce releases a new live EP entitled *Magic Tour Highlights*, featuring notable guest appearances and Danny Federici's final performance with the band. The EP is a benefit fund-raiser for the Danny Federici Melanoma Fund.
 

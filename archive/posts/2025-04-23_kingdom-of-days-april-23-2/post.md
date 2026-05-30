@@ -28,7 +28,7 @@ post_id: 56610
 
 **1985:** Bruce concludes his first Japanese tour with a second show in Osaka.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zD50qvA8LTkxCY5odh5R9PY)
+[Watch on Youtube: Osaka 23/04/1985](https://www.youtube.com/playlist?list=PLJTyL9twk3zD50qvA8LTkxCY5odh5R9PY)
 
 **1988:** At Night Two in Los Angeles on the Tunnel of Love Express Tour, Bruce debuts "[Have Love Will Travel](../1976-01-19_cover-me-have-love-will-travel/post.md/)" and tour premieres "[Sweet Soul Music](../1976-01-20_cover-me-sweet-soul-music/post.md/)." Roy Orbison is in attendance tonight, celebrating his 52nd birthday. Audio of the show is available for purchase as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,12676/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-23-1988-Los-Angeles-Sports-Arena-Los-Angeles-CA.html)), but it was filmed by an enterprising fan as well.<br>
 

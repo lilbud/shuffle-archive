@@ -28,7 +28,7 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 **1981:** It's Night Two of a five-night River Tour stand at the Philadelphia Spectrum.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDre-2uM6STkmSN0bghNA3b)
+[Watch on Youtube: Philadelphia 15/07/1981](https://www.youtube.com/playlist?list=PLJTyL9twk3zDre-2uM6STkmSN0bghNA3b)
 
 **1984:** Bruce and the E Street Band kick off a three-night Born in the U.S.A. Tour stand at the Rosemont Horizon near Chicago.<br>
 
@@ -72,7 +72,7 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 Meanwhile, Bruce releases a new live EP entitled *Magic Tour Highlights*, featuring notable guest appearances and Danny Federici's final performance with the band. The EP is a benefit fund-raiser for the Danny Federici Melanoma Fund.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_lPvBiPi0J7n2v-3zLAgEk-VpKA93lg9FQ)
+[Watch on Youtube: Magic Tour Highlights](https://www.youtube.com/playlist?list=OLAK5uy_lPvBiPi0J7n2v-3zLAgEk-VpKA93lg9FQ)
 
 **2020:** E Street Radio debuts "Summertime, Summertime," the eighth installment of Bruce's *From My Home to Yours* radio show.<br>
 

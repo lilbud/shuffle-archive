@@ -54,7 +54,7 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 [Watch on Youtube: Bruce Springsteen - Man At The Top](https://www.youtube.com/watch?v=rm49wginqwo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAXbmVg0HYXLrk7xUqMNmCE)
+[Watch on Youtube: Washington 05/08/1985](https://www.youtube.com/playlist?list=PLJTyL9twk3zAXbmVg0HYXLrk7xUqMNmCE)
 
 Because this show marks Bruce's return to the U.S. and the first time playing to stadiums only, the kick-off show draws a lot of media attention. Watch the news coverage (a lot of it!) below.
 
@@ -72,7 +72,7 @@ Because this show marks Bruce's return to the U.S. and the first time playing to
 
 **2002:** The fourth rehearsal show for the Rising Tour is the first in an arena, an invitation-only show at the Continental Airlines Arena in East Rutherford.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv)
+[Watch on Youtube: East Rutherford 05/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv)
 
 **2006:** Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "Long Tall Sally."<br>
 

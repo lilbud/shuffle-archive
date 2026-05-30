@@ -137,7 +137,9 @@ For most fans, our introduction to Bruce's live rock arrangement of "Long Walk H
 
 Like many of Bruce's best live songs, "Long Walk Home" grew in scope and power over the course of the tour. Fans quickly sensed and responded to the singalong opportunity before the coda, and by the end of the first American leg, so did Steve, who assumed the lead vocal for that part and traded off with Bruce for the coda.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=waLpda2mI8M)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=waLpda2mI8M) deleted, replaced***
+
+[Watch On Youtube: Bruce Springsteen - Long Walk Home - Tampa 2008](https://www.youtube.com/watch?v=vII9Sch-quA)
 
 A nightly mainstay on the Magic Tour, "Long Walk Home" outings have been relatively scarce over the eight years that followed. Late in the last tour, however, it made an impromptu comeback at a 9/11 anniversary-themed show–this time in an impromptu solo acoustic arrangement sparked by a creative fan request.
 

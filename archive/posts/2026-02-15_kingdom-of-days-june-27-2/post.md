@@ -28,7 +28,7 @@ post_id: 57513
 
 **1978:** *Darkness on the Edge of Town* is certified platinum by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
+[Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/playlist?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
 
 **1979:** Bruce and the E Street Band record the backing track for "The Time That Never Was" at the Power Station in New York City. Bruce will finally complete it 36 years later and release it that same year.<br>
 
@@ -66,7 +66,7 @@ post_id: 57513
 
 [Watch on Youtube: Janey (Don't You Lose Heart) Live in Paris 2008](https://www.youtube.com/watch?v=ksaYU_81_GA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zC34LwIuTRB_CmGfMR9JXvF)
+[Watch on Youtube: Paris 27/06/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zC34LwIuTRB_CmGfMR9JXvF)
 
 **2009:** Bruce headlines the Glastonbury Festival in England, but first he joins The Gaslight Anthem during their set for "The '59 Sound."<br>
 

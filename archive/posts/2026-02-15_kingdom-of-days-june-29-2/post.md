@@ -44,7 +44,7 @@ Watch footage from the video premiere below, and then listen to a never-before-c
 
 [Watch on Youtube: Bruce Springsteen - Dancing In the Dark (Official Video)](https://www.youtube.com/watch?v=129kuDCQtHs)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAEeAs19HVKihUHhbpsNF26)
+[Watch on Youtube: St Paul 29/06/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zAEeAs19HVKihUHhbpsNF26)
 
 In the setlist, a couple of notable moments: Bruce covers "Street Fighting Man" for the first time, and "No Surrender" makes its debut as well, the latter song in a short-lived arrangement with an extended instrumental ending and a new final verse.
 
@@ -64,7 +64,7 @@ In the setlist, a couple of notable moments: Bruce covers "Street Fighting Man" 
 
 [Watch Video Highlight](https://videopress.com/embed/74jBxyo8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1CoG7ABoOG_ENRC4fVWaMDj)
+[Watch on Youtube: Paris (6/29/1985)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CoG7ABoOG_ENRC4fVWaMDj)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/06/The_Herald_News_1985_07_01_10.jpg.webp)
 

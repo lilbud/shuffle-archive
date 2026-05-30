@@ -43,7 +43,9 @@ In concert on the all-too-short Seeger Sessions Tour, "Pay Me My Money Down" was
 
 [Watch on Youtube: Bruce Springsteen   Padova 31 Maggio 2013   Pay me my money down](https://www.youtube.com/watch?v=H9VWxV9YCF4)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4nlwCvG7c98)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=4nlwCvG7c98) deleted, replaced with different video***
+
+[Watch on Youtube: Bruce Springsteen - Pay Me My Money Down (2013-06-29 - Paris)](https://www.youtube.com/watch?v=ObLHqSS_n2I)
 
 "Pay Me My Money Down" was also the reliable guest-star slot. If you were friend of Bruce, and you came to the show, odds were good you'd end up on stage during the set-closer. Over the course of the tour, "Pay Me" guest-stars included Roy Bittan, Nils Lofgren, Joan Baez, Southside Johnny, Joe Grushecky, Wolfgang Niedecken, Bruce's nephew, and on TV: Conan O'Brien, Jimmy Fallon, and Thomas Haden Church.
 

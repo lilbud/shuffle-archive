@@ -84,7 +84,7 @@ Unfortunately, and mystifyingly, the festival staff pull the plug on Bruce, Paul
 
 Over the days and weeks that follow, the incident will become legendary.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XO5wYdX28JM?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: Bruce Springsteen, Paul McCartney Cut Off on Tour 2012: Guitarist Calls Britain a 'Police State'](https://www.youtube.com/watch?v=XO5wYdX28JM)
 
 [Watch on Youtube: London council cuts power on Springsteen](https://www.youtube.com/watch?v=Y5Mru2ZuYoA)
 

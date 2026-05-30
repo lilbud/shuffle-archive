@@ -1,77 +1,97 @@
-**1949:** Bruce Frederick Joseph Springsteen is born to Adele and Douglas Springsteen at Monmouth Medical Center in Long Branch, New Jersey.
+---
+layout: post
+title: "Where the Band Was: Los Angeles, June 5, 1992 (TJ's story)"
+author: "Ken"
+excerpt: "Guest-blogger TJ Jones was on-hand for Bruce’s secret rehearsal show in 1992 (Bruce’s his first with his new band), and he tells his story today."
+tags: tj-jones world-tour-1992
+categories: where-the-band-was
+header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/19920605_2_front.jpg
+post_id: 18728
+---
+> **Editor’s Note:**
+>
+> *Today’s guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce’s first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*<br>
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2019/09/1949-09-23.jpg' alt='' title='' width='375' height='500' />
+June 5, 1992. I will always remember that date.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1949-0923.jpeg' alt='' title='' width='620' height='448' />
+I was lucky enough to see Bruce Springsteen at a private show: the dress rehearsal show in Hollywood before the 1992-1993 tour.
 
-**1952:** Bruce’s parents throw their three-year-old son a Western-themed birthday party. Bruce’s fascination with the American west will last a lifetime.
+I first saw Bruce in 1985, in Greensboro, NC and later that summer in Toronto. I saw him once more in 1988 in Chapel Hill. By 1992, it had been four years since I had last seen him.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1952-09-23.jpg' alt='' title='' width='758' height='539' />
+When *Human Touch* and *Lucky Town* came out, I was ready for anything new from Bruce. Even without the E Street Band, I was eager for the chance to see Bruce perform again and I anticipated the tour.
 
-**1973:** On his 24th birthday, Bruce records two of his greatest songs: “Incident on 57th Street” and “Rosalita (Come Out Tonight).” With these songs in the can, Bruce’s second album is complete.
+I was living in Virginia Beach in 1992, and in May that year the local rock station FM99 announced a contest to be flown to L.A. to see Bruce rehearse for the tour. If there was any contest to win, this was the one.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ioQcvijom28)
+About two weeks before the show, every day for four days, the station played a snippet of a Springsteen song. If you called in and identified it, you qualified for a drawing.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JuVKhS13eKY)
+I think it was on the second day that they played about a second of “[Candy's Room.](../2022-05-02_roll-of-the-dice-candys-room/post.md)” I knew it right away, called in and got through. That Friday, they drew my name out of the four people that won that week. I could not believe it. One week later, I was on my way to California.
 
-**1975:** Bruce plays his first known birthday show, turning in a great performance at the University of Michigan in Ann Arbor on the day he turns 26. In the encores, Bruce and the E Street Band play “Detroit Medley” for the very first time.
+The morning of the show, my friend and I, along with DJ Jay Philpot, got on the plane to fly to L.A. When we got to the hotel, we received instructions to meet later that afternoon in the lobby with all of the other radio contest winners. They loaded us onto a bus and we were off to the secret location in Hollywood. It was a couple of months after the L.A. riots, and I remember passing through areas with burnt out buildings.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=t87UMZI1cnE)
+When we arrived at the studio, there were already a number of people outside the doors waiting to get in. After a little while, the doors opened and someone came out to announce that Bruce wanted the contest winners to come in. We made our way to the front, through the doors, and into a wide-open hall. Right away, we saw Bruce and the band on the stage and rushed right up front. So for a little while, the 30 or so contest winners with our guests were the only fans there.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1975-09-23.jpg' alt='' title='' width='758' height='843' />
+I remember Bruce working through the chord changes of “[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” with the band. He stopped and asked several of us where we were from. Then I remember him playing an acoustic version of “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” and telling us that we were going to help sing the chorus.
 
-**1978:** Bruce spends his 29th birthday in Asbury Park with interviewer Mike Greenblatt and photographer Bob Sorce for *The Aquarian.*
+He left the stage until showtime. There was time to get food and drinks, which were provided. There were a lot of music industry people there. I remember Little Steven walking by me to hang out with someone.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0923.jpg' alt='' title='' width='258' height='640' />
+As show time neared, the contest winners were right back up front. The show was broadcast across the country. Here's the setlist and some notes from what I can remember:
 
-**1984:** Bruce spends his 35th birthday on roller skates with friends and bandmates at United Skates of America in Buffalo. He’s not very good, but with a girl on each arm, he manages to stay upright… most of the time.
+- [Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md) (played as a warm-up before the broadcast)
+- [Born in the U.S.A.](../1984-01-03_roll-of-the-dice-born-in-the-u-s-a/post.md)
+- [Local Hero](../1992-02-04_roll-of-the-dice-local-hero/post.md)
+- [Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)
+- Darkness on the Edge of Town
+- [If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2025/09/USA_Today_1984_09_26_22-scaled.jpg' alt='' title='' width='513' height='2560' />
+[Watch Video Highlight](https://videopress.com/embed/eUV8Hd1P)
 
-**1985:** Bruce spends his 36th birthday on stage at Denver’s Mile High Stadium. The night is unseasonably cold, with temperatures dropping into the 30s. The result is a relatively quiet crowd–they’re clapping with gloves on!
+- [57 Channels](../2020-05-17_roll-of-the-dice-57-channels-and-nothin-on/post.md) (w/ Little Steven): This was a rocked up version similar to the SNL version, but extended with audio of news reports related to the L.A. riots, including chants of "No justice, no peace!" at the beginning, and "Prejudice hurts!" at the end.
 
-[Watch Video Highlight](https://videopress.com/embed/Bpja26tF)
+[Watch Video Highlight](https://videopress.com/embed/LQZeF5Jg)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-23a.jpg' alt='' title='' width='758' height='988' />
+- [The Big Muddy](../1992-02-07_roll-of-the-dice-the-big-muddy/post.md): Primarily Bruce on electric guitar, with Roy and the band coming in during the song
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-23b.jpg' alt='' title='' width='758' height='563' />
+[Watch Video Highlight](https://videopress.com/embed/eD05kswB)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-23c.jpg' alt='' title='' width='758' height='1109' />
+- [Living Poof](../1992-02-08_roll-of-the-dice-living-proof/post.md)
+- [My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)
+- Leap of Faith
+- [Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1985-0923.jpg' alt='' title='' width='252' height='461' />
+[Watch Video Highlight](https://videopress.com/embed/sE7K2fDS)
 
-**1986:** A group of teenage fans gather in Bruce’s driveway late at night to wish him a happy 37th birthday. Bruce is not amused.
+- [Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md) (an extended version that showed off the background singers)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1986-09-23.jpg' alt='' title='' width='758' height='1020' />
+[Watch on Youtube: Bruce Springsteen - Roll Of The Dice. 1992-06-05](https://www.youtube.com/watch?v=yGaDOwpyocA)
 
-**1988:** A special Human Rights Now! show in Oakland on the occasion of Bruce’s 39th birthday: Roy Orbison surprises Bruce backstage and leads the crowd in singing “Happy Birthday,” as does Joan Baez, who also performs “Blowin’ in the Wind” with Bruce. During Bruce’s set, he tour premieres “Tunnel of Love” and plays his very first “I Ain’t Got No Home.”
+- [Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md), with Patti joining to sing backup
 
-[Watch on Youtube: Bruce springsteen at the amnesty international concert oakland california](https://www.youtube.com/watch?v=-nGfxpXnuBQ)
+[Watch Video Highlight](https://videopress.com/embed/K2A6d4DI)
 
-[Watch on Youtube: BRUCE SPRINGSTEEN and The E STREET BAND -  Human Rights Now, Oakland, CA.  September 23, 1988](https://www.youtube.com/watch?v=pZ-8l_MjUlU)
+- [Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md), with Little Steven
 
-[Watch Video Highlight](https://videopress.com/embed/ObIM11p3)
+[Watch Video Highlight](https://videopress.com/embed/er94Z6vt)
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2021/09/1988-09-23a.jpg' alt='' title='' width='758' height='1753' />
+- and an acoustic “Hungry Heart”
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-23b.jpg' alt='' title='' width='758' height='828' />
+[Watch Video Highlight](https://videopress.com/embed/71qk28wQ)
 
-**1989:** Bruce celebrates his 40th birthday with the E Street Band (including Steve Van Zandt, who sings lead on “Stand By Me” so Bruce can have a dance with his mom) at McLoone’s Rum Runner in Sea Bright. This is the last E Street Band performance before Bruce disbands them.
+Then when the broadcast ended, he said that he was going to take a short break and come out and play some more just for those of us there.
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1989-09-23.jpg' alt='' title='' width='659' height='1647' />
+He came back out and played five more songs for us. So much fun! He played:
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/1989-09-23b.jpg' alt='' title='' width='758' height='905' />
+- [Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md) (solo on electric guitar)
+- [Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)
+- [99 ½ Won't Do](../2020-10-11_cover-me-ninety-nine-and-a-half-wont-do/post.md) (a lot of fun even though I had never heard it before)
+- [Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)
+- [Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md) (w/ Little Steven)
 
-**1997:** Bruce celebrates his 48th birthday with friends and family at his house in Colts Neck. The entertainment for the evening is a local band called The Gotham Playboys that Soozie Tyrell clued Bruce into, and Bruce is so taken with them that he will shortly hire several of the group’s members to play on the first of what would become known as The Seeger Sessions.
+When the post-broadcast portion was over we thought that was it, but Bruce announced that he would come out and sign things for us. It seemed to me that Bruce's people might not have been expecting this as they quickly scrambled to put up a table and chair behind a rope and had us form a line. The line of people wasn't just the contest winners, it was a good portion of the 300 or so people there, which also included a lot of music industry people.
 
-**2014:** At a special event at Monmouth University, Thom Zimny screens never-before-seen (and never-again-seen) archival clips from Bruce’s vault.
+Bruce came out, but instead of sitting at the chair behind the table, he sat right on the table, threw the rope aside and people could go right up to him. He shook hands, hugged people, had quick chats, and signed whatever people wanted. When it was finally my turn I shook his hand, thanked him for doing this and had him sign my laminated pass. I see that pass every year when it hangs with the ornaments on the Christmas tree.
 
-**2016:** On the occasion of Bruce’s 67th birthday, he releases his *Chapter and Verse* retrospective companion CD to his autobiography, *Born to Run.*
+What an experience. Over time, I've forgotten some of the details but other parts are etched in my memory forever. I could never have dreamed of winning anything better.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+What's your story?
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2020/09/2016-09-23.jpg' alt='' title='' width='758' height='745' />
-
-**2021:** Bruce announces a new concert film, *The 1979 Legendary No Nukes Concerts.*
-
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HUO41TDicD0)
+*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*

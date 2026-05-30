@@ -46,7 +46,7 @@ post_id: 57750
 
 [Watch on Youtube: Bruce Springsteen Twist and shout - East Berlin 1988](https://www.youtube.com/watch?v=u3iWwqqrQbo)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDUxGp0m4wdLXYYfsgxm_Cb)
+[Watch on Youtube: East Berlin 19/07/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zDUxGp0m4wdLXYYfsgxm_Cb)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2024/07/The_Berkshire_Eagle_1988_07_24_2-scaled.jpg.webp)
 

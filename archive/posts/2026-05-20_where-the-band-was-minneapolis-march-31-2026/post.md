@@ -1,11 +1,3 @@
----
-layout: post
-title: "Introduction"
-author: "Ken"
-excerpt: "“The country we carry in our heart is waiting.’” –Bruce Springsteen, New York Times, August 4, 2004 In the summer of 2004, Bruce Springsteen was…"
-header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2026/05/BSP155302.webp
-post_id: 68809
----
 > “The country we carry in our heart is waiting.'” *–Bruce Springsteen, New York Times, August 4, 2004*
 
 In the summer of 2004, Bruce Springsteen was all over the news.
@@ -16,7 +8,7 @@ Springsteen was in the news because he had done something that shocked the natio
 
 And by endorsed I mean a full-throated endorsement of presidential candidate Senator John Kerry in the form of a personally written, nationally syndicated *New York Times* editorial.
 
-![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/master/assets_webp/2016/01/Calgary_Herald_2004_08_07_13-scaled.jpg.webp)
+<img src='https://estreetshuffle.com/wp-content/uploads/2016/01/Calgary_Herald_2004_08_07_13-scaled.jpg' alt='' title='' width='758' height='922' />
 
 And if that wasn’t enough, in the same editorial he announced an all-star tour called *Vote for Change* with an avowed mission to oust the Bush administration and usher in a new direction for the country.
 
@@ -32,7 +24,7 @@ After all, Springsteen had long been outspoken on social causes and civic contro
 
 He’d headlined the Musicians United for Safe Energy (MUSE) concerts in 1979…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: The Legendary 1979 No Nukes Concerts Setlist](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZZf4bVvd1BpxUBpf0g4sXl)
 
 …the Amnesty International Human Rights Now! Tour in 1988…
 
@@ -76,7 +68,7 @@ Both times, though, he was brief enough and sly enough that his remarks went mos
 
 This time was different. On stage during the Vote for Change Tour that fall, Bruce abandoned all pretense at subtlety, opening his sows with the “Star-Spangled Banner” and using “Mary’s Place” as a nightly set piece to galvanize his audience into action.
 
-![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/master/assets_webp/2016/01/Asbury_Park_Press_2004_08_10_Page_13.jpg.webp)
+<img src='https://estreetshuffle.com/wp-content/uploads/2016/01/Asbury_Park_Press_2004_08_10_Page_13.jpg' alt='' title='' width='758' height='540' />
 
 [Watch on Youtube: Mary’s Place - Bruce Springsteen (live at Capital One Arena, Washington, D.C. 2004)](https://www.youtube.com/watch?v=WD8hha4H-lY)
 
@@ -88,7 +80,7 @@ President Bush won re-election, but Bruce continued to speak out against him, es
 
 When the next U.S. presidential campaign came around, Bruce didn’t wait until the fourth quarter to get in the game. On April 15th, 2008, he endorsed a candidate in the heat of primary season, and this time he bet on the winning horse.
 
-![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/master/assets_webp/2016/01/The_Courier_2008_04_17_2.jpg.webp)
+<img src='https://estreetshuffle.com/wp-content/uploads/2016/01/The_Courier_2008_04_17_2.jpg' alt='' title='' width='758' height='486' />
 
 Bruce’s backed up his early endorsement of Senator Barack Obama with frequent road, rally, and fundraising appearances with the candidate, kick-starting a friendship that only grew stronger over the years and endures to this day.
 
@@ -112,25 +104,27 @@ A week later, he spoke up on stage against Trump’s Muslim ban…
 
 …and three days after that he declared himself an “embarrassed American” following Trump’s rude treatment of the Australian Prime Minister.
 
+ 
+
 [Watch on Youtube: "Don't Hang Up" (Melbourne, 02/02/17)](https://www.youtube.com/watch?v=zSiZMyUlw8Y)
 
 But those early days offered only a very small taste of what was to come when Trump returned to office in 2025. For many if not most, embarrassment had given way to horror as Trump began waging an all-out assault against the American social contract, constitutionally guaranteed rights and liberties, and even the very notion of citizenship itself.
 
 Retitling his ongoing word tour the Land of Home and Dreams Tour, Bruce spent much of 2025 ratcheting up his rhetoric overseas calling out the Trump administration back home. From the stage in Manchester, he spoke eloquently.
 
-> *In my home, the America I love, the America I’ve written about that has been a beacon of hope and liberty for 250 years, is currently in the hands of a corrupt, incompetent, and treasonous administration.*
->
-> *In America, they are persecuting people for using their right to free speech and voicing their dissent. This is happening now.*
->
-> *In America, the richest men are taking satisfaction in abandoning the world’s poorest children to sickness and death. This is happening now.*
->
-> *In my country, they’re taking sadistic pleasure in the pain that they inflict on loyal American workers, they’re rolling back historic Civil Rights legislation that led to a more just and plural society, they’re abandoning our great allies and siding with dictators against those struggling for their freedom.*
->
-> *They’re defunding American universities that won’t bow down to their ideological demands. They’re removing residents off American streets and, without due process of law, are deporting them to foreign detention centers and prisons. This is all happening now.*
->
-> *A majority of our elected representatives have failed to protect the American people from the abuses of an unfit president and a rogue government.*
->
-> *They have no concern or idea of what it means to be deeply American. The America that I’ve sung to you about for 50 years is real, and regardless of its faults, is a great country with a great people.*
+*In my home, the America I love, the America I’ve written about that has been a beacon of hope and liberty for 250 years, is currently in the hands of a corrupt, incompetent, and treasonous administration.*
+
+*In America, they are persecuting people for using their right to free speech and voicing their dissent. This is happening now.*
+
+*In America, the richest men are taking satisfaction in abandoning the world’s poorest children to sickness and death. This is happening now.*
+
+*In my country, they’re taking sadistic pleasure in the pain that they inflict on loyal American workers, they’re rolling back historic Civil Rights legislation that led to a more just and plural society, they’re abandoning our great allies and siding with dictators against those struggling for their freedom.*
+
+*They’re defunding American universities that won’t bow down to their ideological demands. They’re removing residents off American streets and, without due process of law, are deporting them to foreign detention centers and prisons. This is all happening now.*
+
+*A majority of our elected representatives have failed to protect the American people from the abuses of an unfit president and a rogue government.*
+
+*They have no concern or idea of what it means to be deeply American. The America that I’ve sung to you about for 50 years is real, and regardless of its faults, is a great country with a great people.*
 
 After the tour ended, things got even worse.
 
@@ -190,23 +184,23 @@ On this night, “Born to Run,” “Bobby Jean,” “Dancing in the Dark,” a
 
 “Chimes of Freedom” brought me back into the moment, however, along with Bruce’s closing benediction–his most eloquent of the evening.
 
-> *I know for me, the hardest part about all of this is feeling the distance between your neighbors, your fellow citizens, and that distance… well, it can darken your soul.*
->
-> *We have a leader who says he wishes nothing but ill upon the people he disagrees with and who disagree with him.*
->
-> *Well, I don’t feel that way.*
->
-> *America, from the beginning, was born out of disagreement, was built on disagreement. We can argue about what course we think the country should take while recognizing our common humanity, our dignity, and yes, our unity.*
->
-> *Now, I go back to thinking about Renée Good's last words before she died, to the man who she was protesting against, the man who would take her life. She said, "That's fine, dude, I'm not mad at you. I'm not mad." God bless her.*
->
-> *So tonight, when you go home, hold your loved ones close. And tomorrow, do as Renée did, find a way to take aggressive, peaceful action to defend our country's ideals.*
->
-> *And as the great civil rights leader John Lewis said, "Go out and get into some good trouble." Say something! Do something! Hell… sing something!*
->
-> *If you're feeling helpless, hopeless, betrayed, frustrated, angry… I know I've been. That's why The E Street Band is here tonight. This is a tour that was not planned. We're here tonight because we need to feel your hope, and your strength. And we want to bring some hope and some strength for you. I hope we did that.*
->
-> *All I can say is God bless Alex Pretti, God bless Renée Good, God bless you, and God bless America.*
+*I know for me, the hardest part about all of this is feeling the distance between your neighbors, your fellow citizens, and that distance… well, it can darken your soul.*
+
+*We have a leader who says he wishes nothing but ill upon the people he disagrees with and who disagree with him.*
+
+*Well, I don’t feel that way.*
+
+*America, from the beginning, was born out of disagreement, was built on disagreement. We can argue about what course we think the country should take while recognizing our common humanity, our dignity, and yes, our unity.*
+
+*Now, I go back to thinking about Renée Good's last words before she died, to the man who she was protesting against, the man who would take her life. She said, "That's fine, dude, I'm not mad at you. I'm not mad." God bless her.*
+
+*So tonight, when you go home, hold your loved ones close. And tomorrow, do as Renée did, find a way to take aggressive, peaceful action to defend our country's ideals.*
+
+*And as the great civil rights leader John Lewis said, "Go out and get into some good trouble." Say something! Do something! Hell… sing something!*
+
+*If you're feeling helpless, hopeless, betrayed, frustrated, angry… I know I've been. That's why The E Street Band is here tonight. This is a tour that was not planned. We're here tonight because we need to feel your hope, and your strength. And we want to bring some hope and some strength for you. I hope we did that.*
+
+*All I can say is God bless Alex Pretti, God bless Renée Good, God bless you, and God bless America.*
 
 He closed the show with a one-off surprise performance of “Purple Rain,” a special thank-you gift for the people of Minneapolis for lighting the way for the rest of us.. It was beautiful and heart-breaking and essentially the city’s anthem, and because of that I can forgive him ending the show with a song about a world-ending apocalypse. (Sometimes I hate my analytical brain.)
 

@@ -72,7 +72,7 @@ Later that night–so late that it's technically the following day, August 31–
 
 **2016:** Jaws drop and the Internet breaks: Bruce and the E Street Band break their U.S. record–again–for the longest show ever (this time breaking the four-hour mark), but it's the set list at this final East Rutherford show that blows minds: the show starts with the by now (amazingly) standard opener, "New York City Serenade" complete with strings, but what follows is a largely chronological trip through Bruce's catalog. Rickie Lee Jones guest stars on three songs, and Bruce plays the entire second side of *The Wild, The Innocent, and The E Street Shuffle* (including the tour premiere of "Kitty's Back"). Also making their tour premiere: "Pretty Flamingo," "Living Proof," and "Secret Garden." A fireworks-accompanied "Jersey Girl" closes a remarkable show.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLrNIMOwexdz95YpVOZNuDZ_qAqPt2D4Vj)
+[Watch on Youtube: MetLife#3 - Aug 30, 2016](https://www.youtube.com/playlist?list=PLrNIMOwexdz95YpVOZNuDZ_qAqPt2D4Vj)
 
 [Watch on Youtube: Summertime Blues - Springsteen - MetLife#3 Aug 30, 2016](https://www.youtube.com/watch?v=SMc8jc1kgXs)
 

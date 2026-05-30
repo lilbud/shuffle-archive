@@ -52,25 +52,25 @@ To some, “Wrecking Ball” is a song about a decrepit stadium scheduled for de
 
 To me, it’s about my dad.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=StVADmXbOEs)
+[Watch on Youtube: Wrecking Ball](https://www.youtube.com/watch?v=StVADmXbOEs)
 
 Great songs take on meaning to those who listen, and “Wrecking Ball” is a great song. From any other songwriter, though, it would have been a lark.
 
 Bruce wrote it on the occasion of his last stand at Giants Stadium, where he’d played two dozen times over the course of his career, and the opening verses are so specific and detailed that it’s hard to imagine the song serving as a metaphor for anything.
 
-*I was raised out of steel here in the swamps of Jersey, some misty years ago*  
-*Through the mud and the beer, and the blood and the cheers, I’ve seen champions come and go*  
-*So if you got the guts mister, yeah, if you got the balls*  
+> *I was raised out of steel here in the swamps of Jersey, some misty years ago*<br>
+> *Through the mud and the beer, and the blood and the cheers, I’ve seen champions come and go*<br>
+> *So if you got the guts mister, yeah, if you got the balls*<br>
 > *If you think it’s your time, then step to the line, and bring on your wrecking ball*
 
-> > *Bring on your wrecking ball*  
-> > *Bring on your wrecking ball*  
-*Come on and take your best shot, let me see what you got*  
-> > *Bring on your wrecking ball*
+> *Bring on your wrecking ball*
+> *Bring on your wrecking ball*
+> *Come on and take your best shot, let me see what you got*<br>
+> *Bring on your wrecking ball*
 
-*Now my home’s here in these meadowlands where mosquitoes grow big as airplanes*  
-*Here where the blood is spilled, the arena’s filled, and giants played their games*  
-*So raise up your glasses and let me hear your voices call*  
+> *Now my home’s here in these meadowlands where mosquitoes grow big as airplanes*<br>
+> *Here where the blood is spilled, the arena’s filled, and giants played their games*<br>
+> *So raise up your glasses and let me hear your voices call*<br>
 > *Because tonight all the dead are here, so bring on your wrecking ball*
 
 Anthropomorphized arenas are not the stuff about which great rock songs are typically written, but Bruce uses evocative imagery and a restrained E Street Band to conjure the image of a past-his-prime prize-fighter who refuses to step aside when his day is done. He dares the next contender to try to unseat him, and he calls upon the ghosts of those who came before to have his back.
@@ -81,23 +81,23 @@ It’s a cocktail of nostalgia, defiance, and solidarity that couldn’t have be
 
 As specific as the first half of the song is, however, the second half is universal. It also holds the powerful message at the core of “Wrecking Ball.”
 
-*Yeah, we know that come tomorrow, none of this will be here*  
-*So hold tight on your anger, you hold tight on your anger*  
+> *Yeah, we know that come tomorrow, none of this will be here*<br>
+> *So hold tight on your anger, you hold tight on your anger*<br>
 > *Hold tight to your anger, don’t fall to your fears*
 
-*Now when all this steel and these stories, they drift away to rust*  
-*And all our youth and beauty, it’s been given to the dust*  
-*When the game has been decided and we’re burning down the clock*  
-*And all our little victories and glories have turned into parking lots*  
-*When your best hopes and desires are scattered through the wind*  
-*And hard times come, and hard times go*  
-*And hard times come, and hard times go*  
-*And hard times come, and hard times go*  
-*And hard times come, and hard times go*  
-*And hard times come, and hard times go*  
+> *Now when all this steel and these stories, they drift away to rust*<br>
+> *And all our youth and beauty, it’s been given to the dust*<br>
+> *When the game has been decided and we’re burning down the clock*<br>
+> *And all our little victories and glories have turned into parking lots*<br>
+> *When your best hopes and desires are scattered through the wind*<br>
+> *And hard times come, and hard times go*<br>
+> *And hard times come, and hard times go*<br>
+> *And hard times come, and hard times go*<br>
+> *And hard times come, and hard times go*<br>
+> *And hard times come, and hard times go*<br>
 > *Yeah just to come again*
 
-> > *Bring on your wrecking ball*
+> *Bring on your wrecking ball*
 
 Bruce extends the stadium metaphor cleverly and to remarkable length–so clever, in fact, that one might miss the moral.
 
@@ -121,12 +121,12 @@ Squeeze every last drop out of the time you’ve been given, and find every joy 
 
 The way my dad did, in the last and best lesson he ever taught me.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=05MSCU-yi7U)
+[Watch on Youtube: Bruce Springsteen and the E Street Band + Crowd greets - Wrecking Ball. Live. Los Angeles.07.04.2026](https://www.youtube.com/watch?v=05MSCU-yi7U)
 
-**Wrecking Ball  **
-**Recorded:** 2011  
-**Released:** *Wrecking Ball* (2011)  
-**First performed:** September 30, 2009 (East Rutherford, NJ)  
+**Wrecking Ball**
+**Recorded:** 2011
+**Released:** *Wrecking Ball* (2011)
+**First performed:** September 30, 2009 (East Rutherford, NJ)
 **Last performed:** April 23, 2026 (Sunrise, FL)
 
 © August 12, 2022

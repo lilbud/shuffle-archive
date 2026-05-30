@@ -155,7 +155,9 @@ Autobiographical in content but universal in theme, "My Hometown" has proved its
 
 …to acoustic guitar and violin…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_QvhA7z6XcM)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=_QvhA7z6XcM) deleted, replaced***
+
+[Watch On Youtube: My Hometown--Bruce Springsteen (Freehold, 1996)](https://www.youtube.com/watch?v=ViUfhjtQixY)
 
 …and even reggae:
 

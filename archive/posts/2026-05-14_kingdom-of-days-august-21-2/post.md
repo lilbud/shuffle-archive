@@ -22,7 +22,7 @@ post_id: 59399
 
 **1976:** Bruce, the E Street Band, and the Miami Horns bring the Lawsuit Tour to the Palace Theater in Waterbury, Connecticut.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAjgbMwpEkMyYVEXwh-zM2O)
+[Watch on Youtube: Waterbury 21/08/1976](https://www.youtube.com/playlist?list=PLJTyL9twk3zAjgbMwpEkMyYVEXwh-zM2O)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/08/1976-08-21.png.webp)
 
@@ -32,7 +32,7 @@ post_id: 59399
 
 [Watch on Youtube: WABC Interview with Bruce Springsteen, 1978](https://www.youtube.com/watch?v=5AJeDj3og0A)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1BMGlg5htzeREH7csgj0guB)
+[Watch on Youtube: Madison Square Garden (8/21/1978)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1BMGlg5htzeREH7csgj0guB)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/1978-08-21.jpg.webp)
 
@@ -42,7 +42,7 @@ post_id: 59399
 
 **1981:** At the second of six nights at the Los Angeles Memorial Sports Arena on the River Tour, Flo and Eddie guest-star on "Hungry Heart." (They also provided backing vocals on the original album track.)<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBsoSImHtGzvLwx-Z_eDw-P)
+[Watch on Youtube: Los Angeles 21/08/1981](https://www.youtube.com/playlist?list=PLJTyL9twk3zBsoSImHtGzvLwx-Z_eDw-P)
 
 [Watch on Youtube: Bruce Springsteen - "Hungry Heart" w/Flo and Eddie - 1981-08-21](https://www.youtube.com/watch?v=xwVaag7j2KI)
 
@@ -64,7 +64,7 @@ post_id: 59399
 
 **1990:** *The River* is certified double platinum by the Recording Industry Association of America.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_nQCRH689dsWcnQUgI1Tv3xx4UqJCzlHA4)
+[Watch on Youtube: The River](https://www.youtube.com/playlist?list=OLAK5uy_nQCRH689dsWcnQUgI1Tv3xx4UqJCzlHA4)
 
 **1992:** Bruce and his 1992-93 touring band bring World Tour 1992 to the Richfield Coliseum for the first of two nights.<br>
 
@@ -90,7 +90,7 @@ post_id: 59399
 
 [Watch on Youtube: Bruce Springsteen Worlds Apart   21st August 2002, Tacoma Dome, Tacoma, WA](https://www.youtube.com/watch?v=POE4Ab8EDzQ)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS)
+[Watch on Youtube: Bruce Springsteen Live in Tacoma 21-08-2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/2002-08-21a.jpg.webp)
 

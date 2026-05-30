@@ -16,11 +16,11 @@ post_id: 57909
 
 **1978:** Bruce plays in West Virginia for the first and only time, when the Darkness Tour stops at the Charleston Civic Center. This show is notable for more than its location, however: it's also the very first appearance of a work-in-progress "Sherry Darling."<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1A6fmJNSlICZT-QwOoJ8jNK)
+[Watch on Youtube: Charleston (8/4/1978)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1A6fmJNSlICZT-QwOoJ8jNK)
 
 **1981:** The original River Tour arrives in Largo, Maryland, for the first of two shows at the Capital Center.<br>
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeXZxSnlTIVoWJ6s6HT8nI1z)
+[Watch on Youtube: August 4th, 1981 - Largo, MD](https://www.youtube.com/playlist?list=PLsxNBNx2akeXZxSnlTIVoWJ6s6HT8nI1z)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/1981-08-04.png.webp)
 

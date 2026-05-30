@@ -94,7 +94,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Bruce Springsteen DVD Hamburg 2008](https://www.youtube.com/watch?v=nH9ghlSkMj8)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Vi3j3Gl74Yw?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
+[Watch on Youtube: Bruce Springsteen - 7 Nights To Rock (Hamburg, 21.06.2008)](https://www.youtube.com/watch?v=Vi3j3Gl74Yw)
 
 **2011:** At the memorial service for the late Clarence Clemons in Palm Beach, Bruce delivers Clarence's eulogy and performs a sad, acoustic "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" in tribute to the Big Man. Bruce and Jackson Browne close the ceremony with a duet of "You're a Friend of Mine."<br>
 

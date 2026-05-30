@@ -16,7 +16,9 @@ In 2011, Darlene Love was inducted into the Rock and Roll Hall of Fame, and "Zip
 
 Bruce showed up to play lead guitar for Darlene (and that's Curtis King on backing vocals)–resulting in one-off performance of an unexpected cover.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=a2mjTLH5m38)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=a2mjTLH5m38) deleted, replaced***
+
+[Watch On Youtube: Darlene Love with Bette Midler - Zip-A-Dee-Doo-Dah and He's a Rebel - RRHF Ceremony - 2011 4K 5.1](https://www.youtube.com/watch?v=o4sRVzlSZzE)
 
 **Zip-a-Dee-Doo-Dah**<br>
 **First performed:** March 14, 2011 (New York City, NY)<br>

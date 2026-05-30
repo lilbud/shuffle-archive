@@ -68,7 +68,7 @@ post_id: 57867
 
 [Watch on Youtube: Bruce Springsteen live 10th Avenue Freeze Out July 27 2008 East Rutherford NJ](https://www.youtube.com/watch?v=ausUjJ4S-yU)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBRPYPYZJamzTxkxn8AOVX8)
+[Watch on Youtube: Giants Stadium New Jersey 27/07/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zBRPYPYZJamzTxkxn8AOVX8)
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/07/2008-07-27a.png.webp)
 

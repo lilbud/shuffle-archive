@@ -30,7 +30,7 @@ post_id: 58369
 
 [Watch Video Highlight](https://videopress.com/embed/O8YUTq5R)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zA1TFgf6jVO6s3jMFbLoHkt)
+[Watch on Youtube: Detroit 12/08/1981](https://www.youtube.com/playlist?list=PLJTyL9twk3zA1TFgf6jVO6s3jMFbLoHkt)
 
 **1984:** Southside Johnny guest-stars on "Twist and Shout" at Night Six of a ten-night Meadowlands stand on the Born in the U.S.A. Tour.<br>
 

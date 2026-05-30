@@ -33,19 +33,19 @@ def replace_links(content: str):
 
     content = re.sub(
         "https?://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/",
-        "/roll-of-the-dice-album-by-album/",
+        "/shuffle/roll-of-the-dice-album-by-album/",
         content,
     )
 
     content = re.sub(
         "https?://estreetshuffle.com/index.php/category/",
-        "/categories/",
+        "/shuffle/categories/",
         content,
     )
 
     content = re.sub(
         "https?://estreetshuffle.com/index.php/tag/",
-        "/tags/",
+        "/shuffle/tags/",
         content,
     )
 

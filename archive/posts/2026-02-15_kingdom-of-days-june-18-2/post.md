@@ -52,7 +52,7 @@ That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic s
 
 [Watch on Youtube: Bruce Springsteen SUMMERTIME BLUES Amsterdam 18.06.2008](https://www.youtube.com/watch?v=g0PaDMFv50U)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBMy-mPsiPafvmeiuG0NP9t)
+[Watch on Youtube: Amsterdam 18/06/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zBMy-mPsiPafvmeiuG0NP9t)
 
 **2011:** Clarence Clemons passes away following complications arising from his stroke a week earlier. Bruce issues the following statement:<br>
 

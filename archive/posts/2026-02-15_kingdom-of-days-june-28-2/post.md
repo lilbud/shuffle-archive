@@ -36,7 +36,7 @@ post_id: 57514
 
 [Watch on Youtube: waitin' on a sunny day Milano 28 giugno 2003](https://www.youtube.com/watch?v=2Pi79S-DHxg)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAR7_v5okUXG4AZFkBe04Nc)
+[Watch on Youtube: Milan 28/06/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zAR7_v5okUXG4AZFkBe04Nc)
 
 **2005:** Bruce plays his final European solo acoustic show at ICC Berlin, where Bruce tour premieres "Sinaloa Cowboys" and Wolfgang Niedecken guest-stars for the tour premiere of "Hungry Heart."<br>
 
@@ -54,7 +54,7 @@ post_id: 57514
 
 [Watch on Youtube: The Gaslight Anthem & Bruce Springsteen - The '59 Sound (PROSHOT)](https://www.youtube.com/watch?v=Ul0XCTeJx_o)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJ3gKh8Ty5pZMnACTqJThy_0Ge7B3hKft)
+[Watch on Youtube: Bruce Springsteen - London Calling: Live in Hyde Park, 2009](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZMnACTqJThy_0Ge7B3hKft)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - She's the One (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=Xg7tlh-H6_Y)
 

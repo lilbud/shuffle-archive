@@ -24,23 +24,23 @@ After all, Springsteen had long been outspoken on social causes and civic contro
 
 He’d headlined the Musicians United for Safe Energy (MUSE) concerts in 1979…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/embed)
+[Watch on Youtube: The Legendary 1979 No Nukes Concerts Setlist](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZZf4bVvd1BpxUBpf0g4sXl)
 
 …the Amnesty International Human Rights Now! Tour in 1988…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=N3I1HLbqIkE)
+[Watch on Youtube: Human Rights Now! 1988](https://www.youtube.com/watch?v=N3I1HLbqIkE)
 
 …and took action on his own to promote the nascent Vietnam Veterans of America in 1981 with a special benefit concert.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AOetvm2zUKQ)
+[Watch on Youtube: Bruce Springsteen - Live in Los Angeles - August 20th, 1981](https://www.youtube.com/watch?v=AOetvm2zUKQ)
 
 In 1990, Springsteen played a pair of acoustic shows benefitting the Christic Institute, a public interest law firm and activism organization.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-Jx5pvfxSlE)
+[Watch on Youtube: Christic Institute Benefit News Coverage](https://www.youtube.com/watch?v=-Jx5pvfxSlE)
 
 And two years later, he turned a cable TV novelty song into a scathing condemnation of the police beating of Rodney King.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2xktsE-VaUs)
+[Watch on Youtube: Bruce Springsteen - 57 Channels (And Nothin' On) (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=2xktsE-VaUs)
 
 More recently, he’d generated controversy by writing a song about the 1999 murder of Amadou Diallo by police officers and performing it nightly following the acquittal of the officers responsible.
 
@@ -58,7 +58,7 @@ It also wasn’t the first time he spoke out against the current office-holder. 
 
 Four years later, Reagan did his best to associate himself with the now mega-star Springsteen by rhetorical proximity.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=z8BRWNaOdlc)
+[Watch on Youtube: Ronald Reagan - Bruce Springsteen (19.09.1984)](https://www.youtube.com/watch?v=z8BRWNaOdlc)
 
 Although he typically let such attempts pass by without comment, Bruce responded to Reagan from the stage two days later.
 
@@ -74,7 +74,7 @@ Springsteen did everything he could to help the Kerry-Edwards ticket, but as his
 
 President Bush won re-election, but Bruce continued to speak out against him, especially in the aftermath of Hurricane Katrina and the Bush administration’s tragic mismanagement of the relief effort.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c-CgCLq_1GE)
+[Watch on Youtube: How Can a Poor Man Stand Such Times and Live (Live at the New Orleans Jazz & Heritage Fest...](https://www.youtube.com/watch?v=c-CgCLq_1GE)
 
 When the next U.S. presidential campaign came around, Bruce didn’t wait until the fourth quarter to get in the game. On April 15th, 2008, he endorsed a candidate in the heat of primary season, and this time he bet on the winning horse.
 
@@ -84,45 +84,45 @@ When the next U.S. presidential campaign came around, Bruce didn’t wait until 
 
 Bruce’s backed up his early endorsement of Senator Barack Obama with frequent road, rally, and fundraising appearances with the candidate, kick-starting a friendship that grew stronger over the years and endures to this day.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hrBIk1EJ_ho)
+[Watch on Youtube: Obama Gets a Little Help From 'The Boss' in Ohio](https://www.youtube.com/watch?v=hrBIk1EJ_ho)
 
 By the time Senator Obama became President Obama, Bruce had established himself as a key voice in the American civic discourse. It was no surprise when he was asked to perform at the inauguration, an appearance he reprised twelve years later by invitation from the Biden Inaugural Committee.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NqEG2-0R6CA)
+[Watch on Youtube: Bruce Springsteen the Rising Obama](https://www.youtube.com/watch?v=NqEG2-0R6CA)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fW_Vny_aXNM)
+[Watch on Youtube: Bruce Springsteen Performs "Land of Hope and Dreams"| Biden-Harris Inauguration 2021](https://www.youtube.com/watch?v=fW_Vny_aXNM)
 
 The songs he performed–”The Rising” in 2008 and “Land of Hope and Dreams” in 2020–had always been inspirational. Now they’d become iconic, the former representing the indefatigable American spirit and the latter symbolizing the American promise.
 
 But those were America’s brighter years. In between Presidents Obama and Biden came the first Trump administration. The American resistance movement began immediately upon Trump’s inauguration, and Springsteen wasted no time aligning himself with it in his opening remarks in Perth the following day.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jSV7wsiLhpk)
+[Watch on Youtube: Bruce Springsteen in Perth - January 22, 2017](https://www.youtube.com/watch?v=jSV7wsiLhpk)
 
 A week later, he spoke up on stage against Trump’s Muslim ban…
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vqeVGnWwnxM)
+[Watch on Youtube: Bruce Springsteen in Adelaide - January 30, 2017](https://www.youtube.com/watch?v=vqeVGnWwnxM)
 
 …and three days after that he declared himself an “embarrassed American” following Trump’s rude treatment of the Australian Prime Minister.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zSiZMyUlw8Y)
+[Watch on Youtube: "Don't Hang Up" (Melbourne, 02/02/17)](https://www.youtube.com/watch?v=zSiZMyUlw8Y)
 
 But those early days offered only a very small taste of what was to come when Trump returned to office in 2025. For many if not most, embarrassment gave way to horror as Trump began waging an all-out assault against the American social contract, its constitutionally guaranteed rights and liberties, and even the very notion of citizenship itself.
 
 Retitling his ongoing world tour the Land of Home and Dreams Tour, Bruce spent much of 2025 ratcheting up his rhetoric overseas calling out the Trump administration back home. From the stage in Manchester, he spoke eloquently:
 
-> *In my home, the America I love, the America I’ve written about that has been a beacon of hope and liberty for 250 years, is currently in the hands of a corrupt, incompetent, and treasonous administration.*
+*In my home, the America I love, the America I’ve written about that has been a beacon of hope and liberty for 250 years, is currently in the hands of a corrupt, incompetent, and treasonous administration.*
 
-> *In America, they are persecuting people for using their right to free speech and voicing their dissent. This is happening now.*
+*In America, they are persecuting people for using their right to free speech and voicing their dissent. This is happening now.*
 
-> *In America, the richest men are taking satisfaction in abandoning the world’s poorest children to sickness and death. This is happening now.*
+*In America, the richest men are taking satisfaction in abandoning the world’s poorest children to sickness and death. This is happening now.*
 
-> *In my country, they’re taking sadistic pleasure in the pain that they inflict on loyal American workers, they’re rolling back historic Civil Rights legislation that led to a more just and plural society, they’re abandoning our great allies and siding with dictators against those struggling for their freedom.*
+*In my country, they’re taking sadistic pleasure in the pain that they inflict on loyal American workers, they’re rolling back historic Civil Rights legislation that led to a more just and plural society, they’re abandoning our great allies and siding with dictators against those struggling for their freedom.*
 
-> *They’re defunding American universities that won’t bow down to their ideological demands. They’re removing residents off American streets and, without due process of law, are deporting them to foreign detention centers and prisons. This is all happening now.*
+*They’re defunding American universities that won’t bow down to their ideological demands. They’re removing residents off American streets and, without due process of law, are deporting them to foreign detention centers and prisons. This is all happening now.*
 
-> *A majority of our elected representatives have failed to protect the American people from the abuses of an unfit president and a rogue government.*
+*A majority of our elected representatives have failed to protect the American people from the abuses of an unfit president and a rogue government.*
 
-> *They have no concern or idea of what it means to be deeply American. The America that I’ve sung to you about for 50 years is real, and regardless of its faults, is a great country with a great people.*
+*They have no concern or idea of what it means to be deeply American. The America that I’ve sung to you about for 50 years is real, and regardless of its faults, is a great country with a great people.*
 
 After the tour ended, things got even worse.
 
@@ -152,7 +152,7 @@ Just like the rest of the country, Bruce was aghast and horrified at the events 
 
 In mid-February, he surprised fans by announcing an imminent Land of Hope and Dreams American Tour, a tour he would admit on stage “was never supposed to happen.”
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VU0T_bRbMRQ)
+[Watch on Youtube: Land Of Hope And Dreams American Tour](https://www.youtube.com/watch?v=VU0T_bRbMRQ)
 
 Bruce’s tours typically provide considerable lead time, but this one began six weeks after it was announced.
 
@@ -168,7 +168,7 @@ It was arguably the most cohesive and powerful set list Bruce has ever created, 
 
 I was present for opening night in Minneapolis. Because I abandoned all social media a year or so back, I’d managed to avoid spoilers completely. For the first time this century, I walked into a Bruce Springsteen concert completely unaware of what was to come.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G_R8lwvtrzc)
+[Watch on Youtube: Live From Minneapolis (Chiller Mix)](https://www.youtube.com/watch?v=G_R8lwvtrzc)
 
 It was my 99th show, and without question it was and will likely remain my all-time favorite.
 
@@ -188,27 +188,27 @@ On this night, “Born to Run,” “Bobby Jean,” “Dancing in the Dark,” a
 
 “Chimes of Freedom” brought me back into the moment, however, along with Bruce’s closing benediction–his most eloquent of the evening.
 
-> *I know for me, the hardest part about all of this is feeling the distance between your neighbors, your fellow citizens, and that distance… well, it can darken your soul.*
+*I know for me, the hardest part about all of this is feeling the distance between your neighbors, your fellow citizens, and that distance… well, it can darken your soul.*
 
-> *We have a leader who says he wishes nothing but ill upon the people he disagrees with and who disagree with him.*
+*We have a leader who says he wishes nothing but ill upon the people he disagrees with and who disagree with him.*
 
-> *Well, I don’t feel that way.*
+*Well, I don’t feel that way.*
 
-> *America, from the beginning, was born out of disagreement, was built on disagreement. We can argue about what course we think the country should take while recognizing our common humanity, our dignity, and yes, our unity.*
+*America, from the beginning, was born out of disagreement, was built on disagreement. We can argue about what course we think the country should take while recognizing our common humanity, our dignity, and yes, our unity.*
 
-> *Now, I go back to thinking about Renée Good's last words before she died, to the man who she was protesting against, the man who would take her life. She said, "That's fine, dude, I'm not mad at you. I'm not mad." God bless her.*
+*Now, I go back to thinking about Renée Good's last words before she died, to the man who she was protesting against, the man who would take her life. She said, "That's fine, dude, I'm not mad at you. I'm not mad." God bless her.*
 
-> *So tonight, when you go home, hold your loved ones close. And tomorrow, do as Renée did, find a way to take aggressive, peaceful action to defend our country's ideals.*
+*So tonight, when you go home, hold your loved ones close. And tomorrow, do as Renée did, find a way to take aggressive, peaceful action to defend our country's ideals.*
 
-> *And as the great civil rights leader John Lewis said, "Go out and get into some good trouble." Say something! Do something! Hell… sing something!*
+*And as the great civil rights leader John Lewis said, "Go out and get into some good trouble." Say something! Do something! Hell… sing something!*
 
-> *If you're feeling helpless, hopeless, betrayed, frustrated, angry… I know I've been. That's why The E Street Band is here tonight. This is a tour that was not planned. We're here tonight because we need to feel your hope, and your strength. And we want to bring some hope and some strength for you. I hope we did that.*
+*If you're feeling helpless, hopeless, betrayed, frustrated, angry… I know I've been. That's why The E Street Band is here tonight. This is a tour that was not planned. We're here tonight because we need to feel your hope, and your strength. And we want to bring some hope and some strength for you. I hope we did that.*
 
-> *All I can say is God bless Alex Pretti, God bless Renée Good, God bless you, and God bless America.*
+*All I can say is God bless Alex Pretti, God bless Renée Good, God bless you, and God bless America.*
 
 He closed the show with a one-off surprise performance of “Purple Rain,” a special thank-you gift for the people of Minneapolis for lighting the way for the rest of us.. It was beautiful and heart-breaking and essentially the city’s anthem, and because of that I can forgive him ending the show with a song about a world-ending apocalypse. (Sometimes I hate my analytical brain.)
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nwY_P8kQOeU)
+[Watch on Youtube: Purple Rain (Live From Minneapolis)](https://www.youtube.com/watch?v=nwY_P8kQOeU)
 
 The following show in Portland was my 100th show. It will probably end up being my last. The crowd was even more energetic than on opening night, and I can’t imagine enjoying future shows as much as I enjoyed these two.
 

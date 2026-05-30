@@ -6,7 +6,7 @@ Both songs are narrated by fathers passing along life lessons to their sons; bot
 
 But whereas the narrator of Bruce’s 1985 Top Ten single passively and nostalgically accepted his town’s fate, the narrator of his 2012 *Wrecking Ball* track isn’t about to accept a damn thing.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0mgZZR9ApqI)
+[Watch on Youtube: Death To My Hometown](https://www.youtube.com/watch?v=0mgZZR9ApqI)
 
 If we assume the son in “My Hometown” was the same age as his father was in his reverie, that would make him 35 in 2011… a nice bit of parallelism should we (and we should) consider him now fully grown and the narrator of “Death to My Hometown.”
 
@@ -16,45 +16,45 @@ It’s easy to imagine that our “Death to My Hometown” protagonist remembers
 
 Lyrically, “Death to My Hometown” is as straightforward as Bruce ever gets; he takes no chances of anyone mistaking his message. Our first two verses are flashbacks, just as they were in “My Hometown.” There’s no nostalgia on display here, though: both verses dwell on the town’s destruction.
 
-*Well, no cannonballs did fly, no rifles cut us down*  
-*No bombs fell from the sky, no blood soaked the ground*  
-*No powder flash blinded the eye, no deathly thunder sounded*  
-*But just as sure as the hand of God, they brought death to my hometown*  
+> *Well, no cannonballs did fly, no rifles cut us down*<br>
+> *No bombs fell from the sky, no blood soaked the ground*<br>
+> *No powder flash blinded the eye, no deathly thunder sounded*<br>
+> *But just as sure as the hand of God, they brought death to my hometown*<br>
 > *They brought death to my hometown, boys*
 
-*No shells ripped the evening sky, no cities burning down*  
-*No army stormed the shores for which we’d die, no dictators were crowned*  
-*I awoke from a quiet night, I never heard a sound*  
-*The marauders raided in the dark and brought death to my hometown, boys*  
+> *No shells ripped the evening sky, no cities burning down*<br>
+> *No army stormed the shores for which we’d die, no dictators were crowned*<br>
+> *I awoke from a quiet night, I never heard a sound*<br>
+> *The marauders raided in the dark and brought death to my hometown, boys*<br>
 > *Death to my hometown*
 
 Our narrator keeps us in the dark for the first half of the song. We know his town was devastated, but we don’t know how or why. We know what it *wasn’t*, though: it wasn’t a war. There were no weapons, no armies, and no signals–just swift, merciless destruction in the metaphorical night by faceless marauders.
 
 Only in the bridge do we get our first clue that the death he speaks of is an economic one–which, we should note, is exactly where “My Hometown” takes its turn as well.
 
-*They destroyed our families, factories, and they took our homes*  
+> *They destroyed our families, factories, and they took our homes*<br>
 > *They left our bodies on the plains, the vultures picked our bones*
 
 Compare that bridge with the one from 1984:
 
-*Now Main Street’s whitewashed windows and vacant stores*  
+> *Now Main Street’s whitewashed windows and vacant stores*<br>
 > *Seems like there ain’t nobody wants to come down here no more*
 
 That stark contrast tees up the final verse of “Death to My Hometown,” where the son of “My Hometown” addresses his own son years later. Instead of telling his sons (it appears he has at least two) to take a good long last look around before their family leaves town, he urges them to take up arms–metaphorically at least.
 
-*So listen up, my sonny boy, be ready for when they come*  
-*For they’ll be returning sure as the rising sun*  
-*Now get yourself a song to sing and sing it ’til you’re done*  
-*Yeah, sing it hard and sing it well*  
-*Send the robber barons straight to hell*  
-*The greedy thieves who came around*  
-*And ate the flesh of everything they found*  
-*Whose crimes have gone unpunished now*  
+> *So listen up, my sonny boy, be ready for when they come*<br>
+> *For they’ll be returning sure as the rising sun*<br>
+> *Now get yourself a song to sing and sing it ’til you’re done*<br>
+> *Yeah, sing it hard and sing it well*<br>
+> *Send the robber barons straight to hell*<br>
+> *The greedy thieves who came around*<br>
+> *And ate the flesh of everything they found*<br>
+> *Whose crimes have gone unpunished now*<br>
 > *Who walk the streets as free men now*
 
-*They brought death to our hometown, boys*  
-*Death to our hometown, boys*  
-*Death to our hometown, boys*  
+> *They brought death to our hometown, boys*<br>
+> *Death to our hometown, boys*<br>
+> *Death to our hometown, boys*<br>
 > *Death to our hometown*
 
 The winds of change are blowing, and the father senses the same forces that gutted his boyhood hometown returning to attack his new one. Stand firm, he warns his kids. Stand firm, and resist.
@@ -71,13 +71,13 @@ If there’s a message in “Death to My Hometown,” it’s to learn from the p
 
 But the most distinctive musical element in “Death to My Hometown” is surely the folk song sample from “The Last Words of Copernicus” by the United Sacred Harp Musical Association, recorded in 1959. Skip to the 0:53 mark, and you’ll hear it clearly.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TWmCplTgflA)
+[Watch on Youtube: United Sacred Harp Musical Association: The Last Words of Copernicus, #112 (1959)](https://www.youtube.com/watch?v=TWmCplTgflA)
 
 That sample was reportedly the song’s seed. Bruce was taken by it, imagined a song layered above it, and wrote a song to fit.
 
 With such careful construction, “Death to My Hometown” might seem like a challenge to translate to the concert stage, but when a super-sized E Street Band went on tour behind their *Wrecking Ball* album in 2012, it worked surprisingly well–thanks largely to the expanded horn section and the expressive guitar of Tom Morello, who made frequent guest appearances throughout the tour.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AqME8Yn5ieU)
+[Watch on Youtube: Bruce Springsteen with Tom Morello Death to My Hometown Hyde Park 2012 HD](https://www.youtube.com/watch?v=AqME8Yn5ieU)
 
 “Death to My Hometown” has been a set list staple ever since its debut–it hasn’t missed a tour since its original release, and its appearances are regular enough to disqualify as cameo or rare. It remains as relevant today as it was a decade ago–if not more so.
 
@@ -89,10 +89,10 @@ Get yourself a song to sing, and sing it hard and well.
 
 [Watch Video Highlight](https://videopress.com/embed/I43auK8y)
 
-**Death to My Hometown  **
-**Recorded:** 2011  
-**Released:** *Wrecking Ball* (2012)  
-**First performed:** March 2, 2012 (New York City, NY)  
+**Death to My Hometown**
+**Recorded:** 2011
+**Released:** *Wrecking Ball* (2012)
+**First performed:** March 2, 2012 (New York City, NY)
 **Last performed:** April 23, 2026 (Sunrise, FL)
 
 © March 30, 2022

@@ -10,7 +10,9 @@ post_id: 3494
 ---
 "Soul Man" made it *almost* all the way to Number One when it was first recorded and released in 1967 on the Stax label by Sam Moore and Dave Prater. It actually peaked at #2, but Sam & Dave won the Grammy Award for Best R&B Group Performance and has become one of the all-time classic rock'n'soul hits.
 
-[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FCnCpgEEZko)
+***Archivists Note: [Original video](https://www.youtube.com/watch?v=FCnCpgEEZko) deleted, replaced***
+
+[Watch On Youtube: Soul Man](https://www.youtube.com/watch?v=S_OX2HwWy-o)
 
 Bruce has often cited Sam Moore as a major influence, and it's easy to see why. Check out this contemporaneous concert clip and watch Sam's commanding performance. No surprise that Bruce would seek out Sam's shows whenever he came through town.
 
