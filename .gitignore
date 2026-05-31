@@ -42,4 +42,5 @@ books/*
 
 archive/assets
 assets/
-# assets_webp/
+
+*.ps1

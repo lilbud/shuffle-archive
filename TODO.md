@@ -1,1 +1,0 @@
-- To account for updated posts with same URL/ID. Switch "get latest posts" to order by modified date decending.
