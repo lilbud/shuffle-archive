@@ -28,7 +28,7 @@ The track list is fascinating–it includes half of the songs that would eventua
 
 What an album that would have been!
 
-Bruce was so far along in planning the *Murder Incorporated* album, in fact, that he even had a handful of B-sides selected for the album's first five singles. Those B-sides included two songs Bruce would eventually debut during the Born in the U.S.A. Tour ("Sugarland" and "Follow That Dream"), along with three others that still have yet to see the light of day: "[Don't Back Down](../2022-01-06_roll-of-the-dice-dont-back-down/post.md)," "[Little Girl (Like You)](../2018-06-15_roll-of-the-dice-little-girl-like-you/post.md)," and "One Love."
+Bruce was so far along in planning the *Murder Incorporated* album, in fact, that he even had a handful of B-sides selected for the album's first five singles. Those B-sides included two songs Bruce would eventually debut during the Born in the U.S.A. Tour ("Sugarland" and "Follow That Dream"), along with three others that still have yet to see the light of day: "[Don't Back Down](../1983-01-14_roll-of-the-dice-dont-back-down/post.md)," "[Little Girl (Like You)](../2018-06-15_roll-of-the-dice-little-girl-like-you/post.md)," and "One Love."
 
 When I wrote about "[Little Girl (Like You)](../2018-06-15_roll-of-the-dice-little-girl-like-you/post.md)" last spring, I wasn't very kind in my assessment. "One Love" is better (faint praise that may be), but it still suffers from an overly simple conceit, a lack of imagination, and Bruce's newfound fascination with drum machines. Take a listen:
 

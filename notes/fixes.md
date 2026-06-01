@@ -117,3 +117,7 @@ these posts had their titles changed from "introduction" to the below.
 Old Excerpt: "A note of thanks for your readership this past year and a look ahead to the next one!"
 
 New Excerpt: "A ghost story, and a cautionary tale. But it started out as a musical comedy."
+
+---
+
+Kingdom of Days posts from January-April have had the "Kingdom of Days" prefix added back

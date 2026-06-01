@@ -131,6 +131,9 @@ def main(cur: psycopg.Cursor) -> None:
 
                 f.write("aliases:\n")
                 f.write(f"- /{post['slug']}/\n")
+                f.write(
+                    f"- /{re.sub('-2$', '', post['slug'])}/\n",
+                )  # remove -2, duplicate post")}/\n")
                 f.write(f"- /{post['post_id']}/\n")
 
                 if post["header_img"]:

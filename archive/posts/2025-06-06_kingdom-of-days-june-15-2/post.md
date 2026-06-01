@@ -30,7 +30,7 @@ post_id: 57091
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/06/1981-0615.jpg.webp)
 
-**1983:** At The Hit Factory in New York City, Bruce records "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" and "[Don't Back Down.](../2022-01-06_roll-of-the-dice-dont-back-down/post.md)" The former won't be released for another fifteen years; the latter is unreleased to this day.<br>
+**1983:** At The Hit Factory in New York City, Bruce records "[Cynthia](../2019-09-06_roll-of-the-dice-cynthia/post.md)" and "[Don't Back Down.](../1983-01-14_roll-of-the-dice-dont-back-down/post.md)" The former won't be released for another fifteen years; the latter is unreleased to this day.<br>
 
 [Watch on Youtube: Cynthia (Studio Outtake - 1983)](https://www.youtube.com/watch?v=wzCpphwK8vk)
 

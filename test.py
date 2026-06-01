@@ -63,6 +63,13 @@ posts_dir = Path("./archive/posts")
 jekyll_dir = Path(
     r"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle\_posts",
 )
+hugo_dir = Path(
+    r"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle-hugo\content\post",
+)
+
+files = [
+    re.sub(r"\d{4}-\d{2}-\d{2}-", "", str(file.stem)) for file in hugo_dir.iterdir()
+]
 
 # for file in jekyll_dir.iterdir():
 #     link_pattern = r"({% link _posts/([^\]]*).md %})"
@@ -75,17 +82,31 @@ jekyll_dir = Path(
 
 #             print(date, slug)
 
-links = []
-for post in posts_dir.glob("**/*.md"):
-    # print(post.parent.name)
-    content = post.read_text(encoding="utf-8")
 
-    meta = json.loads(Path(post.parent, "meta.json").read_text(encoding="utf-8"))
+# for post in posts_dir.glob("**/*.md"):
+#     # print(post.parent.name)
+#     content = post.read_text(encoding="utf-8")
 
-    if "[Watch on Youtube: Watch Video]" in content:
-        new_content = initial_cleanup(meta["content"]["rendered"])
-        new_content = html_to_markdown.convert(new_content)
+#     meta = json.loads(Path(post.parent, "meta.json").read_text(encoding="utf-8"))
 
-        post.write_text(new_content, encoding="utf-8")
+#     if "[Watch on Youtube: Watch Video]" in content:
+#         new_content = initial_cleanup(meta["content"]["rendered"])
+#         new_content = html_to_markdown.convert(new_content)
 
-        print(f"Updated {post.parent.name}")
+#         post.write_text(new_content, encoding="utf-8")
+
+#         print(f"Updated {post.parent.name}")
+
+
+# with load_db() as conn, conn.cursor() as cur:
+#     res = cur.execute(
+#         """select * from posts where "slug" ilike 'kingdom%' AND "title" not ilike 'Kingdom of Days:%'""",
+#     ).fetchall()
+
+#     for post in res:
+#         id = post["id"]
+#         new_title = f"Kingdom of Days: {post['title']}"
+
+#         cur.execute(
+#             """update posts set "title" = %s where "id" = %s""", (new_title, id)
+#         )
