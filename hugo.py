@@ -114,10 +114,10 @@ def main(cur: psycopg.Cursor) -> None:
 
     if res:
         for post in res:
-            print(post["filename"])
-
             if post["post_id"] not in (68737, 68797, 68709):
                 continue
+
+            print(post["filename"])
 
             title = post["title"].strip('"').replace('"', "'")
 

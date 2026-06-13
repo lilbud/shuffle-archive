@@ -70,53 +70,53 @@ Asked for comment, New York City Mayor Rudy Giuliani was initially noncommittal.
 
 That interview, published June 9th, also featured the first printed full lyrics to “American Skin (41 Shots),” which brought the song even wider attention.
 
-*41 shots, and we’ll take that ride*  
-*‘Cross the bloody river to the other side*  
-*41 shots, cut through the night*  
-*You’re kneeling over his body in the vestibule*  
-> *Praying for his life*
+> *41 shots, and we’ll take that ride*<br>
+> *‘Cross the bloody river to the other side*<br>
+> *41 shots, cut through the night*<br>
+> *You’re kneeling over his body in the vestibule*<br>
+> *Praying for his life*<br>
 
-*Is it a gun?*  
-*Is it a knife?*  
-*Is it a wallet?*  
-*This is your life*  
-*It ain’t no secret*  
-*It ain’t no secret*  
-*No secret my friend*  
-> *You can get killed just for living in your American skin*
+> *Is it a gun?*<br>
+> *Is it a knife?*<br>
+> *Is it a wallet?*<br>
+> *This is your life*<br>
+> *It ain’t no secret*<br>
+> *It ain’t no secret*<br>
+> *No secret my friend*<br>
+> *You can get killed just for living in your American skin*<br>
 
-*41 shots, Lena gets her son ready for school*  
-*She says, “On these streets, Charles*  
-*You’ve got to understand the rules*  
-*If an officer stops you, promise me you’ll always be polite*  
-*And that you’ll never ever run away*  
-> *Promise Mama you’ll keep your hands in sight”*
+> *41 shots, Lena gets her son ready for school*<br>
+> *She says, “On these streets, Charles*<br>
+> *You’ve got to understand the rules*<br>
+> *If an officer stops you, promise me you’ll always be polite*<br>
+> *And that you’ll never ever run away*<br>
+> *Promise Mama you’ll keep your hands in sight”*<br>
 
-*Is it a gun?*  
-*Is it a knife?*  
-*Is it in your heart?*  
-*Is it in your eyes?*  
-*It ain’t no secret*
+> *Is it a gun?*<br>
+> *Is it a knife?*<br>
+> *Is it in your heart?*<br>
+> *Is it in your eyes?*<br>
+> *It ain’t no secret*<br>
 
-*41 shots, and we’ll take that ride*  
-*‘Cross this bloody river to the other side*  
-*41 shots, I got my boots caked with this mud*  
-*We’re baptized in these waters*  
-*And in each other’s blood*
+> *41 shots, and we’ll take that ride*<br>
+> *‘Cross this bloody river to the other side*<br>
+> *41 shots, I got my boots caked with this mud*<br>
+> *We’re baptized in these waters*<br>
+> *And in each other’s blood*<br>
 
 Those who listened or read closely realized Bruce had written a deeply nuanced song that conveyed empathy for both Diallo and the officers. In fact, the entire first verse is presented through the eyes and voice of the officers, horrified by the realization of what they’d done and praying for the boy’s survival.
 
 The brilliance of Bruce’s chorus is how it works from both perspectives:
 
-For the officers, it’s a daily life-or-death assessment they’re forced to make when a suspect reaches into their clothing. *Is it a gun? Is it a knife? What if it’s only a wallet? What if it isn’t?*
+For the officers, it’s a daily life-or-death assessment they’re forced to make when a suspect reaches into their clothing. *Is it a gun? Is it a knife? What if it’s only a wallet? What if it isn’t?*<br>
 
-For Amadou/Charles and his mother, it’s a test that shouldn’t be forced upon them but is still the reality of their lives: *Is it a gun? Is it a knife? Would you even be asking these questions if I was white?*
+For Amadou/Charles and his mother, it’s a test that shouldn’t be forced upon them but is still the reality of their lives: *Is it a gun? Is it a knife? Would you even be asking these questions if I was white?*<br>
 
 Lena’s instruction to her son (*“Promise me if an officer stops you, you’ll always be polite / And that you’ll never ever run away / Promise me you’ll keep your hands in sight.”)* is a survival ritual that defines the American experience for some but is invisible to others.
 
-Even the final line: *you can get killed just for living in your American skin*. It works from both perspectives. An officer’s uniform–even just a badge–can make them feel just as vulnerable as powerful. *Is he reaching for a gun or a wallet? I have to make a split-second judgment, because I might die if I’m wrong.*
+Even the final line: *you can get killed just for living in your American skin*. It works from both perspectives. An officer’s uniform–even just a badge–can make them feel just as vulnerable as powerful. *Is he reaching for a gun or a wallet? I have to make a split-second judgment, because I might die if I’m wrong.*<br>
 
-Bruce sums it up in a single couple in the third chorus: *Is it in your heart? Is it in your eyes?*
+Bruce sums it up in a single couple in the third chorus: *Is it in your heart? Is it in your eyes?*<br>
 
 *Where do your actions come from*, he asks. Is it what your eyes show you? Or is it what fear has taught you? In *Songs*, Bruce summed it up this way: “Here is what systemic racial injustice, fear, and paranoia do to our children, our loved ones, ourselves. Here is the price in blood.”
 
@@ -126,7 +126,7 @@ Even the music is mournful, masterpiece of restraint built on a hypnotic, mid-te
 
 But unfortunately, newsprint couldn’t capture the music, only the lyrics. And up north in New York City, emotions were still raw, especially among the ranks of the NYPD, who were feeling the strain of public sentiment turned against them.
 
-It had only been a week since Bruce debuted his new song, and he’d been off the road ever since. But his next show was going to be the opening night of a ten-night stand at Madison Square Garden, and New Yorkers were wondering: *will he play it here?*
+It had only been a week since Bruce debuted his new song, and he’d been off the road ever since. But his next show was going to be the opening night of a ten-night stand at Madison Square Garden, and New Yorkers were wondering: *will he play it here?*<br>
 
 Springsteen had no comment, and the NYPD wasn’t going to wait for one. The New York City chapter of the Patrolmen’s Benevolent Association asked its members to boycott the entire stand, both on duty and off.
 
@@ -168,7 +168,7 @@ When Morello continued on with the band for the High Hopes Tour, “American Ski
 
 When George Floyd was murdered by police at the height of the great pandemic, live performances weren’t possible. So Bruce took to the airwaves, opening his *From My Home to Yours* radio show with the studio version of “American Skin (41 Shots)” and following it with some pointed commentary:
 
-*Eight minutes. That song is almost eight minutes long. And that’s how long it took George Floyd to die, with a Minneapolis officer’s knee buried into his neck. That’s a long time. That’s how long he begged for help, and said he couldn’t breathe. The arresting officer’s response was nothing but silence and weight. Then he had no pulse, and still it went on… As of today, our black citizens continue to be killed unnecessarily by our police, on the streets of America.*
+> *Eight minutes. That song is almost eight minutes long. And that’s how long it took George Floyd to die, with a Minneapolis officer’s knee buried into his neck. That’s a long time. That’s how long he begged for help, and said he couldn’t breathe. The arresting officer’s response was nothing but silence and weight. Then he had no pulse, and still it went on… As of today, our black citizens continue to be killed unnecessarily by our police, on the streets of America.*<br>
 
 It was still on Bruce’s mind at the tail end of the pandemic, so he added “American Skin (41 Shots)” to his reworked Broadway setlist as well.
 
@@ -186,13 +186,13 @@ It’s one of the few songs in Bruce’s catalog that moves me to tears every ti
 
 I hope we live to see the day when it can be retired.
 
-**American Skin (41 Shots)****Recorded:** 2013  
-**Released:** *High Hopes* (2014)  
-**First performed:** June 4, 2000 (Atlanta, GA)  
-**Last performed:** May 30, 2026 (Philadelphia, PA)
+**American Skin (41 Shots)****Recorded:** 2013<br>
+**Released:** *High Hopes* (2014)<br>
+**First performed:** June 4, 2000 (Atlanta, GA)<br>
+**Last performed:** May 30, 2026 (Philadelphia, PA)<br>
 
 © May 2, 2026
 
 The Amadou Diallo Foundation advocates for racial equity and promotes education, particularly for students of African descent. You can sponsor or mentor a Diallo scholar, or volunteer your skills at https://amadoudiallofoundation.org/get-involved.html
 
-<img src='https://estreetshuffle.com/wp-content/uploads/2016/01/americanskin_pbaltr.jpg' alt='' title='' width='758' height='758' />
+<img src='https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2016/01/americanskin_pbaltr.jpg.webp' alt='' title='' width='758' height='758' />
