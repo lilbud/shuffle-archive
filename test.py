@@ -71,17 +71,27 @@ files = [
     re.sub(r"\d{4}-\d{2}-\d{2}-", "", str(file.stem)) for file in hugo_dir.iterdir()
 ]
 
-# for file in jekyll_dir.iterdir():
-#     link_pattern = r"({% link _posts/([^\]]*).md %})"
-#     content = file.read_text(encoding="utf-8")
+data_file = Path(
+    r"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle-hugo\data\originals_1.yml",
+).read_text(encoding="utf-8")
 
-#     for match in re.findall(link_pattern, content):
-#         if not Path(jekyll_dir, match[1]).exists():
-#             date = re.search(r"\d{4}-\d{2}-\d{2}", match[1])[0]
-#             slug = re.search(r"\d{4}-\d{2}-\d{2}-(.*)", match[1])[1]
+data_file_new = Path(
+    r"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle-hugo\data\originals_2.yml",
+)
 
-#             print(date, slug)
+for i in data_file.split("\n"):
+    if "url:" in i:
+        title = i.split(":")[1].strip("/ ")
 
+        f = [file.stem for file in hugo_dir.glob(f"*{title}.md")]
+
+        if len(f) > 0:
+            new_url = re.sub(r"(\d{4})-(\d{2})-(\d{2})-(.*)", r"\1/\2/\3/\4/", f[0])
+            data_file = data_file.replace(title, new_url)
+            print(f"Updated {title} to {new_url}")
+
+
+data_file_new.write_text(data_file, encoding="utf-8")
 
 # for post in posts_dir.glob("**/*.md"):
 #     # print(post.parent.name)

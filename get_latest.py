@@ -64,10 +64,17 @@ def get_latest_posts() -> None:
             if not save_path.exists():
                 print(save_path)
 
+                date = datetime.datetime.strptime(
+                    post["date_gmt"],
+                    "%Y-%m-%dT%H:%M:%S",
+                )
+
                 with save_path.open("w", encoding="utf-8") as f:
                     json.dump(post, f)
 
-                save_to_archive(post)
+                save = Path(f"./archive/posts/{date.date()}_{post['slug']}")
+
+                save_to_archive(post, save)
 
 
 if __name__ == "__main__":

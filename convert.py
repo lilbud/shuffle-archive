@@ -60,9 +60,6 @@ def save_to_archive(post: dict, save_path: Path) -> None:
 
 if __name__ == "__main__":
     for file in Path("./posts_json/").glob("*.json"):
-        if file.name != "68809_1780159131.json":
-            continue
-
         with file.open("r", encoding="utf-8") as f:
             post = json.load(f)
 
@@ -77,6 +74,7 @@ if __name__ == "__main__":
             # post with a numerical title are image pages and are new, but have no content
             if not save_path.exists() and not re.search(
                 r"^\d+$",
-                post["title"]["rendered"],
+                post["slug"],
             ):
                 save_to_archive(post, save_path)
+                print(save_path)

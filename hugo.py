@@ -116,6 +116,9 @@ def main(cur: psycopg.Cursor) -> None:
         for post in res:
             print(post["filename"])
 
+            if post["post_id"] not in (68737, 68797, 68709):
+                continue
+
             title = post["title"].strip('"').replace('"', "'")
 
             post_file = Path(

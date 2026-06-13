@@ -36,7 +36,7 @@ def get_categories() -> None:
 
                 conn.commit()
 
-        json.dump(res.json(), Path("categories_20260530.json").open("w"))
+        json.dump(res.json(), Path("categories_20260607.json").open("w"))
 
 
 if __name__ == "__main__":
