@@ -23,13 +23,12 @@ headers = {
 }
 
 
-def get_latest_posts() -> None:
+def get_latest_posts(page: int) -> None:
     """Get posts ordered by modified date.
 
     This function is a modified version of the one in main,
     which will be used in a github action.
     """
-    page = 1
     url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=100&page={page}&order=desc&orderby=modified"
 
     with httpx.Client(
@@ -75,7 +74,11 @@ def get_latest_posts() -> None:
                 save = Path(f"./archive/posts/{date.date()}_{post['slug']}")
 
                 save_to_archive(post, save)
+            else:
+                print(f"{save_path.name}: already exists")
 
 
 if __name__ == "__main__":
-    get_latest_posts()
+    for i in range(1, 10):
+        print("--" * 10, f"Page {i}", "--" * 10)
+        get_latest_posts(i)

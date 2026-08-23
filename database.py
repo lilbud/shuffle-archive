@@ -44,7 +44,7 @@ def insert_post() -> None:
             published = datetime.datetime.strptime(
                 f"{meta['date_gmt']}+0000",
                 "%Y-%m-%dT%H:%M:%S%z",
-            ).astimezone(datetime.timezone.utc)
+            ).astimezone(datetime.UTC)
 
             last_modified = datetime.datetime.strptime(
                 meta["modified_gmt"],

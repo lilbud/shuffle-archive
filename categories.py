@@ -11,8 +11,8 @@ from main import get_client
 def load_db() -> psycopg.Connection:
     """Load DB and return connection."""
     return psycopg.connect(
-        conninfo=os.getenv("DATABASE_URL"),
-        row_factory=dict_row,
+        conninfo=os.getenv("DATABASE_URL"),  # type: ignore
+        row_factory=dict_row,  # type: ignore
     )
 
 
@@ -36,7 +36,7 @@ def get_categories() -> None:
 
                 conn.commit()
 
-        json.dump(res.json(), Path("categories_20260607.json").open("w"))
+        json.dump(res.json(), Path("categories_20260823.json").open("w"))
 
 
 if __name__ == "__main__":

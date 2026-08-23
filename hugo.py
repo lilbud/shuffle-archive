@@ -114,7 +114,18 @@ def main(cur: psycopg.Cursor) -> None:
 
     if res:
         for post in res:
-            if post["post_id"] not in (68737, 68797, 68709):
+            if post["post_id"] not in (
+                70573,
+                70446,
+                70491,
+                70543,
+                70559,
+                70578,
+                70482,
+                70421,
+                70487,
+                70441,
+            ):
                 continue
 
             print(post["filename"])
@@ -134,9 +145,12 @@ def main(cur: psycopg.Cursor) -> None:
 
                 f.write("aliases:\n")
                 f.write(f"- /{post['slug']}/\n")
-                f.write(
-                    f"- /{re.sub('-2$', '', post['slug'])}/\n",
-                )  # remove -2, duplicate post")}/\n")
+
+                if re.search(r"-\d$", post["slug"]):
+                    f.write(
+                        f"- /{re.sub('-2$', '', post['slug'])}/\n",
+                    )  # remove -2, duplicate post")}/\n")
+
                 f.write(f"- /{post['post_id']}/\n")
 
                 if post["header_img"]:
