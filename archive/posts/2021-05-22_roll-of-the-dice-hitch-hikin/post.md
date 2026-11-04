@@ -63,7 +63,7 @@ At the end of *Western Stars*, just before the sublime "[Moonlight Motel,](../20
 
 On an album filled with vividly cinematic character studies, these two songs are likely the most autobiographical. One captures the young songwriter feeling his independence, the other an elder artist who understands its cost. In between lies a cast of characters coping with a journey progressively nearing its end. ("Catch me now 'cause tomorrow I'll be gone" — that line gives me pause every time.)
 
-*Western Stars* is a travelogue, and it opens with a song that celebrates the ride.
+> *Western Stars* is a travelogue, and it opens with a song that celebrates the ride.
 
 ---
 

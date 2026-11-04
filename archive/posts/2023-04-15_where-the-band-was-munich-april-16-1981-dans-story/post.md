@@ -12,7 +12,7 @@ post_id: 26562
 >
 > *This is Part Two of guest blogger Dan French's incredible E Street adventure from 1981. If you haven't already, be sure to read* *[Part One](../2021-04-14_where-the-band-was-frankfurt-april-141981-dans-story/post.md)* *before continuing on.*<br>
 >
->*Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant* *[Facebook community](https://www.facebook.com/groups/290908270798)**.*
+> *Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant* *[Facebook community](https://www.facebook.com/groups/290908270798)**.*
 >
 > *Dan's story has to be read (and re-read) to be believed, so without further ado, Dan's adventure continues.*<br>
 
@@ -54,4 +54,4 @@ Quickly I borrowed some money from John (which was to take me six months to repa
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+> *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*

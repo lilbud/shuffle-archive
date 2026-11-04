@@ -44,7 +44,7 @@ That's a whole lot of versions for a one-off, between-albums single, but "Street
 
 Almost twenty years later, it's hard to remember let alone believe that by late 1993, when Bruce's name came up in casual conversation, it was often appended to "Whatever happened to?"
 
-*Born in the U.S.A.* was now almost a full decade in the rear-view mirror, and Bruce's latest two albums and accompanying tour failed to set the charts on fire.
+> *Born in the U.S.A.* was now almost a full decade in the rear-view mirror, and Bruce's latest two albums and accompanying tour failed to set the charts on fire.
 
 His life had changed, too: Bruce was now a family man, and his songwriting for the past six years had been focused on relationships–mostly happy ones. His legendary empathy and finely-drawn character studies seemed to be a thing of the past, as his writing became more personal and intimate. Fans doubted they'd ever hear lyrics in the vein of "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" or "Highway Patrolman" ever again.
 

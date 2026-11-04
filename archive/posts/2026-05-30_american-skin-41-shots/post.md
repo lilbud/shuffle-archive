@@ -18,7 +18,7 @@ By January 1999, Amadou had saved up enough money to realize his dream.
 
 He called his mother, still living in Guinea, on January 31st and told her, “I’m so happy right now, Mom! I am going to do it.”
 
-*Do what*, she asked.
+> *Do what*, she asked.
 
 “Enroll in college!”
 
@@ -118,7 +118,7 @@ Even the final line: *you can get killed just for living in your American skin*.
 
 Bruce sums it up in a single couple in the third chorus: *Is it in your heart? Is it in your eyes?*<br>
 
-*Where do your actions come from*, he asks. Is it what your eyes show you? Or is it what fear has taught you? In *Songs*, Bruce summed it up this way: “Here is what systemic racial injustice, fear, and paranoia do to our children, our loved ones, ourselves. Here is the price in blood.”
+> *Where do your actions come from*, he asks. Is it what your eyes show you? Or is it what fear has taught you? In *Songs*, Bruce summed it up this way: “Here is what systemic racial injustice, fear, and paranoia do to our children, our loved ones, ourselves. Here is the price in blood.”
 
 “American Skin (41 Shots)” is a powerful piece of writing. Through careful crafting, Springsteen created a song of personal and societal grief. I have no doubt that most who heard that first performance in Atlanta realized it instinctively.
 

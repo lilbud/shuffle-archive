@@ -18,9 +18,9 @@ post_id: 30616
 >
 > *So what do you do when you discover a reader whose comments deserve a "Hold my beer" subject line? Well… I hold her beer.*<br>
 
-*Meet Katy Crane, a writer and teacher from interior Alaska. She recently moved from a small town to a big city and dealt with the culture shock by becoming an obsessive Springsteen fan. Her favorite Springsteen album is *Nebraska*, and she thinks "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" is a good song and "Jungleland" is overrated.*
+> *Meet Katy Crane, a writer and teacher from interior Alaska. She recently moved from a small town to a big city and dealt with the culture shock by becoming an obsessive Springsteen fan. Her favorite Springsteen album is *Nebraska*, and she thinks "[Crush on You](../2018-02-02_roll-of-the-dice-crush-on-you/post.md)" is a good song and "Jungleland" is overrated.*
 
-*Katy makes her first of what I fervently hope will be many appearances here today, in a new series we're calling **Two Faces**, featuring alternative interpretations to the ones I've put forward in the Roll of the Dice series.*
+> *Katy makes her first of what I fervently hope will be many appearances here today, in a new series we're calling **Two Faces**, featuring alternative interpretations to the ones I've put forward in the Roll of the Dice series.*
 
 > *Take it away, Katy!*<br>
 

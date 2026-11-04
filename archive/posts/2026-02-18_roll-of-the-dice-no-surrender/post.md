@@ -40,7 +40,7 @@ I wouldn't be able to afford *Born in the U.S.A.* for a couple of months yet, bu
 > *You say you're tired and you just wanna close your eyes*<br>
 > *And follow your dreams down*<br>
 
-*How?* How did he know? How did he know my heart was pounding in my chest from those first 27 seconds of jangly guitars, soaring wordless vocals, and Garry Tallent absolutely going to *town!* ("No Surrender" works best with a thumping subwoofer.)
+> *How?* How did he know? How did he know my heart was pounding in my chest from those first 27 seconds of jangly guitars, soaring wordless vocals, and Garry Tallent absolutely going to *town!* ("No Surrender" works best with a thumping subwoofer.)
 
 But then that second couplet: Tired? Close my eyes? Hell no! Follow my dreams down? Down where? I don't even know what you're talking about, Bruce! You're not talking to *me*, that's for sure.
 
@@ -66,7 +66,7 @@ It wasn't any of those, though. And if we'd listened closely enough to the secon
 > *We swore blood brothers against the wind*<br>
 > *I'm ready to grow young again*<br>
 
-*I'm ready to grow young again.* There's almost always one line in a Springsteen song that strikes me in my soul. The best ones lodge themselves there, and this was one of them: *I'm ready to grow young again*. Long before I knew what Bruce meant by it, I knew that line was the heart of the song.
+> *I'm ready to grow young again.* There's almost always one line in a Springsteen song that strikes me in my soul. The best ones lodge themselves there, and this was one of them: *I'm ready to grow young again*. Long before I knew what Bruce meant by it, I knew that line was the heart of the song.
 
 Today, I think it might even be the heart of Bruce's catalog. It's certainly the heart of his live shows, whether or not "No Surrender" makes an appearance on the set list. It might even be at the core of rock itself. When the band takes the stage, together we grow young again.
 

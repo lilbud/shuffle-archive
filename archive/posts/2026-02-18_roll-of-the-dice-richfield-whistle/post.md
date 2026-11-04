@@ -68,7 +68,7 @@ Inevitably, Jimmy is found out. His boss confronts him but has mercy on him, sim
 > *If you needed some extra money, Jim*,
 > *All you had to do was ask."*<br>
 
-*All you had to do was ask.* Those words undoubtedly echoed in Jimmy's head that night. His brother-in-law Syl said the same thing in "Jim Deer," leading Jimmy astray. The symmetry is ironic. Jimmy landed in prison because he asked for a way to make extra money; now he's lost his job because he didn't ask.
+> *All you had to do was ask.* Those words undoubtedly echoed in Jimmy's head that night. His brother-in-law Syl said the same thing in "Jim Deer," leading Jimmy astray. The symmetry is ironic. Jimmy landed in prison because he asked for a way to make extra money; now he's lost his job because he didn't ask.
 
 Jimmy and Pat argue, and Jimmy drives off with only a bottle and ten dollars to his name. He stops at a quiet liquor store along the highway and gets out. Because Bruce is careful to tell us that Jimmy left the motor running, we tense up. Whatever's about to happen, we know it requires a fast getaway.
 

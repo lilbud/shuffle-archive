@@ -34,7 +34,7 @@ Based on this first verse, "Something's Gotta Break" sounds like it treads simil
 > *But you say that's all right, yeah, that's all right*<br>
 > *We're gonna let everything stay the same*<br>
 > *You said it ain't hell that you're thinkin' of and that it don't matter*<br>
-*But you're **scared** that someone might say*
+> *But you're **scared** that someone might say*
 > *Something's gotta break*<br>
 
 Bruce flips the meaning of the title phrase at the end of that verse: here, it becomes a statement of fear rather than faith–fear that even the tenuous grasp on life that mother and son have might be at risk.
@@ -42,7 +42,7 @@ Bruce flips the meaning of the title phrase at the end of that verse: here, it b
 And unfortunately, that's about where my grasp on the clarity of the lyrics starts to disintegrate. I can make out much of the final verse before the tempo changes, enough to posit that Bruce is arguing to enjoy whatever life you have while you have it, but not enough to know where the song is headed.
 
 > *Gather up your roses before it's too late*<br>
-*Don't forget to have everything that you **make***
+> *Don't forget to have everything that you **make***
 > *By remembering now girl ???*<br>
 > *Any excuses you make to your mind, so silently break*<br>
 

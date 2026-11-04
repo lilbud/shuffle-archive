@@ -21,9 +21,9 @@ And then there were the studio recordings where Bruce made a guest appearance on
 
 So when I started the slow-roll transformation of blog to books, I decided to consolidate to just three series.
 
-*Roll of the Dice* volumes would include all material originally released on a specific album, even if that meant including covers. I decided to also include notable covers by other artists of songs on that album.
+> *Roll of the Dice* volumes would include all material originally released on a specific album, even if that meant including covers. I decided to also include notable covers by other artists of songs on that album.
 
-*Kingdom of Days* would also include notable *Where the Band Was* entries where I thought the content was worth preserving.
+> *Kingdom of Days* would also include notable *Where the Band Was* entries where I thought the content was worth preserving.
 
 And then there are the *Cover Me* books, which would include all of the songs by other artists that Bruce covered, plus all *Meeting Across the River* entries where the song in question isn't one that Bruce authored.
 

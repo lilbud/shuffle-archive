@@ -12,9 +12,9 @@ post_id: 32830
 
 True enough.
 
-*The Fine Art of Self Destruction* announced the arrival of Jesse Malin as a solo artist after fronting the punk band D Generation throughout the 1990s. With first-time producer Ryan Adams, Jesse recorded the album in a mere six days, but you'd never know it from the final product–hailed by many (including Bruce) as one of the best albums of 2002, a year that also gave us *The Rising*.
+> *The Fine Art of Self Destruction* announced the arrival of Jesse Malin as a solo artist after fronting the punk band D Generation throughout the 1990s. With first-time producer Ryan Adams, Jesse recorded the album in a mere six days, but you'd never know it from the final product–hailed by many (including Bruce) as one of the best albums of 2002, a year that also gave us *The Rising*.
 
-*Fine Art* was a departure for Malin, although it's one he telegraphed in his 2001 interim project with PCP Highway, *To Be Somebody.* Several songs from that album turned up on his solo debut, but his first single was a new song that kicked off *Fine Art:* "Queen of the Underworld."
+> *Fine Art* was a departure for Malin, although it's one he telegraphed in his 2001 interim project with PCP Highway, *To Be Somebody.* Several songs from that album turned up on his solo debut, but his first single was a new song that kicked off *Fine Art:* "Queen of the Underworld."
 
 [Watch on Youtube: Queen of the Underworld](https://www.youtube.com/watch?v=D_SVS2ZATvA)
 

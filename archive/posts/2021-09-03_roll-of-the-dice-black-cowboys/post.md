@@ -22,7 +22,7 @@ Kozol's book took readers inside the poorest congressional district in the Unite
 
 Mott Haven is also one of the most racially segregated neighborhoods in America: over 98% of its residents are people of color.
 
-*Amazing Grace* unflinchingly reveals the non-stop assault of daily life on the residents of Mott Haven, examining social ills, tracing their causes and interrelations, and challenging popular myths about what keeps people anchored in poverty. The book won the Anisfield-Wolf Book Award in 1996 for its contributions to the understanding of racism and human diversity.
+> *Amazing Grace* unflinchingly reveals the non-stop assault of daily life on the residents of Mott Haven, examining social ills, tracing their causes and interrelations, and challenging popular myths about what keeps people anchored in poverty. The book won the Anisfield-Wolf Book Award in 1996 for its contributions to the understanding of racism and human diversity.
 
 But Kozol's book is more than just a sociological treatise. It's also a sensitive and re-humanizing introduction to a real-life cast that struggles to survive and provide the best life possible for the ones they love.
 
@@ -30,7 +30,7 @@ If *Amazing Grace* has central characters, they would be the Washington family: 
 
 Married at 25, Alice was the victim of domestic abuse. After leaving her husband while in her thirties during the early days of the AIDS crisis, she learned she had contracted HIV from him. She'd always believed he'd at least been faithful to her. Now suffering from AIDS, her devoted son David, a high school senior, tends to her needs while Alice simply wishes her family could make the escape she couldn't and can't.
 
-*Amazing Grace* made a lasting impression on its readers, one of whom was Bruce Springsteen.
+> *Amazing Grace* made a lasting impression on its readers, one of whom was Bruce Springsteen.
 
 Kozol's book came out just as Bruce launched his tour in support of *The Ghost of Tom Joad*, and he likely read it along the early legs of the tour. Bruce was particularly moved by Alice and David's mother-son relationship, and he found inspiration from it during late-night hotel room songwriting sessions.
 

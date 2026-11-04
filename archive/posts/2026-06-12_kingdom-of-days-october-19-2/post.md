@@ -1,0 +1,109 @@
+**1968:** Earth plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/10/1968-10-19.png' alt='' title='' width='758' height='1068' />
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2018/09/1968-1019.jpg' alt='' title='' width='526' height='800' />
+
+**1973:** Bruce and the E Street Band play their fifth of five nights at Oliver’s in Boston in lieu of a scheduled but cancelled show at the University of Bridgeport.
+
+**1974:** Bruce and the E Street Band play a show at Union College, in the school’s Memorial Chapel Concert Hall.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W9kelA2SxSk)
+
+**1975:** Bruce and the E Street Band wrap up their four-night/six-show stand at the Roxy Theater in West Hollywood.
+
+**1984:** The Recording Industry Association of America certifies *Born in the U.S.A.* triple platinum. By evening, Bruce has recovered enough from his flu to perform his rescheduled Born in the U.S.A. show in Tacoma. “Rosalita (Come Out Tonight)” goes missing from the setlist for the first time in a decade.
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2019/10/46359615744_ecfea82ca1_o.jpg' alt='' title='' width='705' height='857' />
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-19.png' alt='' title='' width='758' height='660' />
+
+**1995:** The *American Babylon* October Assault moves on to Philadelphia, where Bruce again joins Joe Grushecky and The Houserockers at their show at the Electric Factory. After the show, local WMMR-FM DJ Ed Sciaky (a *longtime* fan and supporter of Bruce) stops backstage to interview Joe and Bruce.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qNPawvRUHmU)
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-19a.png' alt='' title='' width='613' height='1395' />
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2021/10/1995-10-19b.png' alt='' title='' width='538' height='1750' />
+
+**1996:** Bruce plays his first and only show in New Mexico, a solo acoustic Ghost of Tom Joad Tour stop at the Kiva Auditorium in Albuquerque.
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/10/1996-10-19a.png' alt='' title='' width='758' height='1658' />
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/10/1996-10-19b.png' alt='' title='' width='758' height='797' />
+
+**2001:** Bruce joins a stellar line-up of talent (including Joan Jett, Joe Ely, Bon Jovi, Phoebe Snow, Max Weinberg, Patti Scialfa, Michelle Moore, and musical director Garry Tallent) for the second of two Alliance of Neighbors benefit concerts for the victims of the recent 9/11 attacks.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=66d1G-UMr_M)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RZnmrvfa980)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EUKz1FSv3io)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yxsnnVmCuNg)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UzKodY3O6jk)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XWTgr61DfO4)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rZRznZ50JU0)
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2021/10/2001-10-19.png' alt='' title='' width='758' height='946' />
+
+**2004:** *Enjoy Every Sandwich: The Songs of Warren Zevon* is released. Bruce contributes a track to the tribute album, his live 2003 performance of “My Ride’s Here.”
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m6h4ULA0Q10)
+
+**2006:** Bruce and the Sessions Band arrive in Spain for a week of shows, starting with a night in Madrid.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yN0VbV2Iad4)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=119NFk_yofo)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OJJ3fnAabDo)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6nfOHN8VraI)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GDi-2YhB7iI)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=H7SlglsH1C0)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=x9bHS79zB3w)
+
+**2009:** Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–“When You Walk in the Room,” played here for the first time in 33 years. The setlist also features the first full-band “I Wanna Marry You” in 27 years and the on-stage debut of “Philly Elvis” (a.k.a Nick Ferraro) for the tour premiere of “All Shook Up.” Oh and not for nothing, the show also includes a full album performance of *Born to Run*.
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2021/10/2009-10-19.png' alt='' title='' width='758' height='1462' />
+
+**2012:** Bruce kicks off the final North American leg of the Wrecking Ball Tour with a show at Scotiabank Place in Ottawa, where “Queen of the Supermarket” receives only its second-ever performance, and its first in a solo acoustic arrangement.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xoh5vFLDeTE)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tWSjemutnjQ)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=onp3gqXYfz8)
+
+<img src='https://estreetshuffle.com/wp-content/uploads/2020/10/2012-10-19.png' alt='' title='' width='758' height='767' />
+
+**2016:** At his hotel in London, Bruce sits down for interviews with local journalists as part of his promotional book push, including an appearance on *The Late, Late Show*.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JrQHT1IaHu0)
+
+[Watch Video](https://www.bbc.co.uk/programmes/p04cjxw4/player)
+
+**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, and Bruce releases a new song, a cover of “If I Had a Hammer,” on an anniversary compilation for Appleseed Records. The song was recorded during the Seeger Sessions in 2006.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZbrEKXppwMQ)
+
+**2019:** Bruce surprises a hometown crowd by introducing two screenings of *Western Stars* at the Freehold AMC Theater.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zXUHxrcoY38)
+
+**2020:** As the release of Bruce’s *Letter to You* album nears, promotional activities ramp up. Today, Bruce appears on *The Zane Lowe Show* on Apple Music, and E Street Radio airs Episode 1 of *Letter to You Radio*, featuring conversations with Bruce, Clive Davis, and Jon Landau.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PhkL4K7Esc0)
+
+[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-19-LTY-Radio-1-Bruce-Clive-Davis-Jon-Landau-1.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-19-LTY-Radio-1-Bruce-Clive-Davis-Jon-Landau-1.mp3?_=8)
+
+<https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-19-LTY-Radio-1-Bruce-Clive-Davis-Jon-Landau-1.mp3>

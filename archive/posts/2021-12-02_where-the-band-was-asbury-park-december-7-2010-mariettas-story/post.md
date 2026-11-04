@@ -16,7 +16,7 @@ It's all cold along the beach….the wind's whipping down the boardwalk….
 
 This wasn't Bruce asking the band if they knew it was Christmastime. On this cold, clear December day in Asbury Park ten years ago, it was a few hundred fans swarming the Carousel House in the freezing cold hoping for a way to get inside for a rare and special performance from Bruce Springsteen and some version of the E Street Band.
 
-*The Promise: The Darkness on the Edge of Town Story* box set had been released less than a month prior, and the Carousel House event was to be a videotaped performance of songs from the collection.
+> *The Promise: The Darkness on the Edge of Town Story* box set had been released less than a month prior, and the Carousel House event was to be a videotaped performance of songs from the collection.
 
 [Watch on Youtube: Bruce Springsteen - Racing in the Street (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=xlremWeb08o)
 
@@ -54,4 +54,4 @@ As I walked out, I was full of gratitude, knowing we'd just had a genuine once-i
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+> *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*

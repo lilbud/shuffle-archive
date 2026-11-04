@@ -10,8 +10,8 @@ We do have one surviving audio document of Bruce performing it, however, from hi
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZC_y56qVXX4)
 
-**I’m So Lonesome I Could Cry  **
-**First performed:** March 14, 1988 (Richfield, OH – soundcheck only)  
+**I’m So Lonesome I Could Cry**
+**First performed:** March 14, 1988 (Richfield, OH – soundcheck only)
 **Last performed:** May 5, 1988 (Tacoma, WA – soundcheck only)
 
 © November 1, 2018

@@ -20,8 +20,8 @@ Little Richard and Mick Jagger took turns on lead vocals that night, and if you 
 
 And yes, I realize that’s a bit of a stretch to qualify for a Springsteen-centric blog, but I figure any time your week starts with watching a pair of iconic frontmen backed by an all-star band storming their way through a Stax classic, that sounds like a pretty good Monday to me.
 
-**I Can’t Turn You Loose  **
-**First performed:** January 18, 1989 (New York City, NY)  
+**I Can’t Turn You Loose**
+**First performed:** January 18, 1989 (New York City, NY)
 **Last performed:** January 18, 1989 (New York City, NY)
 
 © September 6, 2021

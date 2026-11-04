@@ -16,8 +16,8 @@ On stage, there were almost as many backup singers as musicians, and while youâ€
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WMGBcS0h-Ng)
 
-**Will You Love Me Tomorrow  **
-**First performed:** May 15, 1971 (Union, NJ)  
+**Will You Love Me Tomorrow**
+**First performed:** May 15, 1971 (Union, NJ)
 **Last performed:** January 17, 1990 (New York City, NY)
 
 Â© January 20, 2018

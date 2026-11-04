@@ -6,8 +6,8 @@ Another great one gone too soon: Bruce Springsteen paid tribute to Glenn Frey, o
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4v8KEbQA8kw)
 
-**Take It Easy  **
-**First performed:** March 16, 2004 (New York City, NY)  
+**Take It Easy**
+**First performed:** March 16, 2004 (New York City, NY)
 **Last performed:** April 26, 2025 (West Long Branch, NJ)
 
 © January 18, 2018

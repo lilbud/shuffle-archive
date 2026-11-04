@@ -57,7 +57,7 @@ Seriously, take a listen:
 > *When I get up in the morning and I say "Well goodbye hon"*<br>
 > *Now you make sure the kids don't forget to take their lunch"*<br>
 > *I clean myself up and I stumble out the door*<br>
-*Into my garage and **I jump into my old Ford***
+> *Into my garage and **I jump into my old Ford***
 ***But the damn thing it don't wanna start***<br>
 > *But I don't care, what do I care?*<br>
 > *It's really got a heart*<br>
@@ -164,7 +164,7 @@ This is a relatively strong passage, not just for its metaphor, but for the way 
 > *Sure can be a drag sometimes, oh it just ain't no fun*<br>
 
 > *You know I used to tell myself*<br>
-*Oh some day you're gonna be driving a, a big **Cadillac***
+> *Oh some day you're gonna be driving a, a big **Cadillac***
 ***Oh so shiny and black***<br>
 
 I see you, "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)!" Thought you could sneak by under Bruce's breath, didn't you? But no–we caught you, making your first lyrical appearance a full decade before we'd next hear you.

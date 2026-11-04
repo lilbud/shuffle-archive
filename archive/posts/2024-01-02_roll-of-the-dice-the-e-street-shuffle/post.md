@@ -112,7 +112,7 @@ The "slow version" of "The E Street Shuffle" grew into an early-set set piece, o
 
 [Watch on Youtube: E Street Shuffle Bruce Springsteen Live at the Main Point 2.05.1975](https://www.youtube.com/watch?v=81QcctmsodI)
 
-*Hammersmith Odeon London '75* captures the "slow version" on video in wonderful quality, but unfortunately the story that night was a bit abridged.
+> *Hammersmith Odeon London '75* captures the "slow version" on video in wonderful quality, but unfortunately the story that night was a bit abridged.
 
 [Watch on Youtube: The E Street Shuffle (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=1-dY01Ex7wc)
 

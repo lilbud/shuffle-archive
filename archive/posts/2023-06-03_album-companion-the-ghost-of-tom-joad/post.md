@@ -26,11 +26,11 @@ And yet, *The Ghost of Tom Joad* carries a special distinction for me: across th
 
 Each song is infused with literary, cinematic, or straight-from-the-news influences, and each essay led me on a journey of delight and discovery as I delved into the meaning and inspiration behind each track.
 
-*The Ghost of Tom Joad* very nearly earns another top accolade: second only to *Western Stars*, it's easily Springsteen's best-sounding album. While many of its tracks are far from melodious–some resemble spoken-word storytelling–this is a breathtakingly intimate-sounding album that requires over-ear headphones to truly appreciate.
+> *The Ghost of Tom Joad* very nearly earns another top accolade: second only to *Western Stars*, it's easily Springsteen's best-sounding album. While many of its tracks are far from melodious–some resemble spoken-word storytelling–this is a breathtakingly intimate-sounding album that requires over-ear headphones to truly appreciate.
 
 If you've never listened to *The Ghost of Tom Joad* in a darkened room with over-ear headphones, trust me and do it now. You'll be amazed at the detail you discover in Bruce's hushed, lush storytelling. You'll hear every guitar string pluck from the very first song. And those vocals... it's as if Bruce is sitting right next to us, whispering in our ear. You'll not only hear each word he sings, you'll hear each breath he takes.
 
-*The Ghost of Tom Joad* is widely considered to be a solo album, but only seven of its twelve tracks qualify as such. The other five feature small combos that include E Streeters Garry Tallent, Danny Federici, and Soozie Tyrell playing with remarkable delicacy. *Every* musician on the album plays that way. If there's a single word that describes the album's sound it would be: gentle. It takes a close, careful and above all *quiet* listen to truly appreciate the delicate beauty of this collection.
+> *The Ghost of Tom Joad* is widely considered to be a solo album, but only seven of its twelve tracks qualify as such. The other five feature small combos that include E Streeters Garry Tallent, Danny Federici, and Soozie Tyrell playing with remarkable delicacy. *Every* musician on the album plays that way. If there's a single word that describes the album's sound it would be: gentle. It takes a close, careful and above all *quiet* listen to truly appreciate the delicate beauty of this collection.
 
 [Watch on Youtube: The Ghost of Tom Joad](https://www.youtube.com/watch?v=CumZ9dugKKU?list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8)
 

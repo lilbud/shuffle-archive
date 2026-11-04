@@ -27,12 +27,12 @@ Both the girl and the "angel of the lake" taught him the same lesson: think befo
 
 At 23, I completely missed the word "every," and I didn't grok the third verse at all:
 
-*These days I sit around and laugh a**t the many rivers I've crossed*
-*But on the far banks there's always another forest w**here a man can get lost*
+> *These days I sit around and laugh a**t the many rivers I've crossed*
+> *But on the far banks there's always another forest w**here a man can get lost*
 > *Well there in the high trees love's bluebird glides*<br>
 > *Guiding us ‘cross to another river on the other side*<br>
 > *And there someone is waitin' with a look in her eyes*<br>
-*And though my heart's grown weary a**nd more than a little bit shy*
+> *And though my heart's grown weary a**nd more than a little bit shy*
 > *Tonight I'll drink from her waters to quench my thirst*<br>
 > *And leave the angels to worry*<br>
 > *With every wish…*<br>

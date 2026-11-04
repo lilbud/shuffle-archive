@@ -10,7 +10,7 @@ Because who among us hasn’t had that moment–that unexpected, out-of-nowhere,
 
 The narrator of “Pretty Flamingo” knows not a thing about the object of his infatuation, not even her name. He’s left only with how she looks, what she wears, how she walks. And yet, somehow…
 
-*If he just could… if she just would*…
+> *If he just could… if she just would*…
 
 We’ve all been in that moment at least once, and we can tell that Paul Jones has, too. Because that “Ha!” is the giveaway, that moment when we recognize our ridiculousness and wake ourselves from our reverie. And yet…
 
@@ -42,8 +42,8 @@ But what if they did?
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kPcul80-FMc)
 
-**Pretty Flamingo  **
-**First performed:** September 13, 1975 (Houston, TX)  
+**Pretty Flamingo**
+**First performed:** September 13, 1975 (Houston, TX)
 **Last performed:** August 30, 2016 (East Rutherford, NJ)
 
 © December 4, 2021

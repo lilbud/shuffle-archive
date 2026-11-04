@@ -26,7 +26,7 @@ Ultimately, Patti and Bruce recorded the song as a duet, tapping Ron Aniello for
 
 Bruce's participation might have drawn more attention (and therefore sales) to the project, but Bruce, Patti, and Christy agreed to keep Bruce's name off the credits to better support the album's theme.
 
-*Every Mother Counts* was available for sale exclusively in Starbucks stores (the Seattle-based coffee company was the project's sponsor) for a mere 28 days. Even with such a brief on-sale window and limited retail outlets, the album debuted at #83 on the Billboard album chart and spawned a follow-up project the following year.
+> *Every Mother Counts* was available for sale exclusively in Starbucks stores (the Seattle-based coffee company was the project's sponsor) for a mere 28 days. Even with such a brief on-sale window and limited retail outlets, the album debuted at #83 on the Billboard album chart and spawned a follow-up project the following year.
 
 If you managed to snap up one of those rare original CDs, congratulations on scoring one of the more elusive original Springsteen recordings and for supporting an important cause–eight dollars of your purchase went toward helping make pregnancy and childbirth safe for women everywhere.
 

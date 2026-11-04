@@ -10,7 +10,7 @@ post_id: 25187
 ---
 In the summer of 1995, Bruce joined Joe Grushecky on stage at Tradewinds on the Jersey Shore, where they debuted much of Joe's upcoming Bruce-produced *American Babylon* album.
 
-*American Babylon* featured two songs co-written by Joe and Bruce–Joe sent Bruce his lyrics for "[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)" and "Dark and Bloody Ground," and Bruce set them to music. (See my [in-depth interview with Joe](../2020-10-17_american-babylon-a-retrospective/post.md) for more background on their *American Babylon* collaboration.)
+> *American Babylon* featured two songs co-written by Joe and Bruce–Joe sent Bruce his lyrics for "[Homestead](../2022-06-25_rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/post.md)" and "Dark and Bloody Ground," and Bruce set them to music. (See my [in-depth interview with Joe](../2020-10-17_american-babylon-a-retrospective/post.md) for more background on their *American Babylon* collaboration.)
 
 Proving themselves adept at collaborating remotely, Bruce and Joe decide to try their hand at it in person, holing up in Bruce's home studio and writing in the same room for the first time.
 

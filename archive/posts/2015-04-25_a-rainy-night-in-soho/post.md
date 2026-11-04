@@ -34,9 +34,9 @@ Bruce was fortunate to pay a call on McGowan in his home just a few months befor
 
 We should all be so lucky to have someone as the measure of our dreams. And we should all be so deliberate to tell the ones we love how much they mean to us.
 
-**A Rainy Night in Soho  **
-**Released:** *20th Century Paddy* (2026)  
-**First performed:** May 12, 2024 (Kilkenny, Ireland)  
+**A Rainy Night in Soho**
+**Released:** *20th Century Paddy* (2026)
+**First performed:** May 12, 2024 (Kilkenny, Ireland)
 **Last performed:** May 19, 2024 (Dublin, Ireland)
 
 © July 24, 2026

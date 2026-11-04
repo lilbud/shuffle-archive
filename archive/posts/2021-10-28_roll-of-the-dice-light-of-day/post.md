@@ -24,7 +24,7 @@ But after the movie debuted, Joan Jett and The Blackhearts covered it for real. 
 
 The fake fake Barbusters (not to be confused with the real fake Barbusters) scored a modest hit with their version, peaking at #33 on the Hot 100 chart.
 
-*Light of Day* the movie got a fair-to-middling reception, but "Light of Day" the song became a favorite among Joan Jett's fans and a mainstay of her concert setlists.
+> *Light of Day* the movie got a fair-to-middling reception, but "Light of Day" the song became a favorite among Joan Jett's fans and a mainstay of her concert setlists.
 
 [Watch on Youtube: Joan Jett and The Blackhearts - Light of Day - Live - 1998 Rockin´ the Rockies](https://www.youtube.com/watch?v=nzqBYlLNgoo)
 

@@ -44,7 +44,7 @@ We knew Bruce had a particular fondness for "Don't Play That Song" when he produ
 
 [Watch on Youtube: Don't Play That Song (You Lied)- Springsteen - Orlando Feb 5, 2023](https://www.youtube.com/watch?v=J2gIgmrWnZw)
 
-*Only the Strong Survive* hasn't exactly been enthusiastically embraced by many fans who wish Bruce would focus on releasing his own new music, but along with "Nightshift," "Don't Play That Song" appears to be winning converts nightly on tour. And as always, the song continues to grow in power and polish with each performance.
+> *Only the Strong Survive* hasn't exactly been enthusiastically embraced by many fans who wish Bruce would focus on releasing his own new music, but along with "Nightshift," "Don't Play That Song" appears to be winning converts nightly on tour. And as always, the song continues to grow in power and polish with each performance.
 
 It's still early, but "Don't Play That Song" shows every sign of becoming an ironically welcome addition to Bruce's set lists from now on.
 

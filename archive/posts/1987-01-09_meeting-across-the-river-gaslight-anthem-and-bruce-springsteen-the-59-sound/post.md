@@ -6,8 +6,8 @@ It’s hard to find a more perfectly suited pairing for Bruce than the very-Spri
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G1lq40tR72Q)
 
-**The ’59** **Sound**  **
-**First performed:** June 27, 2009 (Pilton, England)  
+**The ’59** **Sound**
+**First performed:** June 27, 2009 (Pilton, England)
 **Last performed:** June 28, 2009 (London, England)
 
 © January 27, 2018

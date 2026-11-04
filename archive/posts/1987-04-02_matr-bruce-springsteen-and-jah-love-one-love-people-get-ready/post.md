@@ -10,8 +10,8 @@ Then again, it’s hard to top Marley’s original–it remains one of the most 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IN0KkGeEURw)
 
-**One Love/People Get Ready  **
-**First performed:** July 30, 1987 (Neptune, NJ)  
+**One Love/People Get Ready**
+**First performed:** July 30, 1987 (Neptune, NJ)
 **Last performed:** July 30, 1987 (Neptune, NJ)
 
 © November 28, 2019

@@ -24,8 +24,8 @@ Toward the end of “All Shook Up,” Nick deftly (and gutsily) segues the band 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XyJgPQRw4JA)
 
-**Blue Suede Shoes  **
-**First performed:** August 19, 1983 (Long Branch, NJ)  
+**Blue Suede Shoes**
+**First performed:** August 19, 1983 (Long Branch, NJ)
 **Last performed:** August 19, 1983 (Long Branch, NJ)
 
 © October 19, 2020

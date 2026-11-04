@@ -24,8 +24,8 @@ It seems Bruce rolled his own. If anything, he hews closer to Foster’s origina
 
 In any event, it’s another great performance by The Bruce Springsteen Band, and well worth a listen or two.
 
-**Got My Mojo Working  **
-**First performed:** October 23, 1971 (Richmond VA)  
+**Got My Mojo Working**
+**First performed:** October 23, 1971 (Richmond VA)
 **Last performed:** April 28, 2017 (Asbury Park, NJ)
 
 © January 24, 2019

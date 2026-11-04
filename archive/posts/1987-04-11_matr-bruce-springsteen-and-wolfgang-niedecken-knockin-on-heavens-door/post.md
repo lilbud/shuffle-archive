@@ -32,8 +32,8 @@ Enjoy.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=B9zqCpPnOM4)
 
-**Knockin’ on Heaven’s Door**  **
-**First performed:** July 9, 1995 (Berlin, Germany)  
+**Knockin’ on Heaven’s Door**
+**First performed:** July 9, 1995 (Berlin, Germany)
 **Last performed:** February 6, 2015 (Los Angeles, CA)
 
 © February 18, 2019

@@ -22,7 +22,7 @@ In 1993, Joe and Bruce had already begun working on the album that would become 
 
 Joe took the feedback to heart and cleared the bar on his next attempt. "As fate would have it, I came home and we played a gig somewhere, and one of my old-time fans came up, and he handed me a book called *Homestead*."
 
-*Homestead* is about a Carnegie steel town by the same name near Pittsburgh, with a mill that made its owners rich and gave thousands of bread-earners a chance to make a decent living for more than a century–a century bookended by a famous labor union stand-off and by the closure of the mill when it became cheaper to make steel elsewhere.
+> *Homestead* is about a Carnegie steel town by the same name near Pittsburgh, with a mill that made its owners rich and gave thousands of bread-earners a chance to make a decent living for more than a century–a century bookended by a famous labor union stand-off and by the closure of the mill when it became cheaper to make steel elsewhere.
 
 By the early 1980s, the mill was dying, and with his band the Iron City Houserockers, Joe helped start America's first food bank for the unemployed steelworkers. "Dan Rather did a story on us on CBS News," Joe recalled. "And through the years, I had become friends with the people who we helped out. So I was familiar with some of the guys, this guy Ron Wyden and Jay Weinberg and Mike Stout. They were the real–almost radical–end of the steel workers, the real pro-union guys when the whole thing was collapsing. I read the book, and I think it mentioned Bruce. I'm sure it mentioned Bruce, because he became involved. It also mentioned us, it's something we have in common."
 

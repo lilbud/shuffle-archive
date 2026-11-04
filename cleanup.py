@@ -12,7 +12,7 @@ def format_date(date: str) -> datetime.datetime:
         date,
         "%Y-%m-%dT%H:%M:%S",
     ).astimezone(
-        datetime.timezone.utc,
+        datetime.UTC,
     )
 
 
@@ -119,6 +119,15 @@ def initial_cleanup(orig_content: str) -> str:
 
     # add linebreak at end of bolded line
     orig_content = re.sub(r"^(\*{2}.*[^>])$", r"\1<br>", orig_content)
+
+    # replace multiple quotes at beginning of line
+    orig_content = re.sub(r"^(> ){2,}", r">", orig_content)
+
+    # add quote at beginning of italics line (lyrics or quote)
+    orig_content = re.sub(r"^\*([^\*]*)\*$", r"> *\1*", orig_content)
+
+    # fix missing space between quote and italics
+    orig_content = re.sub(r"^>\*", r"> *", orig_content)
 
     soup = bs4(orig_content, "lxml")
 

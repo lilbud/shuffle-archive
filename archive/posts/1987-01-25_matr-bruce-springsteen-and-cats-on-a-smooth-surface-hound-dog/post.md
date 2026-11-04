@@ -24,8 +24,8 @@ Enjoy this rare and surprisingly clear document of one of Bruce’s legendary su
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mYNmBYbaq4U)
 
-**Hound Dog  **
-**First performed:** June 24, 1989 (Asbury Park, NJ)  
+**Hound Dog**
+**First performed:** June 24, 1989 (Asbury Park, NJ)
 **Last performed:** July 23, 1989 (Asbury Park, NJ)
 
 © March 30, 2021

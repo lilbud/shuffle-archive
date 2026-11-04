@@ -34,7 +34,7 @@ And that's not an arbitrary comparison: one can make a strong argument that "Goo
 
 The key to understanding "Good Eye" is to understand the line that closes each verse: *I had my good eye to the dark and my blind eye to the sun.*
 
-*I'm watching the darkness, not the light*, our narrator tells us. *I'm surrendering to the temptations of **more*****.** *More earthly possessions, when I already have all I need. More pleasures of the flesh, when I already have the one I love.*
+> *I'm watching the darkness, not the light*, our narrator tells us. *I'm surrendering to the temptations of **more*****.** *More earthly possessions, when I already have all I need. More pleasures of the flesh, when I already have the one I love.*
 
 That's it. That's the song: *I had it it all, and I lost it all, because I gave in to my darkest desires.*
 

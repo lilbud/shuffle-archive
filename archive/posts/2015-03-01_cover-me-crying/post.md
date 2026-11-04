@@ -1,4 +1,3 @@
- 
 
 “Crying” was denied its rightful honor atop the Billboard Hot 100 when it was originally released in 1961.
 
@@ -46,8 +45,8 @@ Orbison had passed away only a few weeks prior, and the assembled all-star artis
 
 Bruce hasn’t performed “Crying” in public since that 1989 salute, but Orbison’s song continues to rack up honors, entering the Grammy Hall of Fame in 2002 and ranking #69 on *Rolling Stone’s* 500 Greatest Songs of All Time.
 
-**Crying  **
-**First performed:** September 30, 1987 (Los Angeles, CA)  
+**Crying**
+**First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** January 18, 1989 (New York City, NY)
 
 © May 6, 2022

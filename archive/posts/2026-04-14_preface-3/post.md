@@ -40,7 +40,7 @@ In the end, I made some painful inclusion and exclusion decisions and cobbled to
 
 What I thought would be a simple and straight-forward project instead turned out to require a plethora of judgment calls. Ultimately, though, I'm happy with the result, and I hope you are too.
 
-*Born in the U.S.A.* is one of Springsteen's most important records, and I wanted this volume to be a comprehensive examination and celebration of it.
+> *Born in the U.S.A.* is one of Springsteen's most important records, and I wanted this volume to be a comprehensive examination and celebration of it.
 
 I hope I've succeeded.
 

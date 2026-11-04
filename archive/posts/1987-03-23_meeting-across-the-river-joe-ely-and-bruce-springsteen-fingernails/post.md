@@ -12,8 +12,8 @@ The pair performed “Fingernails” once more together, and once again it was o
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Uv4lYpa6tzI)
 
-**Fingernails**  **
-**First performance:** May 19, 1993 (Dublin, Ireland)  
+**Fingernails**
+**First performance:** May 19, 1993 (Dublin, Ireland)
 **Last performance:** March 13, 1996 (Dublin, Ireland)
 
 © October 10, 2018

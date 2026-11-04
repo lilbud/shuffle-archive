@@ -52,7 +52,7 @@ Bruce’s vocals warn the shepherd: *Get up. Do you know where you children are?
 > *Stars have faded, the sky is still*<br>
 > *Sun’s in the heavens and a new day’s rising*
 
-*A new day is rising*. Those sound like words of hope, but they’re not.
+> *A new day is rising*. Those sound like words of hope, but they’re not.
 
 Until this point, “Rocky Ground” urges faith and action, but in Moore’s spoken-word bridge (some call it a rap, but I’m not sure it fits the definition), faith falls away along with biblical metaphor. Elegance gives way to prosaicness, and a street-level cadence grounds us in harsh reality.
 
@@ -65,7 +65,7 @@ Until this point, “Rocky Ground” urges faith and action, but in Moore’s sp
 > *You pray for guidance, only silence now meets your prayers*<br>
 > *The morning breaks, you awake but no one’s there*
 
-*A new day is rising*. There’s no hope here in those words; they’re nothing but an alarm clock.
+> *A new day is rising*. There’s no hope here in those words; they’re nothing but an alarm clock.
 
 > *Change isn’t coming,* the shepherd tells herself. *Today isn’t Judgment Day, and tomorrow won’t be, either. Hard times are going to keep on coming.*
 
@@ -85,7 +85,7 @@ Bruce also issued “Rocky Ground” as the second single from *Wrecking Ball*, 
 
 [Watch on Youtube: Bruce Springsteen - Rocky Ground (Modern Mix Video)](https://www.youtube.com/watch?v=Id2Rss2RfgQ)
 
-*Rolling Stone* liked “Rocky Ground,” too. They named it the seventh best song (by anyone) of 2012.
+> *Rolling Stone* liked “Rocky Ground,” too. They named it the seventh best song (by anyone) of 2012.
 
 Even so, “Rocky Ground” vanished after the Wrecking Ball Tour (save for a single encore at the very beginning of the High Hopes Tour), too pensive for the celebratory tour that followed. But in the years since the last full E Street Band outing, the world has traveled over some seriously rocky ground, and Bruce’s song seems more timely than ever.
 

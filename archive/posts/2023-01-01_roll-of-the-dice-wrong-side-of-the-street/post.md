@@ -10,7 +10,7 @@ post_id: 13440
 ---
 Bruce's penchant for tinkering with old recordings and grafting modern elements has accelerated in recent years, and sometimes the seams are more noticeable than others. (I'm looking at you, "[The Brokenhearted](../2018-08-20_roll-of-the-dice-the-brokenhearted/post.md).")
 
-*The Promise* is full of such hybrid creations, but "Wrong Side of the Street" is one of the subtler ones: a vintage 1977 backing track paired with modern 2010-ish vocals.
+> *The Promise* is full of such hybrid creations, but "Wrong Side of the Street" is one of the subtler ones: a vintage 1977 backing track paired with modern 2010-ish vocals.
 
 Originally and mystifyingly recorded under the title "English Song" on October 14, 1977, the song escaped into the wild via enterprising bootleggers. Unfortunately, though, the version that circulated for years had lyrics that were somewhat bluffed and largely incoherent. Take a listen:
 

@@ -78,7 +78,7 @@ The first thing you notice–the first thing *everyone* notices–when you walk 
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/22222015_10155106466221158_4780947566061749221_n.jpg.webp)
 
-*That's* how close I was to Bruce. And I almost got kicked out of the theater for taking that photo, because on opening night, they were super strict about the new photos rule, even well before showtime. They also stressed to us as we walked in that if we left our seats for any reason during the performance, we'd have to watch the remainder of the show from the back of the theater.
+> *That's* how close I was to Bruce. And I almost got kicked out of the theater for taking that photo, because on opening night, they were super strict about the new photos rule, even well before showtime. They also stressed to us as we walked in that if we left our seats for any reason during the performance, we'd have to watch the remainder of the show from the back of the theater.
 
 Needless to say, I did not visit the bar that night.
 

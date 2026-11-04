@@ -16,7 +16,7 @@ Looking back on it, I'm not entirely sure she meant it as helpfully and encourag
 
 [Watch on Youtube: Back to the Future - Mayor](https://www.youtube.com/watch?v=6rvVPqdl2iw)
 
-*A blogger…* I thought. *I like the sound of that!*
+> *A blogger…* I thought. *I like the sound of that!*
 
 Now if you know me at all in real life, you know that ideas like this fly through my head on a fairly regular basis. And by *through* I mean: into and then out of. I have enough self-awareness to know that any seemingly great idea that holds my enthusiasm captive today is 99% likely to be forgotten within a day or two.
 
@@ -38,9 +38,9 @@ Volume One of *The E Street Shuffle Bookshelf Collection*.
 
 From the very beginning, the blog featured several sub-blogs, but all of them were sort of in service to what I considered the flagship: *Roll of the Dice*, an exhaustive and comprehensive series of essays delving into every original Springsteen song.
 
-*Kingdom of Days* was originally intended just as an organizational tool for my linked media, and to maybe serve as a little clickbait to attract readers so they might discover what I considered the more serious work.
+> *Kingdom of Days* was originally intended just as an organizational tool for my linked media, and to maybe serve as a little clickbait to attract readers so they might discover what I considered the more serious work.
 
-*Cover Me* was originally intended to fill space between *Roll of the Dice* entries in the days when I believed (because I was authoritatively told by other bloggers) that it was important to "feed the beast" daily. Ironically, *Cover Me* evolved over time into the series I enjoyed writing the most, for reasons I'll explain in the introduction to Volume One of that book.
+> *Cover Me* was originally intended to fill space between *Roll of the Dice* entries in the days when I believed (because I was authoritatively told by other bloggers) that it was important to "feed the beast" daily. Ironically, *Cover Me* evolved over time into the series I enjoyed writing the most, for reasons I'll explain in the introduction to Volume One of that book.
 
 But *Roll of the Dice* was and is the series I'm most proud of.
 

@@ -69,7 +69,7 @@ Here, the song makes a quick swerve into one of the major preoccupations of the 
 > *Well you give us a reason to stop just for a while*<br>
 > *To stop, stand, baby, and salute your style*<br>
 
-*Salute your style.* Notice that we still don't know what Cynthia looks like. The emphasis is entirely on her style, her attitude, her general vibe.
+> *Salute your style.* Notice that we still don't know what Cynthia looks like. The emphasis is entirely on her style, her attitude, her general vibe.
 
 Springsteen makes it clear that unlike Roy Orbison, his character is not going to be laying a guilt trip on Cynthia.
 

@@ -18,7 +18,7 @@ We took a look at "[James Lincoln Deere](../1983-01-10_roll-of-the-dice-james-li
 
 [Watch on Youtube: Straight Time](https://www.youtube.com/watch?v=IU7-W_EnJHY)
 
-*The Ghost of Tom Joad* is often thought of as a solo album, and about half the songs on it are indeed one-man performances. "Straight Time," however, features a full band–one that plays with such subtlety and restraint that you'd be forgiven for thinking it a solo tune, too.
+> *The Ghost of Tom Joad* is often thought of as a solo album, and about half the songs on it are indeed one-man performances. "Straight Time," however, features a full band–one that plays with such subtlety and restraint that you'd be forgiven for thinking it a solo tune, too.
 
 Danny Federici is the only other E Street resident on the track; the rest of the players are new to the scene. Soozie Tyrell makes her debut appearance on the violin, and Jim Hanson makes his first of only three on the bass. Garry Mallaber is only slightly more familiar–he's the drummer on every *Lucky Town* track, and he makes a return engagement here.
 
@@ -60,7 +60,7 @@ This is Charlie's internal struggle: can he reinvent himself through family, com
 > *I got a cold mind to go tripping ‘cross that thin line*<br>
 > *I'm sick of doing straight time*<br>
 
-*You can't get any more than half-free*, Charlie tells us. His body–his physical half–tries its best to play the family man, but his inner life is neither straight nor narrow.
+> *You can't get any more than half-free*, Charlie tells us. His body–his physical half–tries its best to play the family man, but his inner life is neither straight nor narrow.
 
 In the last verse, Bruce hints that old habits are about to re-assert themselves, as Charlie emotionlessly saws off a shotgun. We never learn why, but such weapons are counter-productive for hunting.
 

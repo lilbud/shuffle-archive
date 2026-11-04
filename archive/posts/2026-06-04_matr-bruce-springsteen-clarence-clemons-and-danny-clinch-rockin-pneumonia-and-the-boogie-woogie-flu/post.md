@@ -30,8 +30,8 @@ Each of the three performances featured Bruce in fine improvisational form with 
 
 Will we ever see him play it again? Let’s just hope we’ve put this pandemic behind us when we do.
 
-**Rockin’ Pneumonia and the Boogie Woogie Flu  **
-**First performed:** June 28, 1993 (Sea Bright, NJ)  
+**Rockin’ Pneumonia and the Boogie Woogie Flu**
+**First performed:** June 28, 1993 (Sea Bright, NJ)
 **Last performed:** April 13, 2019 (New York City, NY)
 
 © January 16, 2022

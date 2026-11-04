@@ -8,8 +8,8 @@ This is the only time Bruce is known to have played this classic, made famous in
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=O4_5593-skQ)
 
-**Be-Bop-a-Lula**  **
-**First performed:** July 23, 1982 (Asbury Park, NJ)  
+**Be-Bop-a-Lula**
+**First performed:** July 23, 1982 (Asbury Park, NJ)
 **Last performed:** July 23, 1982 (Asbury Park, NJ)
 
 © July 7, 2018

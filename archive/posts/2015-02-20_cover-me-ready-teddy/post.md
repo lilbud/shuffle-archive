@@ -8,8 +8,8 @@ It’s a great opener, so it’s a surprise that this was a true one-off–Bruce
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tpMaCUh569I)
 
-**Ready Teddy**  **
-**First performed:** November 16, 1978 (Toronto, ON)  
+**Ready Teddy**
+**First performed:** November 16, 1978 (Toronto, ON)
 **Last performed:** January 20, 1991 (Sea Bright, NJ)
 
 © February 1, 2018

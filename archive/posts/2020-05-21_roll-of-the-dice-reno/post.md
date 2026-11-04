@@ -62,7 +62,7 @@ Again, let's not break out the atlas, because Bruce's name-dropping is more for 
 
 Just feel the warmth of the scene as our hero is transported back to a time when he had all he ever needed, and then let's focus on the single line that captures the tragic heart of the song:
 
-*Somehow all you ever need's never really quite enough*.
+> *Somehow all you ever need's never really quite enough*.
 
 That line ranks up there with "is a dream a lie if it don't come true" and "God have mercy on the man who doubts what he's sure of." It also tells us a great deal: that his love most likely still lives, and that his loss is one of his own making.
 

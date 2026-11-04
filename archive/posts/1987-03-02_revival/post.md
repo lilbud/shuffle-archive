@@ -16,8 +16,8 @@ On both occasions, they performed “Atlantic City” with Bruce very much in th
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SxM5wgGSkdw)
 
-**Revival  **
-**First performed:** March 27, 2024 (Brooklyn, NY)  
+**Revival**
+**First performed:** March 27, 2024 (Brooklyn, NY)
 **Last performed:** July 20, 2025 (East Rutherford, NJ)
 
 © July 11, 2026

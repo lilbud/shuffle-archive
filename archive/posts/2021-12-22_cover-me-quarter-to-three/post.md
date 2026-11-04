@@ -34,7 +34,7 @@ The following year, Bonds (or perhaps his manager, accounts vary) wrote lyrics t
 
 (Teenagers at the time were certain that Bonds was shouting something obscene which I will not reprint here. "Absolutely not," said Bonds when questioned about it in a 1994 interview. "I mean, my mother was at the recording session where we did `Quarter to Three.' Do you think I would say something like that in front of my mother?")
 
-*Rolling Stone* included "Quarter to Three" on its "500 Songs That Shaped Rock and Roll" list. That honor was well-earned, because the influence of Bonds' hit was felt almost immediately, starting with Dion's immortal "Runaround Sue," released only a few months later…
+> *Rolling Stone* included "Quarter to Three" on its "500 Songs That Shaped Rock and Roll" list. That honor was well-earned, because the influence of Bonds' hit was felt almost immediately, starting with Dion's immortal "Runaround Sue," released only a few months later…
 
 [Watch on Youtube: DION ~ RUNAROUND SUE](https://www.youtube.com/watch?v=ik57HLn0Nm0)
 

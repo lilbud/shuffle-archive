@@ -47,7 +47,7 @@ But what may come eventually comes.
 
 Maybe the hurricane is literal. Knowing the context in which Bruce wrote "Jack of All Trades," more likely it represents the havoc and damage that the housing crisis wreaked on society. Either way, though, our hero has faith. He's been here before, but this time it feels different.
 
-*This time*, he thinks, is the time society starts to care about the people at the bottom whose lives are fueling the prosperity of those at the top.
+> *This time*, he thinks, is the time society starts to care about the people at the bottom whose lives are fueling the prosperity of those at the top.
 
 He's wrong, of course, and with that realization comes a creeping bitterness that now infects the song.
 

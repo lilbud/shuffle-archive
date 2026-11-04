@@ -51,11 +51,11 @@ Now pay attention to what comes next–the song is about to make a very subtle b
 > *Sometimes it might seem like it was planned*<br>
 > *For you to roam empty-hearted through this land*<br>
 > *Though the world turns you hard and cold*<br>
-*There's one thing, **mister**, that I know:*
+> *There's one thing, **mister**, that I know:*
 
 > *That's if you think your heart is stone*<br>
 > *And that you're rough enough to whip this world alone*<br>
-*Alone, **buddy**, there ain't no peace of mind*
+> *Alone, **buddy**, there ain't no peace of mind*
 > *That's why I'll keep searching till I find*<br>
 
 > *My special one*<br>

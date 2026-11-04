@@ -16,9 +16,9 @@ If *Born to Run* is unbridled romance, *Darkness on the Edge of Town* is unvarni
 
 And that’s easy enough to understand: if you’d just settled a years-long lawsuit with your former manager that barred you from recording new music and forced you into a never-ending hardscrabble tour of secondary towns and tertiary venues, the romance would probably have been beaten out of you too.
 
-*Darkness on the Edge of Town* is devoid of the romantic imagery and characters that populated Bruce’s previous album, and even the words themselves are tighter, terser, plainer. This is the album where Bruce transitioned away from his rhyming dictionary and vivid scenery and embraced an economical approach to storytelling that would become a trademark going forward.
+> *Darkness on the Edge of Town* is devoid of the romantic imagery and characters that populated Bruce’s previous album, and even the words themselves are tighter, terser, plainer. This is the album where Bruce transitioned away from his rhyming dictionary and vivid scenery and embraced an economical approach to storytelling that would become a trademark going forward.
 
-*Darkness* is significant for more than just its lyrical evolution, however. It’s also the album on which the musical virtuosity of the “classic” line-up of the E Street Band can be heard and appreciated for the first time. Gone is the Spectorian wall of sound production, returning is Springsteen the guitar hero, and for the first time, Bruce’s voice is shaded with the empathy and world-weariness that comes with adulthood.
+> *Darkness* is significant for more than just its lyrical evolution, however. It’s also the album on which the musical virtuosity of the “classic” line-up of the E Street Band can be heard and appreciated for the first time. Gone is the Spectorian wall of sound production, returning is Springsteen the guitar hero, and for the first time, Bruce’s voice is shaded with the empathy and world-weariness that comes with adulthood.
 
 But don’t confuse realism with pessimism, because the unifying theme and greatest strength of *Darkness on the Edge of Town* is the relentless optimism, defiance, and persistence of its narrators.
 

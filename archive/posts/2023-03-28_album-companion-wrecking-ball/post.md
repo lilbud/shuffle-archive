@@ -65,9 +65,9 @@ The album finishes as strongly as it opens, with a run of four songs that rank n
 - "[We Are Alive](../2018-09-15_roll-of-the-dice-we-are-alive/post.md)" carries that optimism through a tour of tragedy and cruelty to a place of connection and community, conjuring voices from the past to offer faith for the future and urge perseverance.
 - "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" closes the album by adapting a Slovakian dirge into an anthem of righteous fury and relentless optimism. Bruce came to it through Pete Seeger and adapted it for his short-lived Sessions Band. It turned out to be a perfect album and show-closer for the E Street Band, just as "We Take Care of Our Own" turned out to be the perfect opener.
 
-*Wrecking Ball* was more than an artistic success–it was also the commercial success it deserved to be, or at least as much as we could hope for in the crowded 21st-century musical landscape. It debuted at #1 in the U.S., the U.K. and fourteen other countries, tying him for third with Elvis for the most Number One albums of all time. (He'd go on to have one more.)
+> *Wrecking Ball* was more than an artistic success–it was also the commercial success it deserved to be, or at least as much as we could hope for in the crowded 21st-century musical landscape. It debuted at #1 in the U.S., the U.K. and fourteen other countries, tying him for third with Elvis for the most Number One albums of all time. (He'd go on to have one more.)
 
-*Rolling Stone* awarded *Wrecking Ball* their Best Album of the Year accolade, and the Grammy Awards honored it with three nominations. (It won none.)
+> *Rolling Stone* awarded *Wrecking Ball* their Best Album of the Year accolade, and the Grammy Awards honored it with three nominations. (It won none.)
 
 And it wasn't just the album–the tour was a smash success, too. Featuring a stellar array of backing vocalists and the welcome return of a full horn section–including Jake Clemons ably stepping into his uncle's oversized shoes in this first tour since The Big Man's passing–the super-sized E Street Band sounded brighter, bolder, and more nimble than ever.
 

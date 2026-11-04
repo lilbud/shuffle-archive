@@ -10,7 +10,7 @@ post_id: 2181
 ---
 First off: If you haven't seen John Sayles' brilliant film *Limbo*, go find it and watch it.
 
-*Limbo* is a brilliant and challenging movie. I won't spoil it for you, but I'll argue that Bruce's song "Lift Me Up," which plays over the end credits of the film, has both everything and nothing to do with the film. It's a perfectly haunting melodic exit for an unsettling piece of visual art.
+> *Limbo* is a brilliant and challenging movie. I won't spoil it for you, but I'll argue that Bruce's song "Lift Me Up," which plays over the end credits of the film, has both everything and nothing to do with the film. It's a perfectly haunting melodic exit for an unsettling piece of visual art.
 
 That said, let's tackle "Lift Me Up" on its own.
 

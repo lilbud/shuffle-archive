@@ -26,7 +26,7 @@ Had it been released a couple of decades earlier, "My Lucky Day" had all the mak
 
 But it would be a mistake to dismiss "My Lucky Day" as a light love song. There's a reason why Bruce launched it ahead of the album.
 
-*Working on a Dream* is often dismissed as an album of outtakes, but nothing could be further from the truth–it's actually Bruce's most thematically cohesive 21st-century album, even more so than *The Rising* and *Magic. Working on a Dream* is an album entirely about aging, and the acceptance–even the embrace–of growing old.
+> *Working on a Dream* is often dismissed as an album of outtakes, but nothing could be further from the truth–it's actually Bruce's most thematically cohesive 21st-century album, even more so than *The Rising* and *Magic. Working on a Dream* is an album entirely about aging, and the acceptance–even the embrace–of growing old.
 
 "My Lucky Day" captures the essence of *Working on a Dream* and conveys it in its purest and most celebratory form. Its message is simple: life is long and unpredictable, and it therefore inevitably brings its share of blows and defeats our way. But love isn't random–it's enduing, dependable and the surest bet this life provides. When everything else seems to go wrong, we can trust the one by our side to be our anchor.
 

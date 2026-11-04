@@ -14,7 +14,7 @@ Bruce wrote "Tomorrow Never Knows" during the mixing stages of *Magic–*in fact
 
 That first group of songs also included "[What Love Can Do](../2018-11-25_roll-of-the-dice-what-love-can-do/post.md)," "This Life," "[Life Itself](../2018-03-26_roll-of-the-dice-life-itself/post.md)," and "[My Lucky Day](../2019-09-02_roll-of-the-dice-my-lucky-day/post.md)," and together with "Tomorrow Never Knows," it's clear that Bruce was beginning to come to terms with aging in a way that he really hadn't addressed before.
 
-*Working on a Dream* would develop into a fascinating document of an artist taking stock of his life, love, family, friends and body of work. It's the gateway to all of his later work, both musically and lyrically–and "Tomorrow Never Knows" is one of the plainest yet loveliest examples.
+> *Working on a Dream* would develop into a fascinating document of an artist taking stock of his life, love, family, friends and body of work. It's the gateway to all of his later work, both musically and lyrically–and "Tomorrow Never Knows" is one of the plainest yet loveliest examples.
 
 Take a careful listen to the song below, and use headphones if you have them to get the full effect.
 

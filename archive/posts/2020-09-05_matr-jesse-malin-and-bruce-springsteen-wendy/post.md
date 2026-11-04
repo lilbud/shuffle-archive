@@ -14,7 +14,7 @@ Bruce Springsteen introduced her in 1975, and I was so smitten that I've been a 
 
 At the tail end of 2002, former D Generation lead singer Jesse Malin released his debut solo album, *The Fine Art of Self Destruction.* With first-time producer Ryan Adams, Jesse recorded the album in a mere six days, but you'd never know it from the final product.
 
-*The Fine Art of Self Destruction* easily ranks among the best albums released that year (a year that also brought us *The Rising*). As Bruce himself put it, "Jesse's got one of those rare albums out these days that's really an album–it's got all good songs on it."
+> *The Fine Art of Self Destruction* easily ranks among the best albums released that year (a year that also brought us *The Rising*). As Bruce himself put it, "Jesse's got one of those rare albums out these days that's really an album–it's got all good songs on it."
 
 Bruce was right: there's not a single song on Jesse's debut album that's anything less than great, but if I had to vote for a standout track, it would have to be "Wendy."
 

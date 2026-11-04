@@ -79,6 +79,6 @@ Bruce finally found his title in [a song he'd written months earlier](../2019-05
 **Never released**<br>
 **Never performed**<br>
 
-*It's possible Bruce borrowed the phrase for both "Losin' Kind" and "[Club Soul City](../2019-05-07_cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/post.md)" from the Johnny Cash bootleg "The Losing Kind," which shares a similar dark humor. But I'm not a Cash scholar, so I'll leave that to others to determine.
+> *It's possible Bruce borrowed the phrase for both "Losin' Kind" and "[Club Soul City](../2019-05-07_cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/post.md)" from the Johnny Cash bootleg "The Losing Kind," which shares a similar dark humor. But I'm not a Cash scholar, so I'll leave that to others to determine.
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -38,9 +38,9 @@ Okay now let's do a hard one:
 
 > *It's got an I Spy beeper that tells me when you're lonely*<br>
 
-*I Spy* was a popular television espionage series that ran for three seasons starting in 1965-66. As a teenager, Bruce would have most certainly watched its original airing, but for anyone under the age of 55, the only way you would have seen it is in syndicated reruns. (There was a time when you couldn't watch any show ever made on demand.)
+> *I Spy* was a popular television espionage series that ran for three seasons starting in 1965-66. As a teenager, Bruce would have most certainly watched its original airing, but for anyone under the age of 55, the only way you would have seen it is in syndicated reruns. (There was a time when you couldn't watch any show ever made on demand.)
 
-*I Spy* was notable for its integrated cast–the show centered around two partners played by Robert Culp and Bill Cosby (yes, *that* Bill Cosby).
+> *I Spy* was notable for its integrated cast–the show centered around two partners played by Robert Culp and Bill Cosby (yes, *that* Bill Cosby).
 
 [Watch on Youtube: "I Spy" TV Intro](https://www.youtube.com/watch?v=vW8gS1dNS_M)
 
@@ -57,7 +57,7 @@ You can have your '69 Chevy. I'll take that '66 Batmobile, please.
 > *When your world's in crisis of an impending heartbreak*<br>
 > *Now don't you call James Bond or Secret Agent Man*<br>
 
-*Secret Agent* was yet another espionage television series that ran on American television during the mid-to-late 1960s. It was based on a British TV series called *Danger Man*, but the coolest part of the show was its theme song, "Secret Agent Man," recorded by Johnny Rivers.
+> *Secret Agent* was yet another espionage television series that ran on American television during the mid-to-late 1960s. It was based on a British TV series called *Danger Man*, but the coolest part of the show was its theme song, "Secret Agent Man," recorded by Johnny Rivers.
 
 [Watch on Youtube: JOHNNY RIVERS - Secret Agent Man 1966](https://www.youtube.com/watch?v=6iaR3WO71j4)
 

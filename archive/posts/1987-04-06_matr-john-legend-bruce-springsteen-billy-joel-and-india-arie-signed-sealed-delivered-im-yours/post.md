@@ -20,8 +20,8 @@ And if audio from that performance is rare, video is scarcer still. But check th
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Gz20pPR3yXU)
 
-**Signed, Sealed, Delivered I’m Yours  **
-**First performed:** October 16, 2008 (New York City, NY)  
+**Signed, Sealed, Delivered I’m Yours**
+**First performed:** October 16, 2008 (New York City, NY)
 **Last performed:** October 16, 2008 (New York City, NY)
 
 © November 29, 2021

@@ -23,7 +23,7 @@ That said, here's what you need to know about the *content* on the site:
 
 **Kingdom of Days**<br>
 
-*Kingdom of Days* will remain on the site until it closes in late 2027 or early 2028. However, due to the archiving software I am using and in order to optimize for print, you'll notice the following changes:
+> *Kingdom of Days* will remain on the site until it closes in late 2027 or early 2028. However, due to the archiving software I am using and in order to optimize for print, you'll notice the following changes:
 
 - The post titles will drop the "Kingdom of Days" prefix. So instead of "Kingdom of Days: January 5" as the title, you will see simply "January 5."
 - All of the "New for 20xx" article lead-ins will be deleted, along with all references to *Where the Band Was* essays.

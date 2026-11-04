@@ -8,7 +8,7 @@ categories: cover-me meeting-across-the-river
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/makelove.jpg
 post_id: 29626
 ---
-*Sea.Hear.Now* kicks off today in Asbury Park, and the festival line-up promises some epic sets from a stellar line-up. Eddie Vedder's unmistakable voice was heard last night sound-checking "My City of Ruins," with Pearl Jam, so festival attendees may at least have some Springsteen music in store, if not an actual guest appearance.
+> *Sea.Hear.Now* kicks off today in Asbury Park, and the festival line-up promises some epic sets from a stellar line-up. Eddie Vedder's unmistakable voice was heard last night sound-checking "My City of Ruins," with Pearl Jam, so festival attendees may at least have some Springsteen music in store, if not an actual guest appearance.
 
 But after a full day and evening of rock and roll, The Stone Pony is the place to be for after-hours blues. Danny Clinch, the event's co-founder and driving force, will be taking anyone with any stamina left late into the night with The Tangiers Blues Band, and when the TBB is on stage, you never know who else might drop by.
 

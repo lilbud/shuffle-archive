@@ -26,8 +26,8 @@ Bruce hasn’t played “Satisfaction” since, but it’s clear from the perfor
 
 And why shouldn’t he? He started practicing it 57 years ago.
 
-**(I Can’t Get No) Satisfaction**  **
-**First performed:** October 1965 (Monmouth County, NJ)  
+**(I Can’t Get No) Satisfaction**
+**First performed:** October 1965 (Monmouth County, NJ)
 **Last performed:** April 17, 2014 (Nashville, TN)
 
 © February 2, 2022

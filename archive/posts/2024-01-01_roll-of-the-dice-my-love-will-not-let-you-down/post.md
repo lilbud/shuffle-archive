@@ -26,7 +26,7 @@ It's not only the most powerful rock anthem Bruce ever wrote (IMHO)–it's also 
 
 In "Dancing in the Dark," the narrator is nocturnal, isolated and disconnected:
 
-*I get up in the evening, and* *I ain't got nothing to say*<br>
+> *I get up in the evening, and* *I ain't got nothing to say*<br>
 > *I come home in the morning*<br>
 > *I go to bed feeling the same way*<br>
 > *I ain't nothing but tired*<br>

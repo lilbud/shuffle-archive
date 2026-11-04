@@ -115,7 +115,7 @@ Death is inevitable, Bruce reminds us. In the end, it comes for us all. The thin
 
 Life brings an endless chain of hardships. Endless, that is, until the end. For some of us, hardships merely punctuate our stories; for others, they're the chapters.
 
-*Hard times come and hard times go, just to come again*.
+> *Hard times come and hard times go, just to come again*.
 
 If you read the lyrics without listening to the music, you'd probably think "Wrecking Ball" is the most nihilistic song in Bruce's catalog. But the defiance of his vocals and the way each *hard times come and hard times go* seems to shed years and weight until all that's left is youth and vigor… when we listen to "Wrecking Ball" we realize that it's actually one of Bruce's most life-affirming songs.
 

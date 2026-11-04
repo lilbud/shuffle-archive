@@ -9,7 +9,7 @@ post_id: 25805
 ---
 Bruce Springsteen co-wrote four songs on Joe Grushecky's 1998 album, *Coming Home*, but the strongest song on the album is one hundred percent Joe's.
 
-*Coming Home* leads off with one of my all-time favorite Grushecky songs. "Everything's Going to Be All Right" is a warm, optimistic rocker that sets the tone for an album rooted in family and the ties that bind.
+> *Coming Home* leads off with one of my all-time favorite Grushecky songs. "Everything's Going to Be All Right" is a warm, optimistic rocker that sets the tone for an album rooted in family and the ties that bind.
 
 [Watch on Youtube: Everything's Going To Work Out Right](https://www.youtube.com/watch?v=Blifohq2MwI)
 

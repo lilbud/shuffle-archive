@@ -20,9 +20,9 @@ Joe and Jerry Lee did join Bruce on stage in Dublin one night in 1993, but there
 
 Still, who can quibble? Joe Ely was one of the all-time great Texas singer-songwriters, and he’ll be missed by anyone fortunate enough to have heard him on disc or on stage.
 
-**Odds of the Blues  **
-**Recorded:** 2024  
-**Released:** *Driven to Drive* (2024)  
-> **Never performed**
+**Odds of the Blues**
+**Recorded:** 2024
+**Released:** *Driven to Drive* (2024)
+**Never performed**
 
 © July 8, 2026

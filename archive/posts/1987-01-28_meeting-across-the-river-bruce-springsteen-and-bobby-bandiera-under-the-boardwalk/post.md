@@ -12,8 +12,8 @@ Bruce covered “Under the Boardwalk” a few more times over the years. The las
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lPqDw4VtOJ4)
 
-**Under the Boardwalk  **
-**First performed:** June 24, 1989 (Asbury Park, NJ)  
+**Under the Boardwalk**
+**First performed:** June 24, 1989 (Asbury Park, NJ)
 **Last performed:** November 2, 2012 (New York City, NY)
 
 © May 4, 2018

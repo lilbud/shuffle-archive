@@ -16,9 +16,9 @@ Here’s Bruce’s solo contribution to *Every Child Deserves a Lifetime–*his 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nJMrU0scAN0)
 
-**Chicken Lips and Lizard Hips**  **
-**Recorded:** Summer 1990  
-**Released:** *Every Child Deserves a Lifetime* (1991)  
-> **Never performed**
+**Chicken Lips and Lizard Hips**
+**Recorded:** Summer 1990
+**Released:** *Every Child Deserves a Lifetime* (1991)
+**Never performed**
 
 © November 13, 2019

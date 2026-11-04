@@ -59,7 +59,7 @@ That stark contrast tees up the final verse of “Death to My Hometown,” where
 
 The winds of change are blowing, and the father senses the same forces that gutted his boyhood hometown returning to attack his new one. Stand firm, he warns his kids. Stand firm, and resist.
 
-*Get yourself a song to sing.* Resist. Protest. Organize. Unionize.
+> *Get yourself a song to sing.* Resist. Protest. Organize. Unionize.
 
 It’s unclear whether the “robber barons,” “the greedy thieves” committed legal crimes or just moral ones, but the results are the same regardless: *they brought death to our hometown, boys.*
 

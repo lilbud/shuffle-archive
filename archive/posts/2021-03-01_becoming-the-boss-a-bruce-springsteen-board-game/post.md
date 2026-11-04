@@ -32,7 +32,7 @@ Even the obscure but notable local legends are present, rewarding actual or spir
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/player-margaret.png.webp)
 
-*Becoming The Boss* is incredibly rich in detail, accessible to uninitiated but chock full of detail, arcana, in-jokes, and lore sure to please the hardcore Springsteen fan.
+> *Becoming The Boss* is incredibly rich in detail, accessible to uninitiated but chock full of detail, arcana, in-jokes, and lore sure to please the hardcore Springsteen fan.
 
 "It will never be the family board game of the year," laughs co-creator Knud Jønsson.
 

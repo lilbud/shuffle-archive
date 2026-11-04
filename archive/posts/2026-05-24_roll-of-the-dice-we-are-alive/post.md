@@ -60,7 +60,7 @@ We soar on that chorus, as the “Ring of Fire” motif emerges in full-throated
 > *There were worms crawling all around me*<br>
 > *My fingers scratching at an earth black and six foot low*<br>
 > *And alone in the blackness of my grave*<br>
-*Alone I’d been left to die
+> *Alone I’d been left to die
 Then I heard voices calling all around me*
 > *The earth rose above me, my eyes filled with sky*
 

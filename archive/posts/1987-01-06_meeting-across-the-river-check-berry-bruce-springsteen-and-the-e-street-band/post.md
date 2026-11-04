@@ -6,8 +6,8 @@ From the 1995 opening concert for the Rock and Roll Hall of Fame: Chuck Berry ba
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Y-9Y4CCIWnM)
 
-**Johnny B. Goode**  **
-**First performed:** April 28, 1973 (College Park, MD)  
+**Johnny B. Goode**
+**First performed:** April 28, 1973 (College Park, MD)
 **Last performed:** April 21, 2017 (Asbury Park, NJ)
 
 © January 22, 2018

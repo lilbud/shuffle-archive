@@ -32,11 +32,11 @@ Nothing, that is, until he surprised and saluted the city of Minneapolis by clos
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nwY_P8kQOeU)
 
-**Purple Rain  **
-**First performed:** April 23, 2016* (Brooklyn, NY)  
+**Purple Rain**
+**First performed:** April 23, 2016* (Brooklyn, NY)
 **Last performed:** March 31, 2026 (Minneapolis, MN)
 
-*Brucebase cites one earlier performance of “Purple Rain,” a team-up with Prince and Madonna in 1985. However, I’ve listened to that recording, and I do not believe Bruce was on stage for it. There’s some confusion due to Prince seemingly calling out “Bruce!” during “America” that immediately preceded “Purple Rain,” but it was actually Prince just shouting “Peace!” (which is how “America” opens). Bruce had left the stage by that time, only joining Prince and Madonna for “Baby, I’m a Star.”
+> *Brucebase cites one earlier performance of “Purple Rain,” a team-up with Prince and Madonna in 1985. However, I’ve listened to that recording, and I do not believe Bruce was on stage for it. There’s some confusion due to Prince seemingly calling out “Bruce!” during “America” that immediately preceded “Purple Rain,” but it was actually Prince just shouting “Peace!” (which is how “America” opens). Bruce had left the stage by that time, only joining Prince and Madonna for “Baby, I’m a Star.”
 
 If anyone was at that show and remembers otherwise, I’d appreciate being corrected, but otherwise I’m fairly certain the Barclays performance above was Bruce’s true debut of “Purple Rain.”
 

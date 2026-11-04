@@ -36,8 +36,8 @@ Holly’s version debuted only two months later, and his version would be the on
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0IUV-QxwlRM)
 
-**Rave On**  **
-**First performed:** July 7, 1978 (Los Angeles, CA)  
+**Rave On**
+**First performed:** July 7, 1978 (Los Angeles, CA)
 **Last performed:** September 7, 1984 (Hartford, CT)
 
 © March 25, 2019

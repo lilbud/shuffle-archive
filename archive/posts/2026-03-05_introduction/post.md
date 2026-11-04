@@ -10,7 +10,7 @@ Many consider 1992 to be the low point in the long arc of Bruce Springsteen's ca
 
 Neither *Human Touch* nor *Lucky Town* were well-received at the time. As Bruce would put it many years later, *Human Touch* in particular was "star-challenged." And for good reason: the album sounds like an artist trying to find his footing in a high-tech studio. It's overly slick, over-produced, and more dated-sounding than anything else in Bruce's catalog before or since.
 
-*Lucky Town*, however, is a different story. It suffered from mere proximity to its fraternal twin; had it been released a year later, it might have earned the reception it deserved.
+> *Lucky Town*, however, is a different story. It suffered from mere proximity to its fraternal twin; had it been released a year later, it might have earned the reception it deserved.
 
 Bruce had spent years agonizing over *Human Touch*, layering tracks with session pros and polishing until all of his trademark grit was gone. Then, in a burst of inspiration, he recorded *Lucky Town* in just a few months.
 

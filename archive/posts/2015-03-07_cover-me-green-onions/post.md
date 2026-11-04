@@ -10,8 +10,8 @@ How’d they do? You can listen for yourself below, but just remember: you may n
 
 [Watch Video Highlight](https://videopress.com/embed/oaPS4mj6)
 
-**Green Onions  **
-**First performed:** November 20, 2009 (Baltimore, MD)  
+**Green Onions**
+**First performed:** November 20, 2009 (Baltimore, MD)
 **Last performed:** September 2, 2012 (Philadelphia, PA)
 
 © May 17, 2019

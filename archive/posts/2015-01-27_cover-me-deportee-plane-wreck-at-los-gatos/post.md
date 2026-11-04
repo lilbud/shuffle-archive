@@ -1,4 +1,4 @@
-On January 28, 1948, a DC-3 charter plane with seating for 26 passengers took off from Oakland with 32 people aboard–almost all of whom were Mexican citizens being deported from the United States.*****
+On January 28, 1948, a DC-3 charter plane with seating for 26 passengers took off from Oakland with 32 people aboard–almost all of whom were Mexican citizens being deported from the United States.***
 
 The plane never made it to its refueling stop in Burbank–a fuel leak in the port engine’s fuel pump ignited, and the entire port wing ripped off, taking nine passengers with it. The rest of the passengers and crew died when the plane crashed and exploded near Las Gatos Creek.
 
@@ -6,39 +6,39 @@ Plane crashes were hardly unheard of, but what made this particular crash so inf
 
 Later that year, Woody Guthrie wrote a poem about the event, called “Plane Wreck at Los Gatos.”
 
-*The crops are all in and the peaches are rott’ning,*  
-*The oranges piled in their creosote dumps;*  
-*They’re flying ’em back to the Mexican border*  
+> *The crops are all in and the peaches are rott’ning,*
+> *The oranges piled in their creosote dumps;*
+> *They’re flying ’em back to the Mexican border*
 > *To pay all their money to wade back again*
 
-*Goodbye to my Juan, goodbye, Rosalita,*  
-*Adios mis amigos, Jesus y Maria;*  
-*You won’t have your names when you ride the big airplane,*  
+> *Goodbye to my Juan, goodbye, Rosalita,*
+> *Adios mis amigos, Jesus y Maria;*
+> *You won’t have your names when you ride the big airplane,*
 > *All they will call you will be “deportees”*
 
-*My father’s own father, he waded that river,*  
-*They took all the money he made in his life;*  
-*My brothers and sisters come working the fruit trees,*  
+> *My father’s own father, he waded that river,*
+> *They took all the money he made in his life;*
+> *My brothers and sisters come working the fruit trees,*
 > *And they rode the truck till they took down and died.*
 
-*Some of us are illegal, and some are not wanted,*  
-*Our work contract’s out and we have to move on;*  
-*Six hundred miles to that Mexican border,*  
+> *Some of us are illegal, and some are not wanted,*
+> *Our work contract’s out and we have to move on;*
+> *Six hundred miles to that Mexican border,*
 > *They chase us like outlaws, like rustlers, like thieves.*
 
-*We died in your hills, we died in your deserts,*  
-*We died in your valleys and died on your plains.*  
-*We died ‘neath your trees and we died in your bushes,*  
+> *We died in your hills, we died in your deserts,*
+> *We died in your valleys and died on your plains.*
+> *We died ‘neath your trees and we died in your bushes,*
 > *Both sides of the river, we died just the same.*
 
-*The sky plane caught fire over Los Gatos Canyon,*  
-*A fireball of lightning, and shook all our hills,*  
-*Who are all these friends, all scattered like dry leaves?*  
+> *The sky plane caught fire over Los Gatos Canyon,*
+> *A fireball of lightning, and shook all our hills,*
+> *Who are all these friends, all scattered like dry leaves?*
 > *The radio says, “They are just deportees”*
 
-*Is this the best way we can grow our big orchards?*  
-*Is this the best way we can grow our good fruit?*  
-*To fall like dry leaves to rot on my topsoil*  
+> *Is this the best way we can grow our big orchards?*
+> *Is this the best way we can grow our good fruit?*
+> *To fall like dry leaves to rot on my topsoil*
 > *And be called by no name except “deportees”?*
 
 …and a decade later, college student Martin Hoffman set it to music, and the song known as “Deportee (Plane Wreck at Los Gatos)” was born. It became popular when Pete Seeger recorded and performed it.
@@ -67,10 +67,10 @@ Bruce performed the songs on two more occasions in 1996, both on his solo acoust
 
 <https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3>
 
-**Deportee (Plane Wreck at Los Gatos)  **
-**Recorded:** September 29, 1996  
-**Released:** *‘Till We Outnumber ’em* (2000)  
-**First performed:** August 28, 1981 (Los Angeles, CA)  
+**Deportee (Plane Wreck at Los Gatos)**
+**Recorded:** September 29, 1996
+**Released:** *‘Till We Outnumber ’em* (2000)
+**First performed:** August 28, 1981 (Los Angeles, CA)
 **Last performed:** June 4, 2026 (West Long Branch, NJ)
 
 © January 5, 2020

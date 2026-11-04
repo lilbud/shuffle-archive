@@ -52,32 +52,32 @@ Sort of.
 
 Even the songwriter was forced to admit there's not a lot of substance here:
 
-*Hey bus driver, keep the change* ("I was on the bus, I'm going up to 82nd Street, where a friend of mine had a crash pad he used to let me stay at. So I'm sitting on the bus watching everybody.")
+> *Hey bus driver, keep the change* ("I was on the bus, I'm going up to 82nd Street, where a friend of mine had a crash pad he used to let me stay at. So I'm sitting on the bus watching everybody.")
 
-*Bless your children, give them names* ("I just liked that.")
+> *Bless your children, give them names* ("I just liked that.")
 
 > *Don't trust men who walk with canes*<br>
-*Drink this and you'll grow wings on your feet* ("I just liked *that*.")
+> *Drink this and you'll grow wings on your feet* ("I just liked *that*.")
 
-*Broadway Mary, Joan Fontaine* ("Those New York City girls…")
+> *Broadway Mary, Joan Fontaine* ("Those New York City girls…")
 
-*Advertiser on a downtown train* ("Poor working stiff")
+> *Advertiser on a downtown train* ("Poor working stiff")
 
-*Christmas crier bustin' cane, he's in love again* ("Self-explanatory" (see pull quote))
+> *Christmas crier bustin' cane, he's in love again* ("Self-explanatory" (see pull quote))
 
-*Where dockworker's dreams mix with panther's schemes to someday own the rodeo* ("That's equal opportunity for all.")
+> *Where dockworker's dreams mix with panther's schemes to someday own the rodeo* ("That's equal opportunity for all.")
 
-*Tainted women in Vistavision perform for out-of-state kids at the late show* ("A New Jersey boy in pre-Disney Times Square")
+> *Tainted women in Vistavision perform for out-of-state kids at the late show* ("A New Jersey boy in pre-Disney Times Square")
 
-*Wizard imps and sweatsock pimps, interstellar mongrel nymphs* ("42nd Street")
+> *Wizard imps and sweatsock pimps, interstellar mongrel nymphs* ("42nd Street")
 
-*Oh, Rex said that lady left him limp, l**ove's like that* ("Self explanatory")
+> *Oh, Rex said that lady left him limp, l**ove's like that* ("Self explanatory")
 
-*Queen of Diamonds, Ace of Spades, newly discovered lovers of the Everglades* ("Let me refer to my notes… (pause) no discussion")
+> *Queen of Diamonds, Ace of Spades, newly discovered lovers of the Everglades* ("Let me refer to my notes… (pause) no discussion")
 
-*They take out a full page ad in the trades to announce their arrival* ("New York, here I come!")
+> *They take out a full page ad in the trades to announce their arrival* ("New York, here I come!")
 
-*And Mary Lou, she found out how to cope, she rides to heaven on a gyroscope* ("balance… It's a talent.")
+> *And Mary Lou, she found out how to cope, she rides to heaven on a gyroscope* ("balance… It's a talent.")
 
 > *The Daily News asks her for the dope*<br>
 > *She says, "Man, the dope's that there's still hope"*<br>
@@ -88,7 +88,7 @@ And that's pretty much the story of "Does This Bus Stop on 82nd Street" right th
 
 But wait: we're not quite done. Remember that "third part" Bruce referred to back in 1973? Thirty years later he explained it, kind of. It's those last two lines that just sort of peter out. Bruce wrote them at home, he told us back then, and in 2003 he added:
 
-*Senorita, Spanish rose* ("my first girlfriend")
+> *Senorita, Spanish rose* ("my first girlfriend")
 
 > *wipes her eyes and blows her nose*<br>
 > *Uptown in Harlem she throws a rose to some lucky young matador*<br>

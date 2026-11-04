@@ -37,14 +37,14 @@ Check out the lyrics:
 > *Had a lot of fun*<br>
 > *Ran around a lot*<br>
 > *Now my runnin's done*<br>
-*Honey, all I wanna, w**anna be runnin' to*
+> *Honey, all I wanna, w**anna be runnin' to*
 > *Is the arms of a girl like you*<br>
 
 > *You start livin' life*<br>
 > *Like you just don't care*<br>
 > *You done everything*<br>
 > *You been everywhere*<br>
-*But what I done ain't nothin' t**o what I wanna do*
+> *But what I done ain't nothin' t**o what I wanna do*
 > *When I find a little girl like you*<br>
 
 > *We'll get married*<br>
@@ -58,7 +58,7 @@ Check out the lyrics:
 > *Walkin' down the street*<br>
 > *You're the only one*<br>
 > *You make my life complete*<br>
-*I got a plan but i**t's one made for two*
+> *I got a plan but i**t's one made for two*
 > *So I need a little girl like you*<br>
 > *Yeah, hey, I need a little girl like you*<br>
 > *Oh Honey, I need a little girl like you.*<br>

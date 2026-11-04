@@ -44,7 +44,7 @@ The kind folks at Rutgers University Press sent me an advance copy of a new book
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/lwh.jpg.webp)
 
-*Long Walk Home* will be in bookstores on September 23rd, and that release date was very deliberately chosen.
+> *Long Walk Home* will be in bookstores on September 23rd, and that release date was very deliberately chosen.
 
 Subtitled *Reflections on Bruce Springsteen*, *Long Walk Home* is an anthology of essays meant to mark and celebrate the artist's impact on his 70th birthday.
 
@@ -68,7 +68,7 @@ And that's why more than a month after I finished reading *Long Walk Home*, the 
 
 There are many others as well.
 
-*Long Walk Home: Reflections on Bruce Springsteen* did something I wouldn't have thought possible: it deepened my appreciation for the artist by broadening my understanding of his relevance and influence.
+> *Long Walk Home: Reflections on Bruce Springsteen* did something I wouldn't have thought possible: it deepened my appreciation for the artist by broadening my understanding of his relevance and influence.
 
 I'd long known that Bruce had wide, diverse, international appeal. Now I have a better understanding of *why*.
 

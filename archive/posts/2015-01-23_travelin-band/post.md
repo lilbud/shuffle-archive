@@ -32,8 +32,8 @@ It’s been a rarity ever since, but every few years it seems to make an appeara
 
 It’s been a decade since “Travelin’ Band” last made an appearance on an E Street stage, but as long as the band continues to tour, odds are decent that we’ll get to hear them play it again.
 
-**Travelin’ Band  **
-**First performed:** August 22, 1984 (Asbury Park, NJ)  
+**Travelin’ Band**
+**First performed:** August 22, 1984 (Asbury Park, NJ)
 **Last performed:** June 3, 2016 (Coventry, England)
 
 © July 26, 2026

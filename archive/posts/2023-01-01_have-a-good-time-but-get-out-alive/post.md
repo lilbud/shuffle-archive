@@ -100,4 +100,4 @@ Joe admitted to me that even the eight-minute outtake was actually a lot longer 
 
 Why *Have a Good Time* (or for that matter, the Iron City Houserockers themselves) never achieved the success they so richly deserved is one of the great mysteries of rock and roll. But thanks to the wonderful new 40th anniversary edition, there's a new opportunity to discover the best band most of us never got to know at the time.
 
-*Have a Good Time But… Get Out Alive* is [available to order today](https://store.clevelandinternational.com/) on digital; coming June 19th on LP and CD. If you're a Houserockers fan, you already know you want it; if you're an E Street Band fan, trust me: this is an album you should own.
+> *Have a Good Time But… Get Out Alive* is [available to order today](https://store.clevelandinternational.com/) on digital; coming June 19th on LP and CD. If you're a Houserockers fan, you already know you want it; if you're an E Street Band fan, trust me: this is an album you should own.

@@ -24,7 +24,7 @@ Unlike the vast majority of his catalog, there's no theme that unites the album.
 
 That's even reflected in the title. Almost all of Bruce's albums carry a title that encapsulates or symbolizes the album. *Greetings from Asbury Park, N.J.* announced his arrival; *The River* captures the ebb and flow of a live Springsteen concert; *Tunnel of Love* introduces a collection of love songs both bright and dark; *Wrecking Ball* symbolizes the economic destruction chronicled by the album's tracks.
 
-*Born in the U.S.A.*, by contrast, says nothing about the album's contents. I would argue that despite the artist's laments of being misunderstood, it's a title chosen deliberately to package Springsteen as an all-American pop superstar, which is exactly what he became upon the album's arrival in record stores and radio stations.
+> *Born in the U.S.A.*, by contrast, says nothing about the album's contents. I would argue that despite the artist's laments of being misunderstood, it's a title chosen deliberately to package Springsteen as an all-American pop superstar, which is exactly what he became upon the album's arrival in record stores and radio stations.
 
 While the title track is certainly one of the most famously misunderstood songs of all times, I think Springsteen (or at least his management) bears some responsibility for that.
 

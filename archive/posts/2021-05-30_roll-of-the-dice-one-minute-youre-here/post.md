@@ -23,9 +23,9 @@ And then something changed.
 
 When Bruce began his eighth decade on the planet, his songs stopped seeking answers. *Western Stars* and [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md), his two most recent albums, couldn't sound more different musically, but thematically they couldn't be more similar.
 
-*Western Stars* is full of lush, orchestral, finely-drawn character studies; *Letter to You* is intimate autobiography with a classic E Street sound. But both collections are keenly aware that the past holds more answers than the present, and the future is shrinking with each passing day.
+> *Western Stars* is full of lush, orchestral, finely-drawn character studies; *Letter to You* is intimate autobiography with a classic E Street sound. But both collections are keenly aware that the past holds more answers than the present, and the future is shrinking with each passing day.
 
-*Letter to You* opens with "One Minute You're Here," which sounds like an epilogue to *Western Stars* and might actually be one. A "source with direct involvement" reports (to Brucebase) that Bruce first recorded it in September 2004, and it's very noticeable in the film version of *Letter to You* that the E Street Band is never shown performing it, even while Bruce is recording his vocals. Bruce himself has called the song "transitional."
+> *Letter to You* opens with "One Minute You're Here," which sounds like an epilogue to *Western Stars* and might actually be one. A "source with direct involvement" reports (to Brucebase) that Bruce first recorded it in September 2004, and it's very noticeable in the film version of *Letter to You* that the E Street Band is never shown performing it, even while Bruce is recording his vocals. Bruce himself has called the song "transitional."
 
 "One Minute You're Here" has different engineering and mixing credits, too, which lends support to the theory that Bruce's vocals are 2019 overdubs on a previously recorded backing track.
 

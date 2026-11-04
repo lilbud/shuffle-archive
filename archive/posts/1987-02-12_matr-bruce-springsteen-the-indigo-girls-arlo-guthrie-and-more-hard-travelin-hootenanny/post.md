@@ -48,8 +48,8 @@ For more background on the American Music Masters series and Bruce’s involveme
 
 [Spotify Embed: Bruce Springsteen - American Music Masters, Wood Guthrie Tribute (1996)](https://open.spotify.com/embed/episode/7JpVNb6Ct4eivlRelTuaOF?si=7a25a44a5d504176&utm_source=oembed)
 
-**Hard Travelin’  **
-**First performed:** September 29, 1996 (Cleveland, OH)  
+**Hard Travelin’**
+**First performed:** September 29, 1996 (Cleveland, OH)
 **Last performed:** September 29, 1996 (Cleveland, OH)
 
 © December 23, 2022

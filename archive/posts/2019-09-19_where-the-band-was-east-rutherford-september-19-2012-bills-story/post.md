@@ -10,9 +10,9 @@ post_id: 12573
 ---
 > **Editor's Note**
 >
->*Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*
+> *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*
 >
->*If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*<br>
+> *If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*<br>
 
 If it wasn't the same old Meadowlands Parking Lot this time, it might as well have been–just slightly re-located and renamed along with the stadium, now MetLife Stadium. All the same glorious tailgate vibe was in full force for Night One of three that Bruce and the band would be playing to wrap up the summer and their outdoor venue leg of the Wrecking Ball Tour.
 
@@ -62,7 +62,7 @@ I do have one more video clip for you, one that shows a few minutes of the Bruce
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*
+> *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*
 
 **9/19/12 – MetLife Stadium, NJ**<br>
 

@@ -30,7 +30,7 @@ If it seems like I’m being unfair to a college freshman, let’s remember that
 
 Still and all, we’re looking at a published piece written by a teenage Bruce Springsteen that shows a nascent appreciation for language, metaphor, and imagery that he was already honing into a lifelong talent for songwriting.
 
-**My Lady  **
+**My Lady**
 **Published:** *Seascape*, January 1969
 
 © January 5, 2022

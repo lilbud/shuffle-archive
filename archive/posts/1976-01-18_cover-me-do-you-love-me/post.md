@@ -20,7 +20,7 @@ But if you're of a certain age, what sealed the deal and signed a second lease o
 
 [Watch on Youtube: Dirty Dancing "Do You Love Me" & "Love Man" Dance Scene.](https://www.youtube.com/watch?v=ijK0WTB_-RY)
 
-*Dirty Dancing* catapulted "Do You Love Me" back up the charts, this time peaking at #11 on the Billboard Hot 100 in 1988, and once again The Contours were in demand as a featured act on the *Dirty Dancing Live* concert tour.
+> *Dirty Dancing* catapulted "Do You Love Me" back up the charts, this time peaking at #11 on the Billboard Hot 100 in 1988, and once again The Contours were in demand as a featured act on the *Dirty Dancing Live* concert tour.
 
 [Watch on Youtube: The Contours - DO YOU LOVE ME? (Dirty Dancing Live In Concert 1988)](https://www.youtube.com/watch?v=Bmgjc5Prdpw)
 

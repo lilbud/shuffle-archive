@@ -34,9 +34,9 @@ That would change.
 
 A dozen years later, the lyrics of “Clampdown” sound eerily resonant.
 
-*In these days of evil presidentes*  
-*Working for the clampdown*  
-*But lately, one or two has fully paid their due*  
+> *In these days of evil presidentes*
+> *Working for the clampdown*
+> *But lately, one or two has fully paid their due*
 > *For working for the clampdown*
 
 It was almost certainly Morello’s suggestion to reprise “Clampdown” on the Land of Hope and Dreams American Tour, and it was a great one.
@@ -51,8 +51,8 @@ Nor should they.
 
 Let fury have the hour. Anger can be power. Do you know that you can use it?
 
-**Clampdown  **
-**First performed:** April 2, 2014 (Pittsburgh, PA)  
+**Clampdown**
+**First performed:** April 2, 2014 (Pittsburgh, PA)
 **Last performed:** May 30, 2026 (Philadelphia, PA)
 
 © September 10, 2021 / April 25, 2026

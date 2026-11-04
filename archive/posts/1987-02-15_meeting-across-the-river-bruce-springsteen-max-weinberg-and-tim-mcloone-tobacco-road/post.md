@@ -14,8 +14,8 @@ Bruce would cover it once more a few years later, but this 1991 performance is t
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=x_4ldqSuqNg)
 
-**Tobacco Road**  **
-**First performed:** January 20, 1991 (Sea Bright, NJ)  
+**Tobacco Road**
+**First performed:** January 20, 1991 (Sea Bright, NJ)
 **Last performed:** June 27, 1994 (West Hollywood, CA)
 
 © November 21, 2018

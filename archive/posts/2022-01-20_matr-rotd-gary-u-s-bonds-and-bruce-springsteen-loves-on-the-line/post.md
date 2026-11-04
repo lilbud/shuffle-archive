@@ -8,7 +8,7 @@ categories: cover-me meeting-across-the-river roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/ontheline.jpg
 post_id: 32111
 ---
-*On the Line* is the great Springsteen pop album that never was.
+> *On the Line* is the great Springsteen pop album that never was.
 
 Both Gary U.S. Bonds' 1982 album and its immediate predecessor *Dedication* were produced by Bruce and Steven Van Zandt, and both albums are full of glorious, original Springsteen River-era pop songs.
 

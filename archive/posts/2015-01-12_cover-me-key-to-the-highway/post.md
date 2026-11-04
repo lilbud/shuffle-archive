@@ -20,8 +20,8 @@ Take a listen:
 
 <https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3>
 
-**Key to the Highway**  **
-**First performed:** October 23, 1971 (Richmond, VA)  
+**Key to the Highway**
+**First performed:** October 23, 1971 (Richmond, VA)
 **Last performed:** August 1, 2015 (Asbury Park, NJ)
 
 © July 31, 2018

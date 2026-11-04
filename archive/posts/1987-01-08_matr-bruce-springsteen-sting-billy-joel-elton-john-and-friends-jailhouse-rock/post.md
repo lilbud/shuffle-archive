@@ -28,8 +28,8 @@ Still, it’s hard to beat the exuberance of that 1995 all-star performance. I�
 
 [Watch Video Highlight](https://videopress.com/embed/Dzaly57k)
 
-**Jailhouse Rock  **
-**First performed:** May 19, 1977 (Asbury Park, NJ)  
+**Jailhouse Rock**
+**First performed:** May 19, 1977 (Asbury Park, NJ)
 **Last performed:** June 5, 2026 (West Long Branch, NJ)
 
 © October 12, 2019

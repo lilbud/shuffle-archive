@@ -10,7 +10,7 @@ But despite its subtitle, I’d argue that it’s not so much a covers album as 
 
 If we listen to “Trapped,” “Jersey Girl,” or anything from the Seeger Sessions era, by contrast, we glean a true appreciation for Bruce’s ability to reinvigorate a song that was already great to begin with.
 
-Which is why it’s so refreshing to hear Bruce’s rendition of Jesse Malin’s “She Don’t Love Me Now,”  
+Which is why it’s so refreshing to hear Bruce’s rendition of Jesse Malin’s “She Don’t Love Me Now,”
 a return to form for Bruce and a fitting tribute to an artist we’ve featured here many times before.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gLK-Z9QilVk)
@@ -35,9 +35,9 @@ Besides Springsteen, the album features covers by Bleachers, Counting Crows, Elv
 
 Don’t miss it.
 
-**She Don’t Love Me Now**  **
-**Recorded:** 2024  
-**Released:** *Silver Patron Saints: The Songs of Jesse Malin* (2024)  
-> **Never performed**
+**She Don’t Love Me Now**
+**Recorded:** 2024
+**Released:** *Silver Patron Saints: The Songs of Jesse Malin* (2024)
+**Never performed**
 
 © September 8, 2024

@@ -14,7 +14,7 @@ In 1968, Richie Havens adapted and recorded it as "Run, Shaker Life," the final 
 
 [Watch on Youtube: Richie Havens - Run, Shaker Life (1968)](https://www.youtube.com/watch?v=5O_R3wCmq34)
 
-*Something Else Again* became Havens' first album to chart, and if he wasn't on Bruce Springsteen's radar before then, he certainly was now.
+> *Something Else Again* became Havens' first album to chart, and if he wasn't on Bruce Springsteen's radar before then, he certainly was now.
 
 Barely a year later, Bruce was not only performing "Run, Shaker Life" with Steel Mill, it quickly became a standard encore (often the final one) for the band throughout the remainder of their run.
 

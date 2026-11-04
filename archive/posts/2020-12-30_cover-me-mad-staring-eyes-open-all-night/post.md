@@ -10,7 +10,7 @@ post_id: 24149
 ---
 In 2012, Trevor Moss assembled a group of UK artists to mark the 30th anniversary of Bruce Springsteen's landmark album, *Nebraska.*
 
-*The Nebraska Sessions* is neither the first nor the last project to pay tribute to Bruce's famous 1982 solo project, but it may be the only one recorded the same way Bruce did: on a TEAC Tacsam four-track cassette recorder.
+> *The Nebraska Sessions* is neither the first nor the last project to pay tribute to Bruce's famous 1982 solo project, but it may be the only one recorded the same way Bruce did: on a TEAC Tacsam four-track cassette recorder.
 
 Each track was interpreted and performed by a different artist or band, and in a nod to more modern times, Moss captured each performance on video as well.
 

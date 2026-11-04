@@ -12,8 +12,8 @@ One of the songs they performed was a cover of Maurice Williams’ “Stay,” a
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YbCV_fTyedk)
 
-**Stay**  **
-**First performed:** September 21, 1979 (New York City, NY)  
+**Stay**
+**First performed:** September 21, 1979 (New York City, NY)
 **Last performed:** June 30, 1989 (Atlantic City, NJ)
 
 © July 22, 2018

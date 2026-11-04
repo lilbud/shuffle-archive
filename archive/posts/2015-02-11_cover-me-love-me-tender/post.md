@@ -16,8 +16,8 @@ Performed throughout the early months of the tour, here’s a video clip of Bruc
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9wopuObCeV0)
 
-**Love Me Tender  **
-**First performed:** February 29, 1988 (Worcester, MA)  
+**Love Me Tender**
+**First performed:** February 29, 1988 (Worcester, MA)
 **Last performed:** June 26, 1988 (London, England)
 
 © March 2, 2019

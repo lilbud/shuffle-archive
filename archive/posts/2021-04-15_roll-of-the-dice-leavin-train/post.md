@@ -76,7 +76,7 @@ And the last verse is lackluster even without comparison:
 > *Is my train in vain, oh has my soul gone to waste*<br>
 > *Am I just a victim of, a victim of my lost faith*<br>
 
-*Train in vain?* When did the train become the narrator's? And what's the point of establishing a secondary use of the metaphor but doing absolutely nothing with it besides an easy internal rhyme? And why reach for a lone internal rhyme but go lazy on the external ones? It almost sounds like Bruce just lost interest in the song at this point.
+> *Train in vain?* When did the train become the narrator's? And what's the point of establishing a secondary use of the metaphor but doing absolutely nothing with it besides an easy internal rhyme? And why reach for a lone internal rhyme but go lazy on the external ones? It almost sounds like Bruce just lost interest in the song at this point.
 
 Most importantly, though, the last five lines of "Leavin' Train'" cannot hold a candle to the devastating…
 

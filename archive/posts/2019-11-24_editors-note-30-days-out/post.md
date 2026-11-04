@@ -12,7 +12,7 @@ It's been thirty days since I started developing estreetshuffle.com, and twenty 
 
 for checking out my blog. Extra thanks if you're a repeat visitor, and extra thanks if you subscribe and/or comment. It makes me happy to know you're there!
 
-*Thank you**extra*
+> *Thank you**extra*
 
 I'm still getting the hang of WordPress but starting to feel comfortable. If you're a more experienced blogger than I am (meaning you've been at it for more than 20 days), tips, suggestions, critiques are all very welcome.
 

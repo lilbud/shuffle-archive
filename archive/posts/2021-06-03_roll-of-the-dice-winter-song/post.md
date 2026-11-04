@@ -10,7 +10,7 @@ post_id: 27149
 ---
 Even before his first album was released, Bruce Springsteen was already hard at work on his second.
 
-*Greetings From Asbury Park* made its under-the-radar debut on January 5, 1973. Over the following six weeks, Bruce recorded at least that many new songs–none of which would make his next album.
+> *Greetings From Asbury Park* made its under-the-radar debut on January 5, 1973. Over the following six weeks, Bruce recorded at least that many new songs–none of which would make his next album.
 
 "[Janey Needs a Shooter](../2020-07-27_roll-of-the-dice-janey-needs-a-shooter/post.md)" and "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)" would eventually see the light of day in the form of modern recordings almost a half-century later, but the rest are still locked away in Bruce's vault (officially, anyway).
 

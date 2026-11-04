@@ -12,8 +12,8 @@ The first song Bruce, Steve, and co. played together? “The Blues is My Busines
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=62786yIkVsc)
 
-**The Blues is My Business**  **
-**First performed:** April 21, 2017  
+**The Blues is My Business**
+**First performed:** April 21, 2017
 **Last performed:** April 21, 2017
 
 © November 27, 2018

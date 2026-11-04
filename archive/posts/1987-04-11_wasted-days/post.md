@@ -14,10 +14,10 @@ And unlike their other collaborations on John’s *Strictly a One-Eyed Jack* alb
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=o2htS1ECw-0)
 
-**Wasted Days  **
-**Recorded:** April 10, 2021  
-**Released:** *Strictly a One-Eyed Jack* (2022)  
-**First performed:** November 6, 2023 (New York City, NY)  
+**Wasted Days**
+**Recorded:** April 10, 2021
+**Released:** *Strictly a One-Eyed Jack* (2022)
+**First performed:** November 6, 2023 (New York City, NY)
 **Last performed:** November 6, 2023 (New York City, NY)
 
 © July 13, 2026

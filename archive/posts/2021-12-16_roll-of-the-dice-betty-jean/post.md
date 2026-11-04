@@ -61,7 +61,7 @@ And there we have it: the tale of Betty Jean, who peaked early while her sibling
 
 A final curiosity about the Jeans: they actually have a *third* sibling.
 
-*Beverly* Jean made her debut in "[Delivery Man,](../2019-08-28_roll-of-the-dice-delivery-man/post.md)" another unreleased song from the *Born in the U.S.A. Sessions*. You can tell Betty and Beverly are sisters because they both have the same "eyes like a jack rabbit starin' dead in your high beams."
+> *Beverly* Jean made her debut in "[Delivery Man,](../2019-08-28_roll-of-the-dice-delivery-man/post.md)" another unreleased song from the *Born in the U.S.A. Sessions*. You can tell Betty and Beverly are sisters because they both have the same "eyes like a jack rabbit starin' dead in your high beams."
 
 But Beverly's story is a tale for another day.
 

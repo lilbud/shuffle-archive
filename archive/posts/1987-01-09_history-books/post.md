@@ -28,10 +28,10 @@ And of course, one of the songs they played together was “History Books.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0c1e7PNHtsk)
 
-**History Books  **
-**Recorded:** May 3, 2023  
-**Released:** *History Books* (2023)  
-**First performed:** September 15, 2024 (Asbury Park, NJ)  
+**History Books**
+**Recorded:** May 3, 2023
+**Released:** *History Books* (2023)
+**First performed:** September 15, 2024 (Asbury Park, NJ)
 **Last performed:** September 15, 2024 (Asbury Park, NJ)
 
 © July 7, 2026

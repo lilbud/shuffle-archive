@@ -16,54 +16,54 @@ The titular window is a metaphor, representing the personal lens through which w
 
 Through a series of vignettes, Bruce rejects the petty pundits, redirecting the conversation to the evils of war, lynching, homelessness and hunger. He’ll only engage with those who bring empathy, love, and truth to the table, but as the song progresses, our narrator’s resolve begins to waver as he realizes that his faith won’t help him make sense of the world. He’s left to his own devices.
 
-*The sea is pounding at my window*  
-*Wants to baptize my mind*  
-*There’s a thousand politicians at my back door*  
+> *The sea is pounding at my window*
+> *Wants to baptize my mind*
+> *There’s a thousand politicians at my back door*
 > *Blinding me with their lies*
 
-*Don’t tell me your problems my friend*  
-*I’ve heard them time and time and time and time again*  
-*Get on your plastic words and fly*  
+> *Don’t tell me your problems my friend*
+> *I’ve heard them time and time and time and time again*
+> *Get on your plastic words and fly*
 > *If you don’t have the truth friend, then I don’t have the time*
 
-*The earth is trembling beneath me*  
-*And I don’t know what’s to come*  
-*The foreign soldier fires his weapon*  
+> *The earth is trembling beneath me*
+> *And I don’t know what’s to come*
+> *The foreign soldier fires his weapon*
 > *And a tear runs down the lonely ???*
 
-*Don’t tell me your problems my friend*  
-*I’ve heard them time and time and time and time again*  
-*Get on your plastic words and fly*  
+> *Don’t tell me your problems my friend*
+> *I’ve heard them time and time and time and time again*
+> *Get on your plastic words and fly*
 > *If you don’t have a heart friend, then I don’t have the time*
 
-*I’ve traveled through the seasons so many times*  
-*The saddest sight that I could see*  
-*Was the youngest brother being hung*  
+> *I’ve traveled through the seasons so many times*
+> *The saddest sight that I could see*
+> *Was the youngest brother being hung*
 > *‘Neath the weeping willow tree*
 
-*I’ve sat ‘neath that weeping willow tree*  
-*Trying to decide wrong from right*  
-*The ancient scriptures that lay beside me*  
+> *I’ve sat ‘neath that weeping willow tree*
+> *Trying to decide wrong from right*
+> *The ancient scriptures that lay beside me*
 > *Vanished with God into the night*
 
-*The sea is pounding at my window*  
-*Should I let it in*  
-*There’s a hungry tramp at my back door*  
+> *The sea is pounding at my window*
+> *Should I let it in*
+> *There’s a hungry tramp at my back door*
 > *Can I turn my eyes from him*
 
-*Don’t tell me your problems my friend*  
-*I’ve heard them time and time and time and time again*  
-*Get on your plastic words and fly*  
+> *Don’t tell me your problems my friend*
+> *I’ve heard them time and time and time and time again*
+> *Get on your plastic words and fly*
 > *If you don’t have any love friend, then I don’t have the time*
 
 These are not Bruce’s strongest lyrics (“get on your plastic words and fly” doesn’t exactly roll off the tongue), but remember: he was only eighteen at the time. He was already beginning to experiment with metaphor, and his liberal use of religious vocabulary and iconography was firmly established. This may be a *very* early Bruce Springsteen song, but it does indeed read like a Bruce Springsteen song.
 
 No recording exists of “The Window” (that I know of, at least), but if Bruce truly did perform it on stage that year, perhaps there’s someone out there who recalls hearing it (or even captured it on tape–as unlikely as that would be, there are even earlier recordings in circulation). If not, this is likely as close as we’ll come to hearing one of Bruce’s earliest original songs.
 
-**The Window  **
-Never recorded**  
-**Never released**  **
-**First performed:** Unknown (but believed to be May 1968, Red Bank, NJ)  
+**The Window**
+Never recorded**
+**Never released**
+**First performed:** Unknown (but believed to be May 1968, Red Bank, NJ)
 **Last performed:** Unknown (but believed to be May 1968, Red Bank, NJ)
 
 © December 21, 2020

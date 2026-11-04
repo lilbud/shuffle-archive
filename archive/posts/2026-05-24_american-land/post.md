@@ -93,7 +93,7 @@ When Bruce re-recorded “American Land” in the studio with the E Street Band,
 
 …as well as making two very subtle but significant changes to the final two lines:
 
-*They died to get here a hundred years ago, they’re **still** dying now*
+> *They died to get here a hundred years ago, they’re **still** dying now*
 > *The hands that built the country we’re always trying to keep **out***
 
 [Watch on Youtube: Bruce Springsteen-American Land (Bonus Track)](https://www.youtube.com/watch?v=sjxlRNly3Dw)

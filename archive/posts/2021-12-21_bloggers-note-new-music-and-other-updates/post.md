@@ -40,7 +40,7 @@ Bruce delivered the convocation address to the Boston College incoming class of 
 
 Finally, no discussion of recent Springsteen events would be complete without noting Bruce's wonderful under-the-radar bi-weekly Sirius XM radio show, *From My Home to Yours.*
 
-*From My Home to Yours* is a thematic, episodic sequel of sorts to *Springsteen on Broadway*. Each episode is filled with music personally curated by Bruce, narrated and punctuated with personal recitations, reminiscences, and revelations.
+> *From My Home to Yours* is a thematic, episodic sequel of sorts to *Springsteen on Broadway*. Each episode is filled with music personally curated by Bruce, narrated and punctuated with personal recitations, reminiscences, and revelations.
 
 I can't recommend it highly enough: if you're a Springsteen fan, you *need* to listen to these shows. Your musical knowledge and appreciation will expand and your insight will deepen. You will laugh, you will weep, and you will find yourself blocking your calendar on alternate Wednesdays to join E Street Nation in a communal listening experience.
 

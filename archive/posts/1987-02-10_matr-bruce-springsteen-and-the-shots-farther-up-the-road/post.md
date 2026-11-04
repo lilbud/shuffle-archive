@@ -26,8 +26,8 @@ Until just recently, that was the only time Bruce covered this early Texas blues
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=plb6Afk7QhE)
 
-**Farther Up the Road  **
-**First performed:** September 4, 1977 (Asbury Park, NJ)  
+**Farther Up the Road**
+**First performed:** September 4, 1977 (Asbury Park, NJ)
 **Last performed:** June 5, 2026 (West Long Branch, NJ)
 
 © April 6, 2021

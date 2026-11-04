@@ -56,7 +56,7 @@ Those lines in bold–that's just some killer imagery. But look past them, and r
 
 In Patti, Bruce found someone who understood him, who he could open up to, who validated the parts of himself he couldn't share with others and freed him to accept himself. That's an amazing gift, and those of us who have been lucky enough in life to have received it as well–we know what he's singing about, and we recognize that look on his face.
 
-*Now* here's the album track for comparison. (Fun fact: that's Randy Jackson from American Idol on bass, and Soozie Tyrell contributes backing vocals, a full decade before she joined the E Street Band (in spirit if not in legal fact)).
+> *Now* here's the album track for comparison. (Fun fact: that's Randy Jackson from American Idol on bass, and Soozie Tyrell contributes backing vocals, a full decade before she joined the E Street Band (in spirit if not in legal fact)).
 
 [Watch on Youtube: Better Days](https://www.youtube.com/watch?v=SM3pM8HZ5fE)
 

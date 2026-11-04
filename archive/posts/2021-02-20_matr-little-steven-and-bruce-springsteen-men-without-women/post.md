@@ -8,7 +8,7 @@ categories: meeting-across-the-river
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/mww.jpg
 post_id: 15482
 ---
-*Men Without Women* was Little Steven's first Disciples of Soul album, but at least for three of its tracks, it might be more accurate to call it a Little Steven-fronted E Street Band project.
+> *Men Without Women* was Little Steven's first Disciples of Soul album, but at least for three of its tracks, it might be more accurate to call it a Little Steven-fronted E Street Band project.
 
 We took a listen to "[Angel Eyes](../2019-07-26_matr-little-steven-and-bruce-springsteen-angel-eyes/post.md)" and "[Until the Good is Gone](../2018-11-17_meeting-across-the-river-little-steven-and-bruce-springsteen-until-the-good-is-gone/post.md)" a couple of years ago; now we round out the trilogy with the album's title track, "Men Without Women." (All three tracks were recorded with Little Steven's E Street Band and Asbury Jukes mates before he recruited his Disciples.)
 

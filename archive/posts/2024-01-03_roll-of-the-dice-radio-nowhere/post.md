@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/06/radio-nowhere.jpg
 post_id: 27623
 ---
-It's the essential, existential question at the heart of rock and roll.*****
+It's the essential, existential question at the heart of rock and roll.***
 
 > *Is there anybody alive out there?*<br>
 

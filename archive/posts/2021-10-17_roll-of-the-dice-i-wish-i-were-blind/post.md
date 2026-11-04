@@ -84,8 +84,8 @@ Looking for your favorite Bruce song? Check our [full index](https://estreetshuf
 
 Blogger's Note
 
-*Roll of the Dice, Cover Me, and Meeting Across the River* will all take a brief break this week while I spend some time with my east coast family and friends and take in a few concerts. They'll resume on Monday, October 25th.
+> *Roll of the Dice, Cover Me, and Meeting Across the River* will all take a brief break this week while I spend some time with my east coast family and friends and take in a few concerts. They'll resume on Monday, October 25th.
 
-*Kingdom of Days* will continue without interruption, however, and keep an eye on the [Backstreets News page](https://www.backstreets.com/news.html) for my first-hand reports from this week's upcoming Springsteen appearances.
+> *Kingdom of Days* will continue without interruption, however, and keep an eye on the [Backstreets News page](https://www.backstreets.com/news.html) for my first-hand reports from this week's upcoming Springsteen appearances.
 
 See you in a week!

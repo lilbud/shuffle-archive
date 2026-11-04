@@ -61,7 +61,7 @@ In the interview, Diallo recounted the backstage meeting they had with Springste
 
 I was struck by the simplicity, the humility, and most of all the *intentionality* of those words.
 
-*I did what I could do*.
+> *I did what I could do*.
 
 This book is what I could do. Thank you for doing what you can do.
 

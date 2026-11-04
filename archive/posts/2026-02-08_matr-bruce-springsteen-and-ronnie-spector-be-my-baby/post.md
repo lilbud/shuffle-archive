@@ -12,9 +12,9 @@ It peaked at #2 on the Billboard Hot 100.
 
 It captured the top spot on the Cash Box Top 100.
 
-*Rolling Stone* notched it at #22 on their 500 Greatest Songs of All Time.
+> *Rolling Stone* notched it at #22 on their 500 Greatest Songs of All Time.
 
-*Billboard* named it the #1 Greatest Girl Group Song of All Time.
+> *Billboard* named it the #1 Greatest Girl Group Song of All Time.
 
 It's in both the Grammy Hall of Fame and the United States National Recording Registry.
 

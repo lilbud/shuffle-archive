@@ -142,7 +142,7 @@ In the meantime, while Bruce was filling arenas and stadiums, "Dancing in the Da
 
 [Watch Video Highlight](https://videopress.com/embed/hYRH5uew)
 
-*Rolling Stone* readers voted "Dancing in the Dark" Single of the Year, and the magazine enshrined it as one of the 500 Songs That Shaped Rock and Roll. And while it didn't make it all the way to the top of the chart in America, it did in Belgium and The Netherlands, and it was the Number One song of the year in Australia.
+> *Rolling Stone* readers voted "Dancing in the Dark" Single of the Year, and the magazine enshrined it as one of the 500 Songs That Shaped Rock and Roll. And while it didn't make it all the way to the top of the chart in America, it did in Belgium and The Netherlands, and it was the Number One song of the year in Australia.
 
 "Dancing in the Dark" got serious airplay at the dance clubs too, thanks to extended remixes produced by the legendary Arthur Baker. The remixes landed Bruce in the Top 10 on the Billboard Hot Dance Music/Club Play chart–territory no one could have ever predicted Bruce claiming–and became the best-selling twelve-inch single in 1984.
 

@@ -34,8 +34,8 @@ Here’s that much, much, *much* better cover of “Shake, Rattle and Roll” �
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JUpCYsHNGfA)
 
-**Shake, Rattle and Roll  **
-**First performed:** September 2, 1995 (Cleveland, OH)  
+**Shake, Rattle and Roll**
+**First performed:** September 2, 1995 (Cleveland, OH)
 **Last performed:** July 5, 2013 (Mönchengladbach, Germany)
 
 © April 18, 2020

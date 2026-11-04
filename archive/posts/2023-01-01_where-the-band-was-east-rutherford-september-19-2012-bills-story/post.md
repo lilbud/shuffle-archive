@@ -62,7 +62,7 @@ I do have one more video clip for you, one that shows a few minutes of the Bruce
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*
+> *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*
 
 **9/19/12 – MetLife Stadium, NJ**<br>
 

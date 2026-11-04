@@ -26,8 +26,8 @@ Sometimes a rhinestone is just… well, a rhinestone.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NcnM3nju2uQ)
 
-**Rhinestone Cowboy  **
-**Released:** *Western Stars: Songs From the Film (2019)***First performed:** April 2019  
+**Rhinestone Cowboy**
+**Released:** *Western Stars: Songs From the Film (2019)***First performed:** April 2019
 **Last performed:** April 2019
 
 © June 17, 2021

@@ -10,8 +10,8 @@ Three decades later, Bruce took his one and only swing at it when he made an una
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ts_RdjuZqR8)
 
-**Hippy Hippy Shake**  **
-**First performed:** August 26, 1994 (Westfield, NJ)  
+**Hippy Hippy Shake**
+**First performed:** August 26, 1994 (Westfield, NJ)
 **Last performed:** August 26, 1994 (Westfield, NJ)
 
 © September 26, 2018

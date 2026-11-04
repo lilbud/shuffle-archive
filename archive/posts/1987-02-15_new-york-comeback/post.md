@@ -18,9 +18,9 @@ Tragedy and irony coincided barely a month after the release of “New York Come
 
 Like Williams, Malin has staged his own New York comeback. Both artists are now walking and performing again, and as for their song: “New York Comeback” made it all the way to Number One on the American charts.
 
-**New York Comeback  **
-**Recorded:** 2022  
-**Released:** *Stories From a Rock N Roll Heart* (2023)  
-> **Never performed**
+**New York Comeback**
+**Recorded:** 2022
+**Released:** *Stories From a Rock N Roll Heart* (2023)
+**Never performed**
 
 © July 8, 2026

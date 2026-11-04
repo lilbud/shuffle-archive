@@ -14,8 +14,8 @@ Gaye’s original recording is one of his best-known and -loved Motown classics,
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bCvsikXZ9wk)
 
-**Ain’t That Peculiar**  **
-**First performed:** November 13, 1971 (Asbury Park, NJ)  
+**Ain’t That Peculiar**
+**First performed:** November 13, 1971 (Asbury Park, NJ)
 **Last performed:** November 13, 1971 (Asbury Park, NJ)
 
 © August 12, 2019

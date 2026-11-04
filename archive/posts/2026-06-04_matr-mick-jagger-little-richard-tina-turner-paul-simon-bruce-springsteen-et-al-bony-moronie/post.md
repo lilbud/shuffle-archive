@@ -8,8 +8,8 @@ It’s a more frenetic performance than the Larry Williams performance; see belo
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mdmuqYCf5Ik)
 
-**Bony Maronie  **
-**First performed:** January 18, 1989 (New York City, NY)  
+**Bony Maronie**
+**First performed:** January 18, 1989 (New York City, NY)
 **Last performed:** July 2, 1989 (Long Branch, NJ)
 
 © April 27, 2018

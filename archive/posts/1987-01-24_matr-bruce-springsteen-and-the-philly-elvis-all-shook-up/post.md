@@ -18,8 +18,8 @@ And yeah… the original 1957 version is pretty great, too.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=23zLefwiii4)
 
-**All Shook Up**  **
-**First performed:** October 19, 2009 (Philadelphia, PA)  
+**All Shook Up**
+**First performed:** October 19, 2009 (Philadelphia, PA)
 **Last performed:** October 19, 2009 (Philadelphia, PA)
 
 © August 3, 2019

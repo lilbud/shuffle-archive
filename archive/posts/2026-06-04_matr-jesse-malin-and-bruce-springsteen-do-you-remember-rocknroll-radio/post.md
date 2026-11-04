@@ -12,8 +12,8 @@ Recorded in 1979 and released the following year, this was Joey Ramone’s paean
 
 Ironic (and prescient) at the time, it plays sincerely today, when rock and roll is virtually gone from all but the oldies stations.
 
-**Do You Remember Rock ‘n’ Roll Radio  **
-**First performed:** January 18, 2014 (Asbury Park, NJ)  
+**Do You Remember Rock ‘n’ Roll Radio**
+**First performed:** January 18, 2014 (Asbury Park, NJ)
 **Last performed:** January 18, 2014 (Asbury Park, NJ)
 
 © March 7, 2018 / June 3, 2026

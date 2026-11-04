@@ -34,7 +34,7 @@ The second thing that leaps out at us are the lyrics, which sound awfully famili
 > *Our ruins will shine through the night*<br>
 > *Where you took me with your Spanish eyes*<br>
 
-*He's your Saturday night special baby**, is he good to you***
+> *He's your Saturday night special baby**, is he good to you***
 > *Does he have money, honey, like I do*<br>
 ***Can he do the things that I'll do for you***<br>
 > *If your answer it isn't so clear*<br>

@@ -27,8 +27,8 @@ As I mentioned, the song isn't fully developed. A lot of the lyrics are bluffed,
 
 > *Friday night's pay night guys fresh out of work*<br>
 > *Talking about the weekend scrubbing off the dirt*<br>
-*Some heading home to their families, **some are looking to get hurt***
-*Some going down to Stovell **wearing trouble on their shirts***
+> *Some heading home to their families, **some are looking to get hurt***
+> *Some going down to Stovell **wearing trouble on their shirts***
 
 The chorus is the only part of the song with fully intelligible lyrics, and it's here where the song comes into focus:
 

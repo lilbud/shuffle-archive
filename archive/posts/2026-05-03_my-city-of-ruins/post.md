@@ -114,7 +114,7 @@ That's why we'll find the studio version on *The Rising*, where it closes the al
 
 [Watch on Youtube: My City of Ruins](https://www.youtube.com/watch?v=fk-ORaoDJQI)
 
-*The Rising* didn't reach our ears until almost a year after the attacks, with the exception of "My City of Ruins." Most of us first heard that one not even three weeks after 9/11, when Bruce helped a grieving nation pick themselves up in one of his most moving and memorable performances ever. Clearly he must have written it in the immediate aftermath of the attacks.
+> *The Rising* didn't reach our ears until almost a year after the attacks, with the exception of "My City of Ruins." Most of us first heard that one not even three weeks after 9/11, when Bruce helped a grieving nation pick themselves up in one of his most moving and memorable performances ever. Clearly he must have written it in the immediate aftermath of the attacks.
 
 [Watch on Youtube: Bruce Springsteen My City of Ruins  9-11-01](https://www.youtube.com/watch?v=6WBWH4pj9v4)
 

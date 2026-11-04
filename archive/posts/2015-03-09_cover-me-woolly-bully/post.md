@@ -8,8 +8,8 @@ Bonus footage: check out this high-quality video from the original artists.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BcU3b_OfGrs)
 
-**Wooly Bully  **
-**First performed:** September 19, 1982 (Asbury Park, NJ)  
+**Wooly Bully**
+**First performed:** September 19, 1982 (Asbury Park, NJ)
 **Last performed:** May 8, 2009 (University Park, PA)
 
 March 31, 2018

@@ -57,7 +57,7 @@ Bruce's best albums are thematically tight and powerful: *Western Stars, Nebrask
 
 Cohesion doesn't always have to be lyrical. *The River* succeeds as a work of high art in its ability to conjure the cadence and emotional ride of a live E Street Band show, even while its tracks run the gamut in style, theme, and tone.
 
-*Letter to You* lacks any sort of through-line, however. Of the six "extra" songs, only "One Minute You're Here" fits the album's theme. The three oldest songs ("Janey Needs a Shooter," "If I Was the Priest" and "Song for Orphans" are all fine documents of a young songwriter's work, but all three pale in comparison to the poetry and power of Bruce's 21st-century output.
+> *Letter to You* lacks any sort of through-line, however. Of the six "extra" songs, only "One Minute You're Here" fits the album's theme. The three oldest songs ("Janey Needs a Shooter," "If I Was the Priest" and "Song for Orphans" are all fine documents of a young songwriter's work, but all three pale in comparison to the poetry and power of Bruce's 21st-century output.
 
 It would have been more effective had Bruce issued *Letter to You* as an EP with only his new songs and saved the other worthy tracks for a future box set.
 
@@ -84,7 +84,7 @@ I've thought about abridging *Letter to You* in this fashion for a while now. As
 
 I was expecting to be moved and impressed, but I wasn't prepared for just how incredibly powerful this collection of songs is without the distraction of unrelated songs from a less mature songwriter. It's uplifting and transporting, and I find myself re-evaluating my consideration of the album as a result.
 
-*Letter to You* is a fine twelve-song LP, although I'd rank it toward the bottom of Bruce's catalog. But as a six-song EP, I'd rank it among his very best output and a harbinger of great art still to come.
+> *Letter to You* is a fine twelve-song LP, although I'd rank it toward the bottom of Bruce's catalog. But as a six-song EP, I'd rank it among his very best output and a harbinger of great art still to come.
 
 ---
 

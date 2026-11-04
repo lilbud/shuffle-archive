@@ -12,8 +12,8 @@ But the real star of this show is Bruce’s warm, soaring lead vocal–one of hi
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=w_AOOTMlL1k)
 
-**Linda Paloma**  **
-**Released:** *Looking Into You: A Tribute to Jackson Browne* (2014)  
+**Linda Paloma**
+**Released:** *Looking Into You: A Tribute to Jackson Browne* (2014)
 > **Never performed live**
 
 © August 2, 2018

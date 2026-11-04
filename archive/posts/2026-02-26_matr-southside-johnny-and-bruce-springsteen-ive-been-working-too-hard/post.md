@@ -12,7 +12,7 @@ Don't call it a comeback album (because he was never gone), and don't you dare c
 
 Let's just call it a reunion album, because eight of the eleven tracks on Southside Johnny's 1991 *Better Days* album were written by Steve Van Zandt, and Southside Johnny and Little Steven make for a magic combination.
 
-*Better Days* is one of Southside's best albums, and one of its standout tracks is Steve's "I've Been Working Too Hard," a rave-up tailor-made for Southside that featured Little Steven on backing vocals, and none other than Jon Bon Jovi on duet vocals.
+> *Better Days* is one of Southside's best albums, and one of its standout tracks is Steve's "I've Been Working Too Hard," a rave-up tailor-made for Southside that featured Little Steven on backing vocals, and none other than Jon Bon Jovi on duet vocals.
 
 [Watch on Youtube: I've Been Working Too Hard](https://www.youtube.com/watch?v=UmzsOcF5f7k)
 

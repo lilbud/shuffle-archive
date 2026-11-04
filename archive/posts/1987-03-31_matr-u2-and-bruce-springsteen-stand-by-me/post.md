@@ -50,8 +50,8 @@ And the crowd… the crowd was just as electric. Let’s watch that moment–Bru
 
 [Watch Video Highlight](https://videopress.com/embed/BRBXz4w6)
 
-**Stand By Me  **
-**First performed:** January 17, 1985 (Greensboro, NC)  
+**Stand By Me**
+**First performed:** January 17, 1985 (Greensboro, NC)
 **Last performed:** July 31, 2015 (New York City, NY)
 
 © December 12, 2021

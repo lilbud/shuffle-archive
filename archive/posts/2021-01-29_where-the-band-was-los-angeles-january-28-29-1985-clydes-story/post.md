@@ -58,4 +58,4 @@ After a few more soloists, we were done. By 7:00, they were all gone. By 9:00, t
 
 What's your story?
 
-*Many thanks to Clyde for sharing his amazing story with us.*  *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+> *Many thanks to Clyde for sharing his amazing story with us.*  *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*

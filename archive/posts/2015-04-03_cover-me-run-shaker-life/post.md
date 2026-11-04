@@ -4,7 +4,7 @@ In 1968, Richie Havens adapted and recorded it as “Run, Shaker Life,” the fi
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5O_R3wCmq34)
 
-*Something Else Again* became Havens’ first album to chart, and if he wasn’t on Bruce Springsteen’s radar before then, he certainly was now.
+> *Something Else Again* became Havens’ first album to chart, and if he wasn’t on Bruce Springsteen’s radar before then, he certainly was now.
 
 Barely a year later, Bruce was not only performing “Run, Shaker Life” with Steel Mill, it quickly became a standard encore (often the final one) for the band throughout the remainder of their run.
 
@@ -16,8 +16,8 @@ The religious theme of “Run, Shaker Life” also gave Bruce an early chance to
 
 “Run, Shaker Life” is the only Havens song Bruce has covered, but almost a quarter-century after Steel Mill’s last performance of it, Havens returned the compliment by covering one of Bruce’s finest songs.
 
-**Run, Shaker Life  **
-**First performed:** November 20, 1969 (Richmond, VA)  
+**Run, Shaker Life**
+**First performed:** November 20, 1969 (Richmond, VA)
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 
 © September 21, 2020

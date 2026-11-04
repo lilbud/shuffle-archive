@@ -12,7 +12,7 @@ post_id: 10976
 >
 > *My [Where the Band Was](/category/where-the-band-was/) series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*<br>
 
-*That's why I've opened the series to other fans with stories to tell, and today's entry is a special one**. When I originally published my Kingdom of Days entry for June 28th a year ago, I made mention that much of the footage for Bruce's "[Dancing in Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" video was shot on this date in 1984 with actress Courtney Cox and 200 extras. When lifelong Springsteen fan Sandi Pederson read that, she wrote to me and set me straight: Courtney Cox was no actress at the time–she was a model, one of three used for the video shoot. And in addition to the two hundred extras (which Sandi insists is too low an estimate), there were five local, lucky fans. Sandi should know: she was one of those fans, making her one of only five members of E Street Nation to be in that now iconic video.*
+> *That's why I've opened the series to other fans with stories to tell, and today's entry is a special one**. When I originally published my Kingdom of Days entry for June 28th a year ago, I made mention that much of the footage for Bruce's "[Dancing in Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" video was shot on this date in 1984 with actress Courtney Cox and 200 extras. When lifelong Springsteen fan Sandi Pederson read that, she wrote to me and set me straight: Courtney Cox was no actress at the time–she was a model, one of three used for the video shoot. And in addition to the two hundred extras (which Sandi insists is too low an estimate), there were five local, lucky fans. Sandi should know: she was one of those fans, making her one of only five members of E Street Nation to be in that now iconic video.*
 
 > *I had to know more, and Sandi was generous enough to share her memories and photos from that day with me. And now, a year later, she's gracious enough to share them with you, too. Here's Sandi's first-hand account of what it was like to film "Dancing in the Dark" with Bruce Springsteen on June 28-29, 1984.*<br>
 
@@ -96,4 +96,4 @@ These have been four amazing nights, but there are lots more to come. The summer
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+> *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*

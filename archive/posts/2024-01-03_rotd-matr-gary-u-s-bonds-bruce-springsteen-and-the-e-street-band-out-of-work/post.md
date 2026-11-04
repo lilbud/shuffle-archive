@@ -10,9 +10,9 @@ post_id: 26452
 ---
 In 1981, Bruce and Steve Van Zandt produced *Dedication*, a comeback album for one of their musical heroes, Gary U.S. Bonds. It worked: Bonds indeed came back to the charts, leading off with Bruce's original song "[This Little Girl,](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)" which peaked at #11 on the Billboard Hot 100.
 
-*Dedication* worked so well that the trio decided to do an encore. In 1982, Bonds released his follow-up album–also produced by Bruce and Steve–entitled *On the Line.*
+> *Dedication* worked so well that the trio decided to do an encore. In 1982, Bonds released his follow-up album–also produced by Bruce and Steve–entitled *On the Line.*
 
-*Dedication* included three original songs written by Bruce; for *On the Line*, Bruce contributed a whopping *seven*.
+> *Dedication* included three original songs written by Bruce; for *On the Line*, Bruce contributed a whopping *seven*.
 
 Only one of those seven songs became a hit single though: the comical but slyly topical "Out of Work," which reached as high as #21 on the Billboard Hot 100 in the summer of '82.
 

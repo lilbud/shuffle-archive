@@ -10,7 +10,7 @@ post_id: 21118
 ---
 Please excuse me for a moment while I get something out of my system:
 
-*There are only two shots poured in "Moonlight Motel." **Two!***
+> *There are only two shots poured in "Moonlight Motel." **Two!***
 
 > *I don't give a darn whether Mary's dress waves or sways (it's an extraneous detail that matters not one whit to "Thunder Road"), but it drives me absolutely nuts every time I read a review of "Moonlight Motel" that mentions a third shot poured out in the parking lot.*<br>
 
@@ -32,7 +32,7 @@ It's not my favorite song in his catalog. Heck, it's not even my favorite song o
 
 "Moonlight Motel" is *dripping* in symbolism. Every line, every phrase, every detail is significant on at least two levels, and sometimes more. Both in sound and content, it is unique. For an artist notorious for cross-pollinating his lyrics and music, "Moonlight Motel" sounds like no other song in Bruce's catalog. It stands alone, expertly crafted and perfectly sequenced at the end of an album that's all about the late stages of life's journey.
 
-*Western Stars* begins with characters who are propelled ever-forward ("[Hitch Hikin',](../2021-05-22_roll-of-the-dice-hitch-hikin/post.md)" "[The Wayfarer](../2022-01-29_roll-of-the-dice-the-wayfarer/post.md)," and [Tucscon Train](../2020-05-25_roll-of-the-dice-tucson-train/post.md)"), arcs toward characters rooted in place (whether at peace in "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)" or restless in "[Chasin' Wild Horses](../2020-01-26_roll-of-the-dice-chasin-wild-horses/post.md)"), and then bends toward characters for whom loss and regret keeps them focused backward ("Sundown" through "[There Goes My Miracle](../2021-04-10_roll-of-the-dice-there-goes-my-miracle/post.md)"). The album ends with two characters *almost* ready to move forward, but first they need to allow themselves to accept new light and love and let go of old ones.
+> *Western Stars* begins with characters who are propelled ever-forward ("[Hitch Hikin',](../2021-05-22_roll-of-the-dice-hitch-hikin/post.md)" "[The Wayfarer](../2022-01-29_roll-of-the-dice-the-wayfarer/post.md)," and [Tucscon Train](../2020-05-25_roll-of-the-dice-tucson-train/post.md)"), arcs toward characters rooted in place (whether at peace in "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)" or restless in "[Chasin' Wild Horses](../2020-01-26_roll-of-the-dice-chasin-wild-horses/post.md)"), and then bends toward characters for whom loss and regret keeps them focused backward ("Sundown" through "[There Goes My Miracle](../2021-04-10_roll-of-the-dice-there-goes-my-miracle/post.md)"). The album ends with two characters *almost* ready to move forward, but first they need to allow themselves to accept new light and love and let go of old ones.
 
 Today we're going to take a long, loving, line-by-line look at "Moonlight Motel," the period at the end of *Western Stars'* sentence.
 

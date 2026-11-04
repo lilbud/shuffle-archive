@@ -12,7 +12,7 @@ As it turns out, it couldn’t: the typewriter recognized misspelled words as th
 
 Struck by what he’d just said, Mellencamp picked up his guitar, strummed a chord, and started typing.
 
-*I was born in a small town  
+> *I was born in a small town
 And I live in a small town*
 
 Except he was both spelling and typing challenged, so as typed, the machine beeped along in accompaniment–much to the merriment of his wife and aunt, who he heard laughing upstairs.
@@ -45,8 +45,8 @@ Mellencamp instantly recognized the train wreck about to happen and leaped onto 
 
 Their one-time-only performance of “Small Town” wasn’t the tightest, but it revealed how comfortable and brotherly the two men had become, almost forty years on from the the time their hometown songs crossed paths.
 
-**Small Town  **
-**First performed:** April 24, 2024 (West Long Branch, NJ)  
+**Small Town**
+**First performed:** April 24, 2024 (West Long Branch, NJ)
 **Last performed:** April 24, 2024 (West Long Branch, NJ)
 
 © July 12, 2026

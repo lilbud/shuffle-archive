@@ -8,7 +8,7 @@ categories: cover-me meeting-across-the-river
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/christmas.jpg
 post_id: 30868
 ---
-*Rolling Stone* named it the Greatest Rock and Roll Christmas Song of all time.
+> *Rolling Stone* named it the Greatest Rock and Roll Christmas Song of all time.
 
 It didn't start out that way, though.
 
@@ -26,7 +26,7 @@ Then came the 1984 film, *Gremlins*.
 
 [Watch on Youtube: Gremlins Opening Featuring Darlin Love's "Christmas Baby Please Come Home" www.vinniefavale.com](https://www.youtube.com/watch?v=2kW3qX5VVxs)
 
-*Gremlins* opened with Love's song playing over the opening credits, reintroducing "Christmas (Baby Please Come Home)" to modern audiences.
+> *Gremlins* opened with Love's song playing over the opening credits, reintroducing "Christmas (Baby Please Come Home)" to modern audiences.
 
 Eighteen months later, a late-night television host invited Darlene to perform the song on his show, *Late Night with David Letterman*. It was a simple performance with the house band, but it gave Darlene the television exposure she'd always deserved.
 

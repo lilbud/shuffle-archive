@@ -18,8 +18,8 @@ Among them: “Suspicious Minds.” Here’s that all-star performance, recorded
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7m2QcHGtEeo)
 
-**Suspicious Minds**  **
-**First performed:** October 21, 1994 (Sayreville, NJ)  
+**Suspicious Minds**
+**First performed:** October 21, 1994 (Sayreville, NJ)
 **Last performed:** August 18, 2001 (Asbury Park, NJ)
 
 © March 9, 2019

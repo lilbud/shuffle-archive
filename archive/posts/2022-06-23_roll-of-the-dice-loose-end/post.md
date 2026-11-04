@@ -21,7 +21,7 @@ And what a magnificent album closer it would have been: musically lush in the Sp
 "Loose End" is the story of a relationship turned toxic. Like all great loves, it starts like a storybook, and Bruce employs some of his most romantic lyrics to date to paint the scene.
 
 > *We met out on open streets when we had no place to go*<br>
-*I remember how my heart beat when you said "I love you so*"
+> *I remember how my heart beat when you said "I love you so*"
 
 Which makes the tonal shift in the third line all the more shocking:
 
@@ -83,4 +83,4 @@ Since then, "Loose End" has remained elusive, never missing an E Street Band Tou
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-*I know the song is officially entitled "Loose Ends." I'm convinced it's a typo Bruce has never bothered to correct.
+> *I know the song is officially entitled "Loose Ends." I'm convinced it's a typo Bruce has never bothered to correct.

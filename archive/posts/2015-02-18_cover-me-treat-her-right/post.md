@@ -26,8 +26,8 @@ Obscure? Sure. But it’s one of my all-time favorite moments at a Bruce Springs
 
 [Watch Video Highlight](https://videopress.com/embed/e4ykmr7s)
 
-**Treat Her Right  **
-**First performed:** January 31, 1998 (Red Bank, NJ)  
+**Treat Her Right**
+**First performed:** January 31, 1998 (Red Bank, NJ)
 **Last performed:** May 13, 2014 (Albany, NY)
 
 © October 4, 2019

@@ -16,7 +16,7 @@ Heck if I know. It's a great pop song–light in substance, dense in orchestrati
 
 [Watch on Youtube: What Love Can Do](https://www.youtube.com/watch?v=yiJdnNqK8d4)
 
-*Working on a Dream* is an interesting animal. Lyrically, it's a meditation on aging, and the wisdom acquired through life experience. Musically, it's an homage to the lush arrangements of California sixties pop, which was originally the domain of the young.
+> *Working on a Dream* is an interesting animal. Lyrically, it's a meditation on aging, and the wisdom acquired through life experience. Musically, it's an homage to the lush arrangements of California sixties pop, which was originally the domain of the young.
 
 Maybe that's why most fans didn't know what to make of it. Regardless, "What Love Can Do" is a perfect example of the album's aspirations and achievements.
 

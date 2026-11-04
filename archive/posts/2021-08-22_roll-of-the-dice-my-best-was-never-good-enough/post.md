@@ -26,7 +26,7 @@ On the surface, Sheriff Lou Ford is an upright, dedicated lawman with an annoyin
 
 I won't spoil the ending in case you're inspired to read the book, but let's just say *The Killer Inside* is not a happy story. It is, however, a gripping and highly regarded tale, praised by luminaries like Stephen King and Stanley Kubrick and inspiring two film adaptations and even a graphic novel serialization.
 
-*The Killer Inside* made an impression on Bruce Springsteen, who was fascinated by how a dark and twisted character could hide behind sugary platitudes.
+> *The Killer Inside* made an impression on Bruce Springsteen, who was fascinated by how a dark and twisted character could hide behind sugary platitudes.
 
 The year was 1995, and the cable news era was in its infancy. It was maturing rapidly, though, thanks to the rise to prominence of CNN during the first Gulf War, and society was starting to reckon with the notion of the 24-hour news cycle and the oversimplification of complex political and societal problems that came with it.
 

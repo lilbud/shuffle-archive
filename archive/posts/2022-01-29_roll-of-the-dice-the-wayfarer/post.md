@@ -20,7 +20,7 @@ Last year, we looked at "Hitch Hikin'," which serves as the album's overture. It
 
 If "The Wayfarer" is where Bruce starts to play his narrative hand, it's also the place where he reveals his musical inspiration.
 
-*Western Stars* is very much a love letter to the music of Glen Campbell, and nowhere is that more apparent than in "The Wayfarer," which owes a tremendous debt to one of Campbell's tracks in particular: his 1969 single "Galveston." If you listen to them both, there's no doubting an intentional homage.
+> *Western Stars* is very much a love letter to the music of Glen Campbell, and nowhere is that more apparent than in "The Wayfarer," which owes a tremendous debt to one of Campbell's tracks in particular: his 1969 single "Galveston." If you listen to them both, there's no doubting an intentional homage.
 
 [Watch on Youtube: Galveston (Remastered 2001)](https://www.youtube.com/watch?v=HhKZLhxFFUY)
 

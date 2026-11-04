@@ -8,8 +8,8 @@ Originally written and recorded by Huey Smith, it became a hit when Frankie Ford
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=i5tIHtbctFQ)
 
-**Sea Cruise**  **
-**First performed:** May 28, 1976 (Annapolis, MD)  
+**Sea Cruise**
+**First performed:** May 28, 1976 (Annapolis, MD)
 **Last performed:** August 16, 1981 (Morrison, CO)
 
 © April 8, 2018

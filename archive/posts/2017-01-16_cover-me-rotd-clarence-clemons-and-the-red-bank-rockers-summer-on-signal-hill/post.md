@@ -30,9 +30,9 @@ So we can consider the matter settled. Now we can turn our attention to the more
 
 Whatever happened to those lyrics?
 
-**Summer on Signal Hill  **
-**Recorded:** July 1983  
-**Released:** B-side single (1983, 1986)  
-> **Never performed**
+**Summer on Signal Hill**
+**Recorded:** July 1983
+**Released:** B-side single (1983, 1986)
+**Never performed**
 
 © March 1, 2021

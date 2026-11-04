@@ -8,7 +8,7 @@ post_id: 8825
 ---
 Shhh…. I'll let you in on a secret, but you can't tell anyone.
 
-*Cover Me* is my favorite.
+> *Cover Me* is my favorite.
 
 I know, I know. Parents aren't supposed to have favorites, so please don't tell the others. But while I'm most proud of *Roll of the Dice*, and even though *Kingdom of Days* is the most popular, *Cover Me* was the most delightful blog series to write.
 

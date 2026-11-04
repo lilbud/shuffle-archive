@@ -77,7 +77,7 @@ Bruce's earlier narrator knew this:
 > *So when you look at me you better look hard and look twice*<br>
 > *Is that me baby or just a brilliant disguise*<br>
 
-*Am I the person you think I am*, he asks. *Do I let you see my true self? Do I shield you from my fears and doubts? Or am I protecting myself?* The earlier narrator asks these questions, and the later one answers them.
+> *Am I the person you think I am*, he asks. *Do I let you see my true self? Do I shield you from my fears and doubts? Or am I protecting myself?* The earlier narrator asks these questions, and the later one answers them.
 
 Bruce still hasn't hinted at who's the betrayer in the relationship, though, and in the last verse he tells us why:
 

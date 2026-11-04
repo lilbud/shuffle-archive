@@ -109,13 +109,13 @@ There's so much to love in these four lines. Just from a storytelling perspectiv
 
 Oh, and just in case you're skeptical about my argument that Bruce is deliberately and lyrically contrasting "Girls in Their Summer Clothes" with "Thunder Road" throughout the song, take note of those last two lines before the last chorus:
 
-*In just a glance down here on Magic **Street***<br>
-*Love's a fool's dance, I ain't got much sense but I still got my **feet***<br>
+> *In just a glance down here on Magic **Street***<br>
+> *Love's a fool's dance, I ain't got much sense but I still got my **feet***<br>
 
 …and compare it with the last two lines of "Thunder Road" before its final coda:
 
-*They scream your name at night in the **street***<br>
-*Your graduation gown lies in rags at their **feet***<br>
+> *They scream your name at night in the **street***<br>
+> *Your graduation gown lies in rags at their **feet***<br>
 
 Well played, Bruce. Well played.
 
@@ -123,7 +123,7 @@ Bruce gives us one final chorus, but the song actually fades out on a wordless v
 
 The video drives this home even harder, with the girls now waving goodbye as the song fades out. My favorite moment is the final little girl who sticks her tongue out at Bruce in an innocent tease. It's cute, but it's also savage:
 
-*This world belongs to me*, she's saying, *and my story is just starting while yours ends.*<br>
+> *This world belongs to me*, she's saying, *and my story is just starting while yours ends.*<br>
 
 ---
 

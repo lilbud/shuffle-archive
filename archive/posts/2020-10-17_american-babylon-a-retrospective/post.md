@@ -20,7 +20,7 @@ In 1993, Joe was at a career nadir. Financially struggling and creatively blocke
 
 As a good friend would, Bruce said yes. Over the next year and a half, those couple of songs developed into a full album: Joe's 1995 Bruce-produced masterpiece, *American Babylon,* featuring two songs co-written by Bruce and an album full of standout tracks.
 
-*American Babylon* turns 25 today, and in anticipation of the milestone Joe and I sat down a couple of months ago to take a look back at the making and meaning of his landmark album. While some of this story has been told before, Joe shared new detail and revelations that are sure to raise the eyebrows of both Grushecky and Springsteen fans alike.
+> *American Babylon* turns 25 today, and in anticipation of the milestone Joe and I sat down a couple of months ago to take a look back at the making and meaning of his landmark album. While some of this story has been told before, Joe shared new detail and revelations that are sure to raise the eyebrows of both Grushecky and Springsteen fans alike.
 
 I originally planned to feature excerpts from the interview in a retrospective essay, but our conversation proved too rich and illuminating to cut any of it. So without further ado, let's take a trip back to *American Babylon* with Joe Grushecky.
 
@@ -38,7 +38,7 @@ It’s near the top. I mean, there was [*Have a Good Time But Get Out Alive*](..
 
 But when I made *American Babylon*, I was down about as far as you could go. I mean *nothing* was going right. We couldn’t get an agent. We had put out several good records in a row and nothing happened. Nobody was interested in anything that I was doing, and I was working like crazy. I was playing at least two nights a week, sometimes three. I had a day gig working with these really poorly behaved kids, and then I was teaching GED at night. So I basically was working myself to death.
 
-*American Babylon* changed things for me in a good way, sort of beginning of an uphill climb again. I was very thankful–I don’t know what I’d have done without that record. I mean I’d have kept on making music, but it got us a lot of attention again.
+> *American Babylon* changed things for me in a good way, sort of beginning of an uphill climb again. I was very thankful–I don’t know what I’d have done without that record. I mean I’d have kept on making music, but it got us a lot of attention again.
 
 It also cemented my relationship with Bruce. We’ve been really good friends ever since.
 

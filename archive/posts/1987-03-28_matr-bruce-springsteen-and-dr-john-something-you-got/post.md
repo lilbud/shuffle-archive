@@ -62,8 +62,8 @@ They played it slow that night–slower than Bruce and the band would likely hav
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NglYuD-Hndc)
 
-**Something You Got**  **
-**First performed:** February 25, 1972 (Richmond, VA)  
+**Something You Got**
+**First performed:** February 25, 1972 (Richmond, VA)
 **Last performed:** April 21, 2017 (Asbury Park, NJ)
 
 © April 28, 2021

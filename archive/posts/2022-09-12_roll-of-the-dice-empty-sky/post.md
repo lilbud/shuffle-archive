@@ -20,7 +20,7 @@ It's fitting that New Jersey's official September 11th Memorial borrows its name
 
 [Watch on Youtube: Empty Sky](https://www.youtube.com/watch?v=Duxv-4qlCjQ)
 
-*The Rising* is widely considered to be a response to the events of September 11, 2001, and from a curated perspective it certainly is. However, many of the album's songs were written well before the events of 9/11 and only take on that resonance by theme and proximity.
+> *The Rising* is widely considered to be a response to the events of September 11, 2001, and from a curated perspective it certainly is. However, many of the album's songs were written well before the events of 9/11 and only take on that resonance by theme and proximity.
 
 But "Empty Sky" is not one of those songs. It was the very last song Bruce wrote for *The Rising*–so late in fact, that it was inspired by an image of a cloudless blue sky that was a candidate for the album's cover.
 

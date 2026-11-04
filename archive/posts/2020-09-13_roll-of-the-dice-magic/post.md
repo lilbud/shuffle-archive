@@ -55,7 +55,7 @@ Bruce wrote "Magic" during the second Bush administration, and while it was mean
 > *This is what will be*
 > *This is what will be*
 
-*You'll see what I want you to see*, he tells us. *I'll misdirect you so you'll miss what I don't want you to notice. And whether you like the trick or not, you won't be able to look away.*
+> *You'll see what I want you to see*, he tells us. *I'll misdirect you so you'll miss what I don't want you to notice. And whether you like the trick or not, you won't be able to look away.*
 
 > *I got shackles on my wrists*
 > *Soon I'll slip 'em and be gone*
@@ -105,11 +105,11 @@ Gaslighting won't fool all of the people, but it'll fool enough of us to divide 
 
 The fire down below is the latent hatred, prejudice, and division so carefully cultivated for years. At the time Bruce wrote "Magic," it hadn't yet erupted on the surface, but he knew it was coming.
 
-*Leave everything you know.* Set aside your skepticism. Disregard your common sense. Reality is what I tell you and what I show you, not what your own senses reveal.
+> *Leave everything you know.* Set aside your skepticism. Disregard your common sense. Reality is what I tell you and what I show you, not what your own senses reveal.
 
-*Carry only what you fear.* Embrace the lies that fit like a jigsaw piece in your worst nightmares.
+> *Carry only what you fear.* Embrace the lies that fit like a jigsaw piece in your worst nightmares.
 
-*The sun is sinking low*. We're nearing the end of our run. We're in our descendancy.
+> *The sun is sinking low*. We're nearing the end of our run. We're in our descendancy.
 
 > *There's bodies hanging in the trees.*
 
@@ -151,7 +151,7 @@ Political comments (on topic for the song in question, at least) are always welc
 
 So feel to reach out to me through the blog or wherever else we engage on-line, and let's start having the important conversations. And then if we can convince others with shared interests to do the same, we can start the long work of repairing our social fabric.
 
-*This* is what will be.
+> *This* is what will be.
 
 [Watch on Youtube: Bruce Springsteen - Magic (Live Toronto 15.10.2007)](https://www.youtube.com/watch?v=hgzYSwLqQcc)
 

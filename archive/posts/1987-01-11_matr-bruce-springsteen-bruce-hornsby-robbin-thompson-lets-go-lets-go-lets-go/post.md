@@ -10,8 +10,8 @@ For the second performance in Richmond, Bruce brought two friends on stage to he
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TYfnC4CgN-Y)
 
-**Let’s Go, Let’s Go, Let’s Go  **
-**First performed:** March 4, 2003 (Jacksonville, FL)  
+**Let’s Go, Let’s Go, Let’s Go**
+**First performed:** March 4, 2003 (Jacksonville, FL)
 **Last performed:** March 6, 2003 (Richmond, VA)
 
 © September 26, 2018

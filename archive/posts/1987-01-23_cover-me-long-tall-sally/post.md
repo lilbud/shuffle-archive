@@ -34,8 +34,8 @@ It seems Bruce is always at the ready for “Long Tall Sally,” and how could h
 
 “Long Tall Sally” has to be imprinted on Bruce’s musical DNA by now, and if you’re lucky enough to catch him at an impromptu guest appearance, there’s a decent chance you’ll get to see why.
 
-**Long Tall Sally**  **
-**First performed:** April 11, 1982 (Red Bank, NJ)  
+**Long Tall Sally**
+**First performed:** April 11, 1982 (Red Bank, NJ)
 **Last performed:** February 7, 2017 (Sydney, Australia)
 
 © April 19, 2019

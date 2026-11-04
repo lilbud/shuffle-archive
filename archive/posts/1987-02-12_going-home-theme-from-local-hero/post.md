@@ -28,9 +28,9 @@ The single was part of a broader cancer awareness campaign that raised well over
 
 As for Knopfler, he’s retired from touring but clearly still committed to making an impact through music.
 
-**Going Home (Theme From Local Hero)  **
-Recorded:  
-**Released:** *Going Home (Theme From Local Hero)* (2024)  
-> **Never performed**
+**Going Home (Theme From Local Hero)**
+**Recorded:**
+**Released:** *Going Home (Theme From Local Hero)* (2024)
+**Never performed**
 
 © July 6, 2026

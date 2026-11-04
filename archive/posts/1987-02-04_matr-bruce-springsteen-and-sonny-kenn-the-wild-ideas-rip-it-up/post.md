@@ -14,8 +14,8 @@ Unfortunately, the Sunday night performance wasn’t captured on tape, but we do
 
 [Watch Video Highlight](https://videopress.com/embed/X3VFWcJg)
 
-**Rip It Up  **
-**First performed:** July 31, 1982 (Red Bank, NJ)  
+**Rip It Up**
+**First performed:** July 31, 1982 (Red Bank, NJ)
 **Last performed:** August 1, 1982 (Asbury Park, NJ)
 
 © December 31, 2019

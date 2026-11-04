@@ -18,7 +18,7 @@ And in 1982, three decades before he opened up about his lifelong struggle with 
 
 Which may be why "Reason to Believe" was such a Rorshach Test of a song when it was first released on *Nebraska* in 1982.
 
-*Rolling Stone* said it "offers a ray of hope amid all this sadness." The Sioux Falls Argus-Leader called it "one of the two most depressing songs on the album, ranking with Paul Simon's ‘Slip-Slidin' Away' for pessimism."
+> *Rolling Stone* said it "offers a ray of hope amid all this sadness." The Sioux Falls Argus-Leader called it "one of the two most depressing songs on the album, ranking with Paul Simon's ‘Slip-Slidin' Away' for pessimism."
 
 Robert Hilburn characterized it as "bittersweet humor," reminiscent of Randy Newman–but the daily paper in Lincoln, Nebraska noted that Bruce sings it "without apparent cynicism or irony." Bruce Pollock of *The Journal News* cites the song's "respect for the indomitable spirit of humanity."
 
@@ -28,7 +28,7 @@ Looking and listening back, it's impossible not to hear the detachment in Bruce'
 
 [Watch on Youtube: Reason to Believe](https://www.youtube.com/watch?v=H49obsV6oZ0)
 
-*Nebraska* is one of Bruce's most thematic albums, and its theme is disconnection. Every character suffers from some kind of alienation; severed relationships pervade the album. Alienation from one's father, from one's brother, from one's lover. Disconnection from one's past, one's future, the very laws and norms that hold society together.
+> *Nebraska* is one of Bruce's most thematic albums, and its theme is disconnection. Every character suffers from some kind of alienation; severed relationships pervade the album. Alienation from one's father, from one's brother, from one's lover. Disconnection from one's past, one's future, the very laws and norms that hold society together.
 
 Not every song Bruce wrote during that period is dark, but the fact that he curated that particular subset for his album is hard to view as anything less than a cry for help. And "Reason to Believe" is the exclamation point at the end of it.
 
@@ -95,7 +95,7 @@ Seconds pass, and we can't help but feel that there's a missing line. It doesn't
 > *Wondering where can his baby be*<br>
 > *Still at the end of every hard earned day people find some reason to believe*<br>
 
-*Some reason to believe*. Bruce mocks his characters for continuing to believe for *some reason*. But he also envies them, because they've found *some reason*. "Reason to Believe" is almost a dialogue between Bruce and his characters, a plea from songwriter to his creations to please share with him their secret.
+> *Some reason to believe*. Bruce mocks his characters for continuing to believe for *some reason*. But he also envies them, because they've found *some reason*. "Reason to Believe" is almost a dialogue between Bruce and his characters, a plea from songwriter to his creations to please share with him their secret.
 
 I mentioned earlier that the most important word in the song is *some*. It's the word that gives away the game. If Bruce's chorus referred to people finding *a* reason to believe, it would imply that he understood. But when he refers to *some* reason, it's clear that he doesn't.
 

@@ -8,7 +8,7 @@ categories: cover-me cover-you
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/deportee.jpg
 post_id: 15274
 ---
-On January 28, 1948, a DC-3 charter plane with seating for 26 passengers took off from Oakland with 32 people aboard–almost all of whom were Mexican citizens being deported from the United States.*****
+On January 28, 1948, a DC-3 charter plane with seating for 26 passengers took off from Oakland with 32 people aboard–almost all of whom were Mexican citizens being deported from the United States.***
 
 The plane never made it to its refueling stop in Burbank–a fuel leak in the port engine's fuel pump ignited, and the entire port wing ripped off, taking nine passengers with it. The rest of the passengers and crew died when the plane crashed and exploded near Las Gatos Creek.
 

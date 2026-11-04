@@ -104,7 +104,7 @@ With that last line, Bruce reveals that our narrator is both past and present. H
 > *Somewhere deep into the heart of the crowd*<br>
 > *I'm the last man standing now*<br>
 
-*Rock of ages.* It could have served as the song's title, too.
+> *Rock of ages.* It could have served as the song's title, too.
 
 As is his wont, Bruce uses the phrase to symbolize two things at once: the biblical metaphor for everlasting strength, and the literal reference to his life's work. He calls on both to lift his soul in transcendence, as he attempts to forget the present and immerse himself in the past.
 

@@ -14,7 +14,7 @@ Some label it a relationship album, which is closer to the truth, but that disco
 
 And yet, *Tunnel of Love* is truly one of Bruce Springsteen’s most thematically cohesive albums. We just have to look a little deeper to find its center.
 
-*Tunnel of Love* is about choices.
+> *Tunnel of Love* is about choices.
 
 [Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 

@@ -4,7 +4,7 @@ When it’s the album’s summational track.
 
 That’s arguably the case with “Swallowed Up (In the Belly of the Whale),” which Bruce appended to the special edition of his *Wrecking Ball* album in 2011.
 
-*Wrecking Ball* is not only one of Bruce’s most cohesive albums, it’s the one with the strongest narrative arc. Starting off defiantly with the anthemic “We Take Care of Our Own,” Bruce descends from anger to surrender, bottoming out with “This Depression” before climbing out towards “Land of Hope and Dreams” and closing with the eternal “We Are Alive.”
+> *Wrecking Ball* is not only one of Bruce’s most cohesive albums, it’s the one with the strongest narrative arc. Starting off defiantly with the anthemic “We Take Care of Our Own,” Bruce descends from anger to surrender, bottoming out with “This Depression” before climbing out towards “Land of Hope and Dreams” and closing with the eternal “We Are Alive.”
 
 And then, almost as an afterthought, comes two bonus tracks: “Swallowed Up (In the Belly of the Whale)” and “American Land.”
 
@@ -78,6 +78,6 @@ That’s some pretty great art.
 **Swallowed Up (In the Belly of the Whale)**
 **Recorded:** 2011
 **Released:** *Wrecking Ball* (2012)
-> **Never performed**
+**Never performed**
 
 © May 7, 2020

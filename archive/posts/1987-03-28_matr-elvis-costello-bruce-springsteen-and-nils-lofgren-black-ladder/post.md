@@ -22,8 +22,8 @@ Accompanied by both Bruce and Nils on guitar (in a superb mix), Elvis took the l
 
 This was the first and only time Bruce has played “Black Ladder” in concert. Even with his own wife, it’s remained unplayed ever since.
 
-**Black Ladder**  **
-**First performed:** September 25, 2009 (New York City, NY)  
+**Black Ladder**
+**First performed:** September 25, 2009 (New York City, NY)
 **Last performed:** September 25, 2009 (New York City, NY)
 
 © November 16, 2020

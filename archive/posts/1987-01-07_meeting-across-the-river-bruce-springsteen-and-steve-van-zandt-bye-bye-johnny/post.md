@@ -12,8 +12,8 @@ Considering it inspired a song in his catalog, it’s surprising that Bruce has 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GDOEFWUmXUU)
 
-**Bye Bye Johnny  **
-**First performed:** July 17, 1982 (Red Bank, NJ)  
+**Bye Bye Johnny**
+**First performed:** July 17, 1982 (Red Bank, NJ)
 **Last performed:** April 22, 2017 (Red Bank, NJ)
 
 © August 18, 2018

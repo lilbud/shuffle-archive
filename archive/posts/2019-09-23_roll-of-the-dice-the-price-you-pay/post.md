@@ -56,7 +56,7 @@ We can view this first verse as either literal (the on-the-road life of a tourin
 > *Now with their hands held high, they reached out for the open skies*<br>
 > *And in one last breath they built the roads they'd ride to their death*<br>
 > *Driving on through the night, unable to break away*<br>
-*From the **everlasting** pull of the price you pay*
+> *From the **everlasting** pull of the price you pay*
 
 It's interesting to note that Bruce switches from the second person in the first verse to the third person in the second verse. Readers of this blog know that I often remind that Bruce does very little by accident, but I wonder if this might be an exception. Whether it is or isn't, the effect is to suggest that Bruce is really thinking in the first person but isn't quite ready to go there–so he projects instead.
 

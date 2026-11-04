@@ -20,8 +20,8 @@ That year, the event had an Elvis theme, and several covers of The King’s song
 
 That event tends to be remembered for Bruce’s duets with James Taylor on “The River” and Elton John on “Streets of Philadelphia” (along with Bruce’s first full performance of “I’m Turning Into Elvis”), but his supporting turn with Sting on “Guitar Man” was an under-the-radar highlight of a fun and unpredictable night.
 
-**Guitar Man  **
-**First performed:** April 12, 1995 (New York City, NY)  
+**Guitar Man**
+**First performed:** April 12, 1995 (New York City, NY)
 **Last performed:** April 12, 1995 (New York City, NY)
 
 © April 12, 2021

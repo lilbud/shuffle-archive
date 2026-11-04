@@ -12,8 +12,8 @@ When Bruce brought the High Hopes Tour to Sydney in the summer of 2014, he decid
 
 Wondering how you follow up a show opener like that? If you’re Bruce, you give a little wink and segue directly into your own attempt at the same song: “Out in the Street.”
 
-**Friday on My Mind**  **
-**First performed:** February 19, 2014 (Sydney, Australia)  
+**Friday on My Mind**
+**First performed:** February 19, 2014 (Sydney, Australia)
 **Last performed:** February 22, 2014 (Hunter Valley, Australia)
 
 © June 7, 2019

@@ -42,10 +42,10 @@ It’s been almost a decade since Bruce last sang “It’s Been a Long Time” 
 
 “It’s Been a Long Time” only gets better with age.
 
-**It’s Been a Long Time  **
-**Recorded:** 1991  
-**Released:** *Better Days* (1991)  
-**First performed:** September 26, 1991 (Asbury Park, NJ)  
+**It’s Been a Long Time**
+**Recorded:** 1991
+**Released:** *Better Days* (1991)
+**First performed:** September 26, 1991 (Asbury Park, NJ)
 **Last performed:** September 21, 2017 (Holmdel, NJ)
 
 © July 11, 2026

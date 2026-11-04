@@ -105,7 +105,7 @@ We all want the best for our children, the way our parents wanted the best for u
 
 I was twelve years old when I first listened to those lines; I was a parent the first time I really heard them.
 
-*The things we want that we cannot say*. Every parent has those things, I suspect, and every child comes to someday sense them, though we try our hardest for them not to. The compromises we make in life, in love, in work to provide our kids the opportunities we chose to forgo for them.
+> *The things we want that we cannot say*. Every parent has those things, I suspect, and every child comes to someday sense them, though we try our hardest for them not to. The compromises we make in life, in love, in work to provide our kids the opportunities we chose to forgo for them.
 
 > *I was young and I didn't know what to do when I saw your best steps stolen away from you.*<br>
 

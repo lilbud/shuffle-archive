@@ -36,8 +36,8 @@ I bring that last one up because the one other time that Bruce performed “Ring
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MKWlQy9d2Ug)
 
-**Ring of Fire**  **
-**First performed:** March 13, 1973 (Boston, MA)  
+**Ring of Fire**
+**First performed:** March 13, 1973 (Boston, MA)
 **Last performed:** September 30, 2018 (Asbury Park, NJ)
 
 © July 19, 2019

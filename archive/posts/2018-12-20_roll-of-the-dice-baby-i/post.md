@@ -41,7 +41,7 @@ Musically, the boys took their cue from early Beatles tracks and other contempor
 
 Although it's believed that The Castiles performed the song often over the next year, there are no live recordings or even surviving setlists to attest to it. The studio version that was released on *Chapter & Verse* in 2016 and the unedited circulating bootleg are the only recordings were have of Bruce's very first recorded composition.
 
-*The officially released version of "Baby I" is edited for brevity. The original version ran about 15 seconds longer, due to a *third* instance of the "tended kiss" verse. If you'd like to hear the unedited version, take a listen below (but you're really not missing anything if you don't).
+> *The officially released version of "Baby I" is edited for brevity. The original version ran about 15 seconds longer, due to a *third* instance of the "tended kiss" verse. If you'd like to hear the unedited version, take a listen below (but you're really not missing anything if you don't).
 
 [Watch on Youtube: Bruce Springsteen (The Castiles ) - BABY I](https://www.youtube.com/watch?v=I-3piB3bR7A)
 

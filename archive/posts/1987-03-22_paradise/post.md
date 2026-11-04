@@ -22,8 +22,8 @@ Prine welcomed him to the stage as another loser in the New Dylan contest. He wa
 
 <img src='https://estreetshuffle.com/wp-content/uploads/1987/04/Screenshot-2026-07-07-151907.jpg' alt='' title='' width='758' height='990' />
 
-**Paradise  **
-**First performed:** November 12, 1988 (Tarrytown, NY)  
+**Paradise**
+**First performed:** November 12, 1988 (Tarrytown, NY)
 **Last performed:** November 12, 1988 (Tarrytown, NY)
 
 © July 7, 2026

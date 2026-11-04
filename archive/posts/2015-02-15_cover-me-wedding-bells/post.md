@@ -22,8 +22,8 @@ By the autumn, Bruce moved on from his fascination with Hank Williams… on stag
 
 We’ll pick up that story in *Roll of the Dice: Volume Twelve*..
 
-**Wedding Bells**  **
-**First performed:** December 12, 1975 (Greenvale, NY) – soundcheck only  
+**Wedding Bells**
+**First performed:** December 12, 1975 (Greenvale, NY) – soundcheck only
 **Last performed:** September 20, 1978 (Passaic, NJ) – soundcheck only
 
 © February 15, 2021

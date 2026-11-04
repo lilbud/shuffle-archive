@@ -18,8 +18,8 @@ But if you hoped to catch it on an actual tour, you’d have to wait all the way
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wtwIatGvFP4)
 
-**Ain’t Too Proud to Beg**  **
-**First performed:** October 4, 1975 (Detroit, MI)  
+**Ain’t Too Proud to Beg**
+**First performed:** October 4, 1975 (Detroit, MI)
 **Last performed:** July 16, 2013 (Limerick, Ireland)
 
 © October 6, 2018

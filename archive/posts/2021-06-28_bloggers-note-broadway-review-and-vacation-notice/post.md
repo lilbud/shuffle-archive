@@ -30,9 +30,9 @@ On July 1, after 1,273 consecutive days of twice-daily publishing, I'm taking a 
 
 Of course for me, "vacation" means that during the month of July, I'll only be posting one article each day instead of two.
 
-*Kingdom of Days* will continue without interruption, as those posts are largely pre-written and are just lightly refreshed each year. (I've been sneaking in some treats lately, though, with my favorite one coming tomorrow.) All of July's posts are already in the can.
+> *Kingdom of Days* will continue without interruption, as those posts are largely pre-written and are just lightly refreshed each year. (I've been sneaking in some treats lately, though, with my favorite one coming tomorrow.) All of July's posts are already in the can.
 
-*Roll of the Dice*, however, will go on hiatus after this Wednesday's post; *Cover Me* goes on break after tomorrow; and *Meeting Across the River* is already on pause after yesterday's entry. All three series will resume in August.
+> *Roll of the Dice*, however, will go on hiatus after this Wednesday's post; *Cover Me* goes on break after tomorrow; and *Meeting Across the River* is already on pause after yesterday's entry. All three series will resume in August.
 
 In the meantime, I'll be taking an honest-to-goodness tropical vacation for the first part of July, with very spotty (at best) wi-fi. So my apologies in advance to those of you who rely on my social media posts for these daily updates, as I may be Facebook- and Twitter-challenged for a bit. (This might be a good time to subscribe to the blog for auto-updates via e-mail.)
 

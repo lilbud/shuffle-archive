@@ -16,8 +16,8 @@ Take a listen to Bruce’s *definitive* cover of “No Money Down” below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cimTY6odREM)
 
-**No Money Down**  **
-**First performed:** June 1, 1974 (Kent, OH)  
+**No Money Down**
+**First performed:** June 1, 1974 (Kent, OH)
 **Last performed:** July 13, 1974 (New York City, NY) (last time performed in full)
 
 © March 30, 2019

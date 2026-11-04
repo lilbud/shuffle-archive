@@ -50,8 +50,8 @@ I wasn’t there that night, but I’m pretty sure I can guess why Bruce edited 
 
 [Watch Video Highlight](https://videopress.com/embed/kMw6mBVD)
 
-**Mony Mony  **
-**First performed:** July 17, 1982 (Red Bank, New Jersey)  
+**Mony Mony**
+**First performed:** July 17, 1982 (Red Bank, New Jersey)
 **Last performed:** July 8, 2009 (Herning, Denmark)
 
 © March 18, 2021

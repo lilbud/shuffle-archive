@@ -16,8 +16,8 @@ Although we have reason (via a preserved but undated setlist) to believe Bruce p
 
 <img src='https://estreetshuffle.com/wp-content/uploads/2019/02/earth-sl-bs.jpg' alt='' title='' width='289' height='249' />
 
-**Purple Haze  **
-**First performed:** September 16, 1967 (Freehold, NJ)  
+**Purple Haze**
+**First performed:** September 16, 1967 (Freehold, NJ)
 **Last performed:** September 16, 1967 (Freehold, NJ)
 
 © February 19, 2019

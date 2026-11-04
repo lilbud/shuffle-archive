@@ -8,7 +8,7 @@ A favorite of heavy metal fans ever since its original release in 1979, “Highw
 
 It peaked only at #47 on the Billboard Hot 100, but it became an international hit, charting in the band’s native Australia and all across Europe. It eventually went multi-platinum around the world, including a 6x certification in the U.S.
 
-*Rolling Stone* ranks it #258 on their 500 Greatest Songs of All Time list, and the Rock and Roll Hall of Fame enshrined it as one of their 500 Songs that Shaped Rock and Roll.
+> *Rolling Stone* ranks it #258 on their 500 Greatest Songs of All Time list, and the Rock and Roll Hall of Fame enshrined it as one of their 500 Songs that Shaped Rock and Roll.
 
 Even today, it appears in far too many movies and television shows to mention, winning the “Most Played Australian Work Overseas” award at the 2009 APRA Awards.
 
@@ -36,8 +36,8 @@ But then seven years later, along came a brand new studio recording of “Highwa
 
 Recorded remotely during the pandemic, Morello’s studio version can’t quite capture the lightning in a bottle from those 2014 arena performances, but it’s still a great recording and an undeservedly under-the-radar official Springsteen recording.
 
-**Highway to Hell  **
-**Recorded:** 2021**Released:** *The Atlas Underground Fire* (2021)**First performed:** February 8, 2014 (Perth, Australia)  
+**Highway to Hell**
+**Recorded:** 2021**Released:** *The Atlas Underground Fire* (2021)**First performed:** February 8, 2014 (Perth, Australia)
 **Last performed:** April 29, 2014 (Sunrise, FL)
 
 © July 15 ,2026

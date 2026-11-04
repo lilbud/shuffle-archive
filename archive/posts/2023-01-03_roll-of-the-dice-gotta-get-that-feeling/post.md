@@ -34,21 +34,21 @@ Bruce may have re-recorded his vocal for the official release, but his lyrics cl
 
 > *Yeah girl, now won't you come on out tonight*<br>
 > *Yeah girl, where the stars are shining bright*<br>
-*Gotta get that feeling, ye**ah we gotta get that feeling*
-*Back again, y**eah back again*
+> *Gotta get that feeling, ye**ah we gotta get that feeling*
+> *Back again, y**eah back again*
 
 > *Tonight, you know there's something in the air*<br>
 > *Tonight, we ain't got money but we don't care*<br>
-*Just gotta get that feeling, y**eah I wanna get that feeling*
-*Before the night is through* *I want you to get that feeling too*
+> *Just gotta get that feeling, y**eah I wanna get that feeling*
+> *Before the night is through* *I want you to get that feeling too*
 
 > *Hold me in your arms, the night will take care of us*<br>
 > *Come the rain or the storm love will be there with us*<br>
 
 > *Tonight, you know there's something in the air*<br>
 > *Tonight, we ain't got money but we don't care*<br>
-*We just gotta get that feeling, y**eah we gotta get that feeling*
-*Back again, ye**ah back again*
+> *We just gotta get that feeling, y**eah we gotta get that feeling*
+> *Back again, ye**ah back again*
 
 With its "sha la la's" and call-and-response chorus, "Gotta Get That Feeling" is a love letter to the girl groups of the sixties. It's glorious and romantic, the kind of song you're supposed to *feel* rather than just listen to.
 

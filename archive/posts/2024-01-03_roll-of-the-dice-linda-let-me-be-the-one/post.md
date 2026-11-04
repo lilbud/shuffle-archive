@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/linda.jpg
 post_id: 26080
 ---
-*Born to Run* was released on August 25, 1975.
+> *Born to Run* was released on August 25, 1975.
 
 As of July 2nd, "Linda Let Me Be The One" was still on it.
 

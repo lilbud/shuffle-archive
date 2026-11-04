@@ -10,19 +10,19 @@ It shows.
 
 The lyrics are, shall we say, basic–although the song goes on for about two minutes, the lyrics are comprised of a total of nine unique lines that repeat at least once.*
 
-*Baby I don’t need your loving no more*  
-*Baby I don’t need your kisses no more*  
-*Baby I don’t need your tender touch*  
-> > *Baby I*
+> *Baby I don’t need your loving no more*
+> *Baby I don’t need your kisses no more*
+> *Baby I don’t need your tender touch*
+> *Baby I*
 
-*Baby I don’t need your tender kiss*  
-*Baby I you will never miss*  
-*Baby I don’t want you ’round me no more*  
-> > *Baby I*
+> *Baby I don’t need your tender kiss*
+> *Baby I you will never miss*
+> *Baby I don’t want you ’round me no more*
+> *Baby I*
 
-*‘Cause I got someone new*  
-> *Somebody better than you*  
-*Somebody who’ll be true*  
+> *‘Cause I got someone new*
+> *Somebody better than you*
+> *Somebody who’ll be true*
 > *Somebody better than you*
 
 Given their youth and the fact that the song was written minutes before it was recorded, we’ll forgive the boys that clumsy, wince-inducing “Baby I you will never miss” and their inability come up with a fourth line for the chorus.
@@ -31,7 +31,7 @@ Musically, the boys took their cue from early Beatles tracks and other contempor
 
 Although it’s believed that The Castiles performed the song often over the next year, there are no live recordings or even surviving setlists to attest to it. The studio version that was released on *Chapter & Verse* in 2016 and the unedited circulating bootleg are the only recordings were have of Bruce’s very first recorded composition.
 
-*The officially released version of “Baby I” is edited for brevity. The original version ran about 15 seconds longer, due to a *third* instance of the “tended kiss” verse. If you’d like to hear the unedited version, take a listen below (but you’re really not missing anything if you don’t).
+> *The officially released version of “Baby I” is edited for brevity. The original version ran about 15 seconds longer, due to a *third* instance of the “tended kiss” verse. If you’d like to hear the unedited version, take a listen below (but you’re really not missing anything if you don’t).
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I-3piB3bR7A)
 
@@ -39,10 +39,10 @@ Although it’s believed that The Castiles performed the song often over the nex
 
 [Watch Video Highlight](https://videopress.com/embed/UmOLrDkm)
 
-*> > *Baby I**  
-**Recorded:** May 18, 1966  
-**Released:** *Chapter & Verse* (2016)  
-**First performed:** November 2019 (Colts Neck, NJ)  
+**Baby I**
+**Recorded:** May 18, 1966
+**Released:** *Chapter & Verse* (2016)
+**First performed:** November 2019 (Colts Neck, NJ)
 **Last performed:** November 2019 (Colts Neck, NJ)
 
 © December 19, 2018

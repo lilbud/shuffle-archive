@@ -28,8 +28,8 @@ Bruce performed “Hoochie Coochie Man” only once more, just a week later (aga
 
 And I do mean superior.
 
-**Hoochie Coochie Man  **
-**First performed:** October 23, 1971 (Richmond, VA)  
+**Hoochie Coochie Man**
+**First performed:** October 23, 1971 (Richmond, VA)
 **Last performed:** October 30, 1971 (Richmond, VA)
 
 © June 26, 2020

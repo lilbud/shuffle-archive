@@ -18,8 +18,8 @@ That was the only time Bruce has ever played Smokey’s classic in full, but he 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D8xQGYjuqzw)
 
-**The Tracks of My Tears  **
-**First performed:** March 6, 1995 (New York City, NY)  
+**The Tracks of My Tears**
+**First performed:** March 6, 1995 (New York City, NY)
 **Last performed:** March 6, 1995 (New York City, NY)
 
 © October 16, 2019

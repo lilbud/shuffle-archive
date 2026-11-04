@@ -26,7 +26,7 @@ Bruce's lyrics seem very unfinished–he hadn't quite mastered the car-as-sexual
 > *She's brutal as an ace laid on the table at just the right time*<br>
 > *She's like a devil woman but she's locked in overdrive*<br>
 > *Her eyes are cold stone but she's backed by a power-glide*<br>
-*She's sweet, she's educated, she knows about history, geometry… s**he's so fine*
+> *She's sweet, she's educated, she knows about history, geometry… s**he's so fine*
 
 And yet, "Angel's Blues" still features some clever lyrical touches, like the way in which Bruce hints at Angel's promiscuity in the second verse (the boys "call her God down on Lover's Lane" — a subtle reference to something someone might say in the heat of passion).
 

@@ -14,27 +14,26 @@ The fidelity isn’t exactly high–I can’t even make out all the lyrics–but
 
 In fact, we learn in the very first verse that the singer’s girl is dead, and that it’s his fault–but she should have known better anyway:
 
-*The moonlight dances on her face*  
-*I got my lips ???*  
-*I’m living the life of a lie*  
+> *The moonlight dances on her face*
+> *I got my lips ???*
+> *I’m living the life of a lie*
 > *It was for me, for me that she died*
-
 > *That’s what you get for loving me*
 
 But it’s the second verse that rings with familiarity for Springsteen fans. Listen to it again if you missed it the first time:
 
-*True love, unhappiness*  
-*I fall down on my knees and I cry*  
+> *True love, unhappiness*
+> *I fall down on my knees and I cry*
 > *It’s my way of saying goodbye*
 
 It would take another eighteen years, but that middle line would eventually make it (in slightly modified form) to an official release via “Downbound Train.”
 
 It’s believed that Bruce and The Castiles likely played “That’s What You Get” live throughout 1966 and 1967, but no document survives to confirm that. Not only does this recording stand as the only confirmed performance of one of Bruce’s earliest songs, it’s tied with “Baby I” as the earliest known recording of a Bruce Springsteen performance.
 
-**That’s What You Get  **
-**Recorded:** May 18, 1966  
-**Never released**  **
-**First performed:** unconfirmed  
+**That’s What You Get**
+**Recorded:** May 18, 1966
+**Never released**
+**First performed:** unconfirmed
 **Last performed:** unconfirmed
 
 © November 30, 2019

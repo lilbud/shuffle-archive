@@ -107,7 +107,7 @@ The love and support of one's partner may be potent vaccination against self-dou
 > *Come on put on your party dress*<br>
 > *It's ours tonight, we're going with the tumbling dice*<br>
 
-*If love is hopeless at best, put on your party dress*. There's no sure thing, Bruce is telling us, no guaranteed happy ending. If you wait for one before committing to it, you're in for a long wait. So make the most of the opportunity, and revel in the gamble. That's love, and it's also parenthood.
+> *If love is hopeless at best, put on your party dress*. There's no sure thing, Bruce is telling us, no guaranteed happy ending. If you wait for one before committing to it, you're in for a long wait. So make the most of the opportunity, and revel in the gamble. That's love, and it's also parenthood.
 
 (Side note: it's a bit odd that Bruce chose "tumbling dice" as a song-ending metaphor. He's too much the rock scholar to not have realized the parallel it draws to the popular Rolling Stones song by the same name. That song features a playboy narrator who can't commit to any one woman, the exact opposite of the sentiment Bruce expresses here.)
 

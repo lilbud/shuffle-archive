@@ -48,10 +48,10 @@ Five years later, Bruce and Stevie reprised “Sun City” at Van Zandt’s own 
 
 It’s too soon to tell if we’ve heard the last of “Sun City.” It may have accomplished its original mission, but it’s too powerful a song for a quiet retirement.
 
-**Sun City  **
-**Recorded:** July 1985  
-**Released:** *Sun City* (1985)  
-**First performed:** August 21, 1987 (Asbury Park, NJ)  
+**Sun City**
+**Recorded:** July 1985
+**Released:** *Sun City* (1985)
+**First performed:** August 21, 1987 (Asbury Park, NJ)
 **Last performed:** May 8, 2019 (Asbury Park, NJ)
 
 © July 13, 2026

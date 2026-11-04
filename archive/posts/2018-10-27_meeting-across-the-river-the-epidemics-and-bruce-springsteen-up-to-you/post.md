@@ -14,7 +14,7 @@ Accompanied by Peter Gabriel, Sting, Tracey Chapman, and others, the tour brough
 
 One such far-flung location was New Delhi, where Bruce met up with The Epidemics, a duo comprised of Indian violinist L. Shankar and British keyboardist Caroline. Together, The Epidemics released a self-titled album in 1986 and followed it up with their *Eye Catcher* LP in 1989.
 
-*Eye Catcher* is a curious and unique collectable for Springsteen fans: it contains a studio track called "Up to You," which features an extended harmonica intro and outro by Bruce.
+> *Eye Catcher* is a curious and unique collectable for Springsteen fans: it contains a studio track called "Up to You," which features an extended harmonica intro and outro by Bruce.
 
 [Watch on Youtube: Epidemics - Up to You (1989) - Featuring L. Shankar, Bruce Springsteen, Nils Lofgren](https://www.youtube.com/watch?v=bYEVWKyjS1U)
 

@@ -112,7 +112,7 @@ What makes "The Wall" so powerful isn't so much the lyrics as Bruce's delivery. 
 
 But instead, Bruce quietly ruminates, imbuing his lyrics with greater nuance than they'd otherwise have. At the end of the first verse, we feel quiet rage, aching loss, compassion for the narrator and maybe even a little for McNamara.
 
-*Apology and forgiveness got no place here at all, here at the wall.* Like many of Bruce's best songs, the essence of "The Wall" can be found in a single, powerful line. The Wall isn't a place for forgiving or for seeking it. It's a place for a remembering, something innately understood by its never ending procession of visitors.
+> *Apology and forgiveness got no place here at all, here at the wall.* Like many of Bruce's best songs, the essence of "The Wall" can be found in a single, powerful line. The Wall isn't a place for forgiving or for seeking it. It's a place for a remembering, something innately understood by its never ending procession of visitors.
 
 > *Well I'm sorry I missed you last year, I couldn't find no one to drive me*<br>
 > *If your eyes could cut through that black stone, tell me would they recognize me*<br>

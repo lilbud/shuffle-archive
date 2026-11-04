@@ -18,7 +18,7 @@ Melancon did more than just cover "57 Channels" live–he released it on his lat
 
 [Watch on Youtube: 57 Channels](https://www.youtube.com/watch?v=dB62gNbmJAg)
 
-*Pinkville* is a strong collection of gritty southern rock, featuring a collection of original songs dark and twisted enough to sound like an electric *Nebraska*.
+> *Pinkville* is a strong collection of gritty southern rock, featuring a collection of original songs dark and twisted enough to sound like an electric *Nebraska*.
 
 Rod's cover of "57 Channels (An Nothin' On)" fits so seamlessly on the album that it makes you realize just how at home the original would have been on *Nebraska* as well, in a different arrangement.
 

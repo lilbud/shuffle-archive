@@ -59,11 +59,11 @@ Stick brought his guitar with him in the Army and frequently played to entertain
 > *Knockin' out windows and tearin' down doors*,
 > *Drinkin' half-gallons and callin' for more.*<br>
 
-*Drinkin' wine motherf***er, drinkin' wine*<br>
+> *Drinkin' wine motherf***er, drinkin' wine*<br>
 > *Goddam!*<br>
-*Drinkin' wine motherf***er, drinkin' wine*<br>
+> *Drinkin' wine motherf***er, drinkin' wine*<br>
 > *Goddam!*<br>
-*Drinkin' wine motherf***er, drinkin' wine*<br>
+> *Drinkin' wine motherf***er, drinkin' wine*<br>
 > *Goddam!*<br>
 > *Pass that bottle to me*<br>
 

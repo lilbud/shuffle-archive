@@ -70,8 +70,8 @@ Bonus: Despite their many appearances together over the years, Bruce and John ha
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ekw13v8Et7U)
 
-**Who’ll Stop the Rain  **
-**First performed:** December 18, 1980 (New York City, NY)  
+**Who’ll Stop the Rain**
+**First performed:** December 18, 1980 (New York City, NY)
 **Last performed:** May 15, 2024 (Cork, Ireland)
 
 © July 12, 2023

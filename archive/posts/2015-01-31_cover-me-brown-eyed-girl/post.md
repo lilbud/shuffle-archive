@@ -16,8 +16,8 @@ But even though Bruce has performed it a dozen times over the years, only three 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Bhktk0Qj4gc)
 
-**Brown Eyed Girl**  **
-**First performed:** August 20, 1994 (Long Branch, NJ)  
+**Brown Eyed Girl**
+**First performed:** August 20, 1994 (Long Branch, NJ)
 **Last performed:** January 30, 2017 (Adelaide, Australia)
 
 © September 20, 2018

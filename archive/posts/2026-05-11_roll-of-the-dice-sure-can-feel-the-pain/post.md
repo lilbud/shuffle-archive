@@ -26,7 +26,7 @@ The first verse appears to paint a landscape–one so immense, colorful and powe
 > *Yeah, there's something so good*<br>
 > *Like nothing before you ever had*<br>
 > *And a love's so good*<br>
-*That you ??? so bad* <<could use some help figuring out what he's saying here>>
+> *That you ??? so bad* <<could use some help figuring out what he's saying here>>
 
 The second verse appears to bring a girl into the equation–although it's hard to separate her from the world around her, such is the naturistic tapestry that Bruce continues to weave. And at the end of it, he establishes the song's theme and hook–searching, but not finding, the source of incredible pain. (He switches to first person here–turning the song personal, now that we're in his world with him.)
 

@@ -24,8 +24,8 @@ In any setting, when Bruce breaks out “634-5789” it’s gonna be a party. I 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ldfdgTvQOsY)
 
-**634-5789 (Soulsville U.S.A.)**  **
-**First played:** February 14, 1973 (Richmond, VA)  
+**634-5789 (Soulsville U.S.A.)**
+**First played:** February 14, 1973 (Richmond, VA)
 **Last played:** November 16, 2019 (Asbury Park, NJ)
 
 © August 14, 2018

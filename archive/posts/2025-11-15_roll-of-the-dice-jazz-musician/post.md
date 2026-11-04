@@ -70,7 +70,7 @@ Historically, though, "Jazz Musician" points the way forward to one of Bruce's m
 ***Well outside the park is dark***<br>
 ***But the sidewalk's bright in line with the light of the living***<br>
 > *Oh, and baby can I walk you home tonight*<br>
-*Because it's so bad outside **but there's so much for the giving***
+> *Because it's so bad outside **but there's so much for the giving***
 ***I was stranded in the jungle***<br>
 > *First stage witness at a company killing*<br>
 > *And shuffling my feet, clutching my high school diploma*<br>

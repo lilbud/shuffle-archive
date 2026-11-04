@@ -133,7 +133,7 @@ In the end, Pete outruns his past in the only sure way possible. He leaves behin
 
 "Outlaw Pete" is a complex morality play, with themes that transcend the personal and apply to the political. Bruce wrote his song at the tail end of the Bush administration, appalled at how far his country had fallen (but unaware of how far it had still to go ).
 
-*We cannot undo the things we've done–*words that should haunt us as a country but don't, which is precisely what Bruce warns us about. The past *will* catch up to us. We can and should try to atone for our past sins, but we can never undo them and never outrun them.
+> *We cannot undo the things we've done–*words that should haunt us as a country but don't, which is precisely what Bruce warns us about. The past *will* catch up to us. We can and should try to atone for our past sins, but we can never undo them and never outrun them.
 
 All we can do with our past is reckon with it. Because otherwise it will come for us, remove us from our present, and steal our future. Just like it did for Outlaw Pete.
 

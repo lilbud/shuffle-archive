@@ -10,7 +10,7 @@ post_id: 13194
 ---
 In 1987, Little Steven released his third solo album, *Freedom–No Compromise.* Heavier in both content and production, the album continued the political journey he began in *Voice of America.*
 
-*Freedom–No Compromise* also features Bruce prominently in a track called "Native American."
+> *Freedom–No Compromise* also features Bruce prominently in a track called "Native American."
 
 Featuring a recurring Sioux war cry chant, "Ho Ka Hey Wah Nah" ("Let's go now!"), "Native American" is a well-intentioned call to action for environmental protection. Steve and Bruce fully commit themselves to the song, and their sincerity *almost* carries the day.
 

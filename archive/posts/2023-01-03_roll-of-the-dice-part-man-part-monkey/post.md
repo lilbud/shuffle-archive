@@ -37,7 +37,7 @@ Let's start with the first verse, the one that invites all the Scopes comparison
 > *They'd a-called in that jury and a one two three, said*<br>
 > *Part man, part monkey, definitely*<br>
 
-*Why waste time with a trial*, Bruce argues. *I'm living proof that men are still part simian.*
+> *Why waste time with a trial*, Bruce argues. *I'm living proof that men are still part simian.*
 
 With the second verse, we leave the trial to the pages of history, as we learn that while our narrator may be single-minded, he's not exactly monogamous.
 

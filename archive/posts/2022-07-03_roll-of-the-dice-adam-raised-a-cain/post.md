@@ -18,7 +18,7 @@ In 1955, *East of Eden* swept its way through a host of prestigious awards and n
 
 [Watch on Youtube: East of Eden (1995) Official Trailer - James Dean Movie HD](https://www.youtube.com/watch?v=IqVoIQ5UsT8)
 
-*East of Eden* is an of-sorts retelling of the Cain and Abel story. In the film, two brothers named Cal and Aron stand in for their alliterative biblical counterparts. Each vies for the love of their father Adam (who seems to represent both the biblical Adam and God), but only the younger Aaron seems to have Adam's affection and respect.
+> *East of Eden* is an of-sorts retelling of the Cain and Abel story. In the film, two brothers named Cal and Aron stand in for their alliterative biblical counterparts. Each vies for the love of their father Adam (who seems to represent both the biblical Adam and God), but only the younger Aaron seems to have Adam's affection and respect.
 
 No one is directly murdered in *East of Eden;* its layered plot concentrates more on the emotional chasm between Adam and Cal and the emotional damage caused by the loss of the boys' mother, whom the brothers believed had died at a young age. Cal discovers that his mother is still alive, however, and working as a madam in a brothel.
 

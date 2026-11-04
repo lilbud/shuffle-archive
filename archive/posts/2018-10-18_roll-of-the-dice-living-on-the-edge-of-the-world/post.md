@@ -98,7 +98,7 @@ But "Living on the Edge of the World" has only been performed once*–when Bruce
 
 [Watch on Youtube: Bruce Springsteen - Living on the Edge of the World - Metlife Stadium - 9-21-12](https://www.youtube.com/watch?v=fwmwfjZdrKA)
 
-*Technically, Bruce has only performed "Living on the Edge" that one time in 2012… at least that's the only time he's played it in full with its own melody.
+> *Technically, Bruce has only performed "Living on the Edge" that one time in 2012… at least that's the only time he's played it in full with its own melody.
 
 But here's a bonus: check out this genuine one-off historical curiosity. It's a performance of "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" from a couple of months into the River Tour, on November 28, 1980–a full year after Bruce recorded the take of "Living on the Edge of the World" that's included on *Tracks* and *The Ties That Bind.*
 

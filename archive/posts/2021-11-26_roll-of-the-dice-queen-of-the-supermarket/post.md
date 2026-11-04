@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/10/springsteen_supermarket-compressed.jpg
 post_id: 4774
 ---
-*Spin* described it as "a widescreen melodrama about a cashier crush that for sheer overkill rivals Adam Sandler's *Broooce* parody ‘Lunchlady Land.'"
+> *Spin* described it as "a widescreen melodrama about a cashier crush that for sheer overkill rivals Adam Sandler's *Broooce* parody ‘Lunchlady Land.'"
 
 The *Seattle Times* bemoaned the "disco strings, mounting backing vocals and pounding drums [that] turn it into a Broadway number."
 

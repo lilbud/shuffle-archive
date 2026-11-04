@@ -32,9 +32,9 @@ When it came time to film an official video for the new single, Bruce was tourin
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fpeaMoCWNNg)
 
-**When Will I Be Loved  **
-**Recorded:** October 2008 – January 2009  
-**Released:** *The Blue Ridge Rangers Rides Again*  
-> **Never performed**
+**When Will I Be Loved**
+**Recorded:** October 2008 – January 2009
+**Released:** *The Blue Ridge Rangers Rides Again*
+**Never performed**
 
 © December 28, 2020

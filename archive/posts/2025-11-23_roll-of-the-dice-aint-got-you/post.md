@@ -74,7 +74,7 @@ Bruce drives it home in the second half of the final verse, in lyrics as autobio
 > *But I'm still the biggest fool honey this world ever knew*<br>
 > *‘Cause the only thing I ain't got baby I ain't got you*<br>
 
-*I'm still the biggest fool, honey.* Those sound very much like the words of a man who thought he knew what love is before learning too late.
+> *I'm still the biggest fool, honey.* Those sound very much like the words of a man who thought he knew what love is before learning too late.
 
 Even though it was the first new studio track from Bruce Springsteen since the mammoth success of *Born in the U.S.A.*, it was easy to dismiss "Ain't Got You" on first listen. Spare and tight (barely topping two minutes), it sounds more like an album closer than an opener. That's very likely a contributing factor to its album placement: it allowed Bruce to immediately subvert his fans' expectations and establish a very different kind of album than the one preceding.
 

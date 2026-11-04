@@ -92,7 +92,7 @@ Bruce asks: who among us is willing to acknowledge our societal inequality? Who 
 
 And in the final lines, Bruce reveals his point-of-view character–this isn't his own voice he's singing in but rather a downtrodden citizen, forsaken by his country, unable to find a job that allows him to earn a living and contribute to his community, and unable to identify and connect with the national character he'd been taught to believe would help those willing to help themselves.
 
-*We're supposed to take care of our own*, he says. *Why am I excluded?*
+> *We're supposed to take care of our own*, he says. *Why am I excluded?*
 
 It's a question that's only grown in importance, severity, and urgency since its release in 2012. Over the past four years, "We Take Care of Our Own" has become increasingly ironic as the United States government answered Bruce's call to action by simply redefining who it considers as "our own."
 

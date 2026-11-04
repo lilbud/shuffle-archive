@@ -28,7 +28,7 @@ Each day, I was sent out to pick up food, supplies, instruments, etc. My down ti
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/2002-07-12.jpg.webp)
 
-*Everyone* was so genuine and nice. Bruce really surrounds himself with people like himself. Seeing Bruce and Steve on stage for the first time in many years was a joy to watch. They were really enjoying themselves, lots of laughs and back slaps. A true friendship there.
+> *Everyone* was so genuine and nice. Bruce really surrounds himself with people like himself. Seeing Bruce and Steve on stage for the first time in many years was a joy to watch. They were really enjoying themselves, lots of laughs and back slaps. A true friendship there.
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/rehearsal.jpg.webp)
 
@@ -72,4 +72,4 @@ My first of two stints with Bruce and The E Street Band.
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+> *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*

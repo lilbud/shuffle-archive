@@ -22,7 +22,7 @@ But that's just Bruce walking his talk.
 
 ![](https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/10/standbook.jpg.webp)
 
-*Stand on it*. Put the pedal to the metal. Go fast, as fast as you can go–and then go faster still. That's the motto and the moral of the book, and it also carried over to the critically panned film, which premiered just a few weeks before Bruce wrote his song.
+> *Stand on it*. Put the pedal to the metal. Go fast, as fast as you can go–and then go faster still. That's the motto and the moral of the book, and it also carried over to the critically panned film, which premiered just a few weeks before Bruce wrote his song.
 
 [Watch on Youtube: Stroker Ace Opening Song](https://www.youtube.com/watch?v=QimodWJM6qY)
 
@@ -44,7 +44,7 @@ Bruce turned that motto into a rockabilly cautionary tale in his 1985 B-side to 
 
 Jimmy Lee is flagging on the dirt track until a shouted encouragement reignites his fire. Mary Beth's stakes are higher: her house is on the line, but she listens to the hitchhiker and stands on it, too.
 
-*Stand on it*. It applies to racing, but it applies to life, too–and you can leave it all out on the dance floor as easily as the dirt track.
+> *Stand on it*. It applies to racing, but it applies to life, too–and you can leave it all out on the dance floor as easily as the dirt track.
 
 > *Well now when in doubt and you can't figure it out, just stand on it*<br>
 > *Well if your mind's confused, you don't know what you're gonna do, well buddy, stand on it*<br>

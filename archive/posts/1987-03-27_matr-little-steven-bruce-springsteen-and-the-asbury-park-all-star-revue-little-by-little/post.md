@@ -24,8 +24,8 @@ The Asbury Park All-Star Revue played three shows over two nights, with Bruce ta
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kXxXxY5kr60)
 
-**Little By Little  **
-**First performed:** May 12, 1977 (Red Bank, NJ)  
+**Little By Little**
+**First performed:** May 12, 1977 (Red Bank, NJ)
 **Last performed:** May 13, 1977 (Red Bank, NJ)
 
 © March 19, 2021

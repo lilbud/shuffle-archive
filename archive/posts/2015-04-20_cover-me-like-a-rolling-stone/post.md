@@ -20,8 +20,8 @@ Take a listen to the one and only E Street Band performance of Bob Dylan’s “
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Li3DG93_YEc)
 
-**Like a Rolling Stone**  **
-**First performed:** January 20, 1988 (New York City, NY)  
+**Like a Rolling Stone**
+**First performed:** January 20, 1988 (New York City, NY)
 **Last performed:** May 19, 2009 (Pittsburgh, PA)
 
 © June 9, 2019

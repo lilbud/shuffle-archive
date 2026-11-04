@@ -79,6 +79,6 @@ But there's a reason why Bruce never recorded it, and it's probably not oversigh
 **First performed:** February 4, 1972 (Richmond, VA)*<br>
 **Last performed:** February 25, 1972 (Richmond, VA)<br>
 
-*evidence suggests "Like a Stranger" was performed in 1971 as well, but we cannot pin to a particular date(s)
+> *evidence suggests "Like a Stranger" was performed in 1971 as well, but we cannot pin to a particular date(s)
 
 © October 28, 2018

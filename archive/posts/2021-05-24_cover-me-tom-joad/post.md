@@ -18,7 +18,7 @@ As a result, the two parts became known as "Tom Joad Part 1" and "Tom Joad Part 
 
 [Watch on Youtube: Tom Joad, Pt. 2](https://www.youtube.com/watch?v=ozBU0BtQ2h0)
 
-*Dust Bowl Ballads* was Woody Guthrie's very first and most successful commercial recording, and through it he brought widespread awareness to the plight of displaced Dust Bowl farmers and agricultural workers.
+> *Dust Bowl Ballads* was Woody Guthrie's very first and most successful commercial recording, and through it he brought widespread awareness to the plight of displaced Dust Bowl farmers and agricultural workers.
 
 More than a half-century later, Bruce took inspiration from Guthrie's Steinbeck homage (along with his already established fondness for John Ford's film from the same year) and wrote his own song to highlight the plight of the invisible homeless and jobless. Bruce recorded an album around "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" in his home studio in California (ironically, Guthrie recorded his own song in New Jersey) and embarked on a marathon worldwide tour to support it.
 

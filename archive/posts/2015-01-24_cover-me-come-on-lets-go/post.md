@@ -12,8 +12,8 @@ So here’s a treat: a newly uploaded, wonderfully clear recording of Bruce and 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oSf8JYKOCXo)
 
-**Come On, Let’s** **Go**  **
-**First performed:** June 20, 1982 (Asbury Park)  
+**Come On, Let’s** **Go**
+**First performed:** June 20, 1982 (Asbury Park)
 **Last performed:** August 2, 1987 (Asbury Park)
 
 © October 19, 2018
